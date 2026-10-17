@@ -10,7 +10,7 @@ Une multitude de personnes s'élancèrent hors du groupe de bâtiments. Parmi el
 
 Parmi les édifices en contrebas, des enfants aux yeux écarquillés fixaient Wang Lin du regard.
 
-En voyant ces gens, Wang Lin fut surpris. Il était évident qu'un clan entier du Clan Immortel Abandonné résidait ici. Ils étaient installés là depuis une durée inconnue et s'étaient multipliés pour assurer leur survie jusqu'à ce jour.
+En voyant ces gens, Wang Lin fut surpris. Il était évident qu'un clan entier du Clan des Immortels Délaissés résidait ici. Ils étaient installés là depuis une durée inconnue et s'étaient multipliés pour assurer leur survie jusqu'à ce jour.
 
 Ceux qui avaient pris leur envol continuèrent de reculer à mesure que Wang Lin se rapprochait. Ils craignaient tout contact et leurs yeux étaient empreints de terreur.
 
@@ -24,13 +24,13 @@ Lorsque Wang Lin eut atterri, ses yeux s'illuminèrent et son Sens Divin se dép
 
 Le vieil homme fut surpris et afficha une expression amère. Il hocha la tête sans tenter d'insister pour que Wang Lin entre.
 
-Les membres du Clan Immortel Abandonné se rassemblèrent dans les airs, observant Wang Lin d'un regard tendu.
+Les membres du Clan des Immortels Délaissés se rassemblèrent dans les airs, observant Wang Lin d'un regard tendu.
 
 « Haut Céleste... » Le vieil homme n'eut pas le temps de finir sa phrase qu'il fut interrompu par Wang Lin. Ce dernier, d'un calme imperturbable, fixa l'homme et demanda: « Pourquoi leurs yeux sont-ils remplis de crainte lorsqu'ils me regardent? »
 
 L'amertume se fit plus intense sur le visage du vieil homme. Après un silence, il laissa échapper un soupir et dit: « Cela fait bien longtemps qu'aucun membre du Royaume Céleste n'est venu. C’était comme si le Roi Céleste nous avait abandonnés. Je suis le doyen ici, mais pour être honnête, vous êtes le premier Céleste que je voie de mes yeux.
 
-« Si ce n'était pour les archives laissées par mon Clan Immortel Élu, même moi, je ne vous aurais pas reconnu comme un Céleste, et encore moins le reste de la tribu. »
+« Si ce n'était pour les archives laissées par mon Clan des Immortels Élus, même moi, je ne vous aurais pas reconnu comme un Céleste, et encore moins le reste de la tribu. »
 
 Wang Lin garda le silence, se contentant de regarder calmement le vieil homme.
 
@@ -60,17 +60,17 @@ Le haut de son corps était recouvert de tatouages qui se propageaient pour pres
 
 Une plante à treize feuilles bougeait entre ses sourcils, lui conférant une aura démoniaque.
 
-« Treize feuilles! » Les yeux de Wang Lin se rétrécirent. D'après ses souvenirs, le membre le plus puissant du Clan Immortel Abandonné sur la planète Suzaku n'en possédait que onze.
+« Treize feuilles! » Les yeux de Wang Lin se rétrécirent. D'après ses souvenirs, le membre le plus puissant du Clan des Immortels Délaissés sur la planète Suzaku n'en possédait que onze.
 
 « Équivalent à un cultivateur Corporel Yang... » L'expression de Wang Lin resta neutre tandis qu'il fixait froidement l'homme.
 
-L'homme costaud avança en quelques enjambées. Sa présence fit pousser des acclamations parmi les membres du Clan Immortel Abandonné qui l'entouraient, leurs yeux brillant de respect.
+L'homme costaud avança en quelques enjambées. Sa présence fit pousser des acclamations parmi les membres du Clan des Immortels Délaissés qui l'entouraient, leurs yeux brillant de respect.
 
 Le vieil homme à côté de Wang Lin s'écria soudainement: « Ta Shan, montre un peu de respect au Céleste! »
 
 Les yeux de l'homme costaud devinrent glacials. Il fixa le vieil homme et ricana: « Ancêtre, vous êtes vieux; la pensée des Célestes vous a-t-elle rendu fou? Il est fort probable que les Célestes n'existent pas et que tous les récits laissés par nos ancêtres soient des fables. S'ils existaient, pourquoi notre clan n'en aurait-il vu aucun depuis d'innombrables années?! »
 
-Le visage du vieil homme s'assombrit et il hurla: « Tais-toi! Le Clan Immortel Élu est le messager des Célestes. Si les Célestes n'existent pas, comment notre clan pourrait-il exister?! De plus, le décret du Roi Céleste est là; oses-tu douter de lui?! »
+Le visage du vieil homme s'assombrit et il hurla: « Tais-toi! Le Clan des Immortels Élus est le messager des Célestes. Si les Célestes n'existent pas, comment notre clan pourrait-il exister?! De plus, le décret du Roi Céleste est là; oses-tu douter de lui?! »
 
 « Douter? Ce soi-disant Roi Céleste n'est qu'un résidu de Sens Divin laissé par une puissance passée. Comment cela pourrait-il me convaincre? Plutôt que de croire en un Sens Divin abandonné il y a des millénaires, je préfère croire en ma propre force! » L'homme costaud serra le poing droit, le regard plein d'assurance.
 
@@ -84,4 +84,4 @@ Alors qu'il parlait, l'homme tourna brusquement son regard glacial vers Wang Lin
 
 « Céleste, déploie ton pouvoir céleste et montre-moi pourquoi tu es digne de ce nom! »
 
-Le regard de Wang Lin était d'une froideur absolue. Il connaissait bien le Clan Immortel Abandonné: cet homme n'était manifestement pas un maître des talismans, mais un adepte spécialisé dans le renforcement du corps.
+Le regard de Wang Lin était d'une froideur absolue. Il connaissait bien le Clan des Immortels Délaissés: cet homme n'était manifestement pas un maître des talismans, mais un adepte spécialisé dans le renforcement du corps.

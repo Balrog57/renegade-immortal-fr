@@ -48,7 +48,7 @@ De son point de vue, Wang Lin était simplement trop mesquin. Compte tenu de son
 
 Même lorsqu'il combattait le jeune maître du Clan des Immortels Délaissés, il n'avait jamais été placé dans une position aussi humiliante.
 
-Cette scène ravissait Du Tian. Il éclata de rire en pensant: « Ce Ceng Niu possède véritablement l'essence de ma Secte de la Affinement de l'Âme. Si l'on doit agir, il faut savoir saisir la meilleure opportunité. »
+Cette scène ravissait Du Tian. Il éclata de rire en pensant: « Ce Ceng Niu possède véritablement l'essence de ma Secte de l'Affinement de l'Âme. Si l'on doit agir, il faut savoir saisir la meilleure opportunité. »
 
 À cet instant, Qian Feng était encerclé par le sous-étendard des âmes d'un milliard. Les innombrables fragments d'âmes créaient une pression écrasante, particulièrement les douze âmes primaires qui représentaient un danger mortel pour lui.
 
@@ -64,9 +64,9 @@ D'un seul mot, cent millions de fragments d'âmes explosèrent instantanément.
 
 Boum! Boum! Boum!
 
-L'explosion de ces cent millions de fragments créa une force destructrice dépassant l'entendement, faisant changer radicalement l'expression de Qian Feng. Sans aucune hésitation, il rangea le poinçon et s'assit en position du lotus. Toute la formation Suzaku vacilla puis disparut avant de se matérialiser à nouveau devant lui.
+L'explosion de ces cent millions de fragments créa une force destructrice dépassant l'entendement, faisant changer radicalement l'expression de Qian Feng. Sans aucune hésitation, il rangea le poinçon et s'assit en position du lotus. Toute la formation Suzaku vacilla puis disparut avant de se matérialiser à nouveau sur son corps.
 
-Son corps émettait désormais une puissante lumière verte. Un vortex impétueux jaillit de son corps pour absorber toute l'onde de choc de l'explosion.
+Son corps émettait désormais une lumière verte pareille à un arc-en-ciel, qui s'éleva du sol en d'immenses tourbillons et balaya les alentours.
 
 L'impact violent de l'explosion des cent millions d'âmes fit trembler violemment la lumière verte et Qian Feng, resté à l'intérieur, cracha une bouchée de sang.
 
@@ -80,9 +80,9 @@ Le regard de Du Tian devint froid. Il leva la main avant de la baisser. Pour l'i
 
 Les yeux de Wang Lin restaient calmes, comme si le combat précédent n'avait jamais eu lieu.
 
-Après trois respirations, le rideau de lumière verte disparut et Qian Feng en sortit, l'expression sombre. Il fixa Wang Lin avec colère et frustration, mais réprima aussitôt ses émotions. Après une profonde inspiration, son visage retrouva sa douceur habituelle. Il dit: « Le frère Ceng a vraiment du talent! J'ai beaucoup appris de cela. »
+Après trois respirations, le rideau de lumière verte disparut et Qian Feng en sortit, l'expression sombre. Il fixa Wang Lin avec colère et frustration, mais réprima aussitôt ses émotions. Après une profonde inspiration, son visage retrouva sa douceur habituelle. Il dit: « Le frère Ceng a vraiment du talent! J'ai pu constater de quoi vous êtes capable. »
 
-Wang Lin répondit calmement: « Ce n'est rien! » Son regard s'attarda sur la forêt non loin de là, puis il poussa un soupir et s'envola vers la Secte de la Affinement de l'Âme.
+Wang Lin répondit calmement: « Ce n'est rien! » Son regard s'attarda sur la forêt non loin de là, puis il poussa un soupir et s'envola vers la Secte de l'Affinement de l'Âme.
 
 Du Tian esquissa un sourire malicieux en regardant Qian Feng, avant de parcourir distraitement la forêt du regard et de disparaître à son tour vers la Secte.
 
@@ -102,9 +102,9 @@ Qian Feng ne daigna même pas regarder Papillon Rouge; il continuait de fixer l'
 
 « L'étendard d'âme de ce Ceng Niu est trop puissant. Ce vieux Du Tian a perdu la tête aussi, mais au lieu de le donner au pays de Suzaku, il le donne à Ceng Niu! Cependant, l'étendard a déjà attiré l'attention du Maître, et il est déterminé à s'en saisir. Je veux voir combien de temps tu pourras encore tenir! »
 
-Wang Lin et Du Tian regagnèrent rapidement la Secte de la Affinement de l'Âme.
+Wang Lin et Du Tian regagnèrent rapidement la Secte de l'Affinement de l'Âme.
 
-La Secte était resté tel qu'ils l'avaient laissé. À leur retour, Du Tian ne prit même pas de repos avant d'emmener Wang Lin directement vers la montagne arrière.
+La Secte était restée telle qu'ils l'avaient laissée. À leur retour, Du Tian ne prit même pas de repos avant d'emmener Wang Lin directement vers la montagne arrière.
 
 Une fois à l'intérieur, Du Tian tendit un sac de rangement à Wang Lin. Il le regarda et dit: « Concentre-toi uniquement sur l'atteinte du stade de la Transformation de l'Âme. Avec moi pour te protéger, tant que je serai en vie, personne ne t'importunera! »
 
@@ -118,14 +118,14 @@ Du Tian hocha la tête et disparut de la grotte. Lorsqu'il réapparut, il se tro
 
 L'étendard des âmes d'un milliard flottait silencieusement devant lui.
 
-« Ce Ceng Niu a vraiment du cran. Faire exploser les fragments d'âmes... Heureusement qu'il n'utilisait que le sous-étendard, ainsi tous les fragments d'âmes n'étaient que des illusions créées par l'étendard principal. Bien que cent millions de fragments aient explosé, ils n'ont pas été détruits. J'aurais eu le cœur brisé s'ils avaient été réels. »
+« Ce Ceng Niu a vraiment du cran. Faire exploser les fragments d'âmes... Heureusement qu'il n'utilisait que le sous-étendard, ainsi tous les fragments d'âmes n'étaient que des illusions créées par l'étendard principal. Bien que cent millions de fragments aient explosé, ils n'ont pas été détruits, ils sont seulement affaiblis. J'aurais eu le cœur brisé s'ils avaient été réels. »
 
 Du Tian regarda l'étendard et songea au passé. Il ne semblait pas contempler un trésor, mais plutôt ses aînés.
 
-Une pointe de tristesse apparut dans ses yeux alors qu'il murmurait: « Ancêtres de la Secte de la Affinement de l'Âme, le jeune Du Tian est sur le point de vous rejoindre. »
+Une pointe de tristesse apparut dans ses yeux alors qu'il murmurait: « Ancêtres de la Secte de l'Affinement de l'Âme, votre junior Du Tian, dont la durée de vie touche à sa fin, est sur le point de vous rejoindre. »
 
 Il désigna l'étendard et une âme primaire s'en échappa. Cette âme affichait une expression douce et dégageait une aura céleste.
 
-Du Tian fixa l'âme. Il soupira et murmura pour lui-même: « Grand frère apprenti, je ne sais pas si j'ai raison ou tort d'avoir confié l'étendard à Ceng Niu. Cependant, avec la guerre entre le Clan des Immortels Délaissés et le pays de Suzaku, notre Secte de la Affinement de l'Âme sera difficile à sauver. Mais ce Ceng Niu quittera la planète, il pourra ainsi aider ma Secte à renaître ailleurs. C'est peut-être là le véritable sens de votre prédiction... »
+Du Tian fixa l'âme. Il soupira et murmura pour lui-même: « Grand frère apprenti, je ne sais pas si j'ai raison ou tort d'avoir confié l'étendard à Ceng Niu. Cependant, avec la guerre entre le Clan des Immortels Délaissés et le pays de Suzaku, notre Secte de l'Affinement de l'Âme sera difficile à sauver. Mais ce Ceng Niu quittera la planète, il pourra ainsi aider ma Secte à renaître ailleurs. C'est peut-être là le véritable sens de votre prédiction... »
 
 Du Tian regarda l'âme primaire si paisible et murmura: « J'ai vécu ma vie non pas en espérant l'éternité, mais en espérant mourir en paix. Tous les anciens de ma Secte ont volontairement renoncé au cycle de la réincarnation et ont effacé leur conscience pour devenir des âmes primaires. Moi, Du Tian, je ne ferai pas exception! Grand frère apprenti, attends-moi! Je te rejoindrai bientôt! »

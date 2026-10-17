@@ -18,7 +18,7 @@ Tout en réprimant son envie immédiate de s'emparer de la veine métallique, Wa
 
 En songeant cela, le corps de Wang Lin s'immobilisa soudainement et ses yeux prirent une teinte étrange. Tandis qu'il fixait la veine, son cœur était en plein tumulte.
 
-« Un os... Pourrait-il vraiment s'agir d'un vestige laissé par une force inconnue?! » Wang Lin eut un haut-le-cœur. Il ne pouvait imaginer quelle sorte de bête pourrait avoir une veine métallique pour squelette.
+« Un os... Pourrait-il vraiment s'agir d'un vestige laissé par une bête féroce inconnue?! » Wang Lin inspira brusquement. Il ne pouvait imaginer quelle sorte de bête pourrait avoir une veine métallique pour squelette.
 
 Il réfléchit un instant avant de poursuivre son exploration le long de la veine. À cet instant, le sol trembla soudainement et Wang Lin sentit immédiatement des ondes de fluctuations émaner de toutes les directions. Toutes ces vagues de puissance convergeaient vers le haut.
 
@@ -48,7 +48,7 @@ Des centaines de pensées traversèrent l'esprit de Wang Lin. Il savait qu'il de
 
 « Les tentacules sont leurs organes les plus sensibles... Quelle méthode puis-je utiliser pour extraire l'os sans le réveiller... »
 
-Une lumière mystérieuse envahit le regard de Wang Lin alors qu'il murmurait pour lui-même: « À l'époque où j'ai dévoré tous ces Fruits de l'Ascension Céleste, j'étais empreint d'une forme de folie. À ce moment-là, même si quelqu'un avait arraché mes os, je crains que je ne l'eusse ressenti. Si je parviens à plonger ce Serpent aux yeux de lune dans un état d'illusion pendant qu'il dort encore, peut-être pourrai-je alors prendre son os... »
+Une lumière mystérieuse envahit le regard de Wang Lin alors qu'il murmurait pour lui-même: « À l'époque où j'ai dévoré tous ces Fruits de l'Ascension Céleste, j'étais empreint d'une forme de folie. À ce moment-là, même si quelqu'un avait arraché mes os, je crains que je ne l'aurais pas senti. Si je parviens à plonger ce Serpent aux yeux de lune dans un état d'illusion pendant qu'il dort encore, peut-être pourrai-je alors prendre son os... »
 
 Wang Lin réfléchit un instant en contemplant la veine métallique avec regret, puis il poussa un soupir. D'un pas, il se retrouva déjà au-dessus du sol, avant de se téléporter dans les airs pour réapparaître à l'extérieur de la planète Yun Xia. La boussole stellaire apparut et le transporta rapidement loin de la planète.
 
@@ -60,7 +60,7 @@ Si n'importe qui d'autre avait conçu cette méthode et obtenu une grande quanti
 
 Et seul Wang Lin possédait cette tactique.
 
-Tandis que le dragon argenté fendant les étoiles, Wang Lin restait assis sur son dos, l'expression sombre. Ce voyage de plusieurs mois avait été une perte de temps totale. Il pensait pouvoir achever la perle défiant le ciel, mais le résultat n'était pas celui escompté.
+Tandis que le dragon argenté fendait les étoiles, Wang Lin restait assis sur son dos, l'expression sombre. Ce voyage de plusieurs mois avait été une perte de temps totale. Il pensait pouvoir achever la perle défiant le ciel, mais le résultat n'était pas celui escompté.
 
 « Tant pis. J'ai déjà attendu plus de huit cents ans, je ne m'opposerai pas à attendre un peu plus longtemps. Dès que j'aurai assez de Fruits de l'Ascension Céleste pour les raffiner, je reviendrai. »
 
@@ -120,4 +120,4 @@ Cette puissance colossale atteignit son apogée lorsque la silhouette magnifique
 
 Le corps de Liu Mei descendit du ciel; elle observa les trois hommes et murmura: « Ils brûlent leurs âmes originelles... » Sa voix était d'une beauté pure, semblable à une brise printanière balayant la terre, mais elle recelait également une force mystérieuse.
 
-Xiaoyao Sanren fixa Liu Mei dans le ciel. La flamme dans ses yeux s'estompa progressivement, laissant place à une lueur de fanatisme...
+Xiaoyao Sanren fixa Liu Mei dans le ciel. La flamme dans ses yeux s'estompa progressivement, laissant place à une lueur de fascination...

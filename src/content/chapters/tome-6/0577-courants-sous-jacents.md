@@ -16,11 +16,11 @@ Il était celui qui comprenait le mieux le sortilège de Wang Lin et en était p
 
 L'expression de Wang Lin n'était ni arrogante ni fière; il demeurait calme. À cet instant, il sourit et dit: « Frère Mo, puisque j'ai accepté cette affaire, je vous aiderai sans faute! »
 
-Mo Lihai éclata de rire. Il était manifestement comblé de bonheur. « Frère Wang, je possède un vin ancien enterré depuis cinq cents ans. Ce soir, nous boirons ensemble! »
+Mo Lihai éclata de rire. Il était manifestement comblé de bonheur. « Frère Wang, je possède un vin ancien enterré depuis plus de cinq cents ans. Ce soir, nous boirons ensemble! »
 
 Les yeux de Wang Lin s'illuminèrent et il acquiesça d'un sourire.
 
-Au même moment, au pavillon des épées situé au centre de la Cité du Démon Céleste, une silhouette vêtue de robes jaunes apparut. Il contempla le pavillon impérial des épées et sourit: « As-tu assez joué? Ne retourne plus à la Prison de Hong; repose-toi quelques jours. »
+Au même moment, au pavillon des épées situé au centre de la Cité du Démon Céleste, une silhouette vêtue de robes jaunes apparut. Il contempla le pavillon impérial des épées et sourit: « As-tu assez joué? Ne retourne plus à la Prison Hong; repose-toi quelques jours. »
 
 L'épée argentée à l'intérieur de la formation émit plusieurs salves d'hymnes d'épée, comme si elle refusait de céder.
 
@@ -28,7 +28,7 @@ L'homme rit: « Si tu continues à être aussi espiègle, je t'enverrai au lac d
 
 L'épée impériale cessa soudainement son vacarme, comme si elle avait perdu toute son arrogance, et ne laissa échapper que quelques faibles hymnes. Bien qu'elle agît ainsi, sa colère envers cette nourriture qui osait la provoquer ne faisait que croître.
 
-Une fois que l'épée impériale eut cessé de fréquenter la Prison de Hong, le monde écarlate au fond du gouffre se rétablit lentement. De nouveaux criminels y furent jetés, et le cycle du massacre recommença.
+Une fois que l'épée impériale eut cessé de fréquenter la Prison Hong, le monde écarlate au fond du gouffre se rétablit lentement. De nouveaux criminels y furent jetés, et le cycle du massacre recommença.
 
 Un homme aux cheveux noirs restait assis en silence dans le bassin de sang. Des filaments d'intention meurtrière s'infiltraient continuellement dans son corps, et l'aura de mort qui l'entourait devenait de plus en plus oppressante.
 
@@ -56,13 +56,13 @@ Le dragon argenté poussa un rugissement de rage et fixa l'homme du regard. Il p
 
 Le bassin vola en éclats et le jeune homme aux cheveux noirs mourut sur le coup.
 
-Ce cycle se répéta. À chaque renaissance, le dragon argenté le tuait. Après plusieurs répétitions, le dragon afficha une expression de fierté avant de disparaître. Puisque l'Empereur Démon lui avait interdit d'aller à la Prison de Hong et lui avait ordonné de rester tranquille, il avait décidé de vider sa colère ici.
+Ce cycle se répéta. À chaque renaissance, le dragon argenté le tuait. Après plusieurs répétitions, le dragon afficha une expression de fierté avant de disparaître. Puisque l'Empereur Démon lui avait interdit d'aller à la Prison Hong et lui avait ordonné de rester tranquille, il avait décidé de vider sa colère ici.
 
-Oublions la Prison de Hong pour l'instant.
+Oublions la Prison Hong pour l'instant.
 
 Il ne restait que quinze jours avant la bataille des généraux démons. Une aura oppressante pesait sur toute la Cité du Démon Céleste, tandis que les divers généraux démons affinaient leurs préparatifs.
 
-Outre les préparatifs conventionnels, de nombreux mouvements se tramaient en coulisses. Qu'il s'agisse de pactes secrets ou de manœuvres occultes, l'Empereur Démon ignorait tout cela. Bien qu'un ordre règne sur la Terre des Esprits Démons, un chaos sans fin se cachait sous cette apparente stabilité. C'était une époque de troubles!
+Outre les préparatifs conventionnels, de nombreux mouvements se tramaient en coulisses. Qu'il s'agisse de pactes secrets ou de manœuvres occultes, l'Empereur Démon n'y prêtait aucune attention. Bien qu'un ordre règne sur la Terre des Esprits Démons, un chaos sans fin se cachait sous cette apparente stabilité. C'était une époque de troubles!
 
 La bataille entre les généraux démons était cruciale, car elle représentait une opportunité céleste pour gravir les échelons. S'ils la manquaient, ils risquaient de rester à jamais au rang de général démon! Par conséquent, ces généraux accordaient à cet événement une importance sans précédent.
 
@@ -78,23 +78,23 @@ Cependant, bien que cela ne soit pas interdit, cela transgressait la ligne rouge
 
 Ces luttes, publiques et secrètes, s'intensifièrent à mesure que l'échéance approchait. Mo Lihai sortait rarement, passant la majeure partie de ses journées en culture isolée. Cela lui permettait de rester à son apogée tout en évitant délibérément les tentatives d'assassinat. Il avait également mis en place une formation et placé nombre de ses anciens subordonnés, dotés de hauts niveaux de culture, pour assurer sa garde.
 
-Durant cette période oppressante, seul Wang Lin demeurait parfaitement calme. Sa vie ne changeait pas; il sortait chaque matin et s'asseyait au bord de la rivière pour écouter la musique du zither. C'était comme si toute cette tension précédant la grande bataille n'était que des nuages passagers. Seule la musique importait à ses yeux.
+Durant cette période oppressante, seul Wang Lin demeurait parfaitement calme. Sa vie ne changeait pas; il sortait chaque matin et s'asseyait au bord de la rivière pour écouter la musique de la cithare. C'était comme si toute cette tension précédant la grande bataille n'était que des nuages passagers. Seule la musique importait à ses yeux.
 
 Chaque fois qu'il l'entendait, il s'y plongeait totalement et vivait une expérience singulière. Chaque jour, son cœur était purifié. Wang Lin ne se souciait guère de savoir si Mo Lihai serait assassiné ou non. Ce dernier était extrêmement rusé et possédait bien plus d'atouts qu'il n'en montrait. Après avoir interagi avec lui, Wang Lin en était certain: sans ses méthodes secrètes, il n'aurait jamais survécu en atteignant les sommets de la hiérarchie des généraux démons.
 
-Assis au bord de l'eau, les yeux fermés, Wang Lin écoutait le zither depuis son bateau. Il saisit sa cruche pour découvrir qu'elle était déjà vide. Il soupira, ouvrit les yeux et leva silencieusement le regard vers le ciel. Chaque fois que cette musique résonnait, son cœur tremblait et il ressentait l'ombre d'une percée imminente. Malheureusement, sa compréhension des cieux était encore trop éthérée.
+Assis au bord de l'eau, les yeux fermés, Wang Lin écoutait la cithare provenant du bateau qui approchait. Il saisit sa cruche pour découvrir qu'elle était déjà vide. Il soupira, ouvrit les yeux et leva silencieusement le regard vers le ciel. Chaque fois que cette musique résonnait, son cœur tremblait et il ressentait l'ombre d'une percée imminente. Malheureusement, sa compréhension des cieux était encore trop éthérée.
 
 Tout en s'immergeant dans la mélodie, Wang Lin expérimentait silencieusement les vibrations. L'énergie spirituelle céleste en son corps avait appris à se dissimuler, car l'épée de l'Empereur Démon le traquait toujours.
 
 Pourtant, soudain, il fronça les sourcils. Sa compréhension des cieux et son plaisir musical furent interrompus.
 
-« Tu es le vice-général de Mo Lihai? » Une voix empreinte de mépris perça la musique du zither, brisant net l'atmosphère.
+« Tu es le vice-général de Mo Lihai? » Une voix empreinte de mépris perça la musique de la cithare, brisant net l'atmosphère.
 
-Un homme en robe noire se tenait à plus de trois cents mètres de Wang Lin. Il avait une main posée sur la poitrine et une épée serpentiforme tournait autour de lui. Une trace d'impatience marquait son visage.
+Un homme en robe noire se tenait à plus de trois cents mètres de Wang Lin. Il avait les bras croisés sur la poitrine et une épée serpentiforme tournait autour de lui. Une trace d'impatience marquait son visage.
 
 « Tu peux attaquer; te tuer reviendrait à trancher l'un des bras de Mo Lihai! »
 
-Wang Lin reposa sa cruche, mais il ne se leva pas et ne daigna même pas regarder l'individu. Il pointa son pouce droit vers l'homme, et le doigt de la mort jaillit soudainement sous la forme d'un rayon de lumière noire.
+Wang Lin reposa sa cruche, mais il ne se leva pas et ne daigna même pas regarder l'individu. Il pointa son pouce droit vers l'homme, et le Doigt de la Mort jaillit soudainement sous la forme d'un rayon de lumière noire.
 
 À l'instant où cette lueur apparut, l'herbe environnante se flétrit instantanément, sa force vitale étant aspirée silencieusement par la lumière noire.
 
@@ -108,4 +108,4 @@ En tombant, un soupçon de regret passa dans ses yeux avant qu'ils ne s'éteigne
 
 Cet homme n'était pas un étranger, mais un natif de la Terre des Esprits Démons. Son niveau de culture n'était pas élevé; il n'était qu'au stade avancé de la Formation de l'Âme. Il avait probablement été envoyé par un général démon qui ne le connaissait pas pour servir de reconnaissance.
 
-Wang Lin continua d'écouter la musique du zither...
+Wang Lin continua d'écouter la musique de la cithare...

@@ -78,7 +78,7 @@ Simultanément, diverses silhouettes jaillirent du manoir des Sun, certaines s'�
 
 À cet instant, le visage de l'Ancien Sun était d'une sévérité extrême.
 
-Celui qui avait parlé était un vieillard au visage rouge. Il fixa froidement Wang Lin dans les airs et demanda: « De quelle famille viens-tu? Sais-tu qu'irrumper chez la famille Sun est un crime impardonnable?! »
+Celui qui avait parlé était un vieillard au visage rouge. Il fixa froidement Wang Lin dans les airs et demanda: « De quelle famille viens-tu? Sais-tu que faire irruption chez la famille Sun est un crime impardonnable?! »
 
 Wang Lin sourit, pointa l'Ancien Sun du doigt et déclara: « Je suis venu pour lui! »
 
@@ -90,7 +90,7 @@ L'Ancien Sun laissa échapper un reniflement de mépris, mais les deux vieillard
 
 Cependant, l'Ancien Sun était bien un aîné de la famille Sun. Puisque les faits étaient là, ils prendraient indubitablement son parti. Le vieillard au visage rouge sourit froidement: « Absurde. Quelle que soit ta lignée, tu resteras ici aujourd'hui. Attends que ton propre ancien arrive, et nous déciderons alors si tu vis ou si tu meurs! »
 
-Une lueur de froideur dans ses yeux, il leva sa main droite et l'abattit. Soudain, des rugissements tonnèrent tandis qu'une pression écrasante s'abattait directement sur le manoir de la famille Sun.
+Une lueur de froideur dans les yeux, Wang Lin leva sa main droite et l'abattit. Soudain, des rugissements tonnèrent tandis qu'une pression écrasante s'abattait directement sur le manoir de la famille Sun.
 
 À cet instant, tous les membres de la famille Sun virent leurs expressions changer radicalement. Ils mobilisèrent tous leur énergie spirituelle pour résister, de peur de s'effondrer instantanément.
 

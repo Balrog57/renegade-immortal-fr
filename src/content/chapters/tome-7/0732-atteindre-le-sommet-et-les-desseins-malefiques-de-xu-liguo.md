@@ -10,7 +10,7 @@ Le cercle formé par le Fouet des Âmes se relâcha, puis se transforma en un ra
 
 Après que son domaine s’y fut fusionné, il n'avait plus de forme physique. Il était devenu semblable au domaine de n'importe quel expert: une chose invisible, mais que l'on pouvait ressentir.
 
-Xu Liguo, qui avait failli s'effondrer, recula immédiatement de quelques pas. La terreur dans ses yeux était encore palpable. Il avait perdu toute son arrogance passée et son visage était désormais empreint de flatterie. Il s'exclama rapidement: « Le sort du Maître est véritablement féroce! En réalité, le petit Xu n'a fait cela que pour permettre au Maître de s'exercer davantage. La loyauté du petit Xu envers le Maître est immense, sans la moindre pensée de rébellion! »
+Xu Liguo, qui avait failli s'effondrer, recula immédiatement de quelques pas. La terreur dans ses yeux était encore palpable. Il avait perdu toute son arrogance passée et son visage était désormais empreint de flatterie. Il s'exclama rapidement: « Les sorts du Maître sont encore plus puissants! En réalité, si le petit Xu a parlé ainsi tout à l'heure, c'était uniquement pour permettre au Maître de s'exercer davantage. La loyauté du petit Xu envers le Maître est immense, sans la moindre pensée de rébellion! »
 
 Wang Lin regarda Xu Liguo et dit calmement: « Puisque tu peux sortir, nul besoin de retourner dans ton sac de rangement. Tu peux rester dans un rayon de 5 000 kilomètres autour de cette montagne. Va donc comprendre ton intention d'épée antique! »
 
@@ -26,15 +26,15 @@ Wang Lin cessa de prêter attention à Xu Liguo et frappa son sac de rangement. 
 
 À leur suite, les autres bêtes moustiques apparurent. Bien qu'elles fussent encore au stade larvaire et non parvenues à maturité, elles paraissaient toutes très féroces.
 
-Quant au crapaud tonnerre, il semblait habitué à la méprisable bête moustique sur son dos. Une fois apparu, son ventre s'étira et il trouva une place sur le côté, semblant s'assoupir.
+Quant au crapaud tonnerre, il semblait habitué à la méprisable bête moustique sur son dos. Une fois apparu, des grondements de tonnerre résonnèrent dans son ventre; il trouva une place sur le côté et se coucha, immobile, comme s'il dormait.
 
 Peu de temps après, le Char de Guerre Divin apparut et se transforma en la Bête du Tonnerre. Dès qu'il fut là, il vit le crapaud tonnerre et commença à rugir.
 
-L'apparence paresseuse du crapaud disparut soudainement. Ses yeux s'écarquillèrent et il fixa la Bête du Tonnerre, le ventre gonflé. La bête moustique était également pleine d'entrain, observant la Bête du Tonnerre avec intérêt.
+L'apparence paresseuse du crapaud disparut soudainement. Ses yeux s'écarquillèrent et il fixa la Bête du Tonnerre, le ventre grondant de tonnerre. La bête moustique était également pleine d'entrain, observant la Bête du Tonnerre avec intérêt.
 
-Xu Liguo, qui observait la scène, eut les yeux grands ouverts. Il scruta attentivement la Bête du Tonnerre et pensa: « Le Maître est vraiment un Maître. Cela ne fait pas longtemps qu'il est là, et déjà une autre bête stupide est apparue. Battez-vous! C'est mieux si vous vous battez tous. Ainsi, vous saurez tous que c'est moi qui accompagne le Maître depuis le plus longtemps! »
+Xu Liguo, qui observait la scène, eut les yeux grands ouverts. Il scruta attentivement la Bête du Tonnerre et pensa: « Le Maître est vraiment un Maître. Cela fait si peu de temps que je ne l'ai pas vu, et voilà qu'il a déjà une autre bête stupide. Battez-vous! C'est mieux si vous vous battez tous. Ainsi, vous saurez tous que c'est moi qui accompagne le Maître depuis le plus longtemps! »
 
-« Cependant, je dois dire que le Maître a vraiment de la chance avec les bêtes. Moi, le vieux Xu, je suis très humble et je n'ai de la chance qu'avec les beautés! » L'expression de Xu Liguo sombra dans la rêverie alors qu'il pensait à la petite beauté de la Terre des Esprits Démoniaques.
+« Cependant, je dois dire que le Maître a vraiment de la chance avec les bêtes. Sur ce point, moi, le vieux Xu, je ne lui arrive pas à la cheville. Moi, c'est avec les beautés que j'ai de la chance! » L'expression de Xu Liguo sombra dans la rêverie alors qu'il pensait à la petite beauté de la Terre des Esprits Démoniaques.
 
 « Hélas, depuis l'Antiquité, les sentiments mènent au regret... C'est une vérité que le vieux démon Wang ne peut comprendre. » Xu Liguo ressentit un profond regret. Il regarda la Bête du Tonnerre, le crapaud tonnerre et les moustiques avant de lever les yeux vers Wang Lin. Il éprouva un mélange de solitude et de fierté.
 
@@ -44,7 +44,7 @@ Il commença à méditer. Parmi les sorts qu'il maîtrisait, le plus puissant é
 
 Vient ensuite le sort d'Arrêt. Ce sort n'était pas moins puissant que le Coup Céleste. S'il était utilisé au moment opportun, il jouerait un rôle décisif.
 
-Outre ces trois sorts, il y avait le Doigt de la Mort, le Doigt Démoniaque et le Doigt des Enfers! Il y avait aussi les trois capacités du fleuve des enfers: la Forme du fleuve des enfers, la Formation de l'âme du fleuve et la Puissance du fleuve des enfers.
+Outre ces deux sorts, il y avait le Doigt de la Mort, le Doigt Démoniaque et le Doigt des Enfers! Il y avait aussi les trois pensées du Dao issues du domaine de vie, de mort et de réincarnation: la Forme du fleuve des enfers, la Formation de l'âme du fleuve et la Puissance du fleuve des enfers.
 
 Ce qu'il devait ajuster, c'étaient les trois doigts! S'il continuait à les utiliser ainsi, cela lui porterait grand préjudice sur son chemin vers la troisième étape. Ces trois sorts étaient incomplets et nuiraient à son corps. Quant à savoir pourquoi ils entraveraient son ascension vers la troisième étape, Wang Lin ne le savait pas précisément, mais il en avait l'intuition.
 
@@ -90,15 +90,15 @@ Zhang Xinhai prit une profonde inspiration. Il s'arrêta à 5 000 kilomètres de
 
 Sa voix était rauque alors qu'elle pénétrait lentement dans le brouillard noir.
 
-Xu Liguo eut un sourire et dit: « Le vieux peut entrer. Je vous emmènerai voir mon Maître! » Zhang Xinhai fut surpris et hésita un instant avant de s'avancer dans la brume noire. Dès qu'il entra, il sentit un vent l'envelopper et son corps fut projeté avec rapidité vers l'avant.
+Xu Liguo eut un sourire et dit: « Toi, le vieux, entre. Je t'emmènerai voir mon Maître! » Zhang Xinhai fut surpris et hésita un instant avant de s'avancer dans la brume noire. Dès qu'il entra, il sentit un vent l'envelopper et son corps fut projeté avec rapidité vers l'avant.
 
-Peu de temps après, il atteignit le sommet et le vent se dissipa. Il vit immédiatement Wang Lin et dit respectueusement: « Senior, votre Junior ne vous a pas déçu et a rassemblé toute la rancune de la planète Qing Ling. » En parlant, il sortit mille pierres précieuses, les déposa au sol et recula respectueusement de quelques pas.
+Peu de temps après, il atteignit le sommet et le vent se dissipa. Il vit immédiatement Wang Lin et dit respectueusement: « Senior, votre Junior ne vous a pas déçu et a rassemblé toute la rancune de la planète Qing Ling. » En parlant, il sortit mille tablettes de jade, les déposa au sol et recula respectueusement de quelques pas.
 
-Une fois Xu Liguo ayant renvoyé Zhang Xinhai, ce dernier retourna avec enthousiasme vers le bord du brouillard. Il regarda l'homme d'âge moyen à l'extérieur et dit: « Petit morveux, entre, n'aie pas peur. Ton grand-père Xu te donnera quelques avantages. » Voyant que l'homme hésitait encore, il cria aussitôt: « Pourquoi n'entres-tu pas?! »
+Après avoir raccompagné Zhang Xinhai, Xu Liguo retourna avec enthousiasme vers le bord du brouillard. Il regarda l'homme d'âge moyen à l'extérieur et dit: « Petit morveux, entre, n'aie pas peur. Ton grand-père Xu te donnera quelques avantages. » Voyant que l'homme hésitait encore, il cria aussitôt: « Pourquoi n'entres-tu pas?! »
 
 L'homme d'âge moyen serra les dents et s'avança dans le brouillard noir...
 
-Wang Lin ouvrit les yeux et inspecta les pierres. Il sentit immédiatement la rancune qu'elles contenaient. La quantité était alarmante, comme si une tempête d'aura de ressentiment s'en dégageait.
+Wang Lin ouvrit les yeux et inspecta les tablettes. Il sentit immédiatement la rancune qu'elles contenaient. La quantité était alarmante, comme si une tempête d'aura de ressentiment s'en dégageait.
 
 Wang Lin dit lentement: « Très bien. La personne que tu as amenée sera mon messager à l'extérieur du Pic Heng Yun à l'avenir! » Après avoir réfléchi un instant, il sortit une pilule et la lança vers Zhang Xinhai.
 

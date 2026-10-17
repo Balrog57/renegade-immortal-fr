@@ -14,7 +14,7 @@ Bien qu'immergé dans son domaine, la vigilance de Wang Lin ne faiblissait jamai
 
 Wang Lin était très rusé; il savait que s'il se montrait aussi vigilant, Yao Xixue ferait preuve de la même prudence, ce qui signifiait que ce n'était pas le moment d'agir.
 
-Pendant qu'il cultivait, l'image de son domaine de la vie et de la mort apparut progressivement autour de lui. À mesure qu'il approfondissait sa compréhension, il entra dans un état éthéré où tout ce qui l'entourait devenait limpide dans son esprit.
+Pendant qu'il cultivait, l'ombre du parchemin de la vie, de la mort et de la réincarnation apparut progressivement dans son corps. À mesure qu'il approfondissait sa compréhension, il entra dans un état éthéré où tout ce qui l'entourait devenait limpide dans son esprit.
 
 Il pouvait vaguement sentir une puissance mystérieuse descendre du ciel pour se rassembler sur la plateforme. Cette force se condensa silencieusement autour de Yao Xixue et tourbillonna autour d'elle.
 
@@ -52,7 +52,7 @@ Cette sensation perdura très longtemps, au point que Wang Lin en oublia la noti
 
 Le son près de ses oreilles devint progressivement plus fort et les silhouettes devant lui se précisèrent lentement.
 
-Juste au moment où tout allait devenir limpide, l'ensemble se mua soudainement en une illusion et commença à se dissiper silencieusement. Wang Lin saisit alors l'opportunité, précisément à cet instant charnière entre la clarté et la disparition. Ses yeux s'illuminèrent et le sceau de vie unique de l'Art du Massacre Céleste se condensa instantanément sur son front.
+Juste au moment où tout allait devenir limpide, l'ensemble se mua soudainement en une illusion et commença à se dissiper silencieusement. Wang Lin saisit alors l'opportunité, précisément à cet instant charnière entre la clarté et la disparition. Ses yeux s'illuminèrent et le sceau de vie unique de l'Art du Massacre Céleste se condensa instantanément dans ses oreilles.
 
 « Je m'appelle Qing Lin... » Une voix claire retentit soudainement à ses oreilles, mais elle ne dura qu'un instant avant de s'évanouir.
 
@@ -100,11 +100,11 @@ D'un mot, Yao Xixue lança le jade. Celui-ci vola en éclats dans les airs pour 
 
 La silhouette magnifique de Yao Xixue retomba lentement au sol. Elle se retourna pour regarder Wang Lin avant de faire face à l'autre extrémité de la plateforme, où un autre Chemin du Dragon Sacré l'attendait.
 
-Les pupilles de Wang Lin se contractèrent. La culture de cette statue n'était pas inférieure à celle d'un cultivateur au début de la Transformation de l'Âme. Bien qu'elle fût dépourvue d'intelligence, la puissance dégagée par ce simple pas était immense. Si on lui permettait d'utiliser un sort ou de bouger librement, elle serait indubitablement difficile à maîtriser.
+Les pupilles de Wang Lin se contractèrent. La culture de cette statue n'était pas inférieure à celle d'un cultivateur au début de la Transformation de l'Âme. Bien qu'elle manquât de souplesse, la puissance dégagée par ce simple pas était immense. Si on lui permettait d'utiliser un sort ou de bouger librement, elle serait indubitablement difficile à maîtriser.
 
 Pourtant, quelques instants plus tôt, elle avait été si aisément scellée par Yao Xixue. Cela changea radicalement l'opinion que Wang Lin se faisait d'elle.
 
-Wang Lin pensa secrètement: « Ce jade de sang a dû être raffiné par son père pour posséder une telle puissance! » Il ne laissa transparaître aucune pensée en sautant sur la plateforme. Alors qu'il passait devant la statue recouverte de lumière rouge, il se tourna vers elle et crut voir une lueur dorée disparaître.
+Wang Lin pensa secrètement: « Ce jade de sang a dû être raffiné par son père, l'Ancêtre Sanguin, pour posséder une telle puissance! » Il ne laissa transparaître aucune pensée en sautant sur la plateforme. Alors qu'il passait devant la statue recouverte de lumière rouge, il se tourna vers elle et crut voir une lueur dorée disparaître.
 
 L'expression de Wang Lin resta impénétrable tandis qu'il s'engageait sur le chemin suivant. En marchant, il jeta un regard décontracté vers la statue; à cet instant, le sceau de vie sur son front se concentra dans ses yeux. Son regard perça la lumière rouge et aperçut le symbole clignotant sur la statue!
 

@@ -20,7 +20,7 @@ Le monde entier était enveloppé par un tonnerre impétueux. D'innombrables éc
 
 Les yeux de Wang Lin brillaient d'une lueur étrange. Cet endroit était tout simplement parfait pour lui.
 
-« Il ne me faudra que la moitié de l'effort habituel pour cultiver le sortilège de l'Origine du Tonnerre! » L'âme originelle de Wang Lin se posa sur le sol. Comme s'il avait atterri dans un bassin de foudre, une onde de choc se propagea depuis son âme originelle.
+« Il ne me faudra que la moitié de l'effort habituel pour cultiver le sortilège de l'Origine du Tonnerre du messager du Temple Céleste du Tonnerre! » L'âme originelle de Wang Lin se posa sur le sol. Comme s'il avait atterri dans un bassin de foudre, une onde de choc se propagea depuis son âme originelle.
 
 Même l'os du Serpent aux yeux de lune était entouré de tonnerre.
 
@@ -84,15 +84,15 @@ Une sensation d'engourdissement émana progressivement des mains de Wang Lin. C'
 
 Des éclairs éblouissants jaillirent par intermittence. La main de Wang Lin semblait commander tout le tonnerre du monde; il suffisait d'un mouvement de sa main pour que la foudre s'incline devant lui.
 
-Ses mains absorbèrent progressivement cet incroyable tonnerre qui commença à se condenser. Des lueurs dorées apparaissaient et disparaissaient sur ses paumes.
+Ses mains absorbèrent progressivement cet incroyable tonnerre qui commença à se condenser. Des points cristallins irradiant de la foudre apparaissaient et disparaissaient sur ses mains.
 
-Ces étincelles se multiplièrent à mesure que le tonnerre s'accumulait. Une connexion mystérieuse semblait les lier, et elles fusionnèrent lentement pour former la structure osseuse de la main. Cet os de main, entièrement constitué de particules dorées, dégageait une puissance tonitruante.
+Ces points cristallins se multiplièrent à mesure que le tonnerre s'accumulait. Une connexion mystérieuse semblait les lier, et elles fusionnèrent lentement pour former la structure osseuse de la main. Cet os de main, entièrement constitué de points cristallins, dégageait une puissance tonitruante.
 
-Au fil du temps, le tonnerre de la terre parvint à Wang Lin comme des vagues successives. La concentration de particules dorées dans ses mains atteignit un sommet et, soudainement, une paire d'os de main apparut.
+Au fil du temps, le tonnerre de la terre parvint à Wang Lin comme des vagues successives. Le nombre de points cristallins sur ses mains atteignit un sommet et, soudainement, une paire d'os de main apparut.
 
-Si un étranger voyait Wang Lin à cet instant, il en aurait eu le souffle coupé. Cette scène était d'une puissance absolue. Hormis cette paire de mains, tout le reste était transparent; seule la structure osseuse des mains était totalement solide.
+Si un étranger voyait Wang Lin à cet instant, il en aurait eu le souffle coupé. Cette scène était d'une étrangeté absolue. Hormis cette paire de mains, tout le reste était transparent; seule la structure osseuse des mains était totalement solide.
 
-L'absorption de Wang Lin ne s'arrêta pas là. À mesure que davantage de tonnerre était ingéré, les particules de lumière augmentèrent et commencèrent à s'étendre vers ses bras.
+L'absorption de Wang Lin ne s'arrêta pas là. À mesure que davantage de tonnerre était ingéré, les points cristallins augmentèrent et commencèrent à s'étendre vers ses bras.
 
 Ses os de bras se condensèrent progressivement. Le temps passa, et Wang Lin demeura constamment immergé dans l'absorption du tonnerre. Lorsque la foudre fut épuisée, un squelette complet s'était formé.
 

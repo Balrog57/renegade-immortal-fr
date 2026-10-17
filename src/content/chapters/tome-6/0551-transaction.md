@@ -18,13 +18,13 @@ Wang Lin ne se souciait en rien des affaires du camp militaire. Il passait tout 
 
 Ce jour-là, alors que Wang Lin cultivait, il ouvrit soudainement les yeux et son expression fluctua légèrement.
 
-« Camarade cultivateur Wang, ce soir à minuit, retrouvez-moi sur l'ancienne montagne située à 500 kilomètres du camp militaire. Yao Xixue! »
+« Camarade cultivateur Wang, ce soir à minuit, retrouvez-moi sur le Mont Gu situé à 500 kilomètres du camp militaire. Yao Xixue! »
 
 La voix de Yao Xixue résonna dans l'âme originelle de Wang Lin comme un nuage de fumée brumeuse.
 
 Wang Lin réfléchit un instant avant de refermer les yeux et de poursuivre sa culture.
 
-À minuit, sur l'ancienne montagne située à 500 kilomètres du camp militaire, Yao Xixue se tenait au sommet, vêtue de blanc, et attendait silencieusement. Le temps passa lentement, et même après que le soleil commença à poindre à l'horizon, Wang Lin n'était toujours pas apparu.
+À minuit, sur le Mont Gu situé à 500 kilomètres du camp militaire, Yao Xixue se tenait au sommet, vêtue de blanc, et attendait silencieusement. Le temps passa lentement, et même après que le soleil commença à poindre à l'horizon, Wang Lin n'était toujours pas apparu.
 
 L'expression de Yao Xixue devint glaciale et elle laissa échapper un renâclement méprisant. Puis, son corps se transforma en un rayon de lumière blanche et chargea directement vers le camp militaire de Wang Lin. Elle arriva bientôt à l'extérieur du camp et se téléporta directement à l'intérieur. La formation entourant le camp n'eut aucun effet sur elle; après tout, elle était également l'une des commandantes.
 
@@ -38,7 +38,7 @@ Treize cria: « Intruse, arrête-toi! »
 
 L'expression de Yao Xixue était aussi froide que la glace. Elle laissa échapper un ricanement glacial et, loin de ralentir, elle vola encore plus vite vers la pagode.
 
-À ce moment-là, les chefs de peloton à l'extérieur n'hésitèrent pas une seconde et chargèrent vers la pagode. Derrière eux, les soldats démons libérèrent leur énergie spirituelle démoniaque et les suivirent rapidement.
+À ce moment-là, les chefs de régiment à l'extérieur n'hésitèrent pas une seconde et chargèrent vers la pagode. Derrière eux, les soldats démons libérèrent leur énergie spirituelle démoniaque et les suivirent rapidement.
 
 Voyant Yao Xixue approcher, Treize poussa un rugissement, fit un pas en avant et lança un coup de poing.
 
@@ -66,7 +66,7 @@ La voix de Wang Lin était très froide: « Puisque vous êtes entrée ici, si v
 
 Il avait atteint un moment critique dans sa culture et prévoyait de s'enfermer en méditation pendant plusieurs mois afin d'affiner l'énergie spirituelle démoniaque dans son corps pour atteindre le stade avancé de la Transformation de l'Âme. Ayant été interrompu, il ne lui accorderait naturellement aucune considération.
 
-Yao Xixue dit froidement: « Pourquoi n'êtes-vous pas venu lorsque je vous ai demandé de me rejoindre sur l'ancienne montagne? »
+Yao Xixue dit froidement: « Pourquoi n'êtes-vous pas venu lorsque je vous ai demandé de me rejoindre sur le Mont Gu? »
 
 « Pourquoi irais-je? » Wang Lin fronça les sourcils. Il n'avait rencontré cette fille que deux fois auparavant. En comptant celle-ci, ce n'était que la troisième fois.
 

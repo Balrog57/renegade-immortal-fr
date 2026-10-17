@@ -6,13 +6,13 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Yao Changdong
 slug: yao-changdong
 ---
-Cette méthode de meurtre bizarre choqua profondément les cultivateurs environnants, et l'expression du vieil homme Corporel Yang au sommet devint extrêmement sombre. Il sentait que le niveau de culture de l'adversaire était à peu près égal au sien, voire qu'il pouvait légèrement le dépasser.
+Cette méthode de meurtre bizarre choqua profondément les cultivateurs environnants, et l'expression du vieil homme Corporel Yang au sommet devint extrêmement sombre. Il sentait que le niveau de culture de l'adversaire était à peu près égal au sien, voire que lui-même pouvait légèrement le dépasser.
 
 Cependant, ce sort étrange utilisé par l'autre partie lui inspirait une grande peur.
 
 « Ce n'est certainement pas une téléportation ou une grande téléportation! » L'expression du vieil homme était lugubre alors qu'il touchait sa sacoche pour en sortir une cloche d'argent.
 
-Il la secoua immédiatement. Le son de la cloche provoqua une immense onde de choc qui se propagea, interférant avec l'énergie originelle de la zone!
+Il la secoua immédiatement. Le son de la cloche provoqua une immense onde de choc qui se propagea, interférant avec les forces naturelles de la zone!
 
 « Il en reste encore 22! » Le corps de Wang Lin vacilla et apparut derrière un cultivateur Ascendant au sommet du stade avancé. Alors que les pupilles du cultivateur se rétractaient, Wang Lin leva la main et utilisa le Coup Céleste. Sans aucune énergie d'épée, le corps du cultivateur fut tranché en deux avant de s'effondrer.
 
@@ -42,7 +42,7 @@ Hormis le vieil homme qui combattait Ta Shan, il restait sept cultivateurs Ascen
 
 Les rumeurs concernant Xu Mu résonnaient en eux. Pris de panique, les sept commencèrent à reculer pour tenter une téléportation. Ils étaient remplis de regrets; ils n'auraient jamais dû obéir aux ordres de la famille Yao pour intercepter Xu Mu!
 
-« Vous ne pouvez pas vous échapper! » La conscience divine de Wang Lin résonna dans le vide. Simultanément, l'énergie originelle de la zone commença à se distordre violemment.
+« Vous ne pouvez pas vous échapper! » La conscience divine de Wang Lin résonna dans le vide. Simultanément, les forces naturelles de la zone commencèrent à se distordre violemment.
 
 Les sept furent expulsés du vide par leurs tentatives de téléportation. La silhouette de Wang Lin jaillit comme un rayon de lumière et les traversa tous en un éclair.
 
@@ -74,7 +74,7 @@ Les yeux de Wang Lin brillèrent, mais il ne le poursuivit pas. À cet instant, 
 
 Wang Lin ricana, leva sa main droite et la Paire Dao Fanée apparut. Une aura maléfique emplit l'air et une lumière grise enveloppa les aiguilles noires; en un instant, elles se changèrent en pierre.
 
-Au même moment, une lueur grise apparut aux pieds de trois individus, dont le cultivateur Corporel Yang. Wang Lin s'avança et pointa le front de chacun d'eux. Leurs corps explosèrent tous, les tuant sur le coup.
+Au même moment, une lueur grise apparut aux pieds de trois individus, dont le cultivateur Corporel Yang. Wang Lin s'avança et pointa le front de chacun d'eux. Une pluie de fragments de pierre s'abattit et les trois moururent sur le coup.
 
 « Il n'en reste plus que neuf! » La voix de Wang Lin était empreinte d'une froideur infinie. Alors que les cultivateurs étaient terrassés par la terreur, il disparut une fois de plus.
 
@@ -84,11 +84,11 @@ Par ce seul sort étrange, peu importe leur nombre, Xu Mu restait invincible! À
 
 Les huit ne tergiversèrent pas. Ils se retirèrent rapidement dans huit directions différentes.
 
-Loin de s'atténuer, l'intention meurtrière dans les yeux de Wang Lin devint plus intense encore. Son aura déferla comme une inondation alors que les huit fuyants tentaient de s'échapper. Il fit un pas en avant et perturba les fluctuations de l'énergie originelle, empêchant la téléportation pour une fuite rapide. D'une simple pensée, le Sceau Céleste partit à la poursuite de l'un d'eux.
+Loin de s'atténuer, l'intention meurtrière dans les yeux de Wang Lin devint plus intense encore. Son aura déferla comme une inondation alors que les huit fuyants tentaient de s'échapper. Il fit un pas en avant et perturba les forces naturelles, empêchant la téléportation pour une fuite rapide. D'une simple pensée, le Sceau Céleste partit à la poursuite de l'un d'eux.
 
 La Paire Dao Fanée se lança également après un autre.
 
-Simultanément, Wang Lin frappa sa sacoche et l'Épée Céleste apparut. Xu Liguo surgit et, sans qu'aucun ordre ne soit donné par Wang Lin, il poussa un cri étrange en changeant de forme pour poursuivre l'un des fuyards.
+Simultanément, Wang Lin frappa sa sacoche et l'Épée Céleste apparut. Xu Liguo surgit et, sans qu'aucun ordre ne soit donné par Wang Lin, il poussa un cri étrange et, caché dans l'épée, se lança à la poursuite de l'un des fuyards.
 
 Xu Liguo éprouvait une certaine crainte. Bien qu'il ait hérité de l'intention d'épée antique, il n'avait jamais combattu de cultivateur Yin Illusoire. En cet instant, il pleurait intérieurement: « Maudit soit, je dois y aller à fond, à fond... »
 

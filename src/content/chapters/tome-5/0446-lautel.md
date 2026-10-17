@@ -8,51 +8,51 @@ slug: lautel
 ---
 Wang Lin resta silencieux et observa Murong Yun.
 
-Le cœur de Mu Yunhai manqua un battement.
+Le cœur de Mo Yunhai manqua un battement.
 
-Murong Yun esquissa un léger sourire, joignit ses mains et dit: « Le jeune Murong Yun salue l'Aîné. »
+Murong Yun esquissa un léger sourire, joignit ses mains et dit: « Junior Murong Yun salue Senior. »
 
-Mu Yunhai hocha la tête et demanda: « Sais-tu comment pénétrer dans la section intérieure? »
+Mo Yunhai hocha la tête et demanda: « Sais-tu comment pénétrer dans la section intérieure? »
 
-Murong Yun acquiesça et répondit: « Senior Mu, le jeune connaît la méthode pour y accéder, mais l'Aîné doit promettre de nous faire entrer également. Si vous acceptez, je promets de vous révéler tout ce que je sais. »
+Murong Yun acquiesça et répondit: « Senior Mo, Junior connaît la méthode pour y accéder, mais Senior doit promettre de nous faire entrer également. Si vous acceptez, je promets de vous révéler tout ce que je sais. »
 
-Les yeux de Mu Yunhai s'illuminèrent et il déclara: « Parle, ce vieil homme accepte. »
+Les yeux de Mo Yunhai s'illuminèrent et il déclara: « Parle, ce vieil homme accepte. »
 
-Un éclat de joie apparut dans les yeux de Murong Yun. « Le jeune va vous guider. Notre destination est un autel; c'est l'unique passage vers la section intérieure. »
+Un éclat de joie apparut dans les yeux de Murong Yun. « Junior va vous guider. Notre destination est un autel; c'est l'unique passage vers la section intérieure. »
 
-Mu Yunhai demanda d'un ton solennel: « Y a-t-il des dangers là-bas? »
+Mo Yunhai demanda d'un ton solennel: « Y a-t-il des dangers là-bas? »
 
-Murong Yun répondit promptement: « Oui. Le jeune a vu mourir plusieurs membres du Clan de l'Immortel Délaissé à huit feuilles. Ils étaient quatre au total, mais le premier à entrer n'a rencontré aucun danger. »
+Murong Yun répondit promptement: « Oui. Junior a vu mourir plusieurs membres du Clan de l'Immortel Délaissé à huit feuilles. Ils étaient quatre au total, mais le premier à entrer n'a rencontré aucun danger. »
 
-Mu Yunhai fronça les sourcils, puis se tourna vers Wang Lin et demanda: « Camarade cultivateur Ceng, qu'en pensez-vous? »
+Mo Yunhai fronça les sourcils, puis se tourna vers Wang Lin et demanda: « Camarade cultivateur Ceng, qu'en pensez-vous? »
 
-Wang Lin regarda Murong Yun avec un sourire qui n'en était pas un et dit à Mu Yunhai: « En travaillant ensemble, même si nous ne parvenons pas à passer, nos vies ne devraient pas être en danger. »
+Wang Lin regarda Murong Yun avec un sourire qui n'en était pas un et dit à Mo Yunhai: « En travaillant ensemble, même si nous ne parvenons pas à passer, nos vies ne devraient pas être en danger. »
 
-Mu Yunhai rit, puis il hocha la tête et dit à Murong Yun: « Petit morveux, guide-nous! »
+Mo Yunhai rit, puis il hocha la tête et dit à Murong Yun: « Petit morveux, guide-nous! »
 
-Murong Yun acquiesça rapidement, puis il lança un regard prudent à Wang Lin avec un sourire forcé. « L'Aîné n'est certainement pas un cultivateur au stade de la Formation de l'Âme. Je ne le savais pas auparavant; j'espère que l'Aîné ne m'en voudra pas. » Sur ces mots, il s'élança en tête. Mu Yunhai fit signe à Wang Lin et tous deux suivirent sa trace.
+Murong Yun acquiesça rapidement, puis il lança un regard prudent à Wang Lin avec un sourire forcé. « Senior n'est certainement pas un cultivateur au stade de la Formation de l'Âme. Junior ne le savait pas auparavant; j'espère que Senior ne m'en voudra pas. » Sur ces mots, il s'élança en tête. Mo Yunhai fit signe à Wang Lin et tous deux suivirent sa trace.
 
 Quant à la femme laide, elle hésita un instant avant de les suivre à son tour.
 
-Bien que la vitesse de Murong Yun fût très élevée, elle demeurait trop lente aux yeux de Mu Yunhai. Une heure plus tard, Mu Yunhai laissa échapper un grognement et s'élança en avant pour saisir Murong Yun. Il se tourna vers Wang Lin et dit: « Camarade cultivateur Ceng, nous allons chacun prendre l'un d'eux et atteindre l'autel à toute allure. Si nous sommes trop lents et que le Cristal de Planète de Culture se brise, nous mourrons tous ici. »
+Bien que la vitesse de Murong Yun fût très élevée, elle demeurait trop lente aux yeux de Mo Yunhai. Une heure plus tard, Mo Yunhai laissa échapper un grognement et s'élança en avant pour saisir Murong Yun. Il se tourna vers Wang Lin et dit: « Camarade cultivateur Ceng, nous allons chacun prendre l'un d'eux et atteindre l'autel à toute allure. Si nous sommes trop lents et que le Cristal de Planète de Culture se brise, nous mourrons tous ici. »
 
 Sur ce, il emporta Murong Yun et accéléra soudainement, disparaissant au loin.
 
 Les yeux de Wang Lin s'illuminèrent. Il agita sa main droite et la femme laide fut immédiatement enveloppée par une puissance mystérieuse. Wang Lin s'envola à son tour en l'emportant avec lui.
 
-« L'Aîné est Ceng Niu? » La femme se trouvait derrière Wang Lin, et un soupçon de son parfum parvint jusqu'à ses narines.
+« Senior est-il Ceng Niu? » La femme se trouvait derrière Wang Lin, et un soupçon de son parfum parvint jusqu'à ses narines.
 
 Wang Lin répondit calmement: « C'est bien moi. »
 
-La femme sembla perplexe, puis ajouta soudainement: « Aîné, méfiez-vous de Murong Yun. » Après cela, elle se tut.
+La femme sembla perplexe, puis ajouta soudainement: « Senior, méfiez-vous de Murong Yun. » Après cela, elle se tut.
 
-Wang Lin et Mu Yunhai étaient extrêmement rapides. Guidés par Murong Yun, ils traversèrent promptement la plaine.
+Wang Lin et Mo Yunhai étaient extrêmement rapides. Guidés par Murong Yun, ils traversèrent promptement la plaine.
 
 Trois jours plus tard, une chaîne de montagnes infinie apparut sous leurs pieds. Au-dessus de celle-ci planait un immense nuage noir. Ce nuage s'agitait constamment et dégageait une aura sinistre.
 
 Sur le versant ouest de la chaîne de montagnes se dressait un pic vertigineux. La majeure partie du sommet était dissimulée dans l'amas noir, de sorte que seule sa moitié était visible de l'extérieur.
 
-Sous la direction de Murong Yun, Mu Yunhai plongea dans le nuage noir. Wang Lin déploya son Sens Divin et le suivit de près.
+Sous la direction de Murong Yun, Mo Yunhai plongea dans le nuage noir. Wang Lin déploya son Sens Divin et le suivit de près.
 
 À l'intérieur du nuage, Wang Lin ouvrit la bouche et cracha une lueur noire qui disparut aussitôt dans l'obscurité.
 
@@ -62,7 +62,7 @@ La montagne nichée dans le nuage semblait floue; c'était comme si quelque chos
 
 Cet autel prenait la forme d'une tour dont les marches menaient au sommet. Une concavité se trouvait au faîte de la tour, où s'engouffrait une brume noire.
 
-Mu Yunhai saisit Murong Yun et atterrit sur l'autel. Wang Lin les rejoignit peu après.
+Mo Yunhai saisit Murong Yun et atterrit sur l'autel. Wang Lin les rejoignit peu après.
 
 Ils virent des traces de sang séché sur l'autel et l'odeur du sang flottait encore dans l'air. Par intermittence, des gémissements s'élevaient du nuage noir, comme les lamentations de fantômes.
 
@@ -70,13 +70,13 @@ Une fois au sol, Wang Lin relâcha la femme et ses yeux s'illuminèrent. En obse
 
 L'autel dont Situ Nan lui avait parlé se trouvait dans une vallée entourée de montagnes, et non sur un sommet. Son regard devint instantanément glacial.
 
-Mu Yunhai déploya son Sens Divin pour inspecter les lieux. Puis il dit: « Jeune Murong, est-ce l'autel dont tu parlais? »
+Mo Yunhai déploya son Sens Divin pour inspecter les lieux. Puis il dit: « Jeune Murong, est-ce l'autel dont tu parlais? »
 
-Murong Yun acquiesça vigoureusement et affirma avec assurance: « Aîné, c'est bien ici. Cependant, soyez prudent; outre le premier shaman à huit feuilles, tous ceux qui l'ont suivi ont péri de mort mystérieuse. »
+Murong Yun acquiesça vigoureusement et affirma avec assurance: « Senior, c'est bien ici. Cependant, soyez prudent; outre le premier shaman à huit feuilles, tous ceux qui l'ont suivi ont péri de mort mystérieuse. »
 
-Mu Yunhai fixa Murong Yun avant de s'emparer brusquement de lui et de presser sa main sur son front. Les yeux de Mu Yunhai brillèrent d'une lueur intense et il murmura: « Recherche de l'âme! »
+Mo Yunhai fixa Murong Yun avant de s'emparer brusquement de lui et de presser sa main sur son front. Les yeux de Mo Yunhai brillèrent d'une lueur intense et il murmura: « Recherche de l'âme! »
 
-Murong Yun laissa échapper un gémissement de douleur et son corps se mit à trembler. Le regard de Mu Yunhai s'intensifia encore, puis il relâcha le jeune homme après un moment.
+Murong Yun laissa échapper un gémissement de douleur et son corps se mit à trembler. Le regard de Mo Yunhai s'intensifia encore, puis il relâcha le jeune homme après un moment.
 
 Murong Yun s'effondra comme une masse de boue. Son corps dégageait une aura de mort et restait immobile.
 
@@ -84,7 +84,7 @@ Murong Yun s'effondra comme une masse de boue. Son corps dégageait une aura de 
 
 « Très bien! » Une pointe de dédain apparut dans les yeux de Wang Lin.
 
-Mu Yunhai atteignit le sommet de l'autel en un clin d'œil. Après y avoir stationné un instant, son expression devint soudainement étrange. Ses yeux brillèrent d'une lueur singulière alors qu'il contemplait la concavité au sommet de l'édifice.
+Mo Yunhai atteignit le sommet de l'autel en un clin d'œil. Après y avoir stationné un instant, son expression devint soudainement étrange. Ses yeux brillèrent d'une lueur singulière alors qu'il contemplait la concavité au sommet de l'édifice.
 
 Peu après, la joie illumina son visage et il éclata de rire: « C'est bien ici! Camarade cultivateur Ceng, je vous devance! » Sur ce, il s'avança vers le centre de l'autel et disparut.
 

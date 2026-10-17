@@ -29,7 +29,7 @@ Les yeux de Wang Lin retrouvèrent leur limpidité. Il regarda l'individu et dit
 
 « Tu te souviens encore de moi! Wang Lin, je vais te tuer de mes propres mains aujourd'hui! » Hu Pao éclata d'un rire fou, faisant trembler les nuages de fragments d'âmes au-dessus de lui. Cela créa une pression colossale qui enveloppa la zone.
 
-« Wang Lin, tu n'aurais jamais imaginé que moi, Hu Pao, je devienne ainsi aujourd'hui. Autrefois, tu étais si puissant à mes yeux qu'il m'était absolument impossible d'agir contre toi. Mais désormais, tu n'es qu'une fourmi à mes yeux! » Hu Pao fixa Wang Lin tout en déversant toute la rancœur accumulée au cours des dix dernières années. Il ne se précipitait pas pour attaquer; il voulait s'en défouler!
+« Wang Lin, tu n'aurais jamais imaginé que moi, Hu Pao, je devienne ainsi aujourd'hui. Autrefois, tu étais si puissant à mes yeux qu'il m'était absolument impossible d'agir contre toi. Mais désormais, tu n'es qu'une fourmi à mes yeux! » Hu Pao fixa Wang Lin tout en déversant toute la rancœur accumulée depuis plus de dix ans. Il ne se précipitait pas pour attaquer; il voulait s'en défouler!
 
 La voix de Wang Lin resta calme. « En effet, je n'aurais jamais imaginé. »
 
@@ -41,7 +41,7 @@ Hu Pao hurla avec fureur: « Quand tu m'as abandonné, moi et Treize, sais-tu co
 
 Les fragments d'âmes au-dessus de lui semblaient ressentir cette exaltation et rugirent avec lui.
 
-« Heureusement, les cieux ont des yeux et ne m'ont pas laissé mourir. Au lieu de cela, ils m'ont donné une nouvelle vie et m'ont permis de rencontrer Maître. J'ai pu achever mon sort de raffinage d'âmes ici, et j'ai raffiné plus de cent millions de fragments d'âmes. Aujourd'hui, tu mourras sans aucun doute! Cependant, je ne te tuerai pas si facilement. Je scellerai ton âme dans ton corps et je te jetterai dans le donjon le plus cruel du pays des démons, où tu seras humilié sans jamais pouvoir mourir!
+« Heureusement, les cieux ont des yeux et ne m'ont pas laissé mourir. Au lieu de cela, ils m'ont donné une nouvelle vie et m'ont permis de rencontrer Maître. J'ai pu achever mon sort de raffinage d'âmes ici, et j'ai raffiné plus de cent millions de fragments d'âmes. Aujourd'hui, tu mourras sans aucun doute! Cependant, je ne te tuerai pas si facilement. Je scellerai ton âme dans ton corps et je te jetterai dans le donjon le plus cruel des neuf pays, où tu seras humilié sans jamais pouvoir mourir!
 
 « Ensuite, j'extrairai ton âme et je te scellerai dans un étendard d'âme pour te tourmenter chaque jour! »
 
@@ -65,11 +65,11 @@ Hu Pao fixa Wang Lin et laissa échapper un rire sinistre. « Tu es donc digne d
 
 « C'est pourquoi, au moment même où j'ai été sauvé, j'ai juré de devenir fort. Je te dépasserai, puis je te tuerai! »
 
-Wang Lin secoua légèrement la tête en observant attentivement Hu Pao: « Pour parvenir à un tel niveau de culture en seulement dix ans, je dois admettre que même la plus bénie des filles du ciel ne pourrait égaler ton exploit.
+Wang Lin secoua légèrement la tête en observant attentivement Hu Pao: « Pour parvenir à un tel niveau de culture en une dizaine d'années, je dois admettre que même la plus bénie des filles du ciel ne pourrait égaler ton exploit.
 
-« Au début, j'étais perplexe. Bien que ton talent soit excellent, dépassant même celui de Papillon Rouge par certains aspects, il est impossible d'atteindre un tel degré en seulement dix ans. Il devrait aussi être impossible pour toi de contenir et de contrôler autant de fragments d'âmes, mais je comprends maintenant pourquoi! Tu as dû cultiver une méthode qui consume ton potentiel et ta vie. Tu atteindras rapidement ton apogée, mais pour une période très brève. Ce sommet sera éphémère, et je crains qu'il ne dure même pas une journée... »
+« Au début, j'étais perplexe. Bien que ton talent soit excellent, dépassant même celui de Papillon Rouge par certains aspects, il est impossible d'atteindre un tel degré en une dizaine d'années. Il devrait aussi être impossible pour toi de contenir et de contrôler autant de fragments d'âmes, mais je comprends maintenant pourquoi! Tu as dû cultiver une méthode qui consume ton potentiel et ta vie. Tu atteindras rapidement ton apogée, mais pour une période très brève. Ce sommet sera éphémère, et je crains qu'il ne dure même pas une journée... »
 
-« Tais-toi! » L'expression de Hu Pao devint féroce alors qu'il pointait le ciel. Une partie du nuage noir se détacha soudainement, se transformant en des millions d'âmes. Hu Pao désigna Wang Lin et les fragments d'âme se précipitèrent vers lui.
+« Tais-toi! » L'expression de Hu Pao devint féroce alors qu'il pointait le ciel. Une partie du nuage noir se détacha soudainement, se transformant en un million d'âmes. Hu Pao désigna Wang Lin et les fragments d'âme se précipitèrent vers lui.
 
 Hu Pao rit follement: « Je vais te montrer ce qu'est un million de fragments d'âmes! Tu n'as probablement jamais vu ne serait-ce qu'un million d'âmes auparavant! »
 
@@ -101,7 +101,7 @@ Ce changement radical et cette scène inexplicable laissèrent l'esprit de Hu Pa
 
 « Ton sort de raffinage d'âmes a été manipulé par quelqu'un pour en faciliter le contrôle. Cependant, comment la racine même du sort pourrait-elle être si aisément modifiée sans la véritable transmission et des dizaines de milliers d'années de sacrifices?! »
 
-Wang Lin était l'héritier du sort de raffinage d'âmes, et ce sort était le cœur même de la Secte du Raffinage d'Âmes. Bien qu'il ne s'agisse pas d'un sort capable de bouleverser les mondes, il avait été affiné par d'innombrables générations de disciples. Les membres de la secte avaient passé des millénaires à étudier avec diligence comment perfectionner ce sort. Comment quelqu'un aurait-il pu le reconstruire entièrement en seulement dix ans sans posséder la véritable transmission?!
+Wang Lin était l'héritier du sort de raffinage d'âmes, et ce sort était le cœur même de la Secte du Raffinage d'Âmes. Bien qu'il ne s'agisse pas d'un sort capable de bouleverser les mondes, il avait été affiné par d'innombrables générations de disciples. Les membres de la secte avaient passé des millénaires à étudier avec diligence comment perfectionner ce sort. Comment quelqu'un aurait-il pu le reconstruire entièrement en une dizaine d'années sans posséder la véritable transmission?!
 
 Le bienfaiteur de Hu Pao ne pouvait pas faire une telle chose. Peut-être que l'homme dans l'armure le pouvait, mais il n'aurait pas gaspillé son temps pour une si futilité.
 
@@ -111,7 +111,7 @@ Sa voix était presque brisée, mais les fragments entourant Wang Lin ne daignè
 
 « Fragments d'âmes, revenez! » Hu Pao rugit comme un possédé, mais ils restèrent imperturbables autour de Wang Lin.
 
-Le cœur de Hu Pao fut envahi par une rage telle que son corps trembla et qu'il cracha une large traînée de sang. Il avait passé d'innombrables jours et nuits au cours des dix dernières années à raffiner les âmes. Son courage s'était étendu jusqu'à ce qu'il en possède cent millions. À cet instant, il croyait avoir le pouvoir de percer les cieux. Il se pensait devenu assez fort pour tuer Wang Lin et prendre sa place!
+Le cœur de Hu Pao fut envahi par une rage telle que son corps trembla et qu'il cracha une large traînée de sang. Il avait passé d'innombrables jours et nuits au cours des dix dernières années à raffiner les âmes. Sa confiance s'était étendue jusqu'à ce qu'il en possède cent millions. À cet instant, il croyait avoir le pouvoir de percer les cieux. Il se pensait devenu assez fort pour tuer Wang Lin et prendre sa place!
 
 Pourtant, face à lui, tout s'effondrait. Plus de dix ans de labeur acharné venaient d'être offerts à Wang Lin comme par enchantement. La flamme de la rage brûlait si violemment dans son cœur qu'elle faillit le faire succomber!
 
@@ -135,7 +135,7 @@ Le regard de Wang Lin s'éloigna du vieil homme pour se fixer sur la tour. Il po
 
 C'était une véritable énergie démoniaque. Il y avait une distinction nette entre celle-ci et l'énergie démoniaque issue de la culture des cultivateurs.
 
-Maintenant que Wang Lin avait repris ses esprits, ses pupilles se rétractèrent. Cette énergie était d'une puissance extrême. L'individu à l'intérieur de la tour devait être un expert sans égal. Wang Lin prit une profonde inspiration. Son âme originelle et son corps n'avaient pas encore totalement fusionné. Il lui faudrait encore une demi-lune pour que l'un et l'autre ne fassent qu'un, et ce n'est qu'alors sa culture au début du stade Ascendant serait stabilisée.
+Maintenant que Wang Lin avait repris ses esprits, ses pupilles se rétractèrent. Cette énergie était d'une puissance extrême. L'individu à l'intérieur de la tour devait être un expert sans égal. Wang Lin prit une profonde inspiration. Son âme originelle et son corps n'avaient pas encore totalement fusionné. Il lui faudrait encore une demi-lune pour que l'un et l'autre ne fassent qu'un, et ce n'est qu'alors que sa culture au début du stade Ascendant serait stabilisée.
 
 « Le Fruit de l'Ascension Céleste est tout simplement trop tyrannique. Bien qu'il m'ait permis d'encaisser ses attaques, il m'a aussi plongé dans un état de folie que je n'avais jamais connu auparavant... » Wang Lin prit une grande inspiration et fixa le lointain.
 

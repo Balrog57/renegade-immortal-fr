@@ -24,7 +24,7 @@ Liu Mei hocha légèrement la tête et resta silencieuse.
 
 « Comment quelqu'un venant du Système Stellaire de l'Alliance pourrait-il posséder une Bête du Tonnerre... » Même Huan Wuqing était extrêmement perplexe face à cette affaire.
 
-Il ignorait que le créateur du char de guerre divin tueur avait de nombreux amis. Afin d'affiner l'âme bestiale dudit char, celui-ci s'était rendu dans le Royaume Céleste du Tonnerre et avait utilisé une méthode inconnue pour obtenir plusieurs Bêtes du Tonnerre auprès de l'Empereur de ce royaume.
+Il ignorait que le créateur du char de guerre divin tueur avait de nombreux amis. Afin d'affiner l'âme bestiale dudit char, celui-ci s'était rendu dans le Royaume Céleste du Tonnerre et avait utilisé une méthode inconnue pour obtenir plusieurs Bêtes du Tonnerre auprès du Seigneur Céleste de ce royaume.
 
 À cet instant, sous le regard de l'ancêtre de la famille Huan, un éclair jaillit de l'horizon lointain et une météorite fendit le ciel en direction de la famille Huan. C'était Wang Lin! Et à ses côtés se trouvait la Bête du Tonnerre. La bête poussa un grognement tandis que des éclairs parcouraient son corps, fixant la famille Huan de ses yeux féroces.
 
@@ -88,7 +88,7 @@ Le fracas de la foudre et du tonnerre résonnait entre ciel et terre, comme si l
 
 Les membres de la famille Huan étaient tous livides. Hormis l'ancêtre, tout le monde commençait à paniquer.
 
-Le peuple du Système Stellaire de Luotian avait grandi sous l'égide du Temple Céleste du Tonnerre; ils éprouvaient donc une crainte et un respect inimaginables pour les sorts de foudre. Face à l'attaque de la Bête du Tonnerre, qui représentait ce temple sacré, ce n'était pas leur culture qui vacillait, mais leurs cœurs.
+Le peuple du Système Stellaire de Luotian relevait du Royaume Céleste du Tonnerre; ils éprouvaient donc une crainte et un respect inimaginables pour les sorts de foudre. Face à l'attaque de la Bête du Tonnerre, qui représentait ce temple sacré, ce n'était pas leur culture qui vacillait, mais leurs cœurs.
 
 Les rugissements de la tempête ne s'interrompirent pas et continuèrent de déchaîner des éclairs pour détruire la barrière. Cependant, il s'agissait malgré tout de la grande formation de la famille Huan, et sa puissance était prodigieuse. Même sous un tel assaut, elle tenait bon sans montrer de signe de rupture imminente.
 
@@ -116,7 +116,7 @@ Huan Wuqing demanda d'un ton bas: « Fengshen, es-tu également contre moi? »
 
 « Fengshen n'ose pas, Ancêtre. Que cet homme provienne ou non du Temple Céleste du Tonnerre, il possède une Bête du Tonnerre et une marionnette Yin Illusoire. Je me demande, Ancêtre, est-ce quelqu'un avec qui nous devrions nouer des liens, ou devons-nous nous battre à mort contre lui? »
 
-Les yeux de Huan Fengshen brillaient d'une lueur vive. Il regarda l'ancêtre sans fléchir et poursuivit: « Devenir son allié ajouterait un ami à notre famille, mais quel bénéfice tirerions-nous d'un combat à mort? Tout cela pour protéger une membre étrangère? Sa culture a été artificiellement portée au stade tardif de l'Ascendant, mais son domaine ne suit pas. Même si elle franchit un nouveau palier dans sa vie, elle butera au stade Yin et Yang. Je comprends vos intentions, Ancêtre, mais pour satisfaire votre seul désir, le risque est peut-être excessif! »
+Les yeux de Huan Fengshen brillaient d'une lueur vive. Il regarda l'ancêtre sans fléchir et poursuivit: « Devenir son allié ajouterait un ami à notre famille, mais quel bénéfice tirerions-nous d'un combat à mort? Tout cela pour protéger une membre étrangère? Sa culture a été artificiellement portée à la grande perfection du stade tardif de l'Ascendant, mais son domaine ne suit pas. Même si elle franchit un nouveau palier dans sa vie, elle butera au stade Yin et Yang. Je comprends vos intentions, Ancêtre, mais pour satisfaire votre seul désir, le risque est peut-être excessif! »
 
 Liu Mei ne manifesta aucune réaction face à ces propos. Elle se contentait de regarder droit devant elle, le regard vide.
 

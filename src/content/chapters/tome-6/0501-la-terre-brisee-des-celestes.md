@@ -54,7 +54,7 @@ L'Omniscient gardait son calme et sourit: « Est-ce là tout? Si c'est ainsi, tu
 
 Wang Lin esquissa un sourire et secoua la tête: « Maître, ces deux montagnes sont des illusions! »
 
-À ces mots, une lueur de choc apparut dans les yeux de l'Omniscient. Il dévisagea Wang Lin avant de laisser échapper un rire. D'un revers de manches, il emmena les deux êtres vers la montagne centrale à une vitesse fulgurante.
+À ces mots, une lueur de choc apparut dans les yeux de l'Omniscient. Il dévisagea Wang Lin avant de laisser échapper un rire. D'un revers de manches, il emmena Wang Lin vers la montagne centrale à une vitesse fulgurante.
 
 « La force mentale de cet enfant surpasse celle des autres. Être capable de trouver des indices sur mon sort au stade intermédiaire de la Transformation de l'Âme est extrêmement rare! »
 
@@ -70,11 +70,11 @@ Selon le plan de Tu Si, une fois son entraînement terminé, il reviendrait cher
 
 Les trois montagnes créées par le trident étaient presque identiques aux trois montagnes que Wang Lin contemplait à présent.
 
-Mais il écarta immédiatement l'idée qu'il s'agisse du trident, car c'était bien comme il l'avait dit plus tôt: deux des montagnes étaient de fausses images.
+Mais il écarta immédiatement l'idée que cette planète soit l'endroit où l'ancien dieu Tu Si avait jeté son trésor, car c'était bien comme il l'avait dit plus tôt: deux des montagnes étaient de fausses images.
 
 « Cependant, la culture de l'Omniscient est céleste. S'il avait voulu me le cacher, il m'aurait été impossible de percer ce mystère à mon niveau actuel. » Wang Lin s'apaisa alors qu'ils atteignaient le pied de la montagne.
 
-« Wang Lin, ton Maître t'attendra là-haut. Tu ne peux pas utiliser la téléportation, et plus vite tu monteras, meilleure sera la récompense! Avec ta culture, parcourir cent pas ne sera pas difficile, mais les cent derniers pas dépendront de ta fortune. Ces cent pas au sommet sont ce que ton Maître appelle la Terre Brisée des Célestes! » L'Omniscient se retourna, fit un pas et disparut sans laisser de trace devant Wang Lin.
+« Wang Lin, ton Maître t'attendra là-haut. Tu ne peux pas utiliser la téléportation, et plus vite tu monteras, meilleure sera la récompense! Avec ta culture, gravir la montagne jusqu'à cent pas du sommet ne sera pas difficile, mais les cent derniers pas dépendront de ta fortune. Ces cent pas au sommet sont ce que ton Maître appelle la Terre Brisée des Célestes! » L'Omniscient se retourna, fit un pas et disparut sans laisser de trace devant Wang Lin.
 
 Wang Lin leva les yeux vers le sommet blanc de la montagne. Une neige infinie y tombait; si l'on regardait trop longtemps, on aurait l'illusion que d'innombrables épées blanches et tranchantes descendaient du ciel.
 

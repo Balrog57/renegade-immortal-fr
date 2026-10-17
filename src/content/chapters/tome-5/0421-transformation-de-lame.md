@@ -12,7 +12,7 @@ Il savait que Du Tian avait amassé une grande quantité de jades célestes, mai
 
 En les découvrant maintenant, il ne put s'empêcher d'être frappé par la stupeur.
 
-« Ce minuscule sac contient plus de cent fois la quantité de jades célestes que j'ai obtenue du Royaume Céleste... Pas étonnant que cette Secte de l'Affinement de l'Âme ait compté autant de cultivateurs au stade de la Transformation de l'Âme. »
+« Ce minuscule sac contient plus de cent fois la quantité de jades célestes que j'ai obtenue du Royaume Céleste... Pas étonnant que cette Secte de l'Affinement de l'Âme ait compté, au fil de ces dizaines de milliers d'années, autant de cultivateurs au stade de la Transformation de l'Âme. »
 
 Les yeux de Wang Lin s'illuminèrent. Il secoua le sac, et une multitude de jades célestes l'entoura immédiatement. En un instant, la grotte fut saturée d'une riche énergie spirituelle céleste.
 
@@ -20,7 +20,7 @@ Ce n'était là qu'une fraction du contenu du sac. Wang Lin rangea soigneusement
 
 L'énergie spirituelle céleste afflua dans son corps et commença à raffiner sa propre énergie spirituelle. Ayant déjà vécu ce processus, Wang Lin le relança avec aisance pour entamer sa percée vers le stade de la Transformation de l'Âme.
 
-À mesure qu'une masse colossale d'énergie spirituelle céleste pénétrait son corps, toute l'énergie interne se condensa en une sphère. Cette sphère ressemblait au noyau doré d'un cultivateur, mais la différence entre les deux était aussi vaste que celle entre le ciel et la terre.
+À mesure qu'une masse colossale d'énergie spirituelle céleste pénétrait son corps, toute l'énergie interne se condensa en une sphère de la taille d'un poing. Cette sphère ressemblait au noyau doré d'un cultivateur, mais la différence entre les deux était aussi vaste que celle entre le ciel et la terre.
 
 Trois jours plus tard, les jades célestes entourant Wang Lin devinrent gris, se fissurèrent, puis finirent par tomber en poussière. Sans hésiter, Wang Lin frappa à nouveau le sac pour en extraire une nouvelle quantité de jades.
 
@@ -34,15 +34,15 @@ Cependant, le Royaume Céleste étant détruit et les bassins de purification ay
 
 Une fois les racines mortelles totalement éliminées, la première étape était franchie. La seconde consistait à faire passer l'âme originelle d'un état immatériel à un état corporel.
 
-Bien qu'elle ne puisse remplacer le corps physique, une âme originelle corporelle est plusieurs fois plus puissante et possède la capacité de se protéger elle-même.
+Bien qu'elle ne puisse remplacer le corps physique, une âme originelle corporelle est d'innombrables fois plus puissante qu'auparavant et possède la capacité de se protéger elle-même.
 
-On peut comparer cela ainsi: l'Âme Naissante est comme un nourrisson, tandis que l'âme originelle est ce même enfant qui grandit pour devenir un jeune homme. Ensuite, le stade de la Transformation de l'Âme apporte un changement mystérieux: le jeune homme devient un adulte puissant, armé de ses propres armes. À ce stade, l'âme originelle est infiniment plus puissante que celle d'un cultivateur au stade de la Formation de l'Âme.
+On peut comparer cela ainsi: l'Âme Naissante est comme un nourrisson, tandis que l'âme originelle est ce même enfant qui grandit pour devenir un jeune homme. Ensuite, le stade de la Transformation de l'Âme apporte un changement mystérieux: le jeune homme devient un adulte puissant, armé de ses propres armes. À ce stade, la puissance dépasse de loin celle de l'âme originelle.
 
-La taille démesurée de l'âme de Situ Nan était le signe qu'il avait atteint le stade de la Transformation de l'Âme. Même l'âme d'un cultivateur Ascendant possède la même dimension que celle d'un expert en Transformation de l'Âme. Ce n'est qu'en dépassant le stade de l'Ascendant que d'autres mutations surviendraient.
+La taille démesurée de l'Âme Naissante de Situ Nan était le signe qu'il avait atteint le stade de la Transformation de l'Âme. Même l'Âme Naissante d'un cultivateur Ascendant possède la même dimension que celle d'un expert en Transformation de l'Âme. Ce n'est qu'en dépassant le stade de l'Ascendant, en atteignant un autre niveau, que d'autres mutations surviendraient.
 
 Toutefois, ce niveau était encore bien trop lointain pour que Wang Lin s'en préoccupe.
 
-Le temps s'écoula lentement. Une immense quantité de jades célestes avait déjà été absorbée, et autour de lui jonchaient les restes des jades transformés en poussière.
+Le temps s'écoula lentement. Plus de la moitié des jades célestes du sac avait déjà été absorbée, et autour de lui jonchaient les restes des jades transformés en poussière.
 
 Ce jour-là, la sphère d'énergie spirituelle dans son dantian se fendit, libérant une puissante force de succion. Toute l'énergie spirituelle céleste que Wang Lin avait accumulée fut aspirée dans la brèche.
 
@@ -64,7 +64,7 @@ Tous ses pores s'ouvrirent, libérant des filaments d'énergie spirituelle céle
 
 Peu après, toute l'énergie s'échappant de ses pores retournait dans son corps par ses orifices, créant un cycle incessant.
 
-Le corps de Wang Lin devint progressivement transparent, puis ses vêtements disparurent lentement. Ses deux sacs de stockage chutèrent au sol.
+Le corps de Wang Lin devint progressivement transparent, puis ses vêtements disparurent lentement. Ses deux sacs de rangement chutèrent au sol.
 
 L'énergie spirituelle céleste commença à former de nouveaux méridiens à l'intérieur de lui. Ces méridiens étant constitués de pure énergie céleste, ils seraient naturellement capables d'en supporter la puissance.
 
@@ -74,11 +74,11 @@ Ce processus de transmutation dura un temps indéterminé. Durant toute cette p�
 
 Puis, un jour, son corps commença à exhaler un parfum. Cette fragrance était enivrante, comme si une herbe spirituelle venait d'être déterrée.
 
-Le parfum s'échappa de la grotte, faisant briller les yeux de Du Tian. Un éclat d'admiration passa dans son regard et il soupira: « La première étape de la Transformation de l'Âme — le raffinement du corps — est achevée. Place maintenant à la seconde: le affinement de l'âme originelle. »
+Le parfum s'échappa de la grotte, faisant briller les yeux de Du Tian. Un éclat d'admiration passa dans son regard et il soupira: « La première étape de la Transformation de l'Âme — la condensation du corps — est achevée. Place maintenant à la seconde: la condensation de l'âme originelle. »
 
 Il exécuta un sceau manuel, et une lumière noire enveloppa immédiatement la grotte pour empêcher la fragrance de se propager.
 
-« Le parfum issu de la première étape de la Transformation de l'Âme attire les bêtes et les démons puissants qui cherchent à posséder ce corps. Cependant, ma Secte de l'Affinement de l'Âme est spécialisée dans les âmes; si ces démons ne viennent pas, tant mieux, mais s'ils osent se présenter, ils serviront de nourriture au Drapeau d'Âmes au Milliard d'Âmes. »
+« Le parfum issu de la première étape de la Transformation de l'Âme attire des bêtes démoniaques puissantes et des âmes féroces qui cherchent à posséder ce corps. Cependant, ma Secte de l'Affinement de l'Âme est l'ancêtre de ceux qui contrôlent les âmes; si ces âmes ne viennent pas, tant mieux, mais si elles osent se présenter, elles seront absorbées par le Drapeau d'Âmes au Milliard d'Âmes, ce qui lui fera un petit renfort. »
 
 « Je ne crains pas non plus les bêtes. La formation de protection de la Secte peut les tenir à distance. Aucune créature n'a encore réussi à m'effrayer. »
 
@@ -94,7 +94,7 @@ Une fois que l'âme originelle réintègre le corps et en revendique l'énergie,
 
 Un sentiment d'un confort absolu envahit l'âme de Wang Lin. Il sentait l'énergie s'y engouffrer, la faisant grandir et devenir plus substantielle.
 
-À cet instant, Wang Lin comprit que dès que son âme originelle aurait acquis cette consistance corporelle, il pourrait réintégrer son corps et aura ainsi achevé sa Transformation de l'Âme.
+À cet instant, Wang Lin comprit que dès que son âme originelle aurait acquis cette consistance corporelle, il pourrait réintégrer son corps et aurait ainsi achevé sa Transformation de l'Âme.
 
 Le processus pour rendre une âme originelle corporelle est extrêmement long.
 

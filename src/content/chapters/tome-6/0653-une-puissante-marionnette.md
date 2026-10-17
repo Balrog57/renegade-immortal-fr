@@ -26,7 +26,7 @@ Il y avait là des trésors que Wang Lin n'utilisait plus, mais qu'il regrettait
 
 « Je manque de matériaux, mais je dispose de nombreux trésors. Je pense que les faire fondre pour les fusionner avec la marionnette produira un certain effet... » Les yeux de Wang Lin s'illuminèrent et il forma immédiatement un sceau. Une flamme surgit et enveloppa ces trésors.
 
-La flamme brûla et plusieurs de ces trésors magiques commencèrent à fondre. Finalement, presque tous furent liquéfiés, formant une sphère noire.
+La flamme brûla et plusieurs de ces trésors magiques commencèrent à fondre. Finalement, presque tous furent liquéfiés, formant une sphère noire de la taille d'un poing.
 
 Après avoir réfléchi un instant, le Sens Divin de Wang Lin pénétra dans son sac pour fouiller davantage. D'autres trésors magiques s'envolèrent aussitôt pour rejoindre la sphère. Cela pouvait être considéré comme un grand nettoyage du sac de rangement de Wang Lin.
 
@@ -50,15 +50,15 @@ Wang Lin ouvrit les yeux, laissant paraître une trace de fatigue. Il contempla 
 
 Bien que la première étape du gardien céleste fût terminée, si la seconde étape — le broyage de l'âme originelle — échouait, alors tout serait instantanément perdu. En cas d'échec, ce corps ne pourrait plus être possédé, et il ne lui serait pas possible de tenter de raffiner une autre âme originelle.
 
-Wang Lin prit une profonde inspiration, affichant un rare regard d'hésitation. Il regarda vers l'extérieur de la fissure. Au cours des six derniers mois, l'aspiration extérieure n'avait jamais cessé et semblait même s'intensifier.
+Wang Lin prit une profonde inspiration, affichant un rare regard d'hésitation. Il regarda vers l'extérieur de la fissure. Depuis plus de six mois, l'aspiration extérieure n'avait jamais cessé et semblait même s'intensifier.
 
-Wang Lin serra les dents. Il frappa son sac de rangement et le drapeau d'âme s'envolèrent. Un crâne géant apparut aussitôt sur le drapeau.
+Wang Lin serra les dents. Il frappa son sac de rangement et le drapeau d'âme s'envola. Un crâne géant apparut aussitôt sur le drapeau.
 
 Ce crâne était illusoire et flottait à l'intérieur du drapeau. D'un noir verdâtre et dépourvu de cheveux, il ressemblait à un démon. Ses yeux, à la fois irréels et tangibles, dégageaient un regard glacial.
 
 Il se tenait à l'intérieur du drapeau d'âme, fixant Wang Lin en émettant de sourds grognements.
 
-La plupart des fragments d'âmes présents dans le drapeau restaient à distance de ce crâne, comme s'ils refusaient de s'en approcher. Cela permettait au crâne de maintenir son propre territoire au sein du drapeau.
+La plupart des âmes présentes dans le drapeau restaient à distance de ce crâne, comme si elles refusaient de s'en approcher. Cela permettait au crâne de maintenir son propre territoire au sein du drapeau.
 
 Seul le Qilin faisait exception. Après avoir dévoré une grande quantité de nourriture céleste, il avait subi une série de transformations. En voyant le crâne rugir, il se mit soudainement à rugir à son tour.
 
@@ -74,7 +74,7 @@ Le fantôme céleste fut contraint de reculer, fixant Wang Lin tout en continuan
 
 « Le corps de la marionnette n'est pas assez robuste, il sera donc très difficile pour l'âme originelle de survivre à la seconde étape. Cependant, si je récupère la férocité et le corps spirituel du fantôme céleste et que j'échoue tout de même, alors je renoncerai définitivement au raffinage de gardiens célestes! » Wang Lin se montra décisif en pressant le fantôme céleste entre les sourcils de la marionnette.
 
-« Puisque je m'apprête à raffiner un trésor, je veux un trésor de qualité supérieure. S'il ne s'agit que d'un Ascendant de stade tardif, cela ne vaudra pas tous mes trésors ni ce fantôme céleste! » Le regard de Wang Lin devint glacial et sa main gauche forma un sceau. Il toucha le point entre ses sourcils et en extirpa un filament d'éclair. Cet éclair, chargé de feu, fut projeté dans le corps de la marionnette.
+« Puisque je m'apprête à raffiner un trésor, je veux un trésor de qualité supérieure. S'il ne s'agit que de la grande perfection du stade avancé de l'Ascendant, cela ne vaudra pas tous mes trésors ni ce fantôme céleste! » Le regard de Wang Lin devint glacial et sa main gauche forma un sceau. Il toucha le point entre ses sourcils et en extirpa un filament d'éclair. Cet éclair, chargé de feu, fut projeté dans le corps de la marionnette.
 
 « Raffine! »
 
@@ -112,9 +112,9 @@ Wang Lin laissa échapper un rire, admirant profondément l'Empereur Céleste Qi
 
 Bien que l'âme originelle du gardien céleste, fusionnée avec son corps, ne puisse utiliser que peu de sorts et ne puisse égaler un véritable cultivateur du Yin et du Yang, il existait plusieurs techniques spécialement conçues pour les gardiens célestes! Les yeux de Wang Lin brillèrent.
 
-« De plus, j'ai préparé un cadeau pour ce gardien céleste! » La main droite de Wang Lin toucha le point entre ses sourcils et une vaste quantité de gaz gris en jaillit. Un million de filaments d'énergie de la mise à mort pénétrèrent instantanément dans la marionnette.
+« De plus, j'ai préparé un cadeau pour ce gardien céleste! » La main droite de Wang Lin toucha le point entre ses sourcils et une vaste quantité de gaz gris en jaillit. Un million de filaments d'énergie de massacre pénétrèrent instantanément dans la marionnette.
 
-Les yeux de la marionnette reflétèrent soudainement la voie du massacre. Après quelques éclats, cette lueur s'estompa progressivement, mais ses yeux devinrent encore plus féroces.
+Les yeux de la marionnette dégagèrent soudainement une intention de massacre. Après quelques éclats, cette lueur s'estompa progressivement, mais ses yeux devinrent encore plus féroces.
 
 Une fois cela terminé, Wang Lin frappa son sac de rangement et le jade s'envola. Il pressa le jade entre les sourcils de la marionnette. Une explosion de lumière survint et d'innombrables symboles semblèrent scintiller dans les yeux du gardien céleste.
 

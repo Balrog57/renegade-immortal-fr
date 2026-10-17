@@ -60,7 +60,7 @@ Cette force était colossale. Après une série de grondements sourds, les deux 
 
 La puissance du second effondrement percuta le gaz gris et s'affaiblit rapidement. Simultanément, une intention meurtrière jaillit du vortex gris.
 
-Cette intention de tuer était terrifiante, dégageant la sensation qu'elle pouvait occire les célestes et les souverains. Elle ouvrit de force un chemin sanglant à travers la puissance du second effondrement.
+Cette intention de tuer était terrifiante, dégageant la sensation qu'elle pouvait occire les célestes et les démons. Elle ouvrit de force un chemin sanglant à travers la puissance du second effondrement.
 
 En utilisant son intention de tuer capable de faire trembler les cieux, elle força le second effondrement à reculer.
 
@@ -76,9 +76,9 @@ Le général de l'aile gauche laissa échapper une exclamation, puis ses yeux br
 
 Au loin, la femme en robe blanche, la fille de l'Ancêtre de Sang Yao Xixue, observait la scène en fronçant légèrement les sourcils. Lorsqu'elle était arrivée à la Grande Muraille Antique il y a trois ans, elle avait été vaincue par ce sort. Cette technique était d'une tyrannie absolue et, avec son niveau de culture, elle avait failli succomber dès le quatrième effondrement. Sans le sort de sang que son père lui avait enseigné, elle n'aurait pas pu résister au cinquième!
 
-Pourtant, elle finit par céder au huitième effondrement. Le général de l'aile gauche était un homme difficile à cerner, puisqu'il lui avait accordé le titre de commandante! Le rang de commandant en chef, immédiatement inférieur à celui de général, n'était détenu que par quatre personnes dans toute la Grande Muraille Antique.
+Pourtant, elle finit par céder au huitième effondrement. Le général de l'aile gauche, touché par ses efforts, lui avait accordé le titre de commandante! Le rang de commandant en chef, immédiatement inférieur à celui de général, n'était détenu que par quatre personnes dans toute la Grande Muraille Antique.
 
-Les commandants étaient rares: ils n'étaient que seize au total!
+Les commandants étaient plus nombreux: ils étaient seize au total!
 
 Wang Lin traça son chemin de carnage en chargeant le général démon avec son épée.
 

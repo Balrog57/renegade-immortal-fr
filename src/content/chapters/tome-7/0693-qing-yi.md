@@ -10,7 +10,7 @@ Wang Lin détourna le regard, de sorte que Wang Ping ne put percevoir la tristes
 
 Nul ne connaissait la véritable raison pour laquelle il refusait de laisser Wang Ping cultiver. Sun Tai l'ignorait, Wang Ping l'ignorait; seul Wang Lin en connaissait la cause réelle.
 
-Il lui était impossible de le dire à Wang Ping. Pour le bien de ce dernier, il ne pouvait pas... Cela n'avait rien à voir avec Liu Mei...
+Il lui était impossible de le dire à Wang Ping. Pour le bien de ce dernier, il ne pouvait pas... Cela n'avait rien à voir avec la mort de Liu Mei...
 
 Wang Ping n'entendit pas le soupir de Wang Lin.
 
@@ -64,11 +64,11 @@ Le jeune homme laissa échapper un reniflement glacial. S'il s'était moqué de 
 
 Sans cette femme, comment aurait-il pu manger dans un tel endroit compte tenu de son rang? En voyant son expression, il eut un ricanement méprisant, se retourna et fixa Wang Ping du regard.
 
-L'homme en pourpre reprit d'un ton feint: « Si son apparence était celle d'une femme, elle serait certainement une fille envoûtante. Hélas, c'est celle d'un homme, quel dommage... Mais s'il était une prostituée, il ferait merveilleusement l'affaire. »
+L'homme en pourpre reprit d'un ton feint: « Si son apparence était celle d'une femme, elle serait certainement une fille envoûtante. Hélas, c'est celle d'un homme, quel dommage... Mais s'il était un prostitué, il ferait merveilleusement l'affaire. »
 
-Ces provocations répétées poussèrent Wang Ping à poser ses baguettes. Il tourna la tête vers le jeune homme et répliqua: « Quel beau visage. S'il était né d'une femme, il serait très séduisant. C'est bien dommage qu'il soit né d'un bâtard... quel dommage... »
+Ces provocations répétées poussèrent Wang Ping à poser ses baguettes. Il tourna la tête vers le jeune homme et répliqua: « Quel beau visage. S'il était né sur un être humain, il serait d'une élégante prestance. C'est bien dommage qu'il soit né sur une bête... quel dommage... »
 
-Le visage de l'homme en pourpre s'assombrit, mais avant qu'il ne puisse réagir, le vieil homme à ses côtés fronça les sourcils et s'écria: « Depuis quand laisse-t-on des individus pareils entrer au Jingya Xuan? Quel manque de manières! Laisse ce vieux monsieur te donner une leçon! »
+Le visage de l'homme en pourpre s'assombrit, mais avant qu'il ne puisse réagir, le vieil homme à ses côtés fronça les sourcils et s'écria: « Depuis quand laisse-t-on des individus pareils entrer au Jingya Xuan? Quel manque de manières! Laisse ce vieux monsieur te donner une leçon ou deux à la place de tes aînés! »
 
 Alors qu'il parlait, le vieil homme projeta ses baguettes qui volèrent comme des éclairs. Il visait les épaules de Wang Ping. Si elles l'avaient atteint, les mains du garçon auraient été mutilées.
 
@@ -78,7 +78,7 @@ Cependant, alors qu'elles approchaient de leur cible, les baguettes perdirent so
 
 Un seul regard!
 
-Le corps du vieil homme fut secoué comme si d'innombrables éclairs explosaient dans son esprit. Ce regard était tel une épée tranchante qui perçait son être à travers ses yeux. Il brisa son esprit et s'engouffra dans son âme. On aurait dit qu'il voulait pulvériser son âme, éteindre la flamme de son noyau et faire éclater sa formation du noyau.
+Le corps du vieil homme fut secoué comme si d'innombrables éclairs explosaient dans son esprit. Ce regard était tel une épée tranchante qui perçait son être à travers ses yeux. Il brisa son esprit et s'engouffra dans son âme. On aurait dit qu'il voulait pulvériser son âme, éteindre la flamme de son noyau et briser son noyau d'or.
 
 Le corps du vieil homme se raidit instantanément, comme s'il venait d'être frappé par la foudre. Ses membres tremblaient de manière incontrôlable.
 
@@ -88,7 +88,7 @@ Le battement violent de son cœur résonnait dans tout son corps, comme s'il ét
 
 Tout son être allait sombrer sous la force de ce simple regard!
 
-Un filet de sang mêlé d'une trace d'or s'échappa du coin de sa bouche. Une fissure venait d'apparaître dans son noyau, et son énergie de culture s'infiltrait dans ses veines.
+Un filet de sang mêlé d'une trace d'or s'échappa du coin de sa bouche. Une fissure venait d'apparaître dans son noyau, et l'énergie de son noyau se répandait dans ses veines.
 
 Le vieil homme était un cultivateur de la Formation du Noyau! Quant au jeune homme en pourpre, il n'était qu'au stade de la Condensation de Qi, et la femme n'avait pas encore atteint l'Établissement des Fondations.
 

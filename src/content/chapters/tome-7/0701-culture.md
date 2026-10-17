@@ -18,7 +18,7 @@ La marionnette de garde céleste percuta directement l'éclair et le traversa. E
 
 Une force destructrice se propagea avec frénésie du poing de la marionnette vers le corps du Daoïste du Tonnerre. C'était comme si une tempête s'était déchaînée, des grondements sourds émanant de son propre corps.
 
-Un bruit étouffé résonna dans la pièce alors que le Daoïste du Tonnerre reculait de plusieurs pas, mais l'engourdissement de sa main et les éclairs se dissipèrent rapidement. Une lueur étrange brilla dans ses yeux tandis qu'il contemplait la marionnette en riant: « Une marionnette de qualité supérieure! »
+Un bruit étouffé résonna dans la pièce alors que le Daoïste du Tonnerre reculait d'un pas, mais l'engourdissement de sa main et les éclairs se dissipèrent rapidement. Une lueur étrange brilla dans ses yeux tandis qu'il contemplait la marionnette en riant: « Une marionnette de qualité supérieure! »
 
 La marionnette de garde céleste recula de deux pas, le regard glacial. Des éclairs serpentaient à travers son corps comme des serpents dansants.
 
@@ -44,7 +44,7 @@ Cette voix était d'une ancienneté profonde et, dès qu'elle retentit, elle fig
 
 La foudre bleue semblait vivante; certaines de ses fines ramifications n'étaient qu'à trois pouces de Wang Ping, mais à cet instant précis, tout fut pétrifié.
 
-La voix ne prononça qu'un seul mot: « Arrête! »
+La voix ne prononça qu'un seul mot: « Fige! »
 
 Un immense vortex apparut dans le vide et un vieil homme aux cheveux blancs en sortit lentement.
 
@@ -106,7 +106,7 @@ Cette scène fit haleter le Daoïste du Tonnerre. Il voyait la foudre tomber com
 
 « Voici le véritable tonnerre! » La voix de Wang Lin était calme. Il agita sa main droite, et la sphère de tonnerre partit dans un grondement fracassant vers le Daoïste du Tonnerre.
 
-L'expression du Daoïste du Tonnerre changea radicalement et il recula sans hésiter. Il frappa son sac de rangement et en sortit une barre métallique noire, longue de trois pieds et d'un pouce d'épaisseur. D'innombrables runes y étaient gravées, entrelacées de lignes rouge sombre.
+L'expression du Daoïste du Tonnerre changea radicalement et il recula sans hésiter. Il frappa son sac de rangement et en sortit une barre métallique noire, longue de trente pieds et d'un pouce d'épaisseur. D'innombrables runes y étaient gravées, entrelacées de lignes rouge sombre.
 
 Au moment où la sphère de Wang Lin atteignit sa cible, le Daoïste du Tonnerre enfonça impitoyablement la barre dans le sol. Simultanément, ses deux mains formèrent des sceaux qu'il posa sur l'objet.
 
@@ -128,7 +128,7 @@ Soudain, la barre métallique parut incapable de contenir la puissance de la fou
 
 Ce fut comme un coup de tonnerre apocalyptique; la planète Ran Yun en trembla. De nombreux sommets montagneux s'effondrèrent dans un tumulte colossal.
 
-La barre explosa et une puissance tonitruante jaillit, prenant le Daoïste du Tonnerre pour centre. Forcé de reculer de dix pas, le visage pâle, il hurla: « Tu es l'homme qui prétend être Xu Mu, le messager du Temple Céleste du Tonnerre! Quel est donc ton véritable niveau de culture?! »
+La barre explosa et une puissance tonitruante jaillit, prenant le Daoïste du Tonnerre pour centre. Forcé de reculer de dix pas, le visage pâle, il hurla: « Tu es ce Xu Mu qui se fait passer pour un messager du Temple Céleste du Tonnerre! Quel est donc ton véritable niveau de culture?! »
 
 L'onde de choc de la barre fit disparaître les éclairs entourant la garde céleste, laquelle s'avança alors.
 
@@ -156,7 +156,7 @@ Une immense peinture de montagnes et de rivières apparut dans le ciel. Cette œ
 
 Une rivière des enfers émergea lentement de la peinture et s'écoula avec lenteur.
 
-Cependant, la rivière des enfers trembla soudainement et pénétra en Wang Lin par le sommet de sa tête.
+Cependant, la peinture et la rivière des enfers vacillèrent soudainement et furent toutes deux aspirées en Wang Lin par le sommet de sa tête.
 
 Alors que le Daoïste du Tonnerre était plongé dans un choc total, le domaine de Wang Lin, qui allait atteindre son apogée, bondit brusquement pour atteindre le pic du stade avancé de l'Ascendant.
 

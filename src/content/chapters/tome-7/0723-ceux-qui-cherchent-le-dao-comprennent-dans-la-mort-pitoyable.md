@@ -40,9 +40,9 @@ Wang Lin cherchait le Dao! Suivant les traces du Dao, en quête de l'aboutisseme
 
 C'était comme si tout ce qui existait dans le monde n'était plus que passé lointain. Comme si tout s'était brisé pour ne devenir néant. Rien de tout cela ne pouvait plus troubler son cœur.
 
-Ceux qui cherchent le Dao comprennent à l'aube et meurent au crépuscule, quel regret...
+Ceux qui entendent le Dao naissent à l'aube et meurent au crépuscule, cela suffit...
 
-Ceux qui cherchent le Dao comprennent dans la mort, pitoyable...
+Ceux qui cherchent le Dao oublient la vie et connaissent la mort, quel regret...
 
 La quête n'avait pas de fin. Wang Lin avait vu d'innombrables sphères de lumière se transformer en planètes, puis redevenir néant. Chaque fois que cela se produisait, il tentait de saisir cette trace du Dao.
 
@@ -50,7 +50,7 @@ Il échouait à chaque tentative, mais il sentait progressivement qu'il se rappr
 
 Le Dao n'apparaissait qu'un instant avant de disparaître à nouveau. Au cours de sa recherche confuse, Wang Lin sembla trouver un indice.
 
-La puissance mystérieuse qu'il traquait semblait transcender l'existence même des lois. Cette prise de conscience était ténue, mais elle laissa une empreinte profonde. Elle avait toujours été là, depuis le commencement.
+La puissance mystérieuse qu'il traquait semblait transcender l'existence même des lois. Cette prise de conscience était ténue, mais elle laissa une empreinte profonde. Sans commencement ni fin, il cherchait et cherchait encore.
 
 Le Dao semblait se trouver là où son regard se posait, mais dès qu'il détournait les yeux, il s'évanouissait.
 
@@ -68,7 +68,7 @@ Pourtant, sa main apparut bien. C'était comme si sa simple pensée suffisait à
 
 Sa main bougea délicatement et une ondulation se propagea dans le vide. Sous l'effet de cette onde, les trois planètes se transformèrent instantanément en trois rayons de lumière qui furent absorbés par la main de Wang Lin.
 
-Wang Lin cessa de chercher le Dao. Dans son état de transe, il avait l'impression d'être le Dao lui-même... En s'arrêtant, son esprit se calma lentement. Puis, tout son être se transforma inconsciemment en une sphère de lumière.
+Wang Lin cessa de chercher le Dao. Dans son état de transe, il sentit que le Dao se trouvait ici... En s'arrêtant, son esprit se calma lentement. Puis, tout son être se transforma inconsciemment en une sphère de lumière.
 
 Au fil du temps, la sphère de lumière qu'il était devenu commença à s'étendre. Il absorba la poussière environnante et finit par former une planète...
 
@@ -80,7 +80,7 @@ C'était comme s'ils possédaient tout ce qu'ils désiraient, au milieu des inno
 
 Ce jour-là, un rayon de lumière traversa la partie méridionale de la planète. À l'intérieur se trouvait une femme vêtue de blanc. Elle était d'une beauté pure et aussi douce que l'eau. Ses cheveux noirs flottaient dans l'air; parfois, quelques mèches lui barraient le visage, et elle les rabattait derrière son oreille de ses mains semblables à du jade.
 
-En volant, ses yeux étaient empreints de confusion. Elle regarda la terre en contrebas, mordilla sa lèvre inférieure et murmura: « Pourquoi ce monde me procure-t-il un sentiment si familier...? »
+En volant, ses yeux étaient empreints de confusion. Elle regarda la terre en contrebas, pinça ses lèvres rouges et murmura: « Pourquoi ce monde me procure-t-il un sentiment si familier...? »
 
 Elle réfléchit longuement avant de secouer la tête. Sa silhouette glissa comme un rayon de lumière et disparut par-delà l'horizon.
 

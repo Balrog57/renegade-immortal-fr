@@ -29,7 +29,7 @@ La Ville Démon Céleste ressemble à un monstre colossal. À mesure que la brum
 
 Dix-huit tableaux de transfert se trouvent aux abords de la Ville Démon Céleste, gardés par des soldats démons en permanence. Parmi ces dix-huit tableaux, huit sont destinés aux civils, tels que les marchands, pour leurs déplacements.
 
-Les dix restants ne sont accessibles qu'aux personnes de haut rang. La distinction entre les classes est flagrante.
+Les dix restants ne sont accessibles qu'aux personnes en fonction officielle. La distinction entre les classes est flagrante.
 
 Le quatorzième tableau de transfert est exclusivement réservé aux généraux démons. Chaque fois qu'il s'active, un général démon apparaît!
 
@@ -65,7 +65,7 @@ En voyant l'étonnement sur les visages de ses subordonnés, le capitaine se sen
 
 Le soldat qui massait les épaules demanda: « Capitaine, selon vous, quel seigneur général remportera la victoire? »
 
-« Cela... n'est pas facile à dire. Pour devenir un général démon, il faut posséder des sorts puissants, mais même parmi les sorts, les degrés de force varient. Je pense que le Seigneur Mo Fei, qui contrôle la ville voisine du Pays Démon du Feu, peut atteindre le top trois! Il y a aussi le Seigneur Mo Lihai de l'Ancienne Ville Démon. Sa culture est également considérée comme très élevée parmi les généraux démons... » Au moment où le capitaine en était là, son expression changea soudainement. Il se redressa d'un bond, son casque s'envola pour atterrir sur sa tête, et son arme vint se loger dans sa main par un mouvement fluide.
+« Cela... n'est pas facile à dire. Pour devenir un général démon, il faut posséder des sorts puissants, mais même parmi les sorts, les degrés de force varient. Je pense que le Seigneur Mo Fei, qui est posté à la frontière du Pays Démon du Feu, peut atteindre le top trois! Il y a aussi le Seigneur Mo Lihai de l'Ancienne Ville Démon. Sa culture est également considérée comme très élevée parmi les généraux démons... » Au moment où le capitaine en était là, son expression changea soudainement. Il se redressa d'un bond, son casque s'envola pour atterrir sur sa tête, et son arme vint se loger dans sa main par un mouvement fluide.
 
 Il fit tout cela en un instant presque imperceptible.
 
@@ -73,7 +73,7 @@ Les soldats démons étaient déjà accoutumés aux réactions de leur capitaine
 
 À cet instant précis, des anneaux de lumière apparurent au-dessus du tableau de transfert, libérant une explosion d'énergie spirituelle démoniaque. Deux silhouettes émergèrent lentement de la matrice et, dès leur apparition, chacune fit un pas en avant. Elles sortirent du tableau de transfert exactement au même moment.
 
-Mo Lihai contempla la capitale devant lui, prit une profonde inspiration et dit à l'homme qui le suivait: « Frère Wang, cela fait plus de trente ans que je ne suis pas revenu dans la capitale! »
+Mo Lihai contempla la capitale devant lui, prit une profonde inspiration et dit à l'homme qui le suivait: « Frère Wang, cela fait trente ans que je ne suis pas revenu dans la capitale! »
 
 Wang Lin observa la cité gigantesque qui s'étalait devant lui. Bien qu'immense, elle était conforme à ses attentes. Après tout, il s'agissait de la capitale du Pays du Démon Céleste!
 
@@ -119,7 +119,7 @@ Ils s'arrêtèrent à une centaine de mètres d'eux. Puis, tous descendirent de 
 
 Mo Lihai rit, puis d'un geste de la main, il ordonna: « Levez-vous tous. Cette personne est mon ami proche, le Vice-Général Wang. À l'avenir, lorsque vous le verrez, considérez que c'est moi que vous saluez! »
 
-Les dix-neuf hommes se tournèrent vers Wang Lin sans la moindre hésitation et s'écrièrent: « Salutations, Vice-Général Wang! »
+Les dix-neuf hommes se tournèrent vers Wang Lin sans la moindre hésitation et s'écrièrent: « Salutations, Général Wang! »
 
 Wang Lin hocha sobrement la tête.
 

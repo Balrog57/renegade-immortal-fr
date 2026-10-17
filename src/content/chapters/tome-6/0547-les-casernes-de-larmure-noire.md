@@ -8,17 +8,17 @@ slug: les-casernes-de-larmure-noire
 ---
 Le Dao d'un cultivateur doit être inébranlable afin de ne pas être facilement affecté par les forces extérieures. C'est cela, un cœur de Dao!
 
-Emprunter la voie démoniaque, c'est comme traverser un vent glacial qui transperce le corps, attaque le cœur et s'empare de l'âme!
+Emprunter la voie démoniaque, c'est comme traverser un vent profane qui transperce le corps, attaque le cœur et s'empare de l'âme!
 
 Lorsque les yeux de Wang Lin retrouvèrent leur clarté, une pointe de surprise y perça. Compte tenu de sa culture et de la solidité de son cœur de Dao, ce qu'il venait d'éprouver ressemblait à une véritable catastrophe.
 
 La nostalgie n'est pas effrayante en soi; ce qui est terrifiant, c'est de s'y perdre totalement et de ne plus parvenir à s'en extirper. En temps normal, une telle chose n'arriverait pas à Wang Lin, mais il venait d'emprunter la voie démoniaque. Bien qu'il l'ait réprimée, des idéaux démoniaques subsistaient en lui, et ils étaient la source de cette nostalgie!
 
-Dans l'Antiquité, les cultivateurs croyaient que les démons envahissaient le corps des mortels. Ils le pensaient car ces démons issus de l'inconnu semblaient fusionnés avec les Cieux, indétectables, et tentaient de prendre possession des cultivateurs en pleine compréhension des lois célestes.
+Parmi les cultivateurs de la haute Antiquité, il existait la théorie du démon extérieur pénétrant dans le corps: lorsqu'un cultivateur communiait avec le ciel et la terre et saisissait le Dao céleste, certains démons célestes venus d'au-delà des frontières, se divisant en milliers d'incarnations, se fondaient dans le vide, sans laisser la moindre trace.
 
-D'un autre côté, cela signifie qu'ils sont partout!
+Sans laisser de trace, cela signifie aussi, d'un autre côté, qu'ils sont partout!
 
-Le démon extraterritorial pénètre dans le corps, active le feu du Dao du cultivateur pour consumer son âme originelle, s'emparant ainsi de sa vie et détruisant son cœur de Dao. Aux yeux des anciens cultivateurs, ces démons étaient terrifiants. S'ils commettaient une seule erreur en les laissant entrer, ils seraient ruinés à jamais.
+Le démon extraterritorial pénètre dans le corps, active le feu du Dao du cultivateur pour consumer son âme originelle, s'emparant ainsi de sa vie et ruinant sa voie. Aux yeux des anciens cultivateurs, ces démons étaient terrifiants. S'ils commettaient une seule erreur en les laissant entrer, ils seraient ruinés à jamais.
 
 À mesure que les anciens cultivateurs s'éteignaient et que l'Alliance de la Culture prenait le relais, les récits sur les démons extraterritoriaux disparurent, remplacés par des analyses logiques et des calculs rationnels.
 
@@ -26,31 +26,31 @@ L'Alliance de la Culture réfutait l'existence de ces démons. Elle soutenait pl
 
 C'est précisément ce qui venait d'arriver à Wang Lin. Son désir irrépressible de retourner sur la planète Suzaku était l'apogée de son idéal démoniaque. Si cela avait persisté, Wang Lin se serait réveillé par lui-même, mais le délai aurait pu être court ou extrêmement long.
 
-L'apparition des soldats démoniaques et de leur énergie spirituelle démoniaque avait permis à Wang Lin de trouver une brèche dans sa prison mentale. À l'instant où l'énergie spirituelle des six soldats démoniaques jaillit, Wang Lin connut un moment de lucidité. Bien que fugace, ce fut amplement suffisant pour lui.
+L'apparition des soldats démons et de leur énergie spirituelle démoniaque avait permis à Wang Lin de trouver une brèche dans cette situation défavorable. À l'instant où l'énergie spirituelle des six soldats démons jaillit, Wang Lin connut un moment de lucidité. Bien que fugace, ce fut amplement suffisant pour lui.
 
 Il n'hésita pas une seconde. L'énergie spirituelle démoniaque jaillit du cristal démoniaque et se propagea rapidement dans son corps. Lorsque cette énergie entra en collision avec l'énergie spirituelle céleste, elle créa un vortex, né de la fusion des deux forces.
 
-Pour ceux qui ignoraient tout de la Terre des Démons, l'énergie spirituelle démoniaque servait de substitut à l'énergie spirituelle céleste. Lorsqu'elle est fusionnée à cette dernière, elle peut en accroître la puissance.
+Pour les cultivateurs venus de l'extérieur de la Terre des Esprits Démoniaques, l'énergie spirituelle démoniaque servait de substitut au jade céleste. Fusionnée à l'énergie spirituelle céleste, elle peut en accroître la puissance.
 
-Wang Lin ne les avait pas encore fusionnées, attendant le moment opportun. Cette capacité de fusion était précisément ce qui lui avait permis de dévorer l'énergie spirituelle des six soldats démoniaques.
+Wang Lin ne les avait pas encore fusionnées, attendant le moment opportun. Cette capacité de fusion était précisément ce qui lui avait permis de dévorer l'énergie spirituelle des six soldats démons.
 
 Bien que cela puisse sembler long, tout s'était produit en un instant.
 
-Lorsque Treize vit que Wang Lin était revenu à la normale, il poussa un grand soupir de soulagement. Dans son cœur, tant que Wang Lin était là, rien n'était impossible. Il se précipita aux côtés de Wang Lin et lança un regard glacial aux soldats démoniaques.
+Lorsque Treize vit que Wang Lin était revenu à la normale, il poussa un grand soupir de soulagement. Dans son cœur, tant que Wang Lin était là, rien n'était impossible. Il se précipita aux côtés de Wang Lin et lança un regard glacial aux soldats démons.
 
 La nervosité quitta également Hu Pao. D'un geste de la main, il retira les fragments d'âme et se tint aux côtés de Wang Lin.
 
-Les six soldats démoniaques, qui venaient de perdre leur énergie spirituelle, étaient extrêmement affaiblis. Ils affichaient tous des expressions d'incrédulité avant de fixer Wang Lin avec des yeux emplis de terreur.
+Les six soldats démons, qui venaient de perdre leur énergie spirituelle, étaient extrêmement affaiblis. Ils affichaient tous des expressions d'incrédulité avant de fixer Wang Lin avec des yeux emplis de terreur.
 
 L'homme au visage sombre se leva et demanda d'un ton grave: « Qui êtes-vous, monsieur?! »
 
 Wang Lin ramassa le troisième pot qui n'avait pas été ouvert. Sans même accorder un regard à son interlocuteur, il commença à sortir du restaurant. Treize déposa quelques pierres démoniaques sur la table avant de suivre Wang Lin.
 
-Quant à Hu Pao, il eut un ricanement méprisant en observant les soldats démoniaques dans le restaurant, puis suivit Wang Lin.
+Quant à Hu Pao, il eut un ricanement méprisant en observant les soldats démons dans le restaurant, puis suivit Wang Lin.
 
 L'homme au visage sombre frappa violemment la table et hurla: « Arrêtez! » En faisant cela, il fit un pas en avant et une puissante énergie spirituelle démoniaque se propagea, enveloppant tout le restaurant d'une aura maléfique.
 
-Cette énergie se solidifia en lames de sabre qui foncèrent rapidement vers le groupe de Wang Lin.
+Cette énergie se solidifia en longues épées qui foncèrent rapidement vers le groupe de Wang Lin.
 
 Wang Lin se retourna, le regard glacial. Il fixa froidement l'adversaire et fit un geste de la main. Une étrange bourrasque de vent apparut, et les épées d'énergie spirituelle démoniaque se dissipèrent instantanément au contact de ce souffle.
 
@@ -66,7 +66,7 @@ Chaque fois qu'il décelait une trace d'idéal démoniaque, il l'expulsait immé
 
 À cet instant, trois sphères noires flottaient devant lui. Ces petites boules semblables à du coton étaient les idéaux démoniaques qu'il avait extraits de son être.
 
-« Ce serait un gaspillage de détruire cet idéal démoniaque. S'il est utilisé correctement, il peut briser le cœur de Dao de n'importe qui et les prendre au dépourvu! » Les yeux de Wang Lin brillèrent avant qu'il ne range les trois petites sphères.
+« Ce serait un gaspillage de détruire cet idéal démoniaque. S'il est utilisé correctement, il peut ruiner le Dao de n'importe qui et les prendre au dépourvu! » Les yeux de Wang Lin brillèrent avant qu'il ne range les trois petites sphères.
 
 « Les sept jours touchent à leur fin. Le général démon avait dit que quelqu'un m'emmènerait aux casernes... » Alors que Wang Lin réfléchissait, son expression changea et il leva la tête vers la porte.
 
@@ -76,11 +76,11 @@ L'expression de Wang Lin resta sereine alors qu'il répondit calmement: « Entre
 
 La porte fut ouverte. Treize et Hu Pao entrèrent accompagnés d'un autre homme. Cet individu, âgé d'une quarantaine d'années, était vêtu de noir et très mince; dès son entrée dans la pièce, une aura glaciale enveloppa les lieux.
 
-Son regard se posa immédiatement sur Wang Lin, assis sur le lit. Après l'avoir examiné, il joignit les mains et dit: « Salutations, Commandant Wang! »
+Son regard se posa immédiatement sur Wang Lin, assis sur le lit. Après l'avoir examiné, il joignit les mains et dit: « Salutations, Commandant Wang! Je suis l'intendant de l'armée du Général démon; sur son ordre, je dois conduire le Commandant à sa caserne. Mais auparavant, veuillez me présenter votre jeton. »
 
 Wang Lin effleura sa sacoche de stockage et un jeton couleur bronze apparut rapidement dans sa main. Il lança le jeton en avant.
 
-L'intendant de l'armée rattrapa le jeton, l'examina attentivement, hocha la tête et le lui rendit. Puis, il se mordit la lèvre et traça une forme dans les airs. Rapidement, une formation rouge sang se matérialisa. Elle semblait extrêmement complexe, mais Wang Lin parvint à en déchiffrer une partie.
+L'intendant de l'armée rattrapa le jeton, l'examina attentivement, hocha la tête et le lui rendit. Puis, il se mordit le bout du doigt jusqu'au sang et traça une forme dans les airs. Rapidement, une formation rouge sang se matérialisa. Elle semblait extrêmement complexe, mais Wang Lin parvint à en déchiffrer une partie.
 
 Wang Lin récupéra le jeton et dit doucement: « Formation de transfert! »
 
@@ -96,7 +96,7 @@ Hu Pao maugréa intérieurement avant de suivre rapidement Wang Lin.
 
 Au moment où Wang Lin émergea de l'autre côté de la formation, il entendit un rugissement organisé et assourdissant retentir de toutes parts, tel un tonnerre grondant.
 
-Treize, qui marchait en tête, fut immédiatement secoué par ce fracas et fut contraint de reculer de plusieurs pas. Déjà blessé par les événements précédents, ce choc fit bouillon le sang dans ses veines, le forçant à cracher une bouchée de sang.
+Treize, qui marchait en tête, fut immédiatement secoué par ce fracas et fut contraint de reculer de plusieurs pas. Déjà blessé par les événements précédents, ce choc fit bouillonner le sang dans ses veines, le forçant à cracher une bouchée de sang.
 
 Quant à Hu Pao, bien qu'il ne fût pas blessé, son corps n'était pas aussi robuste que celui de Treize. Sous l'assaut sonore, l'énergie spirituelle démoniaque en lui devint incontrôlable et se déchaîna dans ses membres.
 

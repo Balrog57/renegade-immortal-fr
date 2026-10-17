@@ -26,11 +26,11 @@ Quant à Xu Liguo, après avoir rencontré l'esprit de l'épée, il ne cessait d
 
 Ce jour-là, alors que le bateau n'était pas encore arrivé, Wang Lin était allongé au bord de la rivière, une cruche de vin à la main. Il leva les yeux vers les nuages blancs dans le ciel et, à ses yeux, ces derniers semblaient être en pleine métamorphose.
 
-« Beaucoup de gens pensent que les nuages sont des objets éthérés, mais tout comme la musique du zither, ils ne sont pas le néant. C'est le cœur humain qui est éphémère... Si le cœur n'est pas ému, alors les nuages restent figés; et si le cœur n'est pas effrayé, alors la musique du zither s'évanouit... » Wang Lin prit une gorgée de vin, le regard empreint de confusion.
+« Beaucoup de gens pensent que les nuages sont des objets éthérés, mais tout comme la musique du zither, ils ne sont pas le néant. C'est le cœur humain qui est éphémère... Si le cœur ne flotte pas, alors les nuages restent figés; et si le cœur ne laisse aucune trace, alors la musique du zither s'évanouit... » Wang Lin prit une gorgée de vin, le regard empreint de confusion.
 
 « Ascendant, Ascendant... comment puis-je faire pour que mon domaine réponde aux exigences nécessaires pour atteindre le stade d'Ascendant? Au stade de l'Âme Naissante, on comprend son domaine pour atteindre la Formation de l'Âme. Au stade de la Formation de l'Âme, on rend son domaine réel pour atteindre la Transformation de l'Âme. Au stade de la Transformation de l'Âme, on peut fusionner son domaine avec son corps, mais cela ne suffit toujours pas pour atteindre le stade d'Ascendant. Mon domaine a déjà fusionné avec mon corps, et mon cœur Dao s'est accompli au moment même où Wan Er s'est endormie. »
 
-« Pourtant, il me manque encore une étape! Quelle est-elle précisément? Tout le monde comprend des domaines différents et possède donc un Dao unique; il est donc impossible de poser la question. Et même si je le faisais, cela serait contre-productif, car cela pourrait m'égarer sur la mauvaise voie. Je ne peux que cultiver par moi-même et comprendre par moi-même! »
+« Pourtant, il me manque encore une étape! Quelle est-elle précisément? Tout le monde comprend des domaines différents et possède donc un Dao unique; il est donc impossible de poser la question. Et même si je le faisais, cela serait contre-productif, car cela ne ferait que m'entraver. Je ne peux que cultiver par moi-même et comprendre par moi-même! »
 
 La confusion dans son regard s'intensifia, mais à cet instant précis, la voix hystérique de Xu Liguo pénétra son esprit.
 
@@ -62,19 +62,19 @@ Alors que Xu Liguo s'apprêtait à poursuivre, Wang Lin frappa son sac de conser
 
 Une épaisse fumée noire se mua en une brume sombre avant de prendre la forme de Xu Liguo. Il laissa échapper un rire, prêt à foncer vers le palais impérial. Mais à cet instant, les yeux de Wang Lin devinrent glacials; sa main droite s'étira et saisit l'épée céleste.
 
-Il passa sa main sur la lame, laquelle libéra un éclat de lumière tout en vibrant intensément. Xu Liguo se tourna aussitôt vers Wang Lin et cria: « Wang Lin, qu'est-ce que tu fais?! »
+Il passa sa main sur la lame, laquelle se mit à trembler légèrement. Xu Liguo se tourna aussitôt vers Wang Lin et cria: « Wang Lin, qu'est-ce que tu fais?! »
 
 Wang Lin le fixa froidement. Ce regard fut pour Xu Liguo comme une douche froide, le tirant instantanément de sa luxure.
 
 Ce regard rappela immédiatement à Xu Liguo le jour où Wang Lin l'avait transformé en démon. Diverses scènes de ces derniers siècles défilèrent alors dans son esprit.
 
-« C'est un monstre. À quoi est-il capable? Il a massacré tout le clan Teng et tué d'innombrables personnes sur la planète Suzaku. Moi... je... » Xu Liguo tremblait.
+« C'est un monstre. De quoi n'est-il pas capable? Il a massacré tout le clan Teng et tué d'innombrables personnes sur la planète Suzaku. Moi... je... » Xu Liguo tremblait.
 
 « Ma... Maître... » Xu Liguo afficha aussitôt un sourire mielleux pour tenter de lui plaire.
 
 Wang Lin continua de le fixer avec froideur. Plus Wang Lin agissait ainsi, plus la terreur de Xu Liguo grandissait. Les souvenirs des massacres passés de Wang Lin surgissaient dans son cœur.
 
-« Je t'ai donné le corps d'un démon, je t'ai permis de devenir un esprit d'épée et je t'ai laissé résider dans l'épée céleste pour te protéger, » déclara Wang Lin d'une voix calme. Mais en entendant ces mots, Xu Liguo ne put s'empêcher de maudire intérieurement son maître.
+« Je t'ai donné le corps d'un démon, je t'ai permis de devenir un esprit d'épée et je t'ai laissé résider dans l'épée céleste pour te protéger, » déclara Wang Lin d'une voix calme. Mais en entendant ces mots, Xu Liguo ne put s'empêcher de se lamenter intérieurement.
 
 « Maintenant, je vais reprendre tout cela! » La main gauche de Wang Lin balaya l'épée céleste et Xu Liguo poussa un gémissement de douleur. Tout son corps fut secoué lorsque Wang Lin rompit le lien qui l'unissait à l'épée volante.
 

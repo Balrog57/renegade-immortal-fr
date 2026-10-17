@@ -62,15 +62,15 @@ Le rouge représentait la rétribution divine, et le noir représentait l'intent
 
 La collision entre le rouge et le noir fit trembler les cieux, et toute la Cité du Démon Céleste en fut ébranlée. Le séisme se propagea jusqu'aux montagnes et aux plaines environnantes!
 
-Des bruits d'explosions jaillirent du sol, comme si d'innombrables bombes implosaient sous terre!
+Des bruits d'explosions jaillirent du sol, comme si d'innombrables coups de tonnerre éclataient sous terre!
 
 Une force inimaginable résultant de ces explosions provoqua l'effondrement total de la place. Les gradins alentour s'écroulèrent également, projetant d'innombrables personnes dans les airs.
 
 Tous les généraux démons se retirèrent promptement, craignant d'être emportés par le chaos s'ils tardaient ne serait-ce qu'une seconde.
 
-Les expressions de tous les commandants changèrent et ils battirent en retraite, à l'exception du Commandant en Chef Céleste. Étant le plus proche, il vit tout ce qui se passait avant de laisser échapper un soupir. Il toucha alors sa sacoche pour en sortir une fiole de jade. Après lui avoir lancé un regard empreint de sens, il la projeta vers Wang Lin et s'en alla.
+Les expressions de tous les commandants changèrent et ils battirent en retraite, à l'exception du Commandant en Chef Céleste. Étant le plus proche, il vit tout ce qui se passait avant de laisser échapper un soupir. Il plongea alors la main dans son vêtement pour en sortir un sac de rangement, d'où s'envola une fiole de jade. Après lui avoir lancé un regard empreint de sens, il la projeta vers Wang Lin et s'en alla.
 
-Dans le ciel surplombant Wang Lin, le rouge et le noir s'annulaient mutuellement. Grâce à la puissance du drapeau de restriction, aux Cent Doigts de la Mort, aux plus de 3 700 dragons de massacre imprégnés du cœur de Wang Lin, et à l'innombrable jade céleste converti en énergie démoniaque pour forger le Doigt Démoniaque le plus puissant que Wang Lin ait jamais créé, la lumière rouge fut finalement neutralisée par cette fusion de sorts.
+Dans le ciel surplombant Wang Lin, le rouge et le noir s'annulaient mutuellement. Grâce à la puissance du drapeau de restriction, aux Cent Doigts de la Mort, au dragon de massacre formé de plus de 3 700 brins d'énergie de massacre et imprégné du cœur de Wang Lin voulant tuer les cieux, et à l'innombrable jade céleste converti en énergie démoniaque pour forger le Doigt Démoniaque le plus puissant que Wang Lin ait jamais créé, la lumière rouge fut finalement neutralisée par cette fusion de sorts.
 
 Dès que la lumière rouge disparut, les tremblements cessèrent et tout sembla revenir à la normale. Cependant, la panique des innombrables habitants de la Cité du Démon Céleste créa une atmosphère oppressante qui enveloppa toute la ville.
 

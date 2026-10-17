@@ -10,7 +10,7 @@ Ce n'était pas la première fois que Wang Lin assistait à un sort d'extraction
 
 La scène de l'époque l'avait profondément marqué. Un tel sort était extrêmement puissant; ce n'était pas une technique que des cultivateurs ordinaires pouvaient contrôler ou maîtriser.
 
-Désormais, en faisant l'expérience directe du démon dispersé prenant le contrôle de son corps pour extirper l'âme de la planète, il réalisait que ce sort était des millions de fois plus profond que celui de Cupidité.
+Désormais, en faisant l'expérience directe du démon dispersé prenant le contrôle de son corps pour extirper l'âme de la planète, il constatait que l'ampleur de ce sort, qui condensait une griffe démoniaque pour extirper l'âme de la planète Mille Illusions, surpassait celle de Cupidité de mille, voire dix mille fois.
 
 Tout dans ce monde, jusqu'au moindre brin d'herbe, possède la vie, et cela signifie qu'ils possèdent une âme. Ces âmes sont insaisissables et invisibles, mais elles peuvent être clairement ressenties.
 
@@ -18,13 +18,13 @@ Par exemple, lorsqu'un mortel contemple une haute montagne, il ressent un sentim
 
 Si les montagnes et les rivières possèdent des âmes, une planète de culture regorgeant d'énergie spirituelle en possède, bien évidemment, également.
 
-Cela différait grandement de l'instant où l'énergie spirituelle avait été soustraite. Cette fois, la planète ne trembla pas le moins du monde; au contraire, une aura très ancienne apparut et se propagea lentement, comme si la planète s'était éveillée.
+Cela différait grandement de l'instant où l'énergie spirituelle avait été convertie. Cette fois, la planète ne trembla pas le moins du monde; au contraire, une aura très ancienne apparut et se propagea lentement, comme si la planète s'était éveillée.
 
-Cette aura antique ne pouvait s'être formée en seulement quelques centaines de milliers d'années. C'était le fruit d'une lente maturation au fil d'éons, exempte de toute joie ou tristesse.
+Cette aura antique ne pouvait s'être formée en cent ans, mille ans ou même dix mille ans. C'était le fruit d'une lente maturation au fil d'éons, exempte de toute joie ou tristesse.
 
 Cette aura ne contenait qu'un sentiment d'inclusion. Au fil des âges, elle avait englobé tout ce qui existait sur la planète.
 
-Le démon dispersé, contrôlant le corps de Wang Lin, tendit sa main droite. Son aura commença à converger dans sa paume avec une frénésie telle qu'en un clin d'œil, elle se mua en une brume grise. L'aura antique continua de fusionner avec cette brume et de se comprimer. Des détonations semblables à des coups de tonnerre jaillirent de la brume grise.
+Le démon dispersé, contrôlant le corps de Wang Lin, tendit sa main droite. Cette aura commença à converger dans sa paume avec une frénésie telle qu'en un clin d'œil, elle se mua en une brume grise. L'aura antique continua de fusionner avec cette brume et de se comprimer. Des détonations semblables à des coups de tonnerre jaillirent de la brume grise.
 
 C'était peut-être une illusion, mais à cet instant, Wang Lin eut l'impression que la planète Mille Illusions perdait soudainement sa vitalité. L'herbe se flétrissait, les rivières s'évaporaient et les sommets se fissuraient...
 
@@ -80,7 +80,7 @@ Des fissures apparurent sur l'écran, mais celui-ci ne céda pas. Sous la protec
 
 Huan Fengshen déclara d'un ton grave: « Ancêtre, remettez Liu Mei... » Il poussa un soupir. Bien que l'adversaire ne soit qu'un cultivateur Ascendant, ses trésors magiques et ses sorts étaient trop puissants, surtout après l'apparition du démon. Même si la culture de l'Ancêtre n'avait pas décliné, il ne serait toujours pas de taille.
 
-L'ancêtre de la famille Huan jeta un regard vers Huan Fengshen qui se tenait non loin, puis détourna les yeux pour fixer tristement Liu Mei. Il hésita un instant avant de dire lentement: « Liu Mei... »
+L'ancêtre de la famille Huan jeta un regard vers Huan Fengshen, qui s'était séparé de lui et se tenait non loin, puis détourna les yeux pour fixer tristement Liu Mei. Il hésita un instant avant de dire lentement: « Liu Mei... »
 
 Cependant, avant qu'il n'ait pu achever sa phrase, Liu Mei leva ses beaux yeux vers lui. Elle écarta les mèches de cheveux qui retombaient sur sa tête et dit doucement: « Maître, si Liu Mei part, je mourrai certainement. »
 
@@ -90,21 +90,21 @@ L'écran de lumière spirituelle céleste résista à une autre attaque du démo
 
 L'expression de l'ancêtre de la famille Huan était sombre. Il refusait simplement de livrer Liu Mei ainsi. Pourtant, s'il ne la remettait pas maintenant, une fois que ce démon dispersé descendrait réellement, il lui serait impossible de résister par sa propre force. La famille Qian ne l'aiderait pas, et la famille Xu, bien qu'ayant promis son soutien, n'était toujours pas apparue; quelque chose clochait manifestement. Pour l'heure, il ne pouvait compter que sur lui-même.
 
-Ses yeux devinrent glacials alors qu'il fixait Liu Mei: « Liu Mei, puisque tu mourras si tu sors, pourquoi ne pas céder ton domaine à ce vieil homme? Avec l'aide de ton domaine, je pourrai accomplir mon Dao Démoniaque de l'Identité Absolue, et j'aurai peut-être alors une chance! »
+Ses yeux devinrent glacials alors qu'il fixait Liu Mei: « Liu Mei, puisque tu mourras si tu sors, pourquoi ne pas céder ton domaine à ce vieil homme? Avec l'aide de ton domaine, je pourrai accomplir mon Dao du Démon Céleste Sans Identité, et j'aurai peut-être alors une chance! »
 
-Il avait pris Liu Mei comme disciple car elle avait manifesté une trace du Dao Démoniaque des Mille Illusions!
+Il avait pris Liu Mei comme disciple car elle avait manifesté une trace du Dao du Démon Céleste des Dix Mille Illusions!
 
-L'ancêtre céleste de la famille Huan avait autrefois laissé deux sorts de domaine: le Dao Démoniaque et le Dao de l'Identité Absolue. Cependant, le premier était si complexe que, jusqu'à ce jour, personne dans la lignée n'avait réussi à le maîtriser.
+L'ancêtre céleste de la famille Huan avait autrefois laissé deux sorts de domaine: le Dao du Démon Céleste et le Dao Sans Identité. Cependant, le premier était si complexe que, jusqu'à ce jour, personne dans la lignée n'avait réussi à le maîtriser.
 
-Ces deux sorts étaient en réalité issus d'un seul domaine originel: le Dao Démoniaque de l'Identité Absolue. Ce domaine s'était formé avant l'effondrement du Royaume Céleste, lorsque l'ancêtre s'était lié à un démon céleste; cette fusion lui avait permis d'atteindre une compréhension profonde de ce domaine. Cependant, les Célestes ne cultivant pas de domaines, il avait transmis cette compréhension à ses descendants.
+Ces deux sorts étaient en réalité issus d'un seul domaine originel: le Dao du Démon Céleste Sans Identité. Ce domaine s'était formé avant l'effondrement du Royaume Céleste, lorsque l'ancêtre, lors d'une méditation, s'était trouvé enchevêtré avec un démon céleste venu d'au-delà des domaines; en y alliant sa propre compréhension, ce domaine s'était soudain formé en lui. Cependant, les Célestes ne cultivant pas de domaines, il avait transmis cette compréhension à ses descendants.
 
-Après la perte de leur protection lors de l'effondrement du Royaume Céleste, la famille Huan n'avait pu maintenir sa position que grâce au Dao Démoniaque de l'Identité Absolue. Mais leur gloire passée s'était éteinte.
+Après la perte de leur protection lors de l'effondrement du Royaume Céleste, la famille Huan n'avait pu maintenir sa position que grâce au Dao du Démon Céleste Sans Identité. Mais leur gloire passée s'était éteinte.
 
 C'est le domaine des Mille Illusions de Liu Mei qui avait tenté Huan Wuqing. Afin de la dévorer plus aisément par la suite, il avait délibérément altéré sa propre culture pour modifier sa lignée. Il avait également accéléré sa progression; bien que cela ne l'empêchât pas d'augmenter son niveau, cela la condamnait à n'atteindre que le stade Yin et Yang. Ainsi, elle resterait sous son contrôle total, sans poser de problème lorsqu'il la dévorerait.
 
-Tout était calculé: il lui suffisait d'attendre que Liu Mei atteigne le stade Yin et Yang. Une fois que son domaine aurait subi sa transformation pour devenir le véritable Dao Démoniaque des Mille Illusions, il la dévorerait pour cultiver le vrai domaine de la famille Huan: le Dao Démoniaque de l'Identité Absolue.
+Tout était calculé: il lui suffisait d'attendre que Liu Mei atteigne le stade Yin et Yang. Une fois que son domaine aurait subi sa transformation pour devenir le véritable Dao du Démon Céleste des Dix Mille Illusions, il la dévorerait pour cultiver le vrai domaine de la famille Huan: le Dao du Démon Céleste Sans Identité.
 
-Pourtant, tout ce plan avait été balayé par Wang Lin, apparu de nulle part. Plutôt que de livrer Liu Mei, il valait mieux la dévorer dès maintenant pour obtenir au moins une trace du Dao Démoniaque des Mille Illusions. À l'avenir, il n'aurait qu'à s'appliquer dans sa compréhension du Dao pour, peut-être, atteindre un Grand Dao un jour.
+Pourtant, tout ce plan avait été balayé par Wang Lin, apparu de nulle part. Plutôt que de livrer Liu Mei, il valait mieux la dévorer dès maintenant pour obtenir au moins une trace du Dao du Démon Céleste Sans Identité. À l'avenir, il n'aurait qu'à s'appliquer dans sa compréhension du Dao pour, peut-être, atteindre un Grand Dao un jour.
 
 Fort de cette pensée, Huan Wuqing fixait Liu Mei d'un regard étrange.
 
@@ -112,6 +112,6 @@ Les yeux de Liu Mei restaient calmes. Forte de son intelligence, elle avait déj
 
 Toutefois, la puissance de Huan Wuqing était irrésistible. Elle n'avait pu que feindre l'ignorance, se laisser mener dans le Système Stellaire de Luotian et accepter le rituel de lignée. Dès l'instant où Huan Wuqing avait accepté de compromettre sa propre culture pour l'aider à atteindre le sommet du stade tardif de l'Ascendant, elle eut la certitude qu'il cachait un mobile profond derrière ses actes.
 
-Elle était impuissante. Avec son statut passé de disciple du Suzaku, comment ne pas savoir les dommages causés par une augmentation forcée du niveau de culture?
+Elle était impuissante. Avec son statut passé de disciple de Zhu Quezi, comment ne pas savoir les dommages causés par une augmentation forcée du niveau de culture?
 
 Liu Mei dit doucement: « Vous devez me promettre deux choses... »

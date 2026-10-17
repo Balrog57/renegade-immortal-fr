@@ -34,7 +34,7 @@ Ce n'est qu'après avoir été véritablement reconnu par la créature que la pl
 
 La vitesse de la bête spirituelle était prodigieuse. On pouvait dire que sa vélocité n'était en rien inférieure à celle de Wang Lin lorsqu'il utilisait la boussole stellaire d'argent dans l'espace. La bête laissait derrière elle de multiples images rémanentes tandis qu'elle disparaissait au loin à une vitesse inimaginable.
 
-L'homme à la robe noire s'éloignait rapidement. Un petit cristal se trouvait dans son dantian, d'où s'échappait lentement une énergie démoniaque. Sa haine envers Wang Lin grandissait jusqu'à devenir monstrueuse au fil de sa fuite. Il jura que dès qu'il aurait trouvé un corps à posséder et retrouvé toute sa puissance, il trouverait le moyen de tuer Wang Lin avec une cruauté sans nom!
+L'homme à la robe noire s'éloignait rapidement. Un cristal de la taille d'un petit doigt se trouvait dans son dantian, d'où s'échappait lentement une énergie démoniaque. Sa haine envers Wang Lin grandissait jusqu'à devenir monstrueuse au fil de sa fuite. Il jura que dès qu'il aurait trouvé un corps à posséder et retrouvé toute sa puissance, il trouverait le moyen de tuer Wang Lin avec une cruauté sans nom!
 
 En pleine fuite, son expression changea brusquement. Il tourna la tête et vit la bête spirituelle qui semblait l'avoir verrouillé pour le poursuivre à toute allure.
 

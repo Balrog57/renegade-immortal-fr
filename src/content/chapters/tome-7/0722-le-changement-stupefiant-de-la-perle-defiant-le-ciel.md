@@ -112,7 +112,7 @@ Les yeux de Wang Lin s'illuminèrent et il fixa le bras. Après avoir réfléchi
 
 Si ce bras n'était pas verrouillé par le tonnerre, Wang Lin n'aurait jamais choisi d'entrer. Cependant, il sentait que s'il manquait cette chance unique, il ne pourrait plus jamais découvrir le secret qui se cachait derrière la porte!
 
-Bien que sa vitesse fût insuffisante, il se laissa une issue de secours: si le bras se libérait du tonnerre, il ferait immédiatement demi-tour pour fuir!
+Bien que sa vitesse fût grande, il se laissa une issue de secours: si le bras se libérait du tonnerre, il ferait immédiatement demi-tour pour fuir!
 
 Il se rapprochait de plus en plus!
 

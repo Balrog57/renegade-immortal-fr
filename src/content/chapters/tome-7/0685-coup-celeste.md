@@ -50,11 +50,11 @@ Non seulement eux, mais les yeux de Qian Kuizi, qui observait via son Sens Divin
 
 « Une Loi! Cette frappe d'épée contient une Loi! La quête de la seconde étape est celle de la Loi! La première étape consiste à comprendre les cieux, et la seconde consiste à convertir cette compréhension en le pouvoir des Lois. Si cet enfant n'est pas issu du Temple Céleste du Tonnerre, comment pourrait-il manifester une telle frappe?! »
 
-Au même moment, un membre de la famille Xu remarqua la scène. Un vieil homme de la famille Xu observait également la bataille au domicile des Huan grâce à son Sens Divin. Auparavant, il avait conclu un accord pour apporter son aide à la famille Huan. Il avait déjà levé le pied pour partir, mais à cet instant, il le reposa doucement.
+Au même moment, un membre de la famille Xu remarqua la scène. Un vieil homme de la famille Xu observait également la bataille au domicile des Huan grâce à son Sens Divin. Auparavant, il avait conclu un accord pour apporter son aide à la famille Huan. Il avait déjà levé le pied pour intervenir, mais à cet instant, il le reposa doucement.
 
 « Le style d'épée de cet enfant est redoutable. Bien que je ne craigne rien, s'il a osé défier la famille Huan, c'est qu'il doit avoir d'autres cartes en réserve! »
 
-L'épée tomba, et à cet instant, tout son son disparut du monde. La formation de la famille Huan s'effondra sans qu'aucun impact physique n'ait eu lieu.
+L'épée tomba, et à cet instant, tout son disparut du monde. La formation de la famille Huan s'effondra sans qu'aucun impact physique n'ait eu lieu.
 
 Après avoir rengainé son épée, le visage de Wang Lin était pâle. Cependant, son regard devint plus glacial encore alors qu'il fixait la famille Huan en contrebas.
 
@@ -68,7 +68,7 @@ La famille Huan était plongée dans un silence de mort. Le regard de Huan Wuqin
 
 « Je vous en prie, Jade Ancestral! » L'ancêtre de la famille Huan poussa un cri puissant. Une force colossale jaillit soudainement du domaine ancestral des Huan. Cette force, empreinte d'un sentiment d'unité, se propagea comme un vent céleste pour envelopper la famille.
 
-Un jade doré s'éleva lentement dans les airs depuis une demeure voisine. C'était de ce jade que procédait cette force d'unité.
+Un jade doré s'éleva lentement dans les airs depuis la salle ancestrale, au loin. C'était de ce jade que procédait cette force d'unité.
 
 À l'instant où le jade apparut, c'était comme si un monde distinct avait été sculpté au sein même de la planète. Il permit au domaine ancestral de la famille Huan de devenir son propre royaume.
 
@@ -84,7 +84,7 @@ Huan Wuqing pensa: « Hélas, le trésor céleste a disparu avec Huan Wuxiang il
 
 La puissance émanant du jade était semblable à une douce brise printanière, tout en dégageant une lumière éclatante. Après un instant, le jade sembla fondre pour prendre la forme d'une personne. Bien que ses traits fussent flous, elle dégageait une majesté écrasante.
 
-« Le pouvoir du jade céleste de la famille Huan est imprévisible. La rumeur prétend que l'ancêtre céleste des Huan possédait une culture équivalente à celle d'un Voyant du Nirvana. Je me demande comment le messager du Temple Céleste du Tonnerre va réagir. Mais c'est étrange; pourquoi ne sort-il pas le trésor laissé par l'ancêtre au lieu de convoquer le jade? » Les yeux de Qian Kuizi brillaient tandis qu'il observait la scène via son Sens Divin.
+« Le pouvoir du jade céleste de la famille Huan est imprévisible. La rumeur prétend que l'ancêtre céleste des Huan possédait une culture équivalente à celle d'un Purificateur du Nirvana. Je me demande comment le messager du Temple Céleste du Tonnerre va réagir. Mais c'est étrange; pourquoi ne sort-il pas le trésor laissé par l'ancêtre au lieu de convoquer le jade? » Les yeux de Qian Kuizi brillaient tandis qu'il observait la scène via son Sens Divin.
 
 Dans la demeure des Xu, le vieil homme sourit et murmura: « Le trésor céleste de la famille Huan a été emporté par l'autre ancêtre de leur lignée. L'ancêtre céleste en a laissé un autre, tout à fait convenable. Cependant, il n'aurait jamais cru que ce trésor finirait par tuer un cultivateur de la seconde étape de la famille Huan. »
 
@@ -104,7 +104,7 @@ La silhouette formée par le jade commença à marcher pas à pas vers Wang Lin.
 
 La marionnette du garde céleste apparut en un éclair aux côtés de Wang Lin. La Bête du Tonnerre fit de même.
 
-Wang Lin observa la silhouette qui s'avançait vers lui. Il eut l'impression d'avoir une illusion devant les yeux. Les traits de l'être semblaient se préciser; il était imprégné d'une aura céleste, tel un véritable général des cieux.
+Wang Lin observa la silhouette qui s'avançait vers lui. Il eut l'impression d'avoir une illusion devant les yeux. Les traits de l'être semblaient se préciser; il était imprégné d'une aura céleste, tel un véritable être céleste.
 
 L'énergie spirituelle céleste emplissait son corps et une majesté divine descendit sur le monde, comme si chaque être vivant n'était qu'une fourmi. On pouvait même entendre, au loin, l'écho de chants célestes.
 
@@ -122,4 +122,4 @@ Dans son âme d'origine, un appel impérieux résonna:
 
 « Cette bataille est finie, je te libère! »
 
-Un rire dément sortit de l'âme d'origine de Wang Lin.
+Un hurlement féroce jaillit de l'âme d'origine de Wang Lin.

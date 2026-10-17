@@ -14,11 +14,11 @@ Un seul mot pouvait décrire cette vélocité: la descente!
 
 La descente avait déjà brisé les limites de la vitesse. On pourrait même dire qu'elle ne pouvait plus être décrite par des mots. Partout dans l'univers, par une simple pensée, elle peut descendre!
 
-Un nuage rouge descendit de l'espace. Il émergeait du vide, et nul n'en connaissait l'origine.
+Une lueur rouge descendit de l'espace. Elle émergeait du vide, et nul n'en connaissait l'origine.
 
 Dès que cette lumière rouge commença sa descente, une aura capable de faire trembler toute vie dans l'univers se mit à se propager.
 
-Sur la planète Tian Yun, l'Omniscient avait les yeux clos, se préparant pour le plan prévu dans deux cents ans. Soudain, il ouvrit les yeux, révélant une lueur mystérieuse alors qu'il fixait l'espace. Son expression changea légèrement et sa main traça un sceau. Après avoir calculé pendant un moment, il fronça les sourcils et murmura: « Une rétribution divine est descendue... Avec l'interférence de la puissance céleste, je ne peux tout pas calculer avec précision. Mais j'ai pu déterminer que la rétribution divine a frappé la Terre des Esprits Démoniaques et qu'elle a un lien avec ma planète Tian Yun... Étrange! »
+Sur la planète Tian Yun, l'Omniscient avait les yeux clos, se préparant pour le plan prévu dans deux cents ans. Soudain, il ouvrit les yeux, révélant une lueur mystérieuse alors qu'il fixait l'espace. Son expression changea légèrement et sa main traça un sceau. Après avoir calculé pendant un moment, il fronça les sourcils et murmura: « Une rétribution divine est descendue... Avec l'interférence de la puissance céleste, je ne peux pas tout calculer avec précision. Mais j'ai pu déterminer que la rétribution divine a frappé la Terre des Esprits Démoniaques et qu'elle a un lien avec ma planète Tian Yun... Étrange! »
 
 Sur la planète Da Lou, au sein de la Secte de l'Épée Da Lou, le Saint de l'Épée Lin Tianhou se tenait près d'un gigantesque fourneau alchimique, les yeux étincelants.
 
@@ -28,7 +28,7 @@ Sur la planète Da Lou, au sein de la Secte de l'Épée Da Lou, le Saint de l'É
 
 Au même moment, sur une planète très éloignée de Tian Yun, l'astre semblait recouvert de sang. C'était une planète de sang!
 
-Dans un pavillon de sang sur cette planète, un homme aux cheveux et aux sourcils rouges était assis. Il paraissait avoir une quarantaine d'années et cultivait en silence. Soudain, il ouvrit les yeux, et une lumière sanglante s'en échappa.
+Dans un pavillon de sang sur cette planète, un homme aux cheveux et aux sourcils rouges, vêtu d'une robe rouge et d'un beau visage, était assis en tailleur. Il paraissait avoir une quarantaine d'années et cultivait en silence. Soudain, il ouvrit les yeux, et une lumière sanglante s'en échappa.
 
 Sans lever la tête, il ressentit silencieusement l'onde de choc créée par le passage de la puissance céleste. Après un long moment, il referma les yeux.
 
@@ -42,11 +42,11 @@ Sur la place de la cité impériale du Pays des Démons Célestes, Wang Lin se t
 
 Le stade Ascendant exige que l'on possède suffisamment d'énergie spirituelle céleste et que son cœur Dao soit achevé. Une fois ces deux conditions réunies, elles fusionnent, et cette fusion constitue l'ascension!
 
-C'est la légendaire « Entendre le Dao au matin! »
+C'est la légendaire « Entendre le Dao au matin »!
 
-Cette fusion est une collision entre le cœur Dao et l'énergie spirituelle céleste. La collision du corps et de l'âme! Une évolution d'un humain vers un Céleste! C'est l'épreuve mortelle ultime pour atteindre le stade Ascendant! Soit cette collision réussit et l'on devient un cultivateur Ascendant, soit elle échoue et l'on... meurt. Il n'y a pas d'autre issue! Une épreuve de mort!
+Cette fusion est une collision entre le cœur Dao et l'énergie spirituelle céleste. La collision du corps et de l'âme! Une évolution d'un humain vers un Céleste! C'est l'épreuve mortelle ultime pour atteindre le stade Ascendant! Soit cette collision réussit et l'on devient un cultivateur Ascendant, soit elle échoue et l'on... meurt. Il n'y a pas d'autre issue! Une épreuve de mort! C'est cela, « mourir le soir »!
 
-Pour rechercher le Dao, il faut affronter des épreuves de mort!
+Entendre le Dao au matin, mourir le soir!
 
 Même ceux qui cultivent une voie variante ne peuvent y échapper!
 
@@ -60,9 +60,9 @@ Autour de la place, tout le monde méditait silencieusement. En une seule journ�
 
 De loin, ce rouge était infini et semblait recouvrir l'immensité du ciel.
 
-L'expression du jeune homme sur le bateau changea soudainement. Puis il laissa échapper un rire amer: « Il semble que j'aie oublié ce détail, mais ce petit gars est un cultivateur. À l'époque, j'avais passé beaucoup de temps dans le lac du dragon et de nombreux Anciens m'avaient aidé. Finalement, en offrant des sacrifices aux anciens démons pendant plusieurs années, j'avais pu dissimuler cette aura défiante pour ne pas provoquer de rétribution divine. »
+L'expression du jeune homme sur le bateau changea soudainement. Puis il laissa échapper un rire amer: « Il semble que j'aie oublié ce détail, mais ce petit gars est un cultivateur, contrairement à moi. À l'époque, j'avais passé beaucoup de temps dans le lac du dragon et de nombreux Anciens m'avaient aidé. Finalement, en offrant des sacrifices aux anciens démons pendant plusieurs années, j'avais pu dissimuler cette aura défiante pour ne pas provoquer de rétribution divine. »
 
-« Cependant, ceci est un test pour cet enfant. S'il parvient à résister à cette rétribution divine, il ne sera plus affecté par les cieux une fois qu'il atteindra le stade Ascendant... Et d'après ce que je vois, la puissance de cette rétribution n'est pas si grande... »
+« Cependant, ceci est un test pour cet enfant. S'il parvient à résister à cette rétribution divine, il n'aura plus, du moins au stade Ascendant, d'interférence du Dao des cieux... Et d'après ce que je vois, la puissance de cette rétribution n'est pas si grande... »
 
 Tous les habitants de la Cité des Démons Célestes remarquèrent le changement dans le ciel, et la foule sur la place fut totalement stupéfaite.
 
@@ -102,7 +102,7 @@ Les cieux voulaient tuer un homme!
 
 Wang Lin ouvrit soudainement les yeux, dégageant une lueur éclatante alors que plus de 3 700 sceaux de vie se rassemblaient brusquement autour de son corps. Simultanément, il frappa son sac de rangement, faisant apparaître le drapeau restrictif. D'un geste, une masse de gaz noir enveloppa son corps, parsemée d'innombrables restrictions qui scintillaient au sein des ténèbres.
 
-« Peu importe la colère des cieux, ils ne pourront pas effacer mon existence! » En riant, Wang Lin pointa l'éclair rouge vers le ciel.
+« Peu importe la colère des cieux, ils ne pourront pas effacer mon existence! » En riant, Wang Lin pointa de la main droite l'éclair rouge qui rugissait dans le ciel.
 
 À cet instant, Wang Lin était aussi majestueux que le soleil et la lune; ses cheveux et ses vêtements flottaient au vent, et son regard révélait une aura d'indomptabilité. Face à ce spectacle, il était un homme invincible!
 
@@ -120,7 +120,7 @@ L'éclair rouge la transperça et la fendit en deux comme un sabre acéré. La t
 
 « Les cieux veulent me tuer, mais moi, je veux détruire les cieux! » Le corps de Wang Lin dégageait une aura prodigieuse. Au moment où l'éclair rouge brisa les restrictions, il leva brusquement le doigt et utilisa le Doigt de la Mort.
 
-Ce n'était pas un seul Doigt de la Mort, mais cent!
+Ce n'était pas un seul Doigt de la Mort, mais dix, puis cent!
 
 La main gauche de Wang Lin effleura son sac de rangement et une immense quantité de jades célestes en jaillit, formant une petite colline sous ses pieds!
 

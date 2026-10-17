@@ -14,7 +14,7 @@ Si Wang Lin n'avait pas été certain qu'aucune restriction ne figurait ici aupa
 
 « Attendez, avec une telle ingéniosité, une telle faille ne devrait pas exister! L'énergie spirituelle céleste aurait dû être supprimée pour rendre la restriction encore plus invisible. Compte tenu de la maîtrise de celui qui l'a mise en place, il n'aurait pas commis une telle erreur... »
 
-Wang Lin fronça légèrement les sourcils avant de déployer son Sens Divin, mais ne trouva aucune trace à des kilomètres à la ronde. Il réfléchit un instant et murmura: « Étrange, je perçois clairement l'aura d'une restriction, mais je n'en vois aucune. Serais-je en train d'halluciner... » Ses yeux s'illuminèrent avant de disparaître à l'horizon. Il s'élança vers la limite du fragment et disparut complètement.
+Wang Lin fronça légèrement les sourcils avant de déployer son sens divin, mais ne trouva aucune trace à des kilomètres à la ronde. Il réfléchit un instant et murmura: « Étrange, je perçois clairement l'aura d'une restriction, mais je n'en vois aucune. Serais-je en train d'halluciner... » Son regard scintilla de façon imperceptible, puis son corps vacilla et, transformé en arc-en-ciel, il disparut sur place en filant vers l'horizon, jusqu'à s'évanouir complètement au loin.
 
 Le temps passa lentement. Deux heures plus tard, une ondulation apparut sur un rocher situé à 33 mètres à droite de la restriction, et deux personnes en sortirent.
 
@@ -30,7 +30,7 @@ L'homme soupira et murmura: « Peut-être a-t-il percé le secret... »
 
 « Ne surestimez pas les autres! N'avez-vous pas entendu cet homme marmonner qu'il ne pouvait même pas voir la restriction? Je vous avais dit de laisser davantage de failles, mais vous avez fait preuve de trop d'arrogance! » La femme était fort mécontente et son ton se fit plus acerbe.
 
-Une lueur de mépris apparut dans les yeux de l'homme, bien qu'elle fût très soigneusement dissimulée. Il déclara simplement: « Les cultivateurs qui parviennent au Royaume Céleste du Tonnerre sont des êtres ayant pratiqué depuis longtemps et dotés d'une grande intelligence. Si je laisse trop de failles, personne n'y croira. Si je n'en laisse aucune, même si des cultivateurs du second stade arrivent, je suis certain qu'ils ne perceront pas le mystère. »
+Une lueur de mépris apparut dans les yeux de l'homme, bien qu'elle fût très soigneusement dissimulée. Il déclara simplement: « Les cultivateurs qui parviennent au Royaume Céleste du Tonnerre ne sont-ils pas tous des êtres ayant cultivé pendant des milliers d'années, à l'esprit calculateur et profond? Si je laisse trop de failles, personne n'y croira. Si je n'en laisse aucune, même si des cultivateurs du second stade arrivent, je suis certain qu'ils ne perceront pas le mystère. »
 
 Une lueur d'intention meurtrière traversa les yeux de la femme, qui esquissa un sourire glacial. « Li Yuan, vous avez du cran. Êtes-vous en train de suggérer que mon temps de culture est trop court?! »
 
@@ -40,9 +40,9 @@ La femme répliqua froidement: « Heureusement que vous vous en souvenez. Sans m
 
 Li Yuan afficha une expression amère et poussa un soupir. Son visage changea soudainement et il murmura: « Retournons vite vers la restriction, quelqu'un arrive! »
 
-Tandis qu'il parlait, il fit un pas en avant. La femme fut plus rapide encore et s'engouffra directement dans l'ondulation. Les deux pénétrèrent dans le pli spatial qui disparut peu après. Même en utilisant son Sens Divin, on n'y verrait qu'un rocher ordinaire.
+Tandis qu'il parlait, il fit un pas en avant. La femme fut plus rapide encore et s'engouffra directement dans l'ondulation. Les deux pénétrèrent dans le pli spatial qui disparut peu après. Même en utilisant son sens divin, on n'y verrait qu'un rocher ordinaire.
 
-Un rayon d'énergie d'épée surgit de loin, fit le tour de la zone avant de se poser. La lumière s'estompa, révélant un homme d'âge moyen. Ce dernier fixa la restriction et s'exclama. Après avoir inspecté les lieux avec prudence pendant un long moment, ses yeux s'illuminèrent et son Sens Divin se déploya. Lorsqu'il ne décela aucune anomalie, une lueur mystérieuse émana de son regard.
+Un rayon d'énergie d'épée surgit de loin, fit le tour de la zone avant de se poser. La lumière s'estompa, révélant un homme d'âge moyen. Ce dernier fixa la restriction et s'exclama. Après avoir inspecté les lieux avec prudence pendant un long moment, ses yeux s'illuminèrent et son sens divin se déploya. Lorsqu'il ne décela aucune anomalie, une lueur mystérieuse émana de son regard.
 
 Il réfléchit un instant, recula de quelques pas et frappa son sac de contenance. Un rayon de lumière blanche jaillit immédiatement et, en touchant le sol sur le côté, se transforma en une marionnette de bois.
 
@@ -94,7 +94,7 @@ Dès son apparition, le fouet frappa le fantôme céleste. Ce dernier poussa un 
 
 La femme était terrifiée. Elle ne pouvait concevoir comment cet homme avait pu capturer si aisément le fantôme céleste que sa famille élevait depuis des années.
 
-L'expression de Li Yuan était indéchiffrable. Il venait de voir le fouet surgir aux côtés de Wang Lin. Il prit une inspiration saccadée et dit d'un ton complexe: « Aîné, nous deux... »
+L'expression de Li Yuan était des plus sombres. Il venait de voir le fouet surgir aux côtés de Wang Lin. Il prit une inspiration saccadée et dit d'un ton complexe: « Aîné, nous deux... »
 
 « Le fait que vous ayez dressé une restriction pour piéger les gens ne me concerne pas. Cependant, puisque vous avez pris l'initiative de m'attaquer, je ne peux pas vous laisser partir si facilement! » Les paroles de Wang Lin n'exprimaient ni joie ni colère, mais elles firent trembler la femme. Li Yuan poussa un soupir intérieur.
 

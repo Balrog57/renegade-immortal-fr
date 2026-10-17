@@ -14,7 +14,7 @@ Ils observaient les mutations de la terre et l'entrelacement des nuages. Le mond
 
 Une fois au sommet, le vent sifflait à leurs oreilles. Wang Ping se tenait sur la cime, contemplant les terres en contrebas. C’était comme si son âme elle-même avait évolué.
 
-À mesure qu'ils gravissaient montagne après montagne, son corps chétif gagnait progressivement en vigueur. À ses yeux, tout ce qui concernait son père était grandiose, qu'il s'agisse des dix-neuf années de paix ou de leur défi actuel face au monde.
+À mesure qu'ils gravissaient montagne après montagne, son corps chétif gagnait progressivement en vigueur. À ses yeux, tout ce qui concernait son père était grandiose, qu'il s'agisse des vingt années de paix ou de leur défi actuel face au monde.
 
 Après avoir franchi sommet après sommet, l'esprit de Wang Ping s'était considérablement élargi. C’était comme s'il avait oublié les tourments du monde errant. Bien que son père fût sa seule compagnie, les montagnes, l'eau, le ciel et la terre semblaient ressentir sa présence et le suivre.
 
@@ -54,7 +54,7 @@ Les îles et les vagues défilaient une à une. Il vit des éclairs célestes fr
 
 L'immensité de la mer surpassait de loin celle de la terre. Wang Ping sentait que la vastitude de l'océan était semblable à celle de son père: elle semblait s'étendre à l'infini.
 
-Après s'être intégré à l'immensité de la mer, à la férocité de la montagne et à l'étendue infinie du fleuve, il fut capable de ressentir la puissance du monde. Lorsque Wang Lin et Wang Ping regagnèrent la terre ferme cinq ans plus tard, Wang Ping était renaît.
+Après s'être intégré à l'immensité de la mer, à la férocité de la montagne et à l'étendue infinie du fleuve, il fut capable de ressentir la puissance du monde. Lorsque Wang Lin et Wang Ping regagnèrent la terre ferme cinq ans plus tard, Wang Ping avait connu une véritable renaissance.
 
 Bien qu'il fût toujours mortel, son âme embrassait le monde!
 

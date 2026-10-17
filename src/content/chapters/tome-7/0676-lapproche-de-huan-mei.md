@@ -10,7 +10,7 @@ La partie sud de la planète Mille Illusions appartenait à la famille Huan. Un 
 
 L'eau du bassin avait déjà été retirée par l'ancêtre de la famille Huan, ne laissant derrière lui qu'une profonde fosse dans le sol. Ce dernier flottait actuellement au-dessus du bassin, l'expression empreinte d'une grande gravité.
 
-Sous lui se tenaient des dizaines de milliers de membres de la famille Huan. Tous étaient silencieux; un calme absolu régnait dans un rayon d'une dizaine de kilomètres.
+Sous lui se tenaient des dizaines de milliers de membres de la famille Huan. Tous étaient silencieux; un calme absolu régnait dans un rayon de dizaines de kilomètres.
 
 Chaque membre de la famille Huan s'avançait l'un après l'autre vers le bord de la fosse pour s'entailler le bras et laisser couler son sang. Une fois qu'ils avaient versé une quantité suffisante, leur visage pâlissait et ils se retiraient, l'air sombre.
 
@@ -70,7 +70,7 @@ Début de l'Ascendant, milieu de l'Ascendant, fin de l'Ascendant, sommet de la f
 
 Des regards empreints de jalousie jaillirent des dizaines de milliers de membres de la famille Huan alentour. Leur envie était légitime. L'Ascendant était un royaume puissant; combien de cultivateurs restaient-ils bloqués à ce stade? Combien devaient passer des millénaires pour atteindre le sommet du stade Ascendant par leurs propres moyens?
 
-Liu Mei, elle, n'avait mis que moins de la durée d'un bâton d'encens pour accomplir ce qui était l'objectif ultime de tant d'autres.
+Liu Mei, elle, n'avait mis que la moitié de la durée d'un bâton d'encens pour accomplir ce qui était l'objectif ultime de tant d'autres.
 
 Le bras de l'ancêtre de la famille Huan s'atrophia et il vieillit instantanément. Il recula de quelques pas, le regard même terni par l'âge. Il regarda Liu Mei et dit doucement: « À partir d'aujourd'hui, tu es un membre de la famille Huan. Le sang des Huan coule dans tes veines. Ton père doit maintenant se consacrer à une culture en méditation fermée. Durant cette période, tu devras t'efforcer d'atteindre le stade Yin et Yang le plus vite possible. »
 

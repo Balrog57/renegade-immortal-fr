@@ -7,7 +7,7 @@ en: Chapter 424 - Situ Nan
 slug: situ-nan
 ---
 
-Des vagues de membres du Clan de l'Immortel Déchu se rassemblaient à l'intérieur de l'immense nuage noir situé sur le flanc est du continent Suzaku.
+Des vagues de membres du Clan des Immortels Délaissés se rassemblaient à l'intérieur de l'immense nuage noir situé sur le flanc est du continent Suzaku.
 
 Au centre de ce nuage, d'innombrables membres du clan chantaient à l'unisson. La puissance de leurs tatouages s'était échappée de leurs corps pour flotter dans les airs.
 
@@ -19,7 +19,7 @@ Ce processus durait depuis plusieurs mois. Ce jour-là, un homme d'âge moyen v�
 
 Il se tenait là, contemplant la multitude de membres du clan rassemblés au centre, l'air pensif.
 
-Derrière lui suivaient trois vieillards. L'aura que dégageaient ces trois hommes était identique à celle du vieil homme aux huit feuilles qui avait poursuivi Wang Lin auparavant.
+Derrière lui suivaient trois vieillards. L'aura que dégageaient ces trois hommes était identique à celle du vieil homme bossu aux huit feuilles qui avait poursuivi Wang Lin auparavant.
 
 L'un des vieillards dit respectueusement: « Cinquième Ancêtre, l'heure est venue. Le quatrième Ancêtre a déjà activé le processus du côté de l'arbre ancestral. »
 
@@ -27,9 +27,9 @@ L'homme d'âge moyen hocha la tête et déclara: « L'arbre ancestral a été li
 
 « Les quatre sous-arbres de l'arbre ancestral ont encerclé le continent Suzaku. Cette fois, le pays de Suzaku sera anéanti! » Les yeux du vieil homme brillaient d'excitation, mais celle-ci disparut rapidement lorsqu'il ajouta: « Cinquième Ancêtre, concernant le deuxième Ancêtre... »
 
-L'homme d'âge moyen fronça les sourcils et l'interrompit: « Ne te soucie pas de lui. Il est resté trop longtemps dans le pays de Suzaku et ses pensées divergent des nôtres. Humph, si ce n'était pour son refus de combattre, nous aurions pu rayer le pays de Suzaku de la carte lors de cette bataille il y a quelques années! »
+L'homme d'âge moyen fronça les sourcils et l'interrompit: « Ne te soucie pas de lui. Il est resté trop longtemps dans le pays de Suzaku et ses pensées divergent des nôtres. Humph, s'il ne nous avait pas mis des bâtons dans les roues, nous aurions pu rayer le pays de Suzaku de la carte lors de cette bataille il y a quelques années! »
 
-« Je ne crois toujours pas que le Cristal de Planète de Culture que détient le pays de Suzaku possède la puissance dont il prétend! »
+« Je ne crois toujours pas que le Cristal de la Planète de Culture que détient le pays de Suzaku possède la puissance dont il prétend! »
 
 Le vieil homme hocha la tête et se tut.
 
@@ -39,7 +39,7 @@ Un immense cercueil, long d'une centaine de mètres, approchait rapidement de la
 
 Assis sur ce cercueil qui filait à toute allure, ils arrivèrent en un clin d'œil devant le nuage noir. Les symboles de tatouage dans le nuage scintillèrent pour leur barrer la route.
 
-Le vieil homme de la Secte des Cadavres, au début de la Transformation de l'Âme, s'exclama: « Je suis l'Ancien de la Secte des Cadavres sur la planète Suzaku, et ces deux-là sont mes diacres cadavres. Je demande au Clan de l'Immortel Déchu d'ouvrir la formation de tatouage. »
+Le vieil homme de la Secte des Cadavres, au début de la Transformation de l'Âme, s'exclama: « Je suis l'Ancien de la Secte des Cadavres sur la planète Suzaku, et ces deux-là sont mes diacres cadavres. Je demande au Clan des Immortels Délaissés d'ouvrir la formation de tatouage. »
 
 Les tatouages à l'intérieur du nuage noir clignotèrent de nouveau et un tunnel apparut. Le grand cercueil de la Secte des Cadavres s'engouffra rapidement à l'intérieur.
 
@@ -49,15 +49,15 @@ Devant lui se tenaient l'homme d'âge moyen et les trois chamans aux huit feuill
 
 L'homme d'âge moyen dit calmement: « Ancien Sima, je vous attendais. »
 
-L'Ancien de la Secte des Cadavres rit: « Je suis en retard car j'ai rencontré quelques ennuis en chemin. En plus de livrer ces cadavres, je suis ici pour annoncer une nouvelle à votre Clan de l'Immortel Déchu. »
+L'Ancien de la Secte des Cadavres rit: « Je suis en retard car j'ai rencontré quelques ennuis en chemin. En plus de livrer ces cadavres, je suis ici pour annoncer une nouvelle à votre Clan des Immortels Délaissés. »
 
 L'homme d'âge moyen le regarda avec un calme imperturbable, attendant la nouvelle.
 
-Les yeux de l'Ancien s'illuminèrent et, esquissant un sourire qui n'en était pas un, il déclara: « Zhu Quezi s'est rendu à la Secte de l'Affinement de l'Âme; il combat Du Tian pour dérober le Drapeau des Mille Millions d'Âmes! »
+Les yeux de l'Ancien s'illuminèrent et, esquissant un sourire qui n'en était pas un, il déclara: « Zhu Quezi s'est rendu à la Secte de l'Affinement de l'Âme; il combat Du Tian pour dérober le drapeau des âmes d'un milliard! »
 
 L'expression de l'homme d'âge moyen resta de marbre, puis il sourit. « Quel en est le résultat? »
 
-L'Ancien de la Secte des Cadavres rit: « Cela, je l'ignore. Mais avec la connaissance que possède ma Secte sur le Suzaku actuel, s'il s'y est rendu, c'est qu'il était au moins sûr de lui à 80 %. Votre Clan de l'Immortel Déchu devrait se montrer prudent! »
+L'Ancien de la Secte des Cadavres rit: « Cela, je l'ignore. Mais avec la connaissance que possède ma Secte sur le Suzaku actuel, s'il s'y est rendu, c'est qu'il était au moins sûr de lui à 80 %. Votre Clan des Immortels Délaissés devrait se montrer prudent! »
 
 L'expression de l'homme d'âge moyen n'avait pas encore changé. Il allait prendre la parole quand son visage se décomposa soudainement. Il tourna le regard vers Pilu, à l'extrémité nord du continent Suzaku. De là, il ressentit une aura qui le fit trembler.
 
@@ -113,13 +113,13 @@ Les yeux de Du Tian s'illuminèrent et il cria: « Laisse derrière toi la quatr
 
 Zhu Quezi s'interrompit. Ses yeux trahissaient une lutte intérieure pour prendre une décision, puis il se retourna brusquement vers Wang Lin.
 
-Une trace du passé traversa le regard de Wang Lin lorsqu'il dit: « Autrefois, ce vieil homme avait une dette envers Ye Wuyou. Peu importe; puisque tu l'utilises pour combattre le Clan de l'Immortel Déchu, ce vieil homme te la prêtera pour trois ans. Dans trois ans, tu me la rendras. »
+Une trace du passé traversa le regard de Wang Lin lorsqu'il dit: « Autrefois, ce vieil homme avait une dette envers Ye Wuyou. Peu importe; puisque tu l'utilises pour combattre le Clan des Immortels Délaissés, ce vieil homme te la prêtera pour trois ans. Dans trois ans, tu me la rendras. »
 
 Du Tian paniqua et s'apprêta à parler quand Wang Lin tourna son regard vers lui. Lorsqu'il soutint le regard, il ne vit plus Wang Lin. Il n'y avait plus qu'une aura étrangère qui semblait dire: « Si tu parles, je te tue », et il sut que cet homme l'exécuterait sans la moindre hésitation.
 
 Le cœur de Du Tian trembla et il n'osa plus ouvrir la bouche.
 
-Zhu Quezi poussa un soupir de soulagement. Si cet homme avait voulu récupérer la quatrième âme coûte que coûte, il aurait dû combattre. Cependant, d'après ce qu'il savait de lui, Zhu Quezi ne possédait pas la moindre once de confiance pour l'affronter.
+Zhu Quezi poussa un soupir de soulagement. Si cet homme avait voulu récupérer la quatrième âme coûte que coûte, il n'aurait su que choisir et aurait sans doute dû se battre. Cependant, d'après ce qu'il savait de lui, Zhu Quezi ne possédait pas la moindre once de confiance pour l'affronter.
 
 Zhu Quezi joignit les mains et s'apprêta à partir.
 

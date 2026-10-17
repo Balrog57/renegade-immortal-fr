@@ -8,7 +8,7 @@ slug: le-tresor-special-de-liu-mei
 ---
 Wang Lin ouvrit les yeux, dont la clarté était retrouvée. Bien que la douleur fût toujours présente, c'était comme s'il avait percé à jour les mystères du monde. C'était une vérité qu'il avait apprise autrefois: il devait laisser partir ceux qui étaient destinés à disparaître...
 
-Il leva sa main droite et un filet de brume apparut au-dessus d'elle. Cette brume était composée de toute la fumée qui avait pénétré son corps. Son âme originelle contenant une part du dragon de tonnerre antique, elle renfermait le pouvoir du tonnerre céleste. Ce Dao du Démon Céleste aux Dix Mille Illusions n'était pas suffisant pour consumer son âme originelle.
+Il leva sa main droite et un filet de brume apparut au-dessus d'elle. Cette brume était composée de toute la fumée qui avait pénétré son corps. Son âme originelle contenant une part du dragon de tonnerre antique, elle renfermait le pouvoir du tonnerre céleste. Ce Dao du Démon Céleste des Dix Mille Illusions n'était pas suffisant pour consumer son âme originelle.
 
 Observant la brume, Wang Lin réfléchit un instant, puis l'écrasa.
 
@@ -18,11 +18,11 @@ Au moment où il l'écrasa, un gémissement étouffé émana du vide. Aussitôt,
 
 « Ce n'est pas moi qui suis impitoyable, c'est toi! » Les yeux de Wang Lin révélèrent une pure intention meurtrière.
 
-« J'ai consacré ma vie au Dao, mais tu as utilisé l'âme du domaine pour briser mon corps vierge. Comment expliques-tu cela?! » La voix de Liu Mei se brisa. Tout son calme d'autrefois s'était évanoui, et la haine dans son regard ne fit que croître.
+« J'ai consacré ma vie au Dao, mais tu as utilisé l'âme obscène du domaine pour briser mon corps vierge. Comment expliques-tu cela?! » La voix de Liu Mei se brisa. Tout son calme d'autrefois s'était évanoui, et la haine dans son regard ne fit que croître.
 
 Wang Lin fronça les sourcils. C'était un souvenir qu'il ne souhaitait pas raviver. Ses yeux devinrent glacials et il dit doucement: « Tu as été la première à agir. De plus, l'affaire de l'âme du domaine n'était qu'un accident. »
 
-« Un accident... » Liu Mei commença à rire. Son rire redoubla d'intensité jusqu'à devenir empreint de vile méchanceté. Elle pouvait maintenir sa dignité de Dao du Démon Céleste aux Dix Mille Illusions devant tout le monde, mais face à l'homme qui se tenait devant elle, elle n'en était plus capable.
+« Un accident... » Liu Mei commença à rire. Son rire redoubla d'intensité jusqu'à devenir empreint de vile méchanceté. Elle pouvait maintenir sa dignité de Dao du Démon Céleste des Dix Mille Illusions devant tout le monde, mais face à l'homme qui se tenait devant elle, elle n'en était plus capable.
 
 « Tu me réponds que c'était un accident? Alors je vais t'offrir un autre accident! » Une nuance de douleur complexe perçait sous sa haine. Elle toucha son sac de rangement.
 

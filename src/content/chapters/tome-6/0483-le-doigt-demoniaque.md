@@ -30,7 +30,7 @@ Parmi les quatre, trois étaient des hommes et une était une femme.
 
 Wang Lin reconnut deux des trois hommes. L'un était l'homme au tempérament doux, Zhao Xingsha, et l'autre était Bai Wei, qu'il avait rencontré sur la planète commerciale.
 
-Quant au dernier homme, c'était un quadragénaire. Bien que son apparence fût ordinaire, sa rage était monstrueuse. Il fixa Wang Lin et hurla: « Tuer des membres de ta propre secte?! Aujourd'hui, je vais purifier la secte pour le Maître! »
+Quant au dernier homme, c'était un homme d'âge moyen. Bien que son apparence fût ordinaire, sa rage était monstrueuse. Il fixa Wang Lin et hurla: « Tuer des membres de ta propre secte?! Aujourd'hui, je vais purifier la secte pour le Maître! »
 
 Derrière eux se tenait une femme d'une grande beauté, dotée d'une silhouette provocante. Sa simple présence exhalait un parfum délicieux. Elle observait Wang Lin avec une expression étrange, semblant être venue uniquement pour assister au spectacle.
 
@@ -62,7 +62,7 @@ Une aura meurtrière émanait de cet homme. Wang Lin le dévisagea et posa la ma
 
 À cet instant critique, Bai Wei eut un mouvement d'hésitation: « Deuxième frère, utiliser une technique interdite contre un compagnon disciple va à l'encontre des règles de la secte! »
 
-L'homme d'âge moyen tourna un regard cinglant vers Bai Wei: « Il a tué la cinquième sœur. Se pourrait-il que tu convoites son poste, Bai Wei? »
+L'homme d'âge moyen tourna un regard cinglant vers Bai Wei: « Il a tué la cinquième sœur. Se pourrait-il que tu aies des vues sur lui, Bai Wei? »
 
 Un éclat mystérieux passa dans les yeux de Bai Wei alors qu'il répondait: « Tes paroles ont touché l'un de mes tabous. Je m'en souviendrai! »
 
@@ -104,11 +104,11 @@ Les yeux de Wang Lin brillèrent. Il pointa son épée céleste qui s'élança v
 
 Des grondements tonitruants déchirèrent le ciel alors que les innombrables épées volaient en éclats avant de s'écraser au sol.
 
-Profitant de l'ouverture, Wang Lin agita sa main gauche et une hache apparut dans sa paume. Telle un dieu de la guerre primordial, il chargea l'homme d'âge moyen pour abattre son arme.
+Profitant de l'ouverture, Wang Lin agita sa main gauche et une hache apparut dans sa paume. Tel un dieu de la guerre primordial, il chargea l'homme d'âge moyen pour abattre son arme.
 
 L'homme ouvrit brusquement les yeux, révélant des pupilles d'un noir absolu. Il esquissa un sourire et se redressa d'un bond. Le nuage sombre au-dessus de lui commença à s'engouffrer dans ses orifices.
 
-« Technique d'avatar interdit: Corps Démoniaque Immortel! » rugit l'homme en faisant un pas en avant, pile au moment où la hache de Wang Lin frappait son corps.
+« Technique interdite: Corps Démoniaque Immortel! » rugit l'homme en faisant un pas en avant, pile au moment où la hache de Wang Lin frappait son corps.
 
 Le bruit de deux métaux percutant l'un contre l'autre résonna dans la zone. Pourtant, aucune blessure n'apparut sur l'homme. Quant à Wang Lin, il ressentit une force de recul si puissante que son bras en fut instantanément engourdi.
 
@@ -116,7 +116,7 @@ L'homme sourit, puis son corps se mit à trembler avant de se transformer en une
 
 Wang Lin recula d'un pas, les yeux étincelants. Il agita la main et le piège à bêtes s'échappa de son poignet pour atterrir au sol et se transformer en Char de Guerre Divin.
 
-Une intention meurtrière envahit le regard de Wang Lin. Cet adversaire avait commencé par cette technique d'avatar interdit; elle était extrêmement puissante, et sans la multitude de trésors dont disposait Wang Lin, il n'aurait pu tenir tête.
+Une intention meurtrière envahit le regard de Wang Lin. Cet adversaire avait commencé par cette fameuse technique interdite; elle était extrêmement puissante, et sans la multitude de trésors dont disposait Wang Lin, il n'aurait pu tenir tête.
 
 La brume noire chargea Wang Lin avec acharnement. L'épée céleste, toujours dans les airs, plongea vers le nuage, suivie de près par la lame en demi-lune. En un instant, l'épée traversa la masse sombre.
 

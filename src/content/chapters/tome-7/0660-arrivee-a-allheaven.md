@@ -32,7 +32,7 @@ La femme répondit d'une voix douce: « Les Insectes de Brume Noire poursuivront
 
 Une immense brume grise les traquait. En y regardant de plus près, on pouvait distinguer d'innombrables insectes de la taille d'un doigt au sein du nuage. Cette brume émanait de ce que leurs corps dégageaient.
 
-Chacun d'eux disposait d'une boussole stellaire sous ses pieds, ce qui leur permettait de fuir rapidement. Cependant, sans la femme, qui dispersait occasionnellement de grandes quantités de cristaux pour repousser la brume grise, les insectes les auraient probablement rattrapés depuis longtemps.
+Chacun d'eux disposait d'une boussole stellaire sous ses pieds, ce qui leur permettait de fuir rapidement. Cependant, sans la femme, qui agitait par moments ses manches et projetait de grandes lueurs cristallines vers l'arrière pour freiner la brume grise, les insectes les auraient probablement rattrapés depuis longtemps.
 
 Pourtant, la femme s'épuisait de plus en plus tandis que les insectes se rapprochaient inexorablement. Finalement, la brume chargea soudainement et enveloppa les quatre individus.
 
@@ -40,7 +40,7 @@ De loin, on ne pouvait distinguer que l'immense nuage gris, sans apercevoir les 
 
 Ils venaient tous de la planète Ran Yun. La femme se nommait Ran Yue. Les trois hommes s'appelaient Ran Chen, Ran Feng et Sun Xueshan.
 
-À l'origine, ils étaient venus pour s'entraîner, mais suite à certains événements, ils avaient obtenu une Pierre Rouge Brillante. Cela les avait condamnés à être poursuivis par une nuée d'insectes, jusqu'à ce qu'ils finissent par être encerclés.
+À l'origine, ils étaient venus pour s'entraîner, mais suite à certains événements, ils avaient obtenu une Pierre Rouge Brillante. Cela les avait condamnés à être poursuivis pendant plusieurs jours par une nuée d'insectes, jusqu'à ce qu'ils finissent par être encerclés.
 
 La brume émise par les Insectes de Brume Noire était toxique pour les cultivateurs. Un simple contact pouvait blesser l'âme originelle et paralyser tous les sorts; elle était donc extrêmement terrifiante. Les quatre étaient pris au piège. Si ce n'était le bracelet de jade de la femme, qui émettait de faibles éclairs de tonnerre pour maintenir la brume à distance, ils auraient été engloutis depuis longtemps et leurs âmes originelles auraient été détruites.
 
@@ -56,13 +56,13 @@ Le seul homme n'appartenant pas à la famille, Sun Xueshan, esquissa un sourire 
 
 « Nous ne pouvons que nous blâmer pour notre cupidité. Si nous n'avions pas arraché cette Pierre Rouge Brillante, nous n'en serions pas réduits à cette crise. »
 
-À cet instant, un rayon de lumière argentée fendit la brume. Cette lueur ressemblait à un dragon, sur lequel siégeait un jeune homme. Il portait une robe d'un blanc immaculé et ses cheveux étaient attachés derrière sa tête. Bien que ses traits fussent ordinaires, sa peau était éclatante et son regard empreint de fierté. Des éclairs traversaient occasionnellement ses yeux, lui donnant un aspect encore plus féroce.
+À cet instant, un rayon de lumière argentée fendit la brume. Cette lueur ressemblait à un dragon, sur lequel siégeait un jeune homme. Il portait une robe d'un blanc immaculé et ses cheveux étaient attachés derrière sa tête. Bien que ses traits fussent ordinaires, sa peau était éclatante et son regard profond. Des éclairs traversaient occasionnellement ses yeux, lui donnant un aspect encore plus féroce.
 
 C'était Wang Lin!
 
 Après que Wang Lin eut pénétré dans le vortex, ce fut comme s'il avait traversé une matrice de transfert. À sa sortie, il se retrouva au milieu des étoiles. Des nébuleuses brillantes l'entouraient, mais il n'y avait âme qui vive.
 
-C'était un système stellaire inconnu pour Wang Lin; ce n'était pas son foyer, le système stellaire de l'Alliance. Il se trouvait dans le système stellaire de Luotian, sous le Royaume Céleste du Tonnerre.
+C'était un système stellaire inconnu pour Wang Lin; ce n'était pas son foyer, le système stellaire de l'Alliance. Il se trouvait dans le système stellaire de Luoyun, sous le Royaume Céleste du Tonnerre.
 
 Après une courte réflexion, Wang Lin sortit sa boussole stellaire. Puis, avec une pointe de confusion, il commença à errer à travers le système.
 
@@ -110,7 +110,7 @@ Le dragon de foudre rugit et une immense quantité de brume se dissipa. L'éclai
 
 En un clin d'œil, alors que le tonnerre se dissipait, les Insectes de Brume Noire s'envolèrent au loin. Les quatre individus s'échappèrent aussitôt et rejoignirent Wang Lin. Tous, sans exception, avaient l'impression d'avoir échappé aux griffes de la mort, mais ce qu'ils ressentaient par-dessus tout, c'était un choc indescriptible.
 
-Le regard de Sun Xueshan vers Wang Lin était empreint de stupeur. En tant qu'habitant du système de Luotian, il n'ignorait rien des sorts de tonnerre. Bien qu'il ne puisse pas en pratiquer lui-même, le système de Luotian était lié au Royaume Céleste du Tonnerre, et c'est là que les sorts de foudre étaient les plus puissants.
+Le regard de Sun Xueshan vers Wang Lin était empreint de stupeur. En tant qu'habitant du système de Luoyun, il n'ignorait rien des sorts de tonnerre. Bien qu'il ne puisse pas en pratiquer lui-même, le système de Luoyun était lié au Royaume Céleste du Tonnerre, et c'est là que les sorts de foudre étaient les plus puissants.
 
 Son choc venait de la puissance brute qui émanait de cet éclair. Il n'arrivait pas à concevoir quel sort pouvait transformer un simple rayon illusoire en une attaque contenant des traces de véritable puissance céleste! C'était une prouesse que même les anciens et les ancêtres de sa famille ne pourraient accomplir!
 

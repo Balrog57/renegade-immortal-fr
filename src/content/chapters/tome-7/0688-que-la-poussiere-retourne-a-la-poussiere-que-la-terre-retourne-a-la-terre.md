@@ -16,7 +16,7 @@ Ce qu'elle n'oubliait pas davantage, c'était la tendresse que Wang Lin témoign
 
 L'affaire de la Tombe Suzaku avait été l'étincelle qui avait véritablement embrasé sa haine. Après avoir quitté la planète Suzaku et découvert qu'elle était enceinte, son ressentiment ne faisait que croître.
 
-Cependant, son Domaine Impitoyable des Dix Mille Illusions rendait sa propre nature indéchiffrable.
+Cependant, son Domaine Impitoyable des Mille Illusions rendait sa propre nature indéchiffrable.
 
 En fin de compte, l'impitoyabilité et le sentiment n'étaient que des émotions; la nuance entre les deux était infime, mais l'écart entre elles était un gouffre abyssal.
 
@@ -34,9 +34,9 @@ Le démon dispersé contrôlait le corps de Wang Lin et assénait coup sur coup 
 
 Alors que le démon dispersé s'avançait, il dégagea une quantité monstrueuse d'énergie démoniaque qui se propagea à travers le monde. Au sein de cette aura maléfique, Wang Lin put voir Liu Mei assise au sol, l'ancêtre de la famille Huan derrière elle. Ce dernier avait les yeux clos et la main posée sur le front de Liu Mei, dégageant une aura étrange.
 
-« Hein? » Le démon dispersé fut surpris. À cet instant, l'ancêtre de la famille Huan ouvrit soudainement les yeux. Ses pupilles virent une teinte grise et, en un éclair, il s'élança dans les airs. Son corps semblait fait de fumée, lui conférant un aspect illusoire.
+« Hein? » Le démon dispersé fut surpris. À cet instant, l'ancêtre de la famille Huan ouvrit soudainement les yeux. Ses pupilles viraient au gris et, en un éclair, il s'élança dans les airs. Son corps semblait fait de fumée, lui conférant un aspect illusoire.
 
-Le démon dispersé l'observa attentivement, puis dit avec un sourire qui n'en était pas un: « Petit enfant, ta méthode de culture est plutôt remarquable. Elle contient même un peu de ma propre culture de démon ancestral! »
+Le démon dispersé l'observa attentivement, puis dit avec un sourire qui n'en était pas un: « Petit enfant, ta méthode de culture est plutôt remarquable. Elle contient même des transformations propres à mon clan des démons ancestraux! »
 
 Le regard de Wang Lin ne se posait pas sur l'ancêtre de la famille Huan, mais sur Liu Mei. Ses yeux étaient clos et son aura... avait totalement disparu...
 
@@ -54,7 +54,7 @@ Après avoir dévoré le domaine de Liu Mei et l'avoir fusionné avec le sien, i
 
 Une aura étrange émana alors que l'ancêtre de la famille Huan fermait les yeux. Son visage se crispa de douleur et son corps dépérissait rapidement. En un clin d'œil, il sembla se transformer en squelette.
 
-Peu après, même ses os fondirent et disparurent totalement. Finalement, l'ancêtre de la famille Huan s'évanouit complètement, ne laissant derrière lui qu'un sac de rangement. C'était grâce au Dao de l'ancêtre que l'objet ne se dissipa pas et flotta vers le sol.
+Peu après, même ses os fondirent et disparurent totalement. Finalement, l'ancêtre de la famille Huan s'évanouit complètement, ne laissant derrière lui qu'un sac de rangement. C'était grâce à la volonté de l'ancêtre que l'objet ne se dissipa pas et flotta vers le sol.
 
 Une masse dense de fumée grise se propagea au moment même où son corps disparaissait.
 
@@ -102,7 +102,7 @@ En tenant le jade, le Sens Divin de Wang Lin s'y plongea...
 
 « Cette pilule est un antidote à la rancœur de l'enfant. Combinée à un cultivateur du tonnerre, elle peut dissoudre la majeure partie de ce ressentiment... Autrefois, Maître m'avait dit de laisser mon ombre dans ton cœur. À l'époque, je ne pouvais pas le faire... mais aujourd'hui, j'ai réussi. »
 
-Une douce brise printanière souffla, balayant la poussière du sol. La brise caressa le corps de Liu Mei. Un fragment en forme de diamant s'éleva progressivement de son front et s'envola au gré du vent.
+Une douce brise souffla, balayant la poussière du sol. La brise caressa le corps de Liu Mei. Un fragment en forme de diamant s'éleva progressivement de son front et s'envola au gré du vent.
 
 Au même moment, d'autres fragments s'échappèrent du corps de Liu Mei. Finalement, son être entier se transforma en ces éclats semblables à des papillons, emportés par les courants d'air qui les dispersèrent au loin...
 
@@ -114,15 +114,15 @@ Wang Lin leva les yeux vers le ciel et resta silencieux.
 
 « Est-elle vraiment morte... » En partant, Wang Lin ne chercha plus à répondre à cette question. Que Liu Mei soit réellement morte ou non n'avait plus d'importance. La poussière était retombée et la terre était retournée à la terre.
 
-Le dos de Wang Lin disparut progressivement de la vue des membres de la famille Huan, jusqu'à ce qu'il ne soit plus qu'un point à l'horizon. Il ne restait que les souvenirs persistants pour les générations futures de la lignée Huan.
+Le dos de Wang Lin disparut progressivement de la vue des membres de la famille Huan, jusqu'à disparaître à l'horizon, sans laisser de trace. Il ne restait que les souvenirs persistants pour les générations futures de la lignée Huan.
 
 Wang Lin n'avait pas anéanti la famille Huan. Il était très, très fatigué...
 
 Ce qui était épuisé, ce n'était pas son corps, mais son cœur.
 
-Il avait trop vécu au cours de ses huit cents ans de culture...
+Il avait trop vécu au cours de ses plus de huit cents ans de culture...
 
-Sur la planète Ran Yun, dans le village de la Lune Déchue, une nouvelle famille s'était installée. Cette famille était étrange; elle ne comptait que deux personnes: un jeune homme à l'aura antique et un bébé.
+Quelques jours plus tard, sur la planète Ran Yun, dans le village de la Lune Déchue, une nouvelle famille s'était installée. Cette famille était étrange; elle ne comptait que deux personnes: un jeune homme à l'aura antique et un bébé.
 
 Au même moment, dans le système stellaire de Luotian, Cupidité errait avec une expression sombre. Il y avait tout simplement trop de restrictions sur son corps, au point que chaque fois qu'il y pensait, son cuir chevelu s'engourdissait et son cœur se glaçait.
 

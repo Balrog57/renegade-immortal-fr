@@ -42,9 +42,9 @@ Cette scène fit se rétracter les pupilles de Wang Lin.
 
 Des effondrements violents continuèrent de résonner; Wang Lin ne pouvait s'accorder aucun répit car les déchirements spatiaux le poursuivaient de près.
 
-L'expression de Wang Lin était sombre, mais il restait calme. Des ondulations apparurent sous ses pieds et il disparut sans laisser de trace. Il réapparut instantanément à cent pieds derrière Yao Changdong et lança une Hache Céleste vers lui.
+L'expression de Wang Lin était sombre, mais il restait calme. Des ondulations apparurent sous ses pieds et il disparut sans laisser de trace. Il réapparut instantanément à cent pieds derrière Yao Changdong et lança un Coup Céleste vers lui.
 
-Cependant, alors que la Hache Céleste s'approchait de sa cible, le noyau surgit soudainement pour la percuter. Dès qu'il toucha l'arme, il en absorba toute la puissance.
+Cependant, alors que le Coup Céleste s'approchait de sa cible, le noyau surgit soudainement pour le percuter. Dès qu'il le toucha, il en absorba toute la puissance.
 
 « Sort céleste, les 19 Âmes! » Yao Changdong fit un mouvement brusque, afficha un sourire sardonique et cracha une bouffée de brume blanche. Des hurlements misérables s'échappèrent de la brume. Dix-neuf bébés se trouvaient à l'intérieur; ils étaient totalement noirs. Ces monstres se précipitèrent vers Wang Lin, portés par le nuage de brume.
 

@@ -40,7 +40,7 @@ L'auteur de ce précepte était un homme respecté par la majorité de la popula
 
 Aucune trace de mort ne l'habitait; il était empreint d'une vitalité infinie.
 
-Il se trouvait actuellement dans la Pagode du Destin Céleste de la Secte du Destin Céleste. Ses yeux révélèrent soudain une lueur mystérieuse et il murmura pour lui-même: « En rendant visite à un vieil ami, je suis passé près d'une planète de culture semi-déclinante et j'y ai rencontré un enfant. Cet enfant était capable de comprendre le domaine de la vie et de la mort du cycle de la réincarnation et tentait d'atteindre le stade de la Formation de l'Âme. Peu de gens peuvent en arriver là; voyant que sa culture était insuffisante, je lui avais donné un indice en lui disant que je l'accepterais comme disciple honorifique pendant cent ans. Aujourd'hui, j'ai soudainement eu une intuition... Je crois que cet enfant arrivera bientôt... J'ignore à quel niveau de culture il se trouve actuellement, mais s'il parvient jusqu'ici et que sa culture n'est pas au moins au stade avancé de la Formation de l'Âme, je serais déçu... »
+Il se trouvait actuellement dans la Pagode du Destin Céleste de la Secte du Destin Céleste. Ses yeux révélèrent soudain une lueur mystérieuse et il murmura pour lui-même: « En rendant visite à un vieil ami, je suis passé près d'une planète de culture semi-déclinante et j'y ai rencontré un enfant. Cet enfant, au stade de la Formation de l'Âme, avait compris le sens de la vie, de la mort et de la réincarnation, et voulait même remonter à l'origine de la réincarnation. Peu de gens en sont capables; songeant à la peine que lui coûtait sa culture, je l'avais guidé un peu et accepté comme disciple honorifique pour cent ans. Aujourd'hui, j'ai soudainement eu une intuition... Je crois que cet enfant arrivera bientôt... J'ignore à quel niveau de culture il se trouve actuellement, mais s'il parvient jusqu'ici et que sa culture n'est pas au moins au stade avancé de la Formation de l'Âme, je serais déçu... »
 
 L'Omniscient réfléchit un instant avant de secouer légèrement la tête et de refermer les yeux.
 
@@ -88,7 +88,7 @@ Wang Lin resta immobile devant l'entrée et réfléchit.
 
 Wang Lin fronça les sourcils. Il resta en retrait un instant et, au moment où il s'apprêtait à partir, son expression changea brusquement et il fit volte-face.
 
-Une douleur fulgurante lui transperça le cœur. C'était comme si un fragment d'âme se trouvait à l'intérieur, l'appelant faiblement à l'aide.
+Une douleur fulgurante lui transperça le cœur. C'était comme si un fragment d'âme se trouvait à l'intérieur, l'appelant faiblement.
 
 « Wan Er! » Wang Lin fut saisi de stupeur et comprit enfin!
 

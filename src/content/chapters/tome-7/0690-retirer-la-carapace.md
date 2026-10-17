@@ -12,9 +12,9 @@ L'hiver de cette année-là arriva particulièrement tôt. Avant même que la sa
 
 C'était semblable au cycle de vie d'un être humain. Bien qu'empreinte de réticence et d'un refus de partir lorsque surviennent les vents glacés et neigeux, la vie ne peut s'empêcher d'être emportée par la brise.
 
-Au cours de ces cinq années, cinq vieillards s'éteignirent et trois nouvelles vies virent le jour. C'était comme si le cycle de la réincarnation avait commencé à tourner sans que les hommes n'en aient conscience.
+Au cours de ces cinq années, trois vieillards s'éteignirent et trois nouvelles vies virent le jour. C'était comme si le cycle de la réincarnation avait commencé à tourner sans que les hommes n'en aient conscience.
 
-Sun Tai était devenu encore plus vieux. Sa demeure jouxtait celle de Wang Lin. Cette maison était lumineuse, mais empreinte d'une pointe de crépuscule. Tel un mortel conscient que son heure approchait, il n'aimait guère rester enfermé. Il préférait s'asseoir dans la cour, le regard porté vers le ciel, accompagné par l'éclat de ses souvenirs.
+Sun Tai était devenu encore plus vieux. Sa demeure jouxtait celle de Wang Lin. Cette maison n'était pas grande, et un voile de crépuscule la couvrait. Tel un mortel conscient que son heure approchait, il n'aimait guère rester enfermé. Il préférait s'asseoir dans la cour, le regard porté vers le ciel, accompagné par l'éclat de ses souvenirs.
 
 Wang Ping avait désormais dix ans; pourtant, comparé aux autres enfants du village, il semblait n'en avoir que sept ou huit. Néanmoins, son petit visage était bien plus coloré qu'il y a cinq ans.
 
@@ -44,7 +44,7 @@ En voyant cela, Sun Tai ne put s'empêcher de rire, et la tendresse dans ses yeu
 
 Wang Lin semblait avoir légèrement vieilli au cours de ces cinq années. C'était le même phénomène que lorsqu'il s'était transformé en mortel: afin de ne pas effrayer les gens ordinaires, son apparence n'était plus celle d'un jeune homme mais celle d'un homme d'âge mûr. La vicissitude dans ses yeux lui conférait un tempérament singulier, malgré sa maturité récente.
 
-La jeune femme était très féminine. Elle regarda Wang Lin et dit avec ferveur: « Frère Wang, regardez, Wang Ping a déjà dix ans et il a eu une vie difficile sans mère. Si vous ne pensez pas à vous-même, pensez au moins à l'enfant. La fille de la famille Zhao, à l'entrée du village, est une belle jeune femme et elle est prête à vous suivre. Elle a même promis de traiter l'enfant comme le sien. Qu'est-ce qui vous manque? »
+La jeune femme était très féminine. Elle regarda Wang Lin et dit avec ferveur: « Frère Wang, regardez, Wang Ping a déjà dix ans et il a eu une vie difficile sans mère. Si vous ne pensez pas à vous-même, pensez au moins à l'enfant. La fille de la famille Zhao, à l'entrée du village, est une jeune fille encore vierge et elle est prête à vous suivre. Elle a même promis de traiter l'enfant comme le sien. Qu'est-ce qui ne vous convient pas? »
 
 Le sourire amer de Wang Lin s'accentua alors qu'il disait d'un ton résigné: « Cette affaire... oublions-la. »
 
@@ -68,7 +68,7 @@ Les yeux de Wang Ping s'écarquillèrent et il fit la moue face à son père: «
 
 Wang Lin rit, puis il frotta la tête de Wang Ping avec affection: « D'accord, je te promets que je ne te trouverai pas de belle-mère, entendu? Maintenant, prends ton remède. »
 
-Wang Lin prit joyeusement le bol et avala le breuvage d'un trait. Cette fois, le médicament n'avait pas un goût amer; au contraire, il y avait une pointe de douceur sèche. Cette douceur venait de son cœur, de l'amour qu'il portait à son fils.
+Wang Ping prit joyeusement le bol et avala le breuvage d'un trait. Cette fois, le médicament n'avait pas un goût amer; au contraire, il y avait une pointe de douceur. Cette douceur venait de son cœur, de son attachement envers son père.
 
 « Papa, avec Ping Er à tes côtés, tu ne seras pas seul. Attends que je grandisse et je m'occuperai de toi jusqu'à ta vieillesse. » Wang Ping posa son bol et regarda Wang Lin avec solennité.
 
@@ -78,13 +78,13 @@ Wang Ping l'observait par la fenêtre, plongé dans une réflexion silencieuse. 
 
 À ce moment-là, l'expression de son père avait été très étrange. Il n'avait pas compris ce que cela signifiait alors, mais aujourd'hui, en grandissant, il le savait: c'était une expression de profonde tristesse... Étant un enfant sensible, il n'avait plus jamais posé la question.
 
-Après l'hiver, de lourdes tempêtes de neige se succédèrent. Avec la rigueur du froid, les villageois devinrent moins actifs. Les jours hivernaux passèrent l'un après l'autre, jusqu'à ce que la brise printanière arrive enfin, balayant progressivement la morsure de l'hiver.
+Une fois l'hiver installé, de lourdes tempêtes de neige se succédèrent. Avec la rigueur du froid, les villageois devinrent moins actifs. Les jours hivernaux passèrent l'un après l'autre, jusqu'à ce que la brise printanière arrive enfin, balayant progressivement la morsure de l'hiver.
 
 L'école du village rouvrit au printemps, où les enfants apprenaient à lire et à écrire.
 
 Les jours s'écoulaient ainsi, paisibles, comme une eau sans rides. Au sein de cette quiétude, une pointe de tendresse venait apaiser le cœur fatigué de Wang Lin.
 
-À mesure que Wang Ping grandissait, Wang Lin ne poursuivait plus obstinément l'illumination; il se contentait d'observer son fils avec un cœur de père. Durant ces dix années, hormis pour apaiser les frustrations de Wang Ping, il n'avait utilisé aucun autre sortilège. C'était comme s'il avait tout oublié.
+À mesure que Wang Ping grandissait, Wang Lin ne poursuivait plus obstinément l'illumination; il se contentait d'observer son fils avec un cœur de père. Durant ces dix années, hormis pour dissiper la rancœur de Wang Ping, il n'avait utilisé aucun autre sortilège. C'était comme s'il avait tout oublié.
 
 Pourtant, tandis qu'il oubliait le monde, une compréhension du cycle de la vie et de la mort se forgeait silencieusement dans son esprit. À mesure que Wang Ping grandissait, cette compréhension devenait plus profonde.
 
@@ -96,7 +96,7 @@ Un domaine était une compréhension spéciale acquise par les cultivateurs apr�
 
 Wang Lin suivait actuellement cette voie. Cependant, faute d'une compréhension suffisante de la partie « vie » de son domaine de vie et de mort, bien qu'il montrât des signes d'évolution vers le domaine du karma, son domaine n'avait pas encore muté. Le présent était donc un moment charnière pour Wang Lin; il allait déterminer ses accomplissements futurs.
 
-Wang Lin en avait conscience. Cependant, s'il avait eu le choix, il n'aurait jamais payé un tel prix pour cette opportunité dont tous les autres cultivateurs rêvaient.
+Wang Lin n'en comprenait qu'à moitié le sens. Cependant, s'il avait eu le choix, il n'aurait jamais payé un tel prix pour cette opportunité dont tous les autres cultivateurs rêvaient.
 
 Le printemps passa, l'automne vint, et six années supplémentaires s'écoulèrent. L'heure de Sun Tai sonna. Elle semblait être arrivée un peu plus tôt que prévu.
 

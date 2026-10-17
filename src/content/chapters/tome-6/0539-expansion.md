@@ -108,7 +108,7 @@ Ce jour-là, Wang Lin contemplait un morceau de bois qu'il tenait en main. Ce bo
 
 Lorsqu'un membre de la tribu avait attaqué une petite tribu, ils n'y avaient trouvé aucun cristal démoniaque. Cependant, l'un d'eux avait découvert ce morceau de bois sur le lieu de culte de l'ennemi et l'avait rapporté à Wang Lin.
 
-En observant l'objet, il leva soudain la tête vers l'extérieur de la vallée, où il aperçut la silhouette familière d'Ouyang Hua.
+En observant l'objet, il leva soudain la tête vers l'extérieur de la vallée, d'où lui parvint la voix âgée d'Ouyang Hua.
 
 « Ce disciple a une affaire à discuter et souhaite s'entretenir avec l'Ancêtre! »
 

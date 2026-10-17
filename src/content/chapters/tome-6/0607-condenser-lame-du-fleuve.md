@@ -14,7 +14,7 @@ Ses yeux brillaient intensément alors qu'il fixait cette énergie d'épée et i
 
 Wang Lin avait déployé ses deux atouts les plus puissants. Son objectif n'était pas de combattre, mais d'intimider l'ennemi!
 
-Wang Lin était redevenu lucide; la folie causée par le fruit avait été réprimée et il avait retrouvé sa ruse. Pour l'instant, ce vieil homme n'était pas un adversaire à sa portée, sans parler de l'existence mystérieuse dans la tour noire.
+Wang Lin était redevenu lucide; la folie causée par le fruit avait été réprimée et il avait retrouvé ses esprits. Pour l'instant, ce vieil homme n'était pas un adversaire à sa portée, sans parler de l'existence mystérieuse dans la tour noire.
 
 Le regard du vieil homme en armure noire se détacha de l'énergie d'épée. Il regarda ensuite Wang Lin et réfléchit silencieusement.
 
@@ -38,7 +38,7 @@ Wang Lin commença à battre en retraite. Il n'était plus sous l'influence du F
 
 Le vieil homme en armure noire n'hésita pas et bondit soudainement dans les airs. Il se déplaça comme un éclair vers Wang Lin. Avec sa culture au stade avancé de l'Ascendant, il forma un sceau de la main et hurla: « Vent! »
 
-D'un seul mot, un tornade géante apparut soudainement. Alors qu'elle balayait le sol, la terre commença à se briser et d'innombrables débris rocheux furent entraînés dans la tornade qui chargea vers Wang Lin.
+D'un seul mot, une tornade géante apparut soudainement. Alors qu'elle balayait le sol, la terre commença à se briser et d'innombrables débris rocheux furent entraînés dans la tornade qui chargea vers Wang Lin.
 
 L'expression de Wang Lin devint sombre; il recula de plusieurs pas et pointa sa main droite vers le ciel. Le fleuve des enfers descendit brusquement du firmament et balaya toute la zone.
 
@@ -46,7 +46,7 @@ La tornade qui approchait fut stoppée par le flux du fleuve des enfers. Après 
 
 « À un si jeune âge, tu possèdes déjà ton propre Dao. Tu n'es pas simple! » La voix du vieil homme était calme. Il forma un sceau et pointa le ciel.
 
-« Tonnerre! » Après le cri de l'homme, le ciel s'obscurcit instantanément et d'épais nuages sombres envahirent les cieux. Ces nuages ressemblaient à de laides visages déformés.
+« Tonnerre! » Après le cri de l'homme, le ciel s'obscurcit instantanément et d'épais nuages sombres envahirent les cieux. Ces nuages ressemblaient à de hideux visages de démons.
 
 Au commandement « tonnerre », une petite faille apparut soudainement dans les nuages noirs. Après un grondement sourd, un rayon de tonnerre noir descendit du ciel!
 
@@ -98,7 +98,7 @@ Wang Lin leva la tête. Il atteignait un nouveau sommet; c'était un combat tel 
 
 L'énergie d'épée de Ling Tianhou était cet objet providentiel!
 
-Wang Lin frappa son sac de rangement, en sortit le drapeau des cent millions d'âmes, et cent millions de fragments d'âme s'envolèrent instantanément. Une fois apparus, ces fragments ne montèrent pas vers le ciel, mais plongèrent rapidement dans le fleuve des enfers.
+Wang Lin frappa son sac de rangement, en sortit l'étendard d'âme, et cent millions de fragments d'âme s'envolèrent instantanément. Une fois apparus, ces fragments ne montèrent pas vers le ciel, mais plongèrent rapidement dans le fleuve des enfers.
 
 Les cent millions de fragments d'âme fusionnèrent bientôt avec le fleuve des enfers.
 
@@ -124,11 +124,11 @@ C'était comme si une couche de la réalité avait été arrachée de l'ancien c
 
 C'était un combat entre le Ciel et la Terre!
 
-Alors que la terre se fracturait, une multitude de fragments d'âme jaillirent du sous-sol. Ces fragments étaient si puissants qu'ils n'avaient pas été raffinés par Hu Pao. En les voyant, les yeux de Wang Lin s'illuminèrent et il agita le drapeau des âmes qu'il tenait.
+Alors que la terre se fracturait, une multitude de fragments d'âme jaillirent du sous-sol. Ces fragments, individuellement puissants, n'avaient pas été raffinés par Hu Pao. En les voyant, les yeux de Wang Lin s'illuminèrent et il agita l'étendard d'âme qu'il tenait.
 
-Le drapeau se transforma en un immense tissu noir couvrant le ciel. D'un seul revers, d'innombrables âmes furent capturées par le drapeau. Ces fragments se changèrent en filaments de gaz noir et fusionnèrent avec le fleuve des enfers.
+L'étendard se transforma en un immense tissu noir couvrant le ciel. D'un seul revers, d'innombrables âmes furent capturées par l'étendard. Ces fragments se changèrent en filaments de gaz noir et fusionnèrent avec le fleuve des enfers.
 
-Tandis que les cieux et la terre tremblaient, l'expression de l'homme en armure noire devint lugubre. Il lança un regard significatif à Wang Lin et secoua la tête: « Ce sortilège de vent, de pluie, de tonnerre et d'éclair est mon plus faible. Vous allez maintenant voir le Dao qui appartient à cette armure! »
+Tandis que les cieux et la terre tremblaient, l'expression de l'homme en armure noire devint lugubre. Il lança un regard significatif à Wang Lin et secoua la tête: « Ce sortilège de vent, de pluie, de tonnerre et d'éclair est mon plus faible. Tu vas maintenant voir le Dao qui appartient à cette armure! »
 
 Le Dao du Démon!
 

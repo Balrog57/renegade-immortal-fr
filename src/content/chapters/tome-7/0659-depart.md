@@ -6,9 +6,9 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 659 - Leaving
 slug: depart
 ---
-Cette paume s'abattit sur la porte du Royaume des Esprits Démoniaques, mais ce qu'elle ébranla, ce fut l'intégralité du Royaume des Esprits Démoniaques. À cet instant, les neuf pays du Royaume des Esprits Démoniaques tremblèrent de fond en comble.
+Cette paume s'abattit sur le vortex des Esprits Démoniaques, mais ce qu'elle ébranla, ce fut l'intégralité de la Terre des Esprits Démoniaques. À cet instant, les neuf pays de la Terre des Esprits Démoniaques tremblèrent de fond en comble.
 
-Le Royaume des Esprits Démoniaques fut envahi par les cris, et le ciel ne fut plus bleu mais s'assombrit. Les nuages tourbillonnaient, formant un gigantesque vortex.
+La Terre des Esprits Démoniaques fut envahie par les cris, et le ciel ne fut plus bleu mais s'assombrit. Les nuages tourbillonnaient, formant un gigantesque vortex.
 
 Ce vortex était d'une démesure absolue; il s'étendait en une rotation lente. Une énergie d'épée émanait de son centre pour se répandre dans les cieux.
 
@@ -16,21 +16,21 @@ Une aura aussi écrasante que le firmament apparut. Simultanément, sept lumièr
 
 À cet instant, tous les anciens démons sortirent de leurs terres saintes respectives pour fixer d'un regard sombre le vortex céleste.
 
-Bei Lou fronça les sourcils en levant les yeux au ciel. Après un bref coup d'œil, il agita ses manches et disparut.
+Bei Luo fronça les sourcils en levant les yeux au ciel. Après un bref coup d'œil, il agita ses manches et disparut.
 
 Plusieurs silhouettes émergèrent du vortex dans le ciel. Ling Tianhou se tenait là, vêtu de robes vertes. Dominant la terre du regard, il rugit: « Cupidité, sors et viens à la rencontre de ce vieil homme! »
 
-Sa voix retentit comme un coup de tonnerre grondant à travers les cieux. Le sol commença immédiatement à se fissurer sous la puissance de l'onde de choc. En un clin d'œil, la voix de Ling Tianhou s'était propagée dans tout le Royaume des Esprits Démoniaques.
+Sa voix retentit comme un coup de tonnerre grondant à travers les cieux. Le sol commença immédiatement à se fissurer sous la puissance de l'onde de choc. En un clin d'œil, la voix de Ling Tianhou s'était propagée dans toute la Terre des Esprits Démoniaques.
 
 Étrangement, il semblait que tous savaient déjà que Cupidité était arrivé, car personne ne manifesta la moindre surprise.
 
-L'Ancêtre Sanguin fronça les sourcils, le visage assombri. Dès qu'il avait posé le pied dans le Royaume des Esprits Démoniaques, il avait balayé toute la contrée de son sens divin, mais n'avait trouvé aucune trace de Yao Xixue. C'était comme si elle s'était volatilisée, ce qui accroissait son inquiétude.
+L'Ancêtre Sanguin fronça les sourcils, le visage assombri. Dès qu'il avait posé le pied sur la Terre des Esprits Démoniaques, il avait balayé toute la contrée de son sens divin, mais n'avait trouvé aucune trace de Yao Xixue. C'était comme si elle s'était volatilisée, ce qui accroissait son inquiétude.
 
 Il prit une profonde inspiration et commença à activer secrètement un sortilège. Il scanna à nouveau la zone avec ses techniques occultes, et son expression devint plus lugubre encore.
 
-L'Omniscient leva sa main droite et manipula ses doigts pour effectuer des calculs divinatoires. De l'extérieur, la Mer des Esprits Démoniaques de l'Est interférait avec sa divination, mais désormais qu'il se trouvait à l'intérieur du Royaume, plus rien ne l'obstruait.
+L'Omniscient leva sa main droite et manipula ses doigts pour effectuer des calculs divinatoires. De l'extérieur, la Mer de l'Est interférait avec sa divination, mais désormais qu'il se trouvait à l'intérieur de la Terre, plus rien ne l'obstruait.
 
-Au moment même où ces vieux monstres pénétraient dans le Royaume des Esprits Démoniaques, Wang Lin plongea dans l'Abîme des Marées. Il fondit vers les profondeurs tel une météorite.
+Au moment même où ces vieux monstres pénétraient dans la Terre des Esprits Démoniaques, Wang Lin plongea dans l'Abîme des Marées. Il fondit vers les profondeurs tel une météorite.
 
 La force d'aspiration agissait comme un puissant propulseur qui précipitait Wang Lin au fond du gouffre.
 
@@ -62,7 +62,7 @@ L'expression de Cupidité resta parfaitement neutre. Après être apparu, il se 
 
 Ling Tianhou ne daigna pas regarder Chen Long; il fixa Cupidité et dit d'un ton menaçant: « Cupidité, tu as sacrément du cran! »
 
-Bien que le cœur de Cupidité ait raté un battement, son visage ne trahit rien. Il lança un regard glacial à Chen Long et répliqua: « Petit garnement, est-ce que ce vieil homme a personnellement tué un seul membre de ta Secte de l'Épée Da Lou? »
+Bien que le cœur de Cupidité ait raté un battement, son visage ne trahit rien. Il lança un regard glacial à Chen Long et répliqua: « Petit garnement, est-ce que ce vieil homme a personnellement tué un seul membre de ta Secte de l'Épée Da Luo? »
 
 Chen Long le dévisagea avec haine. La présence de son maître lui donnait du courage, et il hurla: « Même si vous ne les avez pas tués de vos propres mains, vous nous avez piégés dans la brume violette! Sans cela, comment mes jeunes frères auraient-ils pu mourir?! »
 
@@ -74,7 +74,7 @@ Cupidité eut un sourire amer et déclara d'un ton désespéré: « Vous ne me c
 
 Ling Tianhou le dévisagea en silence, attendant la suite. À cet instant, à l'exception de l'Omniscient qui gardait les yeux clos, tous les vieux monstres, y compris l'Ancêtre Sanguin, tournèrent leurs regards perçants vers Cupidité.
 
-Cupidité sentit son cuir chevelu s'engourdir. Parmi les présents, hormis Chen Long, il possédait le plus bas niveau de culture. Se faire ainsi fixer par de tels puissants faisait trembler son esprit. Il lui fallut un moment pour reprendre ses esprits. Il prit une profonde inspiration et lança rapidement: « C'est Wang Lin, de la Secte du Destin Céleste, qui a pris le jeton. Le neveu Chen Long peut en témoigner! C'est aussi lui qui a massacré les disciples de la Secte de l'Épée Da Lou! »
+Cupidité sentit son cuir chevelu s'engourdir. Parmi les présents, hormis Chen Long, il possédait le plus bas niveau de culture. Se faire ainsi fixer par de tels puissants faisait trembler son esprit. Il lui fallut un moment pour reprendre ses esprits. Il prit une profonde inspiration et lança rapidement: « C'est Wang Lin, de la Secte du Destin Céleste, qui a pris le jeton. Le neveu Chen Long peut en témoigner! C'est aussi lui qui a massacré les disciples de la Secte de l'Épée Da Luo! »
 
 Ling Tianhou fronça les sourcils et se tourna vers Chen Long.
 

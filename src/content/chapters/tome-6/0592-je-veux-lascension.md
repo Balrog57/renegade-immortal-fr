@@ -8,7 +8,7 @@ slug: je-veux-lascension
 ---
 À cet instant, tous les spectateurs sur les trois gradins furent plongés dans un silence de mort. Le son du tambour résonnait à travers la zone, chargé d'une tristesse profonde, comme le cri d'un cœur blessé. Entendre cette mélodie rappelait inévitablement le passé à chacun.
 
-Tout le monde sur la place, y compris les commandants en chef, restait muet.
+Tout le monde sur la place, y compris les généraux démons, restait muet.
 
 Le sentiment sublime d'un domaine s'infiltrait lentement dans les cœurs au rythme des percussions, touchant leurs âmes mêmes.
 
@@ -52,7 +52,7 @@ Personne ne comprenait mieux que eux la signification de pouvoir insuffler une i
 
 C'était un véritable royaume!
 
-Les yeux du Commandant Céleste brillèrent comme des éclairs en fixant Wang Lin, et toute trace de confusion avait disparu.
+Les yeux du Commandant Céleste brillèrent comme des éclairs en fixant Wang Lin, et toute trace de trouble avait disparu.
 
 « Son nom est Wang Lin... »
 
@@ -116,7 +116,7 @@ Trois coups de suite! Les douzième, treizième et quatorzième percussions rés
 
 Les sons fusionnèrent pour créer une force plusieurs fois supérieure aux précédentes. Cette puissance quitta le tambour démoniaque pour pénétrer directement le corps de Wang Lin par sa main.
 
-À cet instant, un bruit d'éclatement retentit de l'intérieur du corps de Wang Lin. C'était un son sec, qui ne pouvait rivaliser avec la puissance du tambour, mais tous ceux qui l'entendirent ressentirent un confort profond jusque dans leur moelle osseuse.
+À cet instant, un bruit d'éclatement retentit de l'intérieur du corps de Wang Lin. C'était un son sec, qui ne pouvait rivaliser avec la musique céleste, mais tous ceux qui l'entendirent ressentirent un confort profond jusque dans leur moelle osseuse.
 
 Des gouttes de liquide noir s'échappèrent de tous les pores de sa peau.
 
@@ -130,7 +130,7 @@ Le Lac du Dragon abritait l'esprit de l'ancien démon et servait d'instructeur p
 
 Ce tambour démoniaque, quant à lui, était fabriqué à partir de la peau de l'ancien démon et contenait sa puissance. La rumeur disait que chaque Empereur Démon héritait d'un sort permettant de faire retentir le tambour afin d'extraire la force de l'ancien démon pour protéger la gloire du Pays du Démon Céleste!
 
-Se purifier la moelle avec ce tambour était un honneur originellement réservé aux natifs du Pays du Démon Céleste. Les étrangers devaient accomplir de vastes exploits pour y être autorisés.
+Se purifier la moelle avec ce tambour était un honneur originellement réservé aux membres du clan impérial du Pays du Démon Céleste. Les étrangers devaient accomplir de vastes exploits pour y être autorisés.
 
 Chaque commandant recevait l'opportunité de frapper le tambour lors de sa nomination, et la récompense promise était la purification de la moelle. Cependant, la réussite de ce processus dépendait entièrement de leur culture.
 
@@ -146,7 +146,7 @@ Lorsqu'une personne subit ce processus, les vibrations émanant de son corps sec
 
 Quand Wang Lin ouvrit les yeux, toutes les impuretés de son organisme avaient été expulsées par le tambour. Il eut la sensation que son corps allait être aspiré vers le ciel. Puis il regarda le tambour démoniaque, ses yeux empreints d'une clarté absolue.
 
-« Moi, Wang Lin, j'ai cultivé pendant sept cents ans. Ma culture a atteint le sommet de la phase tardive de la Transformation de l'Âme et mon Dao est fusionné avec mon corps. Je comprends enfin pourquoi je n'ai pas encore atteint le stade d'Ascendant. L'Ascension... Bien que mon domaine soit fusionné avec mon être, mon cœur Dao n'est pas complet. En fin de compte... au plus profond de moi, il subsiste une trace de tristesse, une blessure, une cicatrice scellée... »
+« Moi, Wang Lin, j'ai cultivé pendant sept cents ans. Mon domaine est parfaitement fusionné avec mon corps. Je comprends enfin pourquoi je n'ai pas encore atteint le stade d'Ascendant. L'Ascension... Bien que mon domaine soit fusionné avec mon être, mon cœur Dao n'est pas complet. En fin de compte... au plus profond de moi, il subsiste une trace de tristesse, une blessure, une cicatrice scellée... »
 
 « Quand Li Muwan est morte, mon domaine a atteint un nouveau niveau et a pénétré dans mon corps... Mais Wan Er est devenue une pensée scellée dans mon cœur... »
 

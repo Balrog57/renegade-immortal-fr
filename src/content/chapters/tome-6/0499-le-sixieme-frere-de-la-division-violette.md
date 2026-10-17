@@ -14,7 +14,7 @@ Les disciples des six autres divisions scrutèrent la lueur au loin. Plus de la 
 
 L'expression de l'Omniscient resta immuable. Il ne daigna même pas regarder la lumière violette; les mains derrière le dos, son visage demeurait serein.
 
-Le rayon violet fondit sur eux et s'arrêta à environ 330 mètres de distance, révélant un homme d'âge mûr. Ce dernier avait les joues pâles et était très maigre; il ressemblait à une longue épée acérée dégageant une aura glaciale.
+Le rayon violet fondit sur eux et s'arrêta à environ 330 mètres de distance, révélant un homme d'âge mûr. Ce dernier avait les tempes blanchies et le visage émacié; il ressemblait à une longue épée acérée dégageant une aura glaciale.
 
 Cette aura était très similaire à celle des disciples du Saint de l'Épée, Ling Tianhou.
 
@@ -34,7 +34,7 @@ Des murmures parcoururent les rangs des disciples des six autres divisions.
 
 Le regard de l'Omniscient se posa sur Chen Tao. Il afficha une lueur d'admiration et dit: « Tu as réussi à revenir. Très bien! »
 
-Chen Tao, d'un ton stoïque, répondit: « Le disciple ne devait pas être en retard, mais en passant par la planète Encre Noire, j'y ai découvert un trésor rare. Je voulais l'offrir à Maître en guise de présent, ce qui a causé mon retard. »
+Chen Tao, le visage couvert de poussière, répondit: « Le disciple ne devait pas être en retard, mais en passant par la planète Encre Noire, j'y ai découvert un trésor rare. Je voulais l'offrir à Maître en guise de présent, ce qui a causé mon retard. »
 
 L'Omniscient rit et demanda: « Quel genre de trésor a attiré ton attention? »
 
@@ -46,7 +46,7 @@ Ces six teintes disparates ne dénaturaient pas la fleur blanche; au contraire, 
 
 Chen Tao tendit la fleur vers l'Omniscient et dit respectueusement: « C'est à cause de cette fleur mystérieuse! Les connaissances du disciple sont insuffisantes pour identifier sa véritable nature. Cependant, sur la planète Encre Noire, trois bêtes désolées de haut rang se disputaient ce trésor. Emporté par la curiosité, le disciple l'a saisie. »
 
-La fleur vola lentement vers l'Omniscient et s'immobilisa devant lui. Ce dernier l'observa, réfléchit un instant, puis dit: « Cette fleur s'appelle le Glaçage aux Sept Couleurs. Il faut dix ans pour qu'elle prenne racine, cent ans pour que ses feuilles poussent, mille ans pour qu'elle bourgeonne et dix mille ans pour qu'elle fleurisse. À chaque floraison, elle libère une couleur, jusqu'à ce qu'elle ait fleuri six fois. Lors de la septième éclosion, elle dégage une lumière aux sept couleurs. »
+La fleur vola lentement vers l'Omniscient et s'immobilisa devant lui. Ce dernier l'observa, réfléchit un instant, puis dit: « Cette fleur s'appelle le Glaçage aux Sept Couleurs. Il faut dix ans pour qu'elle prenne racine, cent ans pour que ses feuilles poussent, mille ans pour qu'elle émette de la lumière et dix mille ans pour qu'elle fleurisse. À chaque floraison, elle libère une couleur, jusqu'à ce qu'elle ait fleuri six fois. Lors de la septième éclosion, elle dégage une lumière aux sept couleurs. »
 
 « Les bêtes en sont folles, et si l'une d'elles l'engloutit au moment où elle libère cette lumière, elle en tirera un immense profit. C'est un trésor céleste. Je crois qu'elle est classée 93e par l'Alliance de Culture. Ancien Sun, ne me trompe-je pas? » L'Omniscient tourna son regard vers l'Ancien Sun.
 
@@ -76,7 +76,7 @@ L'Omniscient continuait d'observer ses disciples, souriant en silence.
 
 Chen Tao regarda l'Omniscient avec respect et déclara avec détermination: « Maître, si je suis revenu aujourd'hui, c'est pour réclamer mon titre de disciple véritable. J'espère que Maître l'acceptera! »
 
-L'Omniscient eut un léger sourire et répondit: « Actuellement, au sein de la Division Violette, vous et ton septième frère êtes les seuls à avoir droit à ce titre. Entre vous deux, un seul l'obtiendra. »
+L'Omniscient eut un léger sourire et répondit: « Actuellement, au sein de la Division Violette, toi et ton septième frère êtes les seuls à avoir droit à ce titre. Entre vous deux, un seul l'obtiendra. »
 
 Un sourire glacial étira les lèvres de Chen Tao alors qu'il faisait un pas en avant. En une seule foulée, il se retrouva devant Wang Lin. Sa main bougea plus vite que l'éclair pour projeter un sceau qui s'arrêta à 3,3 mètres de Wang Lin.
 
@@ -98,7 +98,7 @@ Ce dernier la regarda et dit avec dédain: « Ce n'est pas ainsi que l'on utilis
 
 Chen Tao fit osciller le vortex doré d'un geste sec, augmentant sa puissance pour atteindre six cycles.
 
-Il ne s'arrêta pas et effectua trois autres rotations. Une aura capable de déchirer les cieux et la terre se dégagea du vortex doré. À cet instant, celui-ci atteignit son paroxysme: neuf cycles!
+Il ne s'arrêta pas et donna trois autres chiquenaudes. Une aura capable de déchirer les cieux et la terre se dégagea du vortex doré. À cet instant, celui-ci atteignit son paroxysme: neuf cycles!
 
 Chen Tao leva la tête, regardant Wang Lin avec mépris, puis pressa sa main droite pour diriger le vortex doré vers lui.
 

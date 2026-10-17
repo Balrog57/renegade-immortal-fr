@@ -8,7 +8,7 @@ slug: la-requete-de-wang-ping
 ---
 Depuis la disparition de l'ancêtre de la famille Ran et de Xiaoyao Sanren, la famille Sun avait repris la position de la famille Ran sur la planète Ran Yun grâce à Sun Xi. Ils étaient devenus plus puissants que l'ancienne lignée Ran, s'imposant comme la force dominante de la planète.
 
-Au cours de ces vingt années de changements, les membres de la famille Sun étaient devenus arrogants.
+Au cours de ces plus de vingt années de changements, les membres de la famille Sun étaient devenus arrogants.
 
 La ville des Vastes Eaux possédait également une branche de la famille Sun. À cet instant, trois anciens au stade de la Formation de l'Âme étaient assis dans le hall principal du domaine de cette branche. Devant eux se tenaient toutes les personnes impliquées dans l'incident du restaurant.
 
@@ -18,7 +18,7 @@ Son maître, un cultivateur au stade de la Formation du Noyau, se tenait à ses 
 
 L'un des anciens de la famille Sun était un vieil homme au visage rubicond. Il entrouvrit les yeux et demanda d'une voix feutrée: « Cette personne a-t-elle vraiment dit cela? »
 
-Le vieil homme au stade avancé de l'Âme Naissante, qui avait tenté d'intercepter Wang Lin, hocha rapidement la tête: « Junior n'a certainement pas mal entendu. Cette personne a clairement dit: "juste cette fois!" »
+Le vieil homme au stade avancé de l'Âme Naissante, qui avait tenté d'intercepter Wang Lin, hocha rapidement la tête: « Junior n'a certainement pas mal entendu. Cette personne a clairement dit: "juste une fois, et pas de prochaine fois!" »
 
 Un reniflement glacial émana d'un vieil homme en robe verte; ses yeux devinrent glaciaux tandis qu'il déclarait: « Il semble que quelqu'un cherche à provoquer notre famille Sun. Cet individu peut faire s'effondrer le noyau d'un cultivateur de la Formation du Noyau d'un simple regard, et a fait reculer trois cultivateurs de l'Âme Naissante d'un seul pas. Je crains qu'il ne soit au stade de la Transformation de l'Âme! »
 
@@ -38,9 +38,9 @@ Le corps de Qing Yi trembla. Après avoir hésité un instant, elle secoua la t�
 
 Qing Yi baissa amèrement la tête et murmura: « Junior ne sait vraiment pas. »
 
-L'ancien au visage rouge laissa échapper un reniflement méprisant, puis se leva: « Laissons cette affaire de côté pour l'instant. J'ai déjà informé le clan, et ils enverront un cultivateur de la Transformation de l'Âme pour régler cela. Quant à ce membre extérieur, puisqu'elle a quelqu'un d'autre dans son cœur, chassez-la de la famille Sun! »
+L'ancien au visage rouge laissa échapper un reniflement méprisant, puis se leva: « Laissons cette affaire de côté pour l'instant. J'ai déjà informé le clan, et ils enverront un cultivateur de la Transformation de l'Âme pour régler cela. Quant à ce membre extérieur, puisqu'elle nourrit des pensées déloyales, chassez-la de la famille Sun! »
 
-« Ce vieux souhaite voir sur quelle base cette personne ose proférer des paroles aussi arrogantes que "juste cette fois!" Sur la planète Ran Yun, nul n'ose s'adresser à ma famille Sun avec un tel ton! »
+« Ce vieux souhaite voir sur quelle base cette personne ose proférer des paroles aussi arrogantes que "pas de prochaine fois!" Sur la planète Ran Yun, nul n'ose s'adresser à ma famille Sun avec un tel ton! »
 
 Dans la partie nord de la ville des Vastes Eaux, l'enseigne du domicile de Wang Lin avait déjà été posée. Wang Lin avait personnellement écrit les deux caractères: « Résidence Wang ».
 
@@ -54,7 +54,7 @@ Wang Ping réfléchit en silence. Après un long moment, il esquissa un faible s
 
 Wang Lin regarda Wang Ping et répondit lentement: « Oui. » Son regard quitta son fils pour se perdre dans le lointain, par la fenêtre. Dans un espace que Wang Ping ne pouvait percevoir, une pointe de tristesse perçait les yeux de Wang Lin.
 
-Cette tristesse était si profonde, si intense, que nul ne pouvait la deviner. Wang Lin ne pouvait révéler ce secret quoi qu'il arrive, bien qu'il sache que Wang Ping avait enfoui son désir de culture sous une trace de ressentiment envers lui.
+Cette tristesse était si profonde, si intense, que nul ne pouvait la deviner. Wang Lin ne pouvait révéler ce secret quoi qu'il arrive, bien qu'il sache que Wang Ping s'obstinait à vouloir cultiver et gardait enfoui au fond de son cœur une trace de ressentiment envers lui.
 
 « Ping Er, ce n'est pas que ton père refuse que tu cultives, mais... c'est juste que... tu ne peux pas cultiver... » Wang Lin soupira intérieurement. Sa tristesse s'intensifiait encore...
 

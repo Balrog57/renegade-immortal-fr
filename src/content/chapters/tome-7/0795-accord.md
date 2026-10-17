@@ -18,7 +18,7 @@ L'expression de Maître Yan Leizi devint sombre. Il laissa échapper un froid re
 
 Maître Yan Leizi hurla: « Qing Shui, ce vieil homme t'a montré le jade céleste pour t'aider à te souvenir! Je n'avais aucune intention malveillante! »
 
-Wang Lin, bien qu'étant très loin, battit en retraite presque instantanément. Sa main forma rapidement des sceaux pour poser des restrictions et il parvint de justesse à s'échapper. Son visage était d'une pâleur extrême alors qu'il fixait la scène au loin.
+Wang Lin, bien qu'étant très loin, battit en retraite presque instantanément. Ses mains formèrent rapidement des sceaux d'énergie originelle et il parvint de justesse à s'échapper. Son visage était d'une pâleur extrême alors qu'il fixait la scène au loin.
 
 « Je vais te tuer! » Qing Shui chargea, le visage déformé par la rage. Sa vitesse était telle que, dans son élan, sa main tendue brisa le vide pour réapparaître derrière Maître Yan Leizi. Les yeux injectés de sang, il griffa impitoyablement ce dernier.
 
@@ -34,7 +34,7 @@ Les lumières d'or s'entrecroisèrent pour former une formation.
 
 « Formation Céleste, transfert de loi! » cria Maître Yan Leizi. La formation dorée s'échappa des 49 fragments et s'élança dans les airs, encerclant immédiatement Qing Shui qui fonçait sur lui.
 
-Alors que Qing Shui rugissait, son corps fut immobilisé sur place. À cet instant, les yeux de Maître Yan Leizi brillèrent et il tonna: « Épines Célestes! »
+Alors que Qing Shui rugissait, son corps fut immobilisé sur place. À cet instant, les yeux de Maître Yan Leizi brillèrent et il tonna: « Épines Tueuses de Célestes! »
 
 En un instant, la formation dorée se mit à tourner et des pointes d'or apparurent pour transpercer Qing Shui. Ces épines portaient une aura destructrice que Wang Lin pouvait ressentir malgré la grande distance qui le séparait du combat.
 
@@ -42,7 +42,7 @@ Tandis que d'innombrables pointes dorées lui lacéraient le corps, la férocit�
 
 « J'avais oublié le passé, mais tu m'as forcé à m'en souvenir! » Une trace de tristesse perçait dans les yeux rouges de Qing Shui. Cette tristesse était si profonde que même des dizaines de milliers d'années ne pourraient l'effacer.
 
-« Invoquez le Vent! » Qing Shui leva la main droite et pointa le ciel.
+« Appel du Vent! » Qing Shui leva la main droite et pointa le ciel.
 
 Les yeux de Wang Lin s'écarquillèrent: un vent noir se rassemblait autour de Qing Shui, formant soudainement une tornade qui s'étendait vers l'extérieur.
 
@@ -54,7 +54,7 @@ L'expression de Maître Yan Leizi devint encore plus sombre et il recula prompte
 
 D'innombrables explosions déchirèrent le monde. Wang Lin continua de reculer, mais du sang s'écoulait de ses orifices. Chaque déflagration secouait son esprit, mais ses yeux restaient d'une clarté extrême tandis qu'il observait la bataille avec intensité.
 
-« Invoquez le Vent! C'est donc cela, le pouvoir de l'Invoquez le Vent! »
+« L'Appel du Vent! C'est donc cela, le pouvoir de l'Appel du Vent! »
 
 Après 49 explosions, Maître Yan Leizi recula de plusieurs mètres, le visage légèrement pâle. Manipuler cette formation représentait un fardeau colossal pour lui. Normalement, combattre quelqu'un comme Qing Shui ne devrait pas être aussi ardu, mais la difficulté résidait dans le fait que les sorts de Qing Shui étaient tout simplement trop puissants!
 
@@ -62,11 +62,11 @@ Après 49 explosions, Maître Yan Leizi recula de plusieurs mètres, le visage l
 
 « La rumeur prétend que lors de l'effondrement du Royaume Céleste, l'Empereur Céleste Bai Fan a connu une mort mystérieuse. En tant que disciple de Bai Fan, ne souhaites-tu pas découvrir la vérité et venger ton maître? » Maître Yan Leizi fronça les sourcils. À moins d'une nécessité absolue, il ne voulait pas affronter le Seigneur Céleste Qing Shui; cela s'éloignerait trop de son plan initial.
 
-Les yeux de Qing Shui se remplirent d'intention meurtrière et il chargea. Simultanément, ses deux mains formèrent un sceau qu'il pressa contre sa poitrine. Son sceau changea instantanément alors qu'il pointait le ciel en criant: « Invoquez la Pluie! »
+Les yeux de Qing Shui se remplirent d'intention meurtrière et il chargea. Simultanément, ses deux mains formèrent un sceau qu'il pressa contre sa poitrine. Son sceau changea instantanément alors qu'il pointait le ciel en criant: « Appel de la Pluie! »
 
 En un instant, des gouttes de pluie cristallines apparurent dans un rayon de 3,3 kilomètres. Cette pluie était rouge comme le sang.
 
-Après avoir recouvert ces 3,3 kilomètres d'une lueur écarlate, Qing Shui forma un nouveau sceau, pointa en avant et hurla: « Invoquez la Pluie, sceau de glace! »
+Après avoir recouvert ces 3,3 kilomètres d'une lueur écarlate, Qing Shui forma un nouveau sceau, pointa en avant et hurla: « Appel de la Pluie, sceau de glace! »
 
 Des craquements stridents retentirent alors que toutes les gouttelettes se transformaient en cristaux de glace. La glace s'étendit rapidement pour se rejoindre presque instantanément, se propageant avec frénésie vers le centre où se trouvait Maître Yan Leizi.
 

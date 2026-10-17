@@ -46,13 +46,13 @@ Quant à la femme qui se trouvait au stade avancé de la Transformation de l'Âm
 
 Si de tels êtres réagissaient ainsi, il ne fallait même pas parler des autres disciples de la division pourpre. Un à un, leurs visages se couvrirent de choc. Le rugissement précédent avait secoué le cœur de beaucoup d'entre eux; certains n'étaient même plus capables de léviter, car le flux d'énergie spirituelle en leur sein avait été bloqué.
 
-Parmi les disciples présents se trouvaient également des anciens disciplinaires, qui s'en querellaient tous intérieurement. Ils réalisèrent que les luttes entre les disciples de l'Ancêtre n'étaient pas de leur ressort. Quel disciple accepté par l'Ancêtre pouvait être ordinaire? Ils avaient sous-estimé ce jeune homme parce qu'il n'était qu'au stade initial de la Transformation de l'Âme, mais sa force de combat stupéfiait même un cultivateur du stade avancé de la Transformation de l'Âme.
+Parmi les disciples présents se trouvaient également des anciens disciplinaires, qui se lamentaient tous intérieurement. Ils réalisèrent que les luttes entre les disciples de l'Ancêtre n'étaient pas de leur ressort. Quel disciple accepté par l'Ancêtre pouvait être ordinaire? Ils avaient sous-estimé ce jeune homme parce qu'il n'était qu'au stade initial de la Transformation de l'Âme, mais sa force de combat stupéfiait même un cultivateur du stade avancé de la Transformation de l'Âme.
 
 Les disciples environnants reculèrent tous en fixant Wang Lin avec stupeur, mais leurs yeux brillaient désormais d'un nouveau respect.
 
 Les forts suscitent le respect des faibles, peu importe où ils se trouvent. C'était une loi immuable du monde de la culture!
 
-Le regard de Wang Lin restait froid alors qu'il fixait Zhao Xingsha en fuite. Il lança froidement: « Tuez-le! Je vous autorise à dévorer son âme en guise de récompense! »
+Le regard de Wang Lin restait froid alors qu'il fixait Zhao Xingsha en fuite. Il lança froidement: « Tue-le! Je t'autorise à dévorer son âme en guise de récompense! »
 
 La bête spirituelle tourna brusquement sa tête gigantesque vers Wang Lin et poussa un autre rugissement. Cette fois, elle s'élança soudainement, faisant apparaître les chaînes qui la reliaient au char. Cependant, les chaînes furent tendues à l'extrême et produisirent des cliquetis métalliques comme si elles allaient rompre.
 
@@ -80,17 +80,17 @@ Les yeux de la femme s'illuminèrent et elle rit: « Septième frère, tu as vra
 
 Wang Lin hocha la tête, puis d'un geste de la main droite, il rappela les âmes primaires qui poursuivaient l'homme. Lorsqu'elles furent proches, il les aspira toutes, les renvoyant dans l'étendard de l'âme contenu au sein de son âme originelle.
 
-L'âme originelle de l'homme d'âge moyen était pétrifiée par la peur; il était véritablement terrifié. Plus tôt, il avait utilisé la technique de l'Avatar Interdit pour transformer son corps en celui d'un démon immortel. Ce corps était censé pouvoir tout dévorer, mais il n'avait pu engloutir ni l'épée ni la lame, avant que cette flamme à l'apparence si faible n'envahisse son être. La flamme avait provoqué l'effondrement de son corps de démon immortel, bien qu'un fragment en subsistât. Elle avait également fait évaporer instantanément tout le sang qui coulait dans ses veines.
+L'âme originelle de l'homme d'âge moyen était pétrifiée par la peur; il était véritablement terrifié. Plus tôt, il avait utilisé une technique interdite pour transformer son corps en celui d'un démon immortel. Ce corps était censé pouvoir tout dévorer, mais il n'avait pu engloutir ni l'épée ni la lame, avant que cette flamme à l'apparence si faible n'envahisse son être. La flamme avait provoqué l'effondrement de son corps de démon immortel, ce qui lui avait causé de graves blessures par contrecoup, et un filament de cette flamme était resté en lui. Elle avait également fait évaporer rapidement tout le sang qui coulait dans ses veines.
 
 Et ce n'était pas tout. Ce fouet étrange continuait de le frapper, et les dégâts traversaient sa chair pour atteindre directement son âme originelle. Le coup final l'avait même expulsée de son corps. Un tel sort et un tel trésor magique faisaient trembler son essence même.
 
-Puis il s'était retrouvé traqué par plusieurs fragments d'âmes de la Transformation de l'Âme. Si Wang Lin ne les avait pas rappelés, il aurait dû provoquer sa propre autodestruction et perdre une grande partie de sa culture pour espérer survivre.
+Puis il s'était retrouvé traqué par plusieurs âmes, elles aussi au stade de la Transformation de l'Âme. Si Wang Lin ne les avait pas rappelés, il aurait dû provoquer sa propre autodestruction et perdre une grande partie de sa culture pour espérer survivre.
 
-Quant à Zhao Xingsha, quelle que fût sa vitesse, il ne pouvait échapper à la bête spirituelle. Juste avant qu'il ne soit frappé, une lumière douce descendit du ciel.
+Quant à Zhao Xingsha, quelle que fût sa vitesse, il ne pouvait échapper à la bête spirituelle. Juste avant qu'il ne soit avalé, une lumière douce descendit du ciel.
 
-Des particules lumineuses au sein de ce rayon se rassemblèrent soudainement pour former un vieil homme. Ce dernier arborait un sourire serein et ses longues sourcils flottaient au gré du vent. Avec une pointe d'amusement sur le visage, il fit un geste vers la bête spirituelle et dit: « Quelle magnifique Bête Céleste! »
+Des particules lumineuses au sein de ce rayon se rassemblèrent soudainement pour former un vieil homme. Ce dernier arborait un sourire serein et ses longs sourcils flottaient au gré du vent. Avec une pointe d'amusement sur le visage, il fit un geste vers la bête spirituelle et dit: « Quelle magnifique Bête Céleste! »
 
-La bête tourna brusquement la tête et rugit vers le vieil homme, mais ses yeux étaient emplis de terreur.
+La bête s'arrêta net et fixa le vieil homme en rugissant, mais ses yeux étaient emplis de terreur.
 
 Le vieil homme secoua doucement la tête et agita sa paume. La bête poussa un cri tandis que son corps rétrécissait; l'homme la renvoya alors vers le char et, dans un fracas assourdissant, le char de guerre redevint le piège à bêtes.
 
@@ -110,7 +110,7 @@ Wang Lin agita la main droite pour faire revenir le piège à bêtes à son poig
 
 Le vieil homme observa le Pavillon de la Forêt Violette qui avait été largement détruit lors du grand combat. La seule partie encore relativement intacte était l'enseigne portant les trois mots: « Pavillon de la Forêt Violette ».
 
-« Quel beau nom! » Le vieil homme caressa sa barbe blanche avant de pointer le pavillon du doigt. Une douce lumière blanche enveloppa l'édifice, qui fut alors totalement restauré, comme s'il n'avait jamais été endommagé. Même les fissures dans la terre, les rochers brisés et les arbres déracinés furent remis en état.
+« Belle calligraphie! » Le vieil homme caressa sa barbe blanche avant de pointer le pavillon du doigt. Une douce lumière blanche enveloppa l'édifice, qui fut alors totalement restauré, comme s'il n'avait jamais été endommagé. Même les fissures dans la terre, les rochers brisés et les arbres déracinés furent remis en état.
 
 Ce sort fit trembler violemment le cœur de Wang Lin.
 

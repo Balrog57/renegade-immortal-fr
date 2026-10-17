@@ -34,11 +34,11 @@ Les yeux de Wang Lin brillaient comme le feu alors qu'il exécutait un sceau man
 
 Comparée à l'immense montagne, la Perle Défiant le Ciel paraissait insignifiante.
 
-L'expression de Wang Lin était extrêmement prudente. Cette perle était son trésor numéro un, issu du Système Stellaire de Luotian. Son sens divin restait déployé; au moindre signe de trouble, il prendrait immédiatement les mesures nécessaires.
+L'expression de Wang Lin était extrêmement prudente. Cette perle était son trésor numéro un, et elle était déjà apparue dans le Système Stellaire de Luotian. Son sens divin restait déployé; au moindre signe de trouble, il prendrait immédiatement les mesures nécessaires.
 
 C'est pour cette raison qu'il avait dû attendre que son corps soit totalement formé avant de sortir la Perle Défiant le Ciel. Sans son corps, il ne pouvait user de toute sa puissance. Sortir la perle prématurément aurait été trop dangereux et imprudent.
 
-La Perle Défiant le Ciel émit une lueur dorée. Sous cette lumière, l'os de serpent aux yeux de lune trembla légèrement. Le métal en son sein se transforma en fils d'or qui furent lentement absorbés par la perle.
+La Perle Défiant le Ciel émit une lueur cristalline. Sous cette lumière, l'os de serpent aux yeux de lune trembla légèrement. Le métal en son sein se transforma en fils d'or qui furent lentement absorbés par la perle.
 
 Ce processus était extrêmement lent, et Wang Lin n'en comprenait pas la raison. Contrairement à l'absorption de l'élément eau, plus la perle approchait de sa complétion, plus l'absorption devenait lente.
 
@@ -54,7 +54,7 @@ Le premier trésor était cette montagne gigantesque. Bien qu'endommagée, l'én
 
 C'était l'une des raisons pour lesquelles Wang Lin était si tenté.
 
-La dissipation du sens divin de Cupidité ne signifiait pas qu'il était mort; elle avait été effacée après cent ans d'assimilation avec l'os de serpent aux yeux de lune.
+La dissipation du sens divin de Cupidité ne signifiait pas qu'il était mort; elle avait été effacée par près de cent ans d'assimilation par le Serpent aux yeux de lune.
 
 Wang Lin posa sa main droite sur la montagne et se remémora le moment où Cupidité avait extrait l'âme de la montagne. Les yeux calmes, il frotta légèrement la roche.
 
@@ -84,17 +84,17 @@ En contemplant la montagne devant lui, Wang Lin prit une profonde inspiration. L
 
 « Cet objet me sera très utile. Je me demande simplement comment Cupidité a pu le découvrir et l'affiner! » Bien que Cupidité fût l'ennemi de Wang Lin, la vue de ce sort lui inspira une certaine admiration pour lui.
 
-« Le Dragon de Tonnerre Ancien, la Montagne Céleste, le Fourneau du Dieu Ancien, l'Écran des Montagnes et des Rivières, et cette étrange couronne... Sans oublier les trésors inconnus dans le sac de Cupidité. Il est véritablement béni par les cieux! » Wang Lin laissa échapper un soupir. Chacun de ces trésors aurait suffi à rendre les gens fous. Pourtant, ce qui surprenait Wang Lin, c'était que personne n'avait réussi à voler ces objets à Cupidité.
+« Le Dragon de Tonnerre Ancien, la Pierre de Montagne du Royaume Céleste, le Fourneau du Dieu Ancien, l'Écran Montagne et Rivière, et cette étrange couronne... Sans oublier les trésors inconnus dans le sac de Cupidité. Il est véritablement béni par les cieux! » Wang Lin laissa échapper un soupir. Chacun de ces trésors aurait suffi à rendre les gens fous. Pourtant, ce qui surprenait Wang Lin, c'était que personne n'avait réussi à voler ces objets à Cupidité.
 
 Cela le laissait totalement perplexe.
 
-Il regarda la montagne céleste et ses yeux trahirent une pointe d'excitation.
+Il regarda la pierre de montagne du royaume céleste et ses yeux trahirent une pointe d'excitation.
 
 « Il devrait être possible de la réparer, mais cela nécessitera de l'énergie originelle... » Wang Lin rangea l'objet, puis frappa son sac de rangement pour en sortir un autre.
 
-C'était l'Écran des Montagnes et des Rivières!
+C'était l'Écran Montagne et Rivière!
 
-Wang Lin n'avait jamais entendu parler du tableau des montagnes et des rivières. Cependant, certaines figures célèbres du monde de la culture le connaissaient parfaitement.
+Wang Lin n'avait jamais entendu parler du tableau des montagnes et des rivières. Cependant, certains cultivateurs de la vieille génération en connaissaient fort bien le nom.
 
 Parmi les dix trésors célestes de haut rang du Royaume Céleste, le tableau des montagnes et des rivières était classé au cinquième rang!
 
@@ -102,9 +102,9 @@ La rumeur prétendait que ce tableau était imprévisible. Mais sa véritable pu
 
 Bien que cette encre paraisse noire, elle était en réalité d'un rouge sombre, car elle était constituée de sang. C'est dans ce sang que résidait la véritable puissance de l'œuvre.
 
-On disait que le sang utilisé pour peindre les montagnes et les rivières était le sang du Tao Céleste. Or, le Tao Céleste n'ayant pas de forme, comment pouvait-il avoir du sang? Cela demeurait un mystère éternel.
+On disait que le sang utilisé pour peindre les montagnes et les rivières était le sang du Dao Céleste. Or, le Dao Céleste n'ayant pas de forme, comment pouvait-il avoir du sang? Cela demeurait un mystère éternel.
 
-Ainsi, cet objet fut également nommé le Tableau du Tao Céleste!
+Ainsi, cet objet fut également nommé le Tableau du Dao Céleste!
 
 Ce qu'avait obtenu Cupidité n'était pas le véritable tableau des montagnes et des rivières, mais une copie imprimée sur un écran.
 
@@ -116,17 +116,17 @@ Le paysage des montagnes et des rivières paraissait légèrement flou, mais en 
 
 Cependant, à cet instant, une fissure traversait la surface de la gauche, comme si elle divisait les monts et les eaux. Cela rendait l'ensemble très déséquilibré.
 
-L'empreinte du sens divin sur ce trésor s'était depuis longtemps effondrée sous la puissance du doigt du Dieu Ancien. Wang Lin agita sa main droite pour y déposer sa propre empreinte. Après une courte réflexion, il ouvrit la bouche et aspira l'écran dans son âme originelle.
+L'empreinte du sens divin sur ce trésor s'était depuis longtemps effondrée sous la puissance du doigt du Dieu Ancien. Wang Lin posa sa main droite dessus pour y laisser sa propre empreinte. Après une courte réflexion, il ouvrit la bouche et aspira l'écran dans son âme originelle.
 
 Il commença à affiner cet objet en utilisant le tonnerre de son âme originelle.
 
 Le dernier trésor magique était la couronne. Wang Lin avait constaté personnellement que, sous la puissance du doigt du Dieu Ancien du Serpent aux yeux de lune, pas une seule fissure n'était apparue sur la couronne!
 
-Tenant l'objet de la main gauche, Wang Lin le scruta avec son sens divin et ne trouva rien d'anormal. Elle ressemblait à la couronne d'un empereur mortel, sans particularité apparente.
+Tenant l'objet de la main droite, Wang Lin le scruta avec son sens divin et ne trouva rien d'anormal. Elle ressemblait à la couronne d'un empereur mortel, sans particularité apparente.
 
 Cependant, les cinq perles qui la décoraient attirèrent son attention. Wang Lin comprit immédiatement que ces cinq perles contenaient le pouvoir des cinq éléments!
 
-Ces cinq éléments étaient similaires aux esprits élémentaires de Papillon Rouge, mais dotés d'une vitalité bien plus grande. En contemplant la couronne, Wang Lin réfléchit un instant avant de la poser sur sa tête, tout comme Cupidité l'avait fait.
+Ces cinq éléments étaient similaires au corps spirituel des cinq éléments de Papillon Rouge de la planète Suzaku, mais dotés d'une spiritualité bien plus grande. En contemplant la couronne, Wang Lin réfléchit un instant avant de la poser sur sa tête, tout comme Cupidité l'avait fait.
 
 À cet instant, une force mystérieuse émana immédiatement du sommet de la tête de Wang Lin. Après avoir parcouru son corps, elle retourna dans la couronne et resta inactive.
 
@@ -134,4 +134,4 @@ Les yeux de Wang Lin prirent une teinte étrange. Il retira la couronne et l'exa
 
 « Cette puissance n'était pas très forte. En traversant mon corps, on aurait dit qu'elle cherchait quelque chose. N'ayant rien trouvé, elle est finalement retournée dans la couronne... Que cherchait-elle? »
 
-« Perles des cinq éléments... Cherchant... » Wang Lin fut saisi de stupeur. Ses yeux brillèrent et il murmura doucement: « Corps pseudo-élémentaire des cinq éléments... Papillon Rouge... »
+« Perles des cinq éléments... Cherchant... » Wang Lin fut saisi de stupeur. Ses yeux brillèrent et il murmura doucement: « Faux corps spirituel des cinq éléments... Papillon Rouge... »

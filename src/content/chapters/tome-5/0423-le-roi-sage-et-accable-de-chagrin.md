@@ -31,19 +31,19 @@ Ce sceau n'a pas été créé par le premier Suzaku; c'est un sort qui leur a é
 
 Ce Sceau Mystérieux de Suzaku n'augmente pas le niveau de culture, mais il est extrêmement puissant. Il n'a que deux fonctions: l'attaque et la défense.
 
-Son attaque peut tout détruire, et sa défense est plus robuste que la formation Suzaku tout entière, même lorsqu'elle ne protège qu'une seule personne.
+Son attaque peut tout détruire, et sa défense est un peu plus solide que la formation Suzaku lorsqu'elle ne protège qu'une seule personne.
 
 Nul ne sait comment l'Union de la Culture a réussi à créer ce sort. Sur une planète de culture de rang 6, une seule personne peut en connaître le secret à la fois. À moins que cette personne ne meure, personne d'autre ne peut l'utiliser. Même si le Suzaku précédent est encore en vie, dès que le Suzaku actuel apprend le Sceau Mystérieux de Suzaku, le précédent perd le pouvoir du sceau.
 
-La rumeur prétend que l'usage du Sceau Mystérieux de Suzaku exige un prix, mais seuls ceux qui ont appris le sort en connaissent la contrepartie. Le sceau que Zhu Quezi venait d'utiliser était celui-là.
+La rumeur prétend que l'usage du Sceau Mystérieux de Suzaku exige un prix, mais seuls ceux qui ont appris le sort en connaissent la contrepartie. Le sceau que Zhu Quezi venait d'utiliser était celui de la défense.
 
 L'être de nuages se désintégra. Le visage de Du Tian était livide alors qu'il fixait Zhu Quezi, puis il éclata soudain d'un rire: « Mon espérance de vie est presque épuisée. Pouvoir voir un vieux voleur comme toi dans cet état est une véritable satisfaction! »
 
-L'expression de Zhu Quezi était affreuse et il haletait. Il n'aurait pas utilisé le Sceau Mystérieux de Suzaku s'il n'y avait pas été contraint, surtout pour l'utiliser en attaque. Il l'avait fait car il devait préserver ses forces pour la bataille contre le Clan des Immortels Délaissés.
+L'expression de Zhu Quezi était affreuse et il haletait. Il n'aurait pas utilisé le Sceau Mystérieux de Suzaku s'il n'y avait pas été contraint, et il répugnait tout particulièrement à employer celui de l'attaque. Il devait conserver son état optimal pour la bataille contre le Clan des Immortels Délaissés.
 
-« Du Tian, votre Secte du Raffinement d'Âmes était autrefois une branche de Suzaku et vos ancêtres combattirent aux côtés de la première génération de Suzaku contre le Clan des Immortels Délaissés. Pourquoi vous montrer si obstiné aujourd'hui? Si vous me remettez l'étendard de l'âme, je vous aiderai à reconstruire la secte, je vous aiderai à rassembler des disciples et même à faire de la Secte du Raffinement d'Âmes un pays souverain à nouveau. »
+« Du Tian, votre Secte du Raffinement d'Âmes était autrefois une branche de Suzaku et il y a des dizaines de milliers d'années, vos ancêtres combattirent aux côtés de la première génération de Suzaku contre le Clan des Immortels Délaissés. Pourquoi vous montrer si obstiné aujourd'hui? Si vous me remettez l'étendard de l'âme, je vous aiderai à reconstruire la secte, je vous aiderai à rassembler des disciples et même à faire de la Secte du Raffinement d'Âmes un pays à part entière. »
 
-Les yeux de Du Tian s'illuminèrent, puis il afficha un sourire malicieux. « Vieux voleur Zhuque, je vois clair dans ton jeu. Tu as peur d'être blessé; sinon, tu ne te serais pas retrouvé dans une position aussi embarrassante. La guerre avec le Clan des Immortels Délaissés a déjà commencé; je crains que tu ne puisses pas rester ici bien longtemps. »
+Les yeux de Du Tian s'illuminèrent, puis il afficha un sourire malicieux. « Vieux voleur Zhuque, je vois clair dans ton jeu. Tu as peur d'être blessé; sinon, tu ne te serais pas retrouvé dans une position aussi embarrassante. La guerre avec le Clan des Immortels Délaissés a déjà commencé et tu n'es pas sur le champ de bataille pour la diriger; je crains que tu ne puisses pas rester ici bien longtemps. »
 
 Zhu Quezi fronça les sourcils et dit froidement: « Bien que l'ancêtre à onze feuilles du Clan des Immortels Délaissés soit puissant, j'ai un atout dans ma manche. Une fois qu'il sera révélé, le Clan des Immortels Délaissés périra à coup sûr! Du Tian, je te le demande une dernière fois: remettras-tu l'étendard de l'âme? »
 
@@ -57,15 +57,15 @@ Chaque génération de Suzaku avait étudié la quatrième âme dans l'espoir de
 
 Après une courte réflexion, Zhu Quezi dit lentement: « J'ai lu les récits sur la puissance de la quatrième âme, mais je ne l'ai jamais vue de mes propres yeux. Profitant de cette occasion, je veux vraiment voir ce qui rend cette quatrième âme si spéciale! »
 
-Du Tian serra les dents et pointa son front de sa main gauche. Il en sortit une sphère de lumière dorée et la pressa rapidement sur l'étendard de l'âme. Le point doré et pourpre sur l'étendard s'envola brusquement.
+Du Tian serra les dents et pointa son front de sa main gauche. Il en sortit une sphère de lumière blanche cristalline et la pressa rapidement sur l'étendard de l'âme. Le point doré et pourpre sur l'étendard s'envola brusquement.
 
-« Le monde est divisé en cinq éléments qui se neutralisent mutuellement et créent différents types de racines spirituelles. Posséder un élément signifie que l'on peut cultiver; en avoir deux signifie que l'on est intelligent; trois signifie que l'on a du talent; quatre signifie que l'on possède un talent céleste; et cinq signifie que l'on est parfait.
+« Le monde est divisé en cinq éléments qui s'engendrent et se restreignent mutuellement et créent différents types de racines spirituelles. Posséder un élément signifie que l'on peut cultiver; en avoir deux signifie que l'on est intelligent; trois signifie que l'on a du talent; quatre signifie que l'on possède un talent sans égal; et cinq signifie que l'on est parfait.
 
-« Les cinq éléments sont le métal, le bois, l'eau, le feu et la terre. En avoir deux est rare, en avoir trois est encore plus rare, en avoir quatre est presque inouï, et nul n'a jamais entendu parler de quelqu'un possédant les cinq.
+« Les cinq éléments sont le métal, le bois, l'eau, le feu et la terre. Il est rare qu'une personne possède deux parts d'un même élément, trois est encore plus rare, on n'a jamais entendu parler de quatre, et cinq parts d'un même élément serait sans précédent.
 
-« La quatrième âme était un être rare doté de trois éléments, mais ce talent ne s'était pas manifesté de son vivant. Il vécut comme le commun des mortels et mourut à la fin du stade de la Transformation de l'Âme, mais la Secte du Raffinement d'Âmes a raffiné son âme avec une technique spéciale pour en faire quelque chose capable de menacer même les cultivateurs Ascendants de stade avancé!
+« La quatrième âme était un être rare doté de trois parts d'un même élément, mais ce talent ne s'était pas manifesté de son vivant. Il vécut comme le commun des mortels et mourut à la fin du stade de la Transformation de l'Âme, mais la Secte du Raffinement d'Âmes a raffiné son âme avec une technique spéciale pour en faire quelque chose capable de menacer même les cultivateurs Ascendants de stade avancé!
 
-« Pour capturer cette âme, il faut une détermination sans faille et il faut ouvrir le Cristal de Planète de Culture alors que sa propre espérance de vie touche à sa fin. » Ce passage des archives traversa l'esprit de Zhuque.
+« Pour capturer cette âme, il faut une détermination sans faille et il faut ouvrir le Cristal de Planète de Culture alors que sa propre espérance de vie touche à sa fin. » Ce passage des archives traversa l'esprit de Zhu Quezi.
 
 Zhu Quezi déclara d'un ton solennel: « Âme de Triple Métal! »
 
@@ -77,7 +77,7 @@ Dès que la quatrième âme apparut, elle libéra un éclat doré et pourpre ave
 
 Cette aiguille n'était pas grande, à peine longue de quelques centimètres. Elle dégageait une aura extrêmement puissante, bien supérieure à celle de l'Épée Suzaku.
 
-L'Âme de Triple Métal était un trésor céleste capable de percer toute matière, et sa force d'âme pouvait même blesser les âmes originelles.
+L'Âme de Triple Métal était la chose la plus dure du monde, capable de percer toute matière, et l'énergie d'âme qu'elle contenait pouvait même blesser les âmes originelles.
 
 Les yeux de Du Tian brillèrent et il cria: « Quatrième âme, tue! »
 
@@ -85,7 +85,7 @@ L'aiguille dorée et pourpre fulgura et disparut.
 
 Le visage de Zhu Quezi changea alors qu'il reculait précipitamment. Simultanément, il agita la main pour que l'Épée Suzaku vienne intercepter l'attaque devant lui. Dans un tintement métallique, un trou de la taille d'une aiguille apparut sur l'Épée Suzaku.
 
-Au même instant, Zhu Quezi poussa un rugissement en pointant l'air de son index. L'énergie spirituelle céleste afflua dans son corps et il exerça une pression vers le bas avec son doigt.
+Au même instant, Zhu Quezi poussa un rugissement en pointant l'air de son index. L'énergie spirituelle céleste afflua dans son corps et se condensa autour de lui, tandis qu'il donnait une violente chiquenaude de son doigt.
 
 Dans un fracas, Zhu Quezi recula de trois pas. La lumière dorée et pourpre s'était à nouveau volatilisée sans laisser de trace, mais Zhu Quezi savait que la quatrième âme rôdait toujours.
 
@@ -95,7 +95,7 @@ Les paroles de Zhu Quezi étaient calculées. La quatrième âme qu'il voulait c
 
 Il faut dire qu'en matière de ruse, Du Tian ne faisait pas le poids face à Zhu Quezi! Il n'y avait là rien d'étonnant: la quatrième âme était convoitée depuis des générations par les Suzaku, qui avaient tout tenté pour la capturer.
 
-Du Tian fixa Zhu Quezi tandis que ce dernier pointait l'air, provoquant l'effondrement des fragments d'âmes.
+Du Tian fixa Zhu Quezi et pointa plusieurs fois l'air de sa main droite; aussitôt, les fragments d'âmes qui flottaient alentour se brisèrent un à un.
 
 Leur disparition était étrange. À chaque flash de lumière pourpre, un fragment d'âme se désintégrait. Le processus était si rapide qu'en peu de temps, une grande partie des fragments s'était effondrée.
 
@@ -107,7 +107,7 @@ Les yeux de Zhu Quezi s'illuminèrent. Il s'apprêtait à avancer quand il recul
 
 À cet instant, davantage d'âmes furent dévorées. Parce que dix âmes primaires avaient été absorbées par la quatrième âme, sa vitesse avait atteint une célérité inimaginable.
 
-Le cœur de Du Tian se serra: un tiers de l'étendard de l'âme d'un milliard d'âmes venait d'être dévoré en un instant, ainsi que dix âmes primaires. L'étendard n'avait pas subi une telle perte depuis bien longtemps. Du Tian prit une profonde inspiration et hurla: « Quatrième âme, arrête! »
+Le cœur de Du Tian se serra: un tiers des âmes de l'étendard de l'âme d'un milliard d'âmes venait d'être dévoré en un instant, ainsi que dix âmes primaires. L'étendard n'avait pas subi une telle perte depuis des dizaines de milliers d'années. Du Tian prit une profonde inspiration et hurla: « Quatrième âme, arrête! »
 
 La lueur dorée et pourpre marqua une pause dans son bourdonnement, puis fonça vers Zhu Quezi.
 
@@ -119,11 +119,11 @@ Zhu Quezi continua de reculer tout en pointant l'air devant lui. Une série de c
 
 Cependant, son sang commença lentement à s'imprégner dans la quatrième âme.
 
-Le regard de Zhu Quezi devint glacial. Il frappa son sac de rangement et en sortit une petite calebasse rouge. Sa main traça un sceau et il ordonna: « Affine! »
+Le regard de Zhu Quezi devint glacial. Il frappa son sac de rangement et en sortit un petit pot rouge. Sa main traça un sceau et il ordonna: « Affine! »
 
-D'un seul mot, un filet de flamme blanche jaillit de la petite calebasse. Les environs, sur 330 mètres à la ronde, se transformèrent instantanément en une mer de feu. Ce brasier était plus puissant encore que la Sainte Flamme Suzaku!
+D'un seul mot, un filet de flamme blanche jaillit du petit pot. Les environs, sur 330 mètres à la ronde, se transformèrent instantanément en une mer de feu. Ce brasier était plus puissant encore que la Sainte Flamme Suzaku!
 
-« Voyons si ton Âme de Triple Métal est plus forte que la Calebasse de Flammes Célestes! Je vais affiner cette quatrième âme! »
+« Voyons si ton Âme de Triple Métal est plus tranchante que la flamme de mon Pot de Feu, ce trésor céleste! Je vais affiner cette quatrième âme! »
 
 Au sein de l'océan de flammes, l'aiguille dorée et pourpre apparut et vira au rouge. Bien qu'elle ne fondît pas, le sang de Zhu Quezi fusionnait lentement avec la quatrième âme lors de cet affinage.
 
@@ -151,6 +151,6 @@ Du Tian poussa un soupir. Il se retourna pour contempler la grotte dévastée pa
 
 Mais alors que Zhu Quezi s'avançait, un rire sombre retentit depuis l'emplacement de la grotte où se trouvait Wang Lin.
 
-« Dégagez de la route de ce vieil homme! »
+« Dégage! »
 
 L'expression de Zhu Quezi changea radicalement. Il ressentit une douleur fulgurante dans son âme originelle et une terreur qu'il n'avait jamais connue depuis qu'il était devenu le Suzaku.

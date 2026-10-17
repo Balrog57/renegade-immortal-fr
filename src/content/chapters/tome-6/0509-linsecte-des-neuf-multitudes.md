@@ -36,7 +36,7 @@ C'était comme si une paire d'yeux les observait, mais lorsqu'ils tentaient de v
 
 Les yeux du petit vieillard s'illuminèrent, puis il envoya rapidement son message: « Hein? Vous aussi, vous ressentez cette pulsion meurtrière? Quand j'ai tué cette bête tout à l'heure, j'ai failli perdre le contrôle de moi-même. Shi Fang, il y a définitivement quelque chose qui ne va pas ici. Devrions-nous partir maintenant? »
 
-L'Ancien nommé Shi réfléchit un instant, puis, jetant un regard aux juniors devant eux, déclara: « Nous sommes déjà allés si loin, et il ne reste que trois jours. Il ne devrait pas y avoir de problème; nous devons simplement accélérer la cadence! »
+L'Ancien nommé Shi réfléchit un instant, puis, jetant un regard aux juniors devant eux, déclara: « Nous sommes déjà allés si loin, et il reste moins de trois jours de route. Il ne devrait pas y avoir de problème; nous devons simplement accélérer la cadence! »
 
 Les deux hommes se regardèrent. Ils restèrent silencieux et continuèrent de foncer vers leur destination.
 
@@ -74,15 +74,15 @@ Les deux Anciens de la Secte de l'Épée Da Lou se regardèrent. Le plus grand f
 
 Une masse compacte d'énergie spirituelle céleste s'accumula soudainement devant lui, puis fut projetée vers la vallée dans une bourrasque céleste.
 
-Alors que ce souffle traversait la zone, les feuilles pourries furent balayées, révélant ce qui gisait en dessous. Les arbres qui obstruaient la vue furent également écartés par cette rafale.
+Alors que ce souffle traversait la zone, les feuilles pourries furent balayées, révélant ce qui gisait en dessous. Les arbres qui obstruaient l'entrée de la vallée furent eux aussi réduits en cendres par cette rafale, qui les dispersa alentour.
 
 Un passage dégagé apparut soudainement devant tout le monde.
 
-L'extrémité du tunnel menait au cœur de la vallée. Une herbe sauvage abondante recouvrait le sol, mais les regards se portèrent d'abord sur le côté est de la vallée. Au milieu d'une étendue de hautes herbes, un bouquet de fleurs dorées s'épanouissait.
+L'extrémité du tunnel menait au cœur de la vallée. Une herbe sauvage abondante recouvrait le sol, mais les regards se portèrent d'abord sur le côté ouest de la vallée. Au milieu d'une étendue de hautes herbes, un bouquet de fleurs dorées s'épanouissait.
 
-Il n'y avait pas qu'une seule fleur, mais tout un champ. On en comptait au moins une douzaine, toutes rivalisant pour éclore avec éclat.
+Il n'y avait pas qu'une seule fleur, mais tout un champ. On en comptait au moins une dizaine, toutes rivalisant pour éclore avec éclat.
 
-Sous les fleurs se trouvaient des fruits ovales de la taille d'un pouce. Ces fruits étaient dorés et parsemés d'innombrables granules. De loin, ils ressemblaient à des raisins. Ils paraissaient très ordinaires, sans distinction notable de fruits sauvages communs.
+Sous les fleurs se trouvaient des fruits ovales de la taille d'un pouce. Ces fruits étaient d'un or sombre et parsemés d'innombrables granules. De loin, reliés les uns aux autres, ils ressemblaient à des raisins. Ils paraissaient très ordinaires, sans distinction notable de fruits sauvages communs.
 
 « Le Fruit d'Or Brillant! C'est bel et bien le Fruit d'Or Brillant! » Les yeux des deux Anciens s'illuminèrent instantanément. Ils n'entrèrent pas immédiatement dans la vallée, préférant l'examiner avec prudence. Finalement, leurs regards se posèrent sur un buisson d'herbe sauvage situé à 3,3 mètres des fruits.
 
@@ -94,13 +94,13 @@ Au moment où elles s'élevèrent, ce qui fut révélé sur leur revers était c
 
 « L'Insecte des Neuf Multitudes... » l'Ancien de grande taille, Shi Fang, prononça ces mots avec une expression sombre, avant de se tourner vers le plus petit.
 
-« Cent Fruits d'Or Brillants ont naturellement des gardiens féroces. La présence de l'Insecte des Neuf Multitudes ici n'est guère surprenante! Cependant, pour traiter avec ces insectes, il faut un appât! » Les yeux du petit Ancien brillèrent tandis que son regard se posait sur Qian Qin et l'homme en robe blanche à ses côtés, affichant un sourire cruel.
+« Cent Fruits d'Or Brillants ont naturellement des gardiens féroces. La présence de l'Insecte des Neuf Multitudes ici n'est guère surprenante! Cependant, pour traiter avec ces insectes, il faut deux appâts! » Les yeux du petit Ancien brillèrent tandis que son regard se posait sur Qian Qin et l'homme en robe blanche à ses côtés, affichant un sourire cruel.
 
 À cet instant, personne ne remarqua qu'une silhouette féroce flottait à 3,3 kilomètres de là, les observant. Sur le dos de cette silhouette siégeait une personne au regard glacial; sa froideur était telle qu'aucune trace de chaleur n'en émanait.
 
 « C'est clairement la Racine d'Esprit Dorée. Que signifie ce terme de Fruit d'Or Brillant? Je suppose que ces gens ne comprennent pas vraiment comment utiliser ce trésor et croient que le fruit en est l'essence. Ils ne réalisent pas que, comparé à la Racine d'Esprit Dorée, le fruit est insignifiant! » Les yeux de Wang Lin s'illuminèrent. Bien que le nom du Fruit d'Or Brillant lui soit inconnu, il parvint à retrouver sa trace dans les souvenirs de Tu Si après l'avoir vu.
 
-Ce trésor étant formé des cinq éléments naturels, il existait depuis très longtemps et figurait naturellement dans la mémoire de Tu Si. La meilleure façon de l'utiliser était de dévorer la racine; cela rendrait son corps encore plus puissant.
+Ce trésor étant formé des cinq éléments naturels, il existait depuis très longtemps et figurait naturellement dans la mémoire de Tu Si. La meilleure façon de l'utiliser était de dévorer la racine; cela rendrait son corps encore plus résistant.
 
 Pour un enfant de Dieu Ancien, ce trésor constituait un rare complément nutritionnel.
 

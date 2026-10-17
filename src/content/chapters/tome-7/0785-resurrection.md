@@ -120,7 +120,7 @@ Le fragment se désintégra strate après strate tandis qu'une aura terrifiante 
 
 Ce bras avait manifestement été scellé là depuis des éons. Maintenant que les neuf sceaux étaient rompus, le membre avait retrouvé sa liberté et volait directement vers le centre du Royaume Céleste du Tonnerre.
 
-Au moment où ce bras apparut, sept des huit fragments restants s'effondrèrent. Finalement, deux bras sectionnés, deux jambes, un crâne doté d'un œil gauche et un torse divisé en trois parties volèrent tous vers le centre du Royaume Céleste du Tonnerre.
+Au moment où ce bras apparut, sept des huit fragments restants s'effondrèrent. Finalement, deux bras sectionnés, deux jambes, un crâne n'ayant que l'œil gauche et un torse divisé en trois parties volèrent tous vers le centre du Royaume Céleste du Tonnerre.
 
 Le crâne arborait un sourire sinistre en traversant le vide. Chaque fois qu'il croisait un cultivateur, il le dévorait instantanément, provoquant l'effondrement de son corps. Après avoir dévoré une âme originelle, l'œil gauche brillait d'un éclat encore plus vif.
 

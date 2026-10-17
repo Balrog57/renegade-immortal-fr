@@ -18,7 +18,7 @@ Un espace unique résidait à l'intérieur du jeton. Bien que l'endroit fût sat
 
 Il n'y avait qu'une seule chose à l'intérieur: une épée. Ce n'était pas une épée céleste, mais l'une des Douze Épées.
 
-Après réflexion, Wang Lin en déduisit que cette épée appartenait au dernier disciple de la lignée de l'Épée Da Lou piégé dans la brume. Pour une raison quelconque, lorsque ce disciple fut sacrifié pour alimenter le jeton, l'épée fut absorbée par celui-ci.
+Après réflexion, Wang Lin en déduisit que cette épée appartenait au dernier disciple de la Secte de l'Épée Da Luo piégé dans la brume. Pour une raison quelconque, lorsque ce disciple fut sacrifié pour alimenter le jeton, l'épée fut absorbée par celui-ci.
 
 D'une simple pensée, l'épée s'envola et se planta dans le sol aux côtés de Wang Lin.
 
@@ -36,7 +36,7 @@ Wang Lin eut une lueur étrange dans les yeux. Il baissa de nouveau les yeux ver
 
 Après une profonde inspiration, Wang Lin détourna le regard. En observant l'obscurité totale par la fissure, son visage se mua en une expression amère.
 
-« Même si j'ai obtenu le jeton, à quoi bon, alors que je suis piégé ici sans pouvoir m'échapper? Il est inutile de tenter une téléportation, puisque même des êtres aussi rusés que Cupidité ne l'ont pas fait une seule fois. Je me demande simplement si je peux entrer dans la grotte par ici. » Les yeux de Wang Lin se plissèrent tandis qu'il touchait son sac de rangement; un cristal apparut alors dans sa main.
+« Même si j'ai obtenu le jeton, à quoi bon, alors que je suis piégé ici sans pouvoir m'échapper? Il est inutile de tenter une téléportation, puisque même des êtres aussi rusés que Cupidité ne l'ont pas fait une seule fois. Je me demande simplement si je peux entrer dans ma grotte par ici. » Les yeux de Wang Lin se plissèrent tandis qu'il touchait son sac de rangement; un cristal apparut alors dans sa main.
 
 Après un long moment, Wang Lin poussa un soupir et esquissa un sourire amer. « Je ne parviens pas à l'activer! »
 
@@ -46,7 +46,7 @@ Wang Lin recula, le regard vacillant.
 
 « Je me demande comment se porte la bête-moustique... Et quel est le résultat du combat entre Senior Zhou Yi et Cupidité... Pourtant, même si Zhou Yi a triomphé, il ne saura toujours pas où je me trouve. Après tout, même son Sens Divin d'épée ne peut atteindre cet endroit. »
 
-Il leva les yeux vers la paroi et son corps s'anima alors qu'il tentait d'utiliser le sort d'Évasion Tellurique. Cependant, dès que son corps effleura le mur, il fut stoppé net. Après une brève réflexion, Wang Lin se rassoit au sol et frappa son sac de rangement. Il en sortit une bannière d'âme, puis une âme qu'il projeta contre la paroi pour l'observer attentivement.
+Il leva les yeux vers la paroi et son corps s'anima alors qu'il tentait d'utiliser le sort d'Évasion Tellurique. Cependant, dès que son corps effleura le mur, il fut stoppé net. Après une brève réflexion, Wang Lin se rassit au sol et frappa son sac de rangement. Il en sortit une bannière d'âme, puis une âme qu'il projeta contre la paroi pour l'observer attentivement.
 
 L'âme flotta dans le mur telle une volute de fumée, mais Wang Lin perçut immédiatement un cri de détresse déchirant. C'était comme si l'âme pénétrant à l'intérieur avait été déchiquetée, aussitôt aspirée vers les profondeurs par la violente force de succion.
 
@@ -64,13 +64,13 @@ Un filament de tonnerre imprégnait son énergie originelle. Dès qu'il toucha l
 
 « Sept épées peuvent former la Formation des Sept Étoiles! De plus, avec mon lien de tonnerre, la puissance de cette formation augmentera de trente pour cent! » Wang Lin détourna le regard. Tandis que son énergie originelle affinait les épées, il n'avait plus à s'en soucier. Il se retourna alors vers le bras et la tête sectionnés.
 
-L'âme originelle du propriétaire ainsi que l'énergie d'épée de Ling Tianhou étaient scellées en eux.
+Les âmes originelles de leurs deux propriétaires ainsi que l'énergie d'épée de Ling Tianhou étaient scellées en eux.
 
-Wang Lin était expert dans l'art de raffiner les âmes et d'extraire l'énergie d'épée. Deux bouffées d'énergie originelle lui permirent d'extraire et de dévorer l'énergie de Ling Tianhou. Normalement, après une telle ingestion, son âme originelle aurait ressenti des vagues de douleur avant de se stabiliser.
+Wang Lin était expert dans l'art de raffiner les âmes et d'extraire l'énergie d'épée. Deux bouffées d'énergie originelle lui permirent d'extraire et de dévorer l'énergie de Ling Tianhou. Normalement, après une telle ingestion, son âme originelle aurait ressenti une légère douleur sourde et aurait eu besoin d'être lentement nourrie avant de se rétablir.
 
 Pourtant, à cet instant, après avoir dévoré deux énergies d'épée consécutives, non seulement son âme originelle ne ressentait aucun inconfort, mais elle éprouvait une sensation de bien-être absolu.
 
-Après avoir vérifié que son âme originelle était intacte, Wang Lin eut un sourire sardonique. « Peut-on encore appeler cela une âme originelle... » Il toucha de nouveau son sac de rangement pour en sortir une sphère de restrictions.
+Après avoir vérifié que son âme originelle était intacte, Wang Lin eut un sourire amer. « Peut-on encore appeler cela une âme originelle... » Il toucha de nouveau son sac de rangement pour en sortir une sphère de restrictions.
 
 La petite sphère grandit à sa sortie pour atteindre une hauteur d'environ 1,65 mètre lorsqu'elle toucha le sol. D'innombrables restrictions scintillaient sur sa surface. La main droite de Wang Lin traça un sceau avant de pointer la sphère.
 

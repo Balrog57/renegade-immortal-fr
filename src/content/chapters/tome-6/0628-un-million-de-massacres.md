@@ -16,7 +16,7 @@ Pourtant, aujourd'hui, elle était totalement morte!
 
 Aux yeux des neuf anciens démons, les peuples de leurs contrées n'étaient que des êtres qu'ils avaient illuminés. Ils n'étaient que des outils destinés à favoriser leur propre récupération. Même si tous les habitants venaient à mourir, cela n'affecterait en rien leur cœur.
 
-Dans la capitale du Pays des Démons de Feu, du Grand Empereur Démon aux simples civils, tous avaient été envoyés sur le champ de bataille pour finir en cadavres éparpillés sur la terre, ou en sang ayant teinté le sol de rouge.
+Dans la capitale du Pays des Démons de Feu, de l'Empereur Démon et de ses commandants jusqu'aux simples soldats et civils, tous avaient été envoyés sur le champ de bataille pour finir en cadavres éparpillés sur la terre, ou en sang ayant teinté le sol de rouge.
 
 Le cœur de Wang Lin demeurait d'un calme olympien alors qu'il avançait sereinement, pas après pas.
 
@@ -68,7 +68,7 @@ Cette scène se produisit simultanément en de multiples endroits à travers le 
 
 Les belligérants du Pays des Démons de Feu cessèrent tous le combat. Ils levèrent les yeux vers le ciel avec incertitude et confusion.
 
-Car non seulement de nombreux membres de la Tribu du Affinement de l'Âme s'étaient cachés parmi les soldats démons durant les cent dernières années, mais beaucoup de généraux des deux camps en étaient également issus.
+Car non seulement de nombreux membres de la Tribu de l'Affinement de l'Âme s'étaient cachés parmi les soldats démons durant les cent dernières années, mais beaucoup de généraux des deux camps en étaient également issus.
 
 À cet instant, d'innombrables généraux démons tremblèrent légèrement, et une traînée d'énergie de massacre s'échappa de chacun de leurs fronts avant de disparaître. Après avoir perdu cette essence, ils utilisèrent immédiatement leurs propres techniques pour s'enfuir au plus vite.
 
@@ -78,7 +78,7 @@ Cent mille filaments d'énergie de massacre convergeaient de toutes les directio
 
 Ces traînées d'énergie étaient bien plus vigoureuses qu'il y a cent ans. L'ampleur du massacre était bien plus puissante qu'auparavant, et cent ans de maturation avaient presque solidifié ces cent mille filaments!
 
-« Divisez! » Une lueur rouge brilla dans les yeux de Wang Lin. Le cœur du massacre et l'énergie de massacre fusionnèrent, devenant le noyau même de la Voie du Massacre!
+« Divisez! » Une lueur rouge brilla dans les yeux de Wang Lin. Le cœur du massacre et l'intention meurtrière fusionnèrent, devenant la source même de l'énergie de massacre!
 
 Cent mille filaments d'énergie de massacre couvraient déjà le ciel, mais sur un seul mot de Wang Lin, ils se scindèrent immédiatement en deux. Les cent mille filaments devinrent deux cent mille!
 
@@ -90,7 +90,7 @@ Le monde entier fut instantanément drapé d'un épais gaz gris. Ce gaz n'était
 
 Cette division provoqua le passage de cent mille filaments à un million de filaments d'énergie de massacre!
 
-Ces un million de filaments pouvaient encore se diviser, mais Wang Lin n'avait atteint que le stade de la petite perfection dans l'Art Céleste du Massacre; un million était donc sa limite! C'était là une raison cruciale pour laquelle il ne participait pas lui-même aux combats, préférant utiliser les membres de la Tribu du Affinement de l'Âme pour nourrir cette énergie!
+Ces un million de filaments pouvaient encore se diviser, mais Wang Lin n'avait atteint que le stade de la petite perfection dans l'Art Céleste du Massacre; un million était donc sa limite! C'était là une raison cruciale pour laquelle il ne participait pas lui-même aux combats, préférant utiliser les membres de la Tribu de l'Affinement de l'Âme pour nourrir cette énergie!
 
 « Brisez! » Les cheveux de Wang Lin voltèrent dans les airs alors qu'il pointa soudainement le voile d'énergie spirituelle démoniaque.
 

@@ -10,7 +10,7 @@ En contemplant Liu Mei, qui descendait du ciel telle une divinité, non seulemen
 
 Seul l'ancêtre de la famille Ran, dont la culture avait atteint le stade intermédiaire de l'Ascendant, parvenait à peine à garder l'esprit clair, mais il ne pourrait tenir longtemps. Dans son esprit, la voix de la femme céleste résonnait comme un chant divin. Ses paroles semblaient s'insinuer dans son âme, éveillant même en lui des émois mortels.
 
-« Domaine de l'Illusion Cruelle! » L'expression de l'ancêtre de la famille Ran changea radicalement et une flamme commença à brûler en lui. Cette flamme naissait de la fusion de son âme originelle et de son énergie originelle, faisant progresser sa culture par bonds prodigieux.
+« Dao Impitoyable des Mille Illusions! » L'expression de l'ancêtre de la famille Ran changea radicalement et une flamme commença à brûler en lui. Cette flamme naissait de la fusion de son âme originelle et de son énergie originelle, faisant progresser sa culture par bonds prodigieux.
 
 Il laissa alors échapper un rugissement. Ce cri fut comme un tonnerre grondant à travers les cieux, ébranlant la terre et le firmament.
 
@@ -59,7 +59,7 @@ Le ciel sembla s'effondrer et la terre se fendit. Les mers de la planète Ran Yu
 
 Les âmes originelles et les corps de Sun Xi et Xiaoyao Sanren se dissipèrent. Même au moment de leur agonie, ils n'avaient pas retrouvé la raison.
 
-L'ancêtre de la famille Ran se trouvait au centre du chaos. Bien qu'il ait pu résister grâce à sa puissante culture, il finit couvert de sang. Ses yeux injectés de sang fixèrent Liu Mei qui demeurait impassible, et il s'écria: « Quelle salope dégoûtante! Cette bataille ne concernait que toi et moi; pourquoi l'avoir étendue aux mortels et à cette planète?! »
+L'ancêtre de la famille Ran se trouvait au centre du chaos. Bien qu'il ait pu résister grâce à sa puissante culture, il finit couvert de sang. Ses yeux injectés de sang fixèrent Liu Mei qui demeurait impassible, et il s'écria: « Quelle salope venimeuse! Cette bataille ne concernait que toi et moi; pourquoi l'avoir étendue aux mortels et à cette planète?! »
 
 Liu Mei sourit faiblement et répondit doucement: « Je n'ai pas attaqué du tout... Vous trois vous battiez entre vous; quel rapport cela a-t-il avec moi? »
 
@@ -69,7 +69,7 @@ L'ancêtre de la famille Ran leva la tête et éclata d'un rire chargé de dése
 
 Tandis qu'il parlait, il leva sa main droite et frappa son front. Un craquement retentit alors que son âme originelle ardente s'effondrait instantanément, se propageant à son corps. Son être entier se dissipa lentement sous le regard calme de Liu Mei, avant de finir en poussière sur le sol.
 
-« Je suis né sur Ran Yun et je mourrai sur Ran Yun. Tout ce que moi, Ran Xuefeng, puis-je faire, c'est donner le meilleur de moi-même pour protéger la planète Ran Yun. Quant à toi, Xu Mu, homme méprisable, je te maudis de mourir aux côtés de Huan Mei! »
+« Je suis né sur Ran Yun et je mourrai sur Ran Yun. Tout ce que moi, Ran Xuefeng, je puis faire, c'est donner le meilleur de moi-même pour protéger la planète Ran Yun. Quant à toi, Xu Mu, homme méprisable, je te maudis de mourir aux côtés de Huan Mei! »
 
 Les yeux de Liu Mei ne montraient qu'une pointe d'indifférence, comme si rien au monde ne pouvait troubler son esprit. Elle regarda la terre en contrebas et, d'un pas, entama sa descente vers le sol.
 
@@ -81,7 +81,7 @@ Dans une ville située dans la partie sud de la planète Ran Yun, un jeune homme
 
 Depuis quatre ans, après avoir réalisé qu'ils avaient commis une erreur fatale en tuant un membre de la famille Huan, les trois s'étaient consacrés entièrement au raffinage de clones. Ils n'avaient pas utilisé de méthodes spéciales, et ces clones étaient si faibles qu'ils étaient incapables de combattre. Cependant, c'était tout de même un moyen de survie.
 
-L'ancêtre de la famille Ran avait secrètement affiné un clone pendant des centaines d'années, atteignant un niveau lui permettant de quitter la planète. Il s'était échappé avec les autres membres du clan en secret il y a deux ans. Quant à Xiaoyao Sanren, ses capacités étaient plus limitées; il ne pouvait pas diviser son âme originelle pour créer un clone, mais il possédait d'autres moyens dont personne n'ignorait la nature exacte.
+L'ancêtre de la famille Ran avait secrètement affiné un clone pendant des centaines d'années, atteignant un niveau lui permettant de quitter la planète. Il s'était échappé avec les autres membres du clan en secret il y a deux ans. Quant à Xiaoyao Sanren, ses capacités étaient plus limitées; il ne pouvait pas diviser son âme originelle pour créer un clone, mais il possédait d'autres moyens dont personne à l'extérieur ne connaissait la nature exacte.
 
 Bien que ce Sun Xi ait réussi à raffiner un clone, sa culture n'était qu'au stade de la Formation du Noyau, ce qui l'empêchait tout simplement de quitter la planète. Auparavant, lorsqu'il avait cherché Wang Lin, il comptait lui demander de l'aide à ce sujet. Cependant, avant même de pouvoir poser la question, Wang Lin l'avait repoussé.
 
@@ -91,12 +91,12 @@ Liu Mei se téléporta et arriva dans la partie sud de Ran Yun. Juste au moment 
 
 « Cette aura... »
 
-Une lueur argentée traversa les étoiles pour atteindre les environs de la planète Ran Yun. Wang Lin était assis sur la boussole des étoiles. Ayant collecté les jades célestes des trois, il se devait au moins de tenir sa promesse. Autrement, il n'aurait aucune raison de revenir.
+Une lueur argentée traversa les étoiles pour atteindre les environs de la planète Ran Yun. Wang Lin était assis sur la boussole stellaire. Ayant collecté les jades célestes des trois, il se devait au moins de tenir sa promesse. Autrement, il n'aurait aucune raison de revenir.
 
 Son expression était initialement neutre, mais lorsqu'il aperçut la puissante formation de scellement entourant la planète Ran Yun, ses yeux se plissèrent. Il se leva de la boussole et fixa la restriction, le regard étincelant.
 
 « Quand je suis parti, cette restriction n'était pas là! » Wang Lin possédait une excellente compréhension des restrictions. Bien qu'il ne puisse les briser en un temps record, il pouvait y pénétrer sans les endommager.
 
-Après une courte réflexion, la boussole des étoiles sous ses pieds chargea à travers la restriction et fonça droit vers la planète Ran Yun.
+Après une courte réflexion, la boussole stellaire sous ses pieds chargea à travers la restriction et fonça droit vers la planète Ran Yun.
 
 Sur la planète Ran Yun, alors que Liu Mei levait la tête, l'éclat mystérieux dans ses yeux devint plus intense encore.

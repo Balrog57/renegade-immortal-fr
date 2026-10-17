@@ -36,11 +36,11 @@ Wang Lin fronça les sourcils. Il fixa froidement la femme et demanda: « Que vo
 
 La femme porta un doigt près de sa bouche. Ses yeux étaient empreints d'un charme séduisant alors qu'elle souriait. « Quelle autre signification pourrais-je avoir? Je veux simplement que tu goûtes à la beauté de la vie. Je sens une aura très pure émaner de ton corps. Je parie que tu n'as pas encore goûté aux plaisirs d'une femme. Quelle chance pour moi. »
 
-Le regard de Wang Lin devint plus glacial encore et il dit calmement: « Si vous êtes ici, c'est que vous êtes gravement blessée. Honorable troisième ancêtre, reconnaissez-vous cet objet?! » Sur ces mots, il frappa son sac de rangement, faisant apparaître le Drapeau d'Âmes du Milliard d'Âmes. Des fragments d'âmes s'envolèrent en poussant des gémissements fantomatiques.
+Le regard de Wang Lin devint plus glacial encore et il dit calmement: « Si vous êtes ici, c'est que vous êtes gravement blessée. Honorable troisième ancêtre, reconnaissez-vous cet objet?! » Sur ces mots, il frappa son sac de rangement, faisant apparaître l'Étendard de l'Âme d'un Milliard. Des fragments d'âmes s'envolèrent en poussant des gémissements fantomatiques.
 
 Ces hurlements spectraux affectaient directement l'âme.
 
-Les yeux de la femme s'illuminèrent. Elle fixa le drapeau et répéta, mot pour mot: « Le Drapeau d'Âmes du Milliard d'Âmes! »
+Les yeux de la femme s'illuminèrent. Elle fixa le drapeau et répéta, mot pour mot: « L'Étendard de l'Âme d'un Milliard! »
 
 La main gauche de Wang Lin pointa l'épée céleste, qui commença à briller. Puis, il abattit l'épée pour trancher le sol.
 
@@ -54,7 +54,7 @@ Wang Lin regarda la femme et dit: « Je n'ai utilisé que 10 % de mon énergie s
 
 Il n'avait aucune confiance face à cette femme. Après tout, elle représentait une existence comparable à un cultivateur Ascendant. Même blessée, elle disposait encore de nombreux moyens. Elle ne ressemblait en rien à ces chamans à huit feuilles que Wang Lin pouvait facilement éliminer grâce à son âme Ascendante.
 
-La femme esquissa un léger sourire. Elle regarda Wang Lin comme s'il était son amant et laissa échapper un rire provocateur. « Je ne cherche pas à t'imposer quoi que ce soit, je veux seulement partager le printemps avec toi. Pourquoi me tenir ainsi à distance? D'ailleurs, le Cimetière des Immortels compte 19 couches au total. Une fois que tu auras dépassé cette grande sœur, tu pourras découvrir le secret du pouvoir de tatouage de mon Clan des Immortels Délaissés. Plus important encore, il est gardé par le fragment d'âme du premier ancêtre de mon clan. Tu possèdes le Drapeau d'Âmes du Milliard d'Âmes; ne veux-tu pas aller récupérer le fragment d'âme du premier ancêtre... »
+La femme esquissa un léger sourire. Elle regarda Wang Lin comme s'il était son amant et laissa échapper un rire provocateur. « Je ne cherche pas à t'imposer quoi que ce soit, je veux seulement partager le printemps avec toi. Pourquoi me tenir ainsi à distance? D'ailleurs, le Cimetière des Immortels compte 19 couches au total. Une fois que tu auras dépassé cette grande sœur, tu pourras découvrir le secret du pouvoir de tatouage de mon Clan des Immortels Délaissés. Plus important encore, il est gardé par le fragment d'âme du premier ancêtre de mon clan. Tu possèdes l'Étendard de l'Âme d'un Milliard; ne veux-tu pas aller récupérer le fragment d'âme du premier ancêtre... »
 
 Wang Lin la dévisagea. Sa voix était glaciale: « Je vous accorde trois respirations. Que je parte ou que je me batte dépend de vous! »
 
@@ -90,11 +90,11 @@ Un bruit de grattement retentit alors que l'énergie de l'épée heurtait quelqu
 
 L'expression de Wang Lin devint sombre alors qu'il se retournait pour observer le parchemin.
 
-Un gaz démoniaque noir s'échappait du rouleau. Celui-ci s'ouvrit lentement, révélant dix points d'un violet doré qui formaient un cercle.
+Un gaz démoniaque noir s'échappait du rouleau. Celui-ci s'ouvrit lentement, révélant dix points de lumière violette qui formaient un cercle.
 
 Ces points libérèrent une puissance mystérieuse avant de se mettre soudainement à tourner.
 
-Un tatouage de serpent se matérialisa à partir des dix points lumineux et s'élança. Il se transforma brusquement en un dragon féroce de 3,3 kilomètres de long.
+Un tatouage de serpent se matérialisa à partir des dix points lumineux violets et s'élança. Il se transforma brusquement en un dragon féroce de 3,3 kilomètres de long.
 
 L'aura émanant de ce dragon était comparable à celle d'une bête désolée. Dès son apparition, il poussa un rugissement soudain et chargea vers Wang Lin.
 
@@ -128,9 +128,9 @@ Voyant le même parchemin que celui de l'ennemi, Wang Lin décida de suivre son 
 
 Dès que ce parchemin apparut, le dragon et le tigre hésitèrent et n'osèrent s'approcher. Ils s'arrêtèrent à 330 mètres de distance et commencèrent à rugir, leurs yeux emplis de suspicion.
 
-Les yeux de Wang Lin brillèrent alors qu'il tenait le parchemin et l'ouvrait. Le sien était entièrement noir et ne possédait qu'un seul point violet doré.
+Les yeux de Wang Lin brillèrent alors qu'il tenait le parchemin et l'ouvrait. Le sien était entièrement noir et ne possédait qu'un seul point violet.
 
-Au moment où le parchemin s'ouvrit, le dragon et le tigre cessèrent leurs rugissements. Ils se mirent à fixer le rouleau avec une lueur mystérieuse dans les yeux. À cet instant précis, le parchemin aux dix points violet doré les rattrapa.
+Au moment où le parchemin s'ouvrit, le dragon et le tigre cessèrent leurs rugissements. Ils se mirent à fixer le rouleau avec une lueur mystérieuse dans les yeux. À cet instant précis, le parchemin aux dix points violets les rattrapa.
 
 La scène était pour le moins étrange.
 
@@ -138,8 +138,8 @@ Les deux parchemins identiques étaient séparés par plusieurs centaines de mè
 
 À la onzième couche, l'expression de la troisième ancêtre changea radicalement.
 
-« L'Atlas des Bêtes Tatouées... Pourquoi cet homme possède-t-il le trésor de mon Clan des Immortels Délaissés?! Serait-ce un objet qu'un ancêtre aurait laissé à l'extérieur?! » Les yeux de la femme s'illuminèrent et elle murmura: « Retourne! »
+« L'Atlas des Bêtes Tatouées... Pourquoi cet homme possède-t-il le trésor de mon Clan des Immortels Délaissés?! Serait-ce un objet qu'un ancêtre aurait laissé à l'extérieur?! » Les yeux de la femme s'illuminèrent et elle murmura: « Rentrez! »
 
-Dès qu'elle prononça ce mot, le parchemin aux dix points trembla. Le dragon et le tigre se transformèrent en deux rayons de lumière et volèrent vers le rouleau.
+Dès qu'elle prononça ce mot, le parchemin aux dix points trembla. Le dragon et le tigre se transformèrent en deux tatouages brillant d'une lumière noire et volèrent vers le rouleau.
 
 C'est à cet instant que l'unique point du parchemin de Wang Lin vacilla et prit la forme d'une femme. On ne pouvait distinguer ses traits exacts, seule sa silhouette se dessinait.

@@ -6,9 +6,9 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 766 - Treasure Refined by the Heavens
 slug: tresor-affine-par-les-cieux
 ---
-La destruction de la Planète de Sang ne provoqua aucune onde de choc majeure dans le Système Stellaire de l'Alliance. En raison de l'isolement extrême de la Planète de Sang, personne n'en eut connaissance avant qu'un long moment ne s'écoule.
+La destruction de la Planète du Sang ne provoqua aucune onde de choc majeure dans le Système Stellaire de l'Alliance. En raison de l'isolement extrême de la Planète du Sang, personne n'en eut connaissance avant qu'un long moment ne s'écoule.
 
-Le corps original de Wang Lin était parti avec le pavillon de sang. Tandis qu'il survolait l'espace, son corps rétrécit lentement jusqu'à retrouver la taille d'un cultivateur ordinaire. Quant au pavillon de sang, il l'avait scellé avant de l'engloutir; une fois à l'intérieur de lui, le pavillon fut enveloppé par son énergie spirituelle.
+Le corps originel de Wang Lin était parti avec le pavillon de sang. Tandis qu'il survolait l'espace, son corps rétrécit lentement jusqu'à retrouver la taille d'un cultivateur ordinaire. Quant au pavillon de sang, il l'avait scellé avant de l'engloutir; une fois à l'intérieur de lui, le pavillon fut enveloppé par son énergie spirituelle.
 
 Ce pavillon de sang était particulièrement étrange, Wang Lin décida donc de l'étudier avec soin.
 
@@ -16,7 +16,7 @@ Après avoir décelé une planète de culture de rang 6, Wang Lin s'y infiltra. 
 
 Le lien entre son âme et son avatar devenait plus stable.
 
-Il convient de noter que bien que ce voyage ait attiré l'attention de certains cultivateurs puissants, il n'était pas lié aux dieux anciens. Après tout, ces derniers avaient disparu depuis bien trop longtemps.
+Il convient de noter que bien que ce voyage ait attiré l'attention de certains cultivateurs puissants, aucun ne soupçonna qu'il s'agissait d'un dieu ancien. Après tout, ces derniers avaient disparu depuis bien trop longtemps.
 
 Dans le Système Stellaire de Luotian, un fragment dérivait lentement dans le vide du Royaume Céleste du Tonnerre. À cet instant, une masse de nuages qui n'auraient jamais dû apparaître se condensa rapidement autour de ce fragment, et des grondements sourds se cachaient en leur sein.
 
@@ -32,7 +32,7 @@ Ce sentiment le poussait à la folie. C'était la première fois de sa vie qu'il
 
 Cependant, il craignait de bouger. Il scruta attentivement les nuages surplombant le fragment. Il sentait que la puissance qui s'y tramait grandissait en intensité.
 
-« C’est une rétribution divine… Je ne pensais pas que la culture de cet individu puisse réellement provoquer une telle rétribution. Je présume que la puissance des cieux qui a frappé le Domaine de l'Esprit Démon à l'époque était également causée par lui. » Le regard de l'Ancêtre Sanguin devint glacial.
+« C’est une rétribution divine… Je ne pensais pas que la culture de cet individu puisse réellement provoquer une telle rétribution. Je présume que la puissance des cieux qui a frappé la Terre des Esprits Démoniaques à l'époque était également causée par lui. » Le regard de l'Ancêtre Sanguin devint glacial.
 
 « Plus la rétribution divine sera puissante, mieux ce sera. Si je m'y précipitais, je ne ferais que l'aider. Je vais simplement attendre ici et le regarder se faire anéantir par la rétribution divine. Ce sera fort satisfaisant. » L'Ancêtre Sanguin ricana en fixant le fragment, ses yeux empreints de haine.
 

@@ -8,7 +8,7 @@ slug: très-bien-très-bien
 ---
 Le regard de Wang Lin se posa sur les pieds de Li Yuan. Au moment où ceux-ci se posèrent sur l'épée de fer, Wang Lin ressentit une étrange sensation. C'était comme si cet homme et l'épée de fer n'avaient fait qu'un.
 
-Wang Lin détourna les yeux, puis rétracta son Sens Divin. Il fit un pas en avant et s'élança dans le vide. Dès qu'il y pénétra, ce fut comme s'il avait franchi une frontière; le grondement du tonnerre sembla alors décupler.
+Wang Lin détourna les yeux, puis rétracta son sens divin. Il fit un pas en avant et s'élança dans le vide. Dès qu'il y pénétra, ce fut comme s'il avait franchi une frontière; le grondement du tonnerre sembla alors décupler.
 
 La femme nommée Ge eut un reniflement dédaigneux intérieur: « Ce trésor magique est un héritage familial. Bien qu'il n'ait aucun pouvoir offensif, il est inégalé pour résister au tonnerre! » Portée par cette pensée, l'épée volante se mit à glisser le long de la chaîne de tonnerre. Les éclairs émanant de la chaîne ne semblaient avoir aucune prise sur l'arme.
 
@@ -16,7 +16,7 @@ La femme nommée Ge observa Li Yuan en fronçant les sourcils. L'endroit où il 
 
 Les environs n'étaient que néant, et rien ne se dessinait devant eux. Pourtant, aucun cultivateur du Royaume Céleste du Tonnerre ne pouvait s'égarer; il suffisait de suivre les chaînes de tonnerre pour garder la bonne direction.
 
-Peu après, alors que l'épée filait, ils pénétrèrent lentement dans le vide profond. La femme ne pouvant déployer son Sens Divin, elle ne vit pas Wang Lin. Se demandant si elle l'avait perdu, elle se retourna et eut l'impression qu'un éclair venait de la transpercer. Figée, les yeux écarquillés par l'effroi, elle sentit sa terreur envers Wang Lin atteindre son paroxysme.
+Peu après, alors que l'épée filait, ils pénétrèrent lentement dans le vide profond. La femme ne pouvant déployer son sens divin, elle ne vit pas Wang Lin. Se demandant si elle l'avait perdu, elle se retourna et eut l'impression qu'un éclair venait de la transpercer. Figée, les yeux écarquillés par l'effroi, elle sentit sa terreur envers Wang Lin atteindre son paroxysme.
 
 Elle vit Wang Lin marcher sur la chaîne de tonnerre, drapé dans sa robe blanche. Il avançait pas à pas, comme s'il foulait un sol parfaitement plat.
 
@@ -96,8 +96,8 @@ Li Yuan fronça les sourcils en l'étudiant avec soin. Ses yeux brillèrent lors
 
 Son expression devint très grave alors qu'il frappait son sac de rangement pour en sortir une boussole. L'aiguille tournait frénétiquement tandis que ses mains traçaient des sceaux; il calculait, les yeux étincelants de concentration. Mais soudain, la boussole explosa en poussière et se dissipa.
 
-« C'est une restriction céleste de rang intermédiaire qui utilise le Royaume Céleste du Tonnerre comme fondation, avec 9 999 esprits servant d'yeux à la formation. Elle peut créer une formation colossale et incomparable, capable de raffiner tout ce qui existe au monde! »
+« C'est une restriction céleste de rang intermédiaire qui utilise le Royaume Céleste du Tonnerre comme fondation, avec, sur 9 999 points de solidification, les âmes d'êtres spirituels servant d'yeux à la restriction. Elle forme ainsi une immense formation d'anéantissement, capable de raffiner toutes choses du ciel et de la terre! »
 
 À cet instant précis, un rire jaillit du brouillard lointain, suivi de l'apparition d'un vieil homme sortant des brumes. Il tenait quelque chose à la main: une chaîne de tonnerre!
 
-« Oh? Vous rencontrer ici prouve que vous êtes bel et bien destinés à ce vieux fou! J'allais justement vous chercher, mais vous voilà venus d'eux-mêmes. Très bien, très bien! »
+« Oh? Vous voir ici prouve que vous êtes bel et bien lié à ce vieillard par le destin! J'allais justement vous chercher, mais vous voilà venu de vous-même. Très bien, très bien! »

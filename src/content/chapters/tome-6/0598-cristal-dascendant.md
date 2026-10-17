@@ -6,7 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 598 - Ascendant Crystal
 slug: cristal-dascendant
 ---
-Cette illusion était identique à celle de Wang Lin; ses yeux étaient clos!
+Cette illusion, tout comme Wang Lin, avait les yeux étroitement clos!
 
 Alors que Wang Lin flottait dans les airs, les cinq vieillards furent totalement stupéfaits. Ils contemplèrent le fantôme derrière Wang Lin et affichèrent des expressions empreintes d'un immense respect.
 
@@ -32,7 +32,7 @@ La bourdonnante Cité du Démon Céleste n'était plus qu'un souvenir!
 
 Wang Lin flottait dans les airs, au centre même de la pression exercée par la puissance céleste. Son corps demeurait immobile, comme s'il sombrait dans le sommeil!
 
-C’est à ce moment précis que Wang Lin sembla s'éveiller de son torpeur. Il ouvrit soudainement les yeux et, par ce geste, le fantôme du démon antique derrière lui ouvrit également ses yeux démoniaques!
+C’est à ce moment précis que Wang Lin sembla s'éveiller de sa torpeur. Il ouvrit soudainement les yeux et, par ce geste, le fantôme du démon antique derrière lui ouvrit également ses yeux démoniaques!
 
 À cet instant, une puissance mystérieuse semblait contrôler son corps. Il leva lentement sa main droite pour la presser contre les nuages rouges. Le démon antique derrière lui leva également sa gigantesque main droite et la projeta vers le ciel.
 
@@ -118,7 +118,7 @@ Il retourna une fois de plus sur les plateformes reliées par les dragons véné
 
 Une fois la rétribution divine passée, Wang Lin remarqua immédiatement que son domaine avait atteint sa complétion et fusionnait lentement avec son énergie spirituelle céleste. Cette découverte le frappa de stupeur!
 
-L'épreuve de vie ou de mort de l'Ascendant!
+L'épreuve de vie ou de mort de l'Ascendant: entendre le Dao au matin, mourir le soir!
 
 S'il commettait la moindre erreur, non seulement toute sa culture serait perdue, mais son âme originelle s'effondrerait également. Bien qu'il ignorât si cela affecterait le corps du dieu antique à l'extérieur, il n'était pas prêt à prendre un tel risque!
 
@@ -150,4 +150,4 @@ Alors que Wang Lin atteignait le stade de l'Ascendant, la Cité du Démon Céles
 
 Dans la tour noire située sur un champ de bataille ancien à une distance indéterminée, deux lueurs fantomatiques apparurent dans le casque de l'armure noire trônant au sommet de la tour.
 
-« Même le démon antique est apparu pour t'aider à résister à la rétribution divine… Te simplement absorber ainsi serait un gâchis… Mais après avoir manqué cette chance, j'ignore combien de temps je devrai encore attendre… Bien que le pouvoir d'un Ascendant ne soit pas immense, je ne peux me permettre de le laisser filer! »
+« Même le démon antique est apparu pour t'aider à résister à la rétribution divine… Si je t'absorbais ainsi, ce serait un gâchis… Mais après avoir manqué cette chance, j'ignore combien de temps je devrai encore attendre… Bien que le pouvoir d'un Ascendant ne soit pas immense, je ne peux me permettre de le laisser filer! »

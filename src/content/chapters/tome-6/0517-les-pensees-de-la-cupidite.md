@@ -8,7 +8,7 @@ slug: les-pensees-de-la-cupidite
 ---
 Les yeux du Saint de l'Épée Ling Tianhou s'illuminèrent et il demanda lentement: « Quelle sorte de fortune pourrait vous intéresser à ce point, Cupidité? »
 
-Cupidité réfléchit un instant, puis serra les dents en regardant le Saint de l'Épée Ling Tianhou et murmura: « Le Saint de l'Épée se souvient-il de l'annonce envoyée par l'Alliance de Culture il y a des dizaines de milliers d'années, à la recherche d'un objet? Cet objet est une perle, et la récompense est un sort céleste de haute qualité! C'est un sort céleste de haute qualité, la plus grande récompense que l'Alliance de Culture ait jamais offerte! Selon mes sources, il n'existe pas plus de dix sorts célestes complets de haute qualité au sein de l'Alliance de Culture! »
+Cupidité réfléchit un instant, puis serra les dents en regardant le Saint de l'Épée Ling Tianhou et murmura: « Le Saint de l'Épée se souvient-il de l'annonce envoyée par l'Alliance de Culture il y a des dizaines de milliers d'années, à la recherche d'un objet? Cet objet est une perle, et la récompense est un sort céleste complet de haute qualité! C'est un sort céleste de haute qualité, la plus grande récompense que l'Alliance de Culture ait jamais offerte! Selon mes sources, il n'existe pas plus de dix sorts célestes complets de haute qualité au sein de l'Alliance de Culture! »
 
 Les yeux de Ling Tianhou devinrent sérieux et il demanda lentement: « Vos blessures sont-elles liées à cette perle? »
 
@@ -70,7 +70,7 @@ Ce changement attira l'attention de tous les cultivateurs environnants.
 
 À ce moment précis, les yeux de Chen Tao s'illuminèrent soudainement alors qu'il tournait la tête vers le lointain, et un sourire apparut lentement sur ses lèvres.
 
-Plusieurs rayons de lumière arrivèrent du loin. Leur arrivée n'attira pas l'attention des autres cultivateurs, mais le regard de Chen Tao se fixa sur une silhouette pourpre.
+Plusieurs rayons de lumière arrivèrent de loin. Leur arrivée n'attira pas l'attention des autres cultivateurs, mais le regard de Chen Tao se fixa sur une silhouette pourpre.
 
 « Septième frère... » Les yeux de Chen Tao brillèrent d'une lueur mystérieuse.
 
@@ -82,7 +82,7 @@ Le visage de Sun Yunshan était couvert de poussière; ils avaient manifestement
 
 « Aucun problème! » Wang Lin sourit faiblement, fit un pas et se transforma en une nuée de fumée pourpre avant de s'envoler vers l'Omniscient.
 
-Wang Lin se déplaça comme l'éclair vers l'Omniscient et, avant même qu'il ne soit proche, on entendit le fracas du mur du son qui se brisait. Son expression était calme, une pointe de gaz gris perçant dans ses yeux. Son apparence actuelle n'était en rien inférieure à celle de l'actuel Chen Tao.
+Wang Lin se déplaça comme l'éclair vers l'Omniscient et, avant même qu'il ne soit proche, on entendit un grondement de tonnerre. Son expression était calme, une pointe de gaz gris perçant dans ses yeux. Son apparence actuelle n'était en rien inférieure à celle de l'actuel Chen Tao.
 
 Son mouvement attira immédiatement l'attention de certains cultivateurs. En voyant sa robe pourpre et son jeton, des cultivateurs bien informés devinèrent aussitôt son identité.
 

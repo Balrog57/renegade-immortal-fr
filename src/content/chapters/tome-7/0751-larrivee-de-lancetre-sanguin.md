@@ -10,7 +10,7 @@ Le vent souffla et dispersa toute la brume sanglante. Wang Lin observa la scène
 
 De plus, même s'il n'avait pas été là, le destin de Ge Hong était scellé dès l'instant où ils avaient pénétré dans le Royaume Céleste du Tonnerre.
 
-« Le complot de ce Li Yuan est profond. Si ses paroles sont vraies, sa capacité à rester aux côtés de Ge Hong tout au long du voyage est proprement terrifiante! Ce n'est qu'une fois arrivé à la montagne qu'il a fini par tout révéler, et seulement parce que ce lieu était saturé de restrictions. Il semble que ces restrictions aient un lien étroit avec ses ancêtres. »
+« Le complot de ce Li Yuan est profond. Si ses paroles sont vraies, sa patience envers Ge Hong tout au long du voyage est proprement terrifiante! Ce n'est qu'une fois arrivé à la montagne qu'il a fini par tout révéler, et seulement parce que ce lieu était saturé de restrictions. Il semble que ces restrictions aient un lien étroit avec ses ancêtres. »
 
 « Cependant, je n'ai pas encore confirmé si tout ce qu'il raconte est vrai! » Wang Lin fixa calmement Li Yuan. Son impassibilité ne laissait transparaître ni joie ni colère, rendant ses pensées impossibles à percer.
 
@@ -22,13 +22,13 @@ L'expression de Wang Lin resta neutre, mais son esprit s'agita. Par sa réponse,
 
 « Dans toute ma vie, c'était la première fois que je voyais un sort comme celui du frère Xu. Ce sort est d'une puissance telle qu'on peut le considérer comme inégalable; tout se fige en un instant. Avec l'aide du frère Xu, je suis convaincu de pouvoir briser totalement la statue de pierre et de restaurer la liberté de ma famille Li. »
 
-« En compensation, j'offre la Restriction d'Annihilation et la Restriction des 18 Prunelles! »
+« En compensation, j'offre la Restriction d'Annihilation et la Restriction des 18 Pruniers! »
 
-Wang Lin regarda Li Yuan avec sérénité. Si l'affaire était aussi simple que ce qu'il avançait, prêter main-forte ne poserait aucun problème. Sans parler de la Restriction d'Annihilation, la seule Restriction complète des 18 Prunelles augmenterait considérablement sa puissance. Certains de ses aspects pourraient même servir à améliorer ses propres sorts.
+Wang Lin regarda Li Yuan avec sérénité. Si l'affaire était aussi simple que ce qu'il avançait, prêter main-forte ne poserait aucun problème. Sans parler de la Restriction d'Annihilation, la seule Restriction complète des 18 Pruniers augmenterait considérablement sa puissance. Certains de ses aspects pourraient même servir à améliorer ses propres sorts.
 
 Tout en réfléchissant, Wang Lin jeta un regard furtif vers la statue de pierre, évitant soigneusement l'empreinte de la main avant de détourner les yeux. Il semblait avoir vaguement remarqué quelque chose: l'apparence du céleste ressemblait... étrangement à celle de Ge Hong.
 
-« Frère Xu, ma culture ne peut égaler la vôtre; même avec les restrictions, je ne peux vous atteindre, sans parler de cette énergie d'épée, alors pourquoi douter encore de moi? Quoi qu'il en soit, pour prouver ma sincérité, je vous donnerai le reste de la Restriction des 18 Prunelles. Une fois le sceau brisé, je remettrai la Restriction d'Annihilation au frère Xu! » La voix de Li Yuan était empreinte de sincérité alors qu'il fixait Wang Lin.
+« Frère Xu, ma culture ne peut égaler la vôtre; même avec les restrictions, je ne peux vous atteindre, sans parler de cette énergie d'épée, alors pourquoi douter encore de moi? Quoi qu'il en soit, pour prouver ma sincérité, je vous donnerai le reste de la Restriction des 18 Pruniers. Une fois le sceau brisé, je remettrai la Restriction d'Annihilation au frère Xu! » La voix de Li Yuan était empreinte de sincérité alors qu'il fixait Wang Lin.
 
 Wang Lin ne manifesta aucune émotion, mais il hocha la tête.
 
@@ -110,9 +110,9 @@ Les yeux de Li Yuan brillèrent intensément. Il chargea en avant et dit d'un to
 
 Malgré cette apparition forcée, Wang Lin ne montra aucun signe de panique, comme s'il avait tout anticipé.
 
-Pendant ce temps, au centre du fragment du Royaume Céleste du Tonnerre — un fragment dont la masse terrestre était naturellement limitée par sa petite taille — des barres de fer semblables à des éclairs entouraient les lisières.
+Pendant ce temps, au cœur même du Royaume Céleste du Tonnerre, sur un fragment de continent dont la petite taille limitait naturellement la superficie, des éclairs semblables à des barres de fer entouraient les lisières.
 
-Une immense formation trônait au centre de ce fragment, où siégeaient quatre anciens. Chacun d'eux avait les cheveux blancs, mais leurs corps absorbaient d'immenses quantités d'énergie originelle.
+Une immense formation trônait au centre de ce fragment, autour de laquelle étaient assis en tailleur quatre anciens. Chacun d'eux avait les cheveux blancs, mais leurs corps étaient enveloppés d'une immense énergie originelle.
 
 La formation se mit soudain à scintiller violemment, mais les quatre anciens restèrent de marbre, leurs paupières ne tressaillant même pas. Un instant plus tard, une ombre apparut au cœur de la formation.
 

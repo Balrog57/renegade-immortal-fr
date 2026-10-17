@@ -24,7 +24,7 @@ Ses yeux pétillaient de tendresse en regardant l'homme, et elle dit doucement: 
 
 L'homme prit la main de la femme tout en levant les yeux vers la lune et murmura lentement: « Qing Yi, que penses-tu que notre Père soit en train de faire en ce moment... »
 
-Le visage de Qing Yi s'empourpra. Elle accompagnait cet homme depuis de nombreuses années et lui avait même confié l'accord qu'elle avait conclu avec son père. Les années passées ensemble avaient fait croître leurs sentiments, mais à cet instant, elle rougit encore comme une jeune fille.
+Le visage de Qing Yi s'empourpra. Elle accompagnait cet homme depuis de nombreuses années et lui avait même confié l'accord conclu avec le père de celui-ci. Les années passées ensemble avaient fait croître leurs sentiments, mais à cet instant, elle rougit encore comme une jeune fille.
 
 Qing Yi répondit d'une voix douce: « Il doit être... votre père... »
 

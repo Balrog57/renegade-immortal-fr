@@ -22,7 +22,7 @@ Wang Lin regarda calmement la silhouette, puis sans un mot, il chargea. Ses main
 
 Une puissance immense surgit soudain de Wang Lin et se rassembla devant lui.
 
-Wang Lin murmura: « Brise! » Son corps brilla d'une lueur dorée et les yeux de la silhouette de feu s'illuminèrent soudainement. La créature recula précipitamment, décroisa aussitôt les bras et frappa vers l'avant.
+Wang Lin murmura: « Brise! » Son corps brilla d'une lueur cristalline et les yeux de la silhouette de feu s'illuminèrent soudainement. La créature recula précipitamment, décroisa aussitôt les bras et frappa vers l'avant.
 
 Dans un fracas assourdissant, le sable fut balayé et des fissures apparurent sur la terre, se propageant rapidement à travers le sol. La silhouette de feu recula brusquement sur plus d'une centaine de mètres. Ses deux mains étaient dans un état lamentable, couvertes de sang. Une fois stabilisée, elle fixa Wang Lin de ses yeux ardents.
 
@@ -58,9 +58,9 @@ Le cœur de l'homme au visage doux trembla un instant et il déclara: « Cet hom
 
 L'homme au visage doux fit semblant de dire avec désinvolture: « Maître a disposé pour qu'il réside au Pavillon des Nuages Pourpres! »
 
-« Le Pavillon des Nuages Pourpres! » La lueur mystérieuse dans les yeux de Bai Wei s'éteignit, remplacée par une froideur soudaine. Après avoir réfléchi un moment, il dit lentement: « Frère aîné, j'ai encore d'importantes affaires à régler, je ne resterai donc pas. Donne-moi l'une de tes herbes à cinq feuilles de 3 000 ans et je te donnerai un cristal de feu en échange. Qu'en dis-tu? »
+« Le Pavillon des Nuages Pourpres! » La lueur mystérieuse dans les yeux de Bai Wei s'éteignit, remplacée par une froideur soudaine. Après avoir réfléchi un moment, il dit lentement: « Frère aîné, j'ai encore d'importantes affaires à régler, je ne resterai donc pas. Donne-moi une feuille de ta plante à cinq feuilles de 3 000 ans et je te donnerai un cristal de feu en échange. Qu'en dis-tu? »
 
-L'homme au visage doux rit: « Très bien. Rendez-vous simplement dans ma grotte, et je demanderai au garçon de te la porter. »
+L'homme au visage doux rit: « Très bien. Va simplement dans ma grotte, et le garçon t'accompagnera pour la prendre. »
 
 Bai Wei joignit les mains. Après avoir lancé un regard intense vers le vide, il disparut.
 
@@ -90,7 +90,7 @@ Sitôt ces mots prononcés, le monde autour de lui devint flou, comme s'il tourn
 
 Wang Lin se retrouva debout là où il se tenait précédemment. Devant lui se trouvait un homme vêtu de pourpre qui l'observait avec un sourire serein.
 
-« Jeune frère apprenti Wang Lin, je suis Zhao Xingsha. Parmi les disciples de la première génération de Maître, je suis celui qui est resté le plus longtemps dans la secte. Tu peux m'appeler Frère Aîné. »
+« Jeune frère apprenti Wang Lin, je suis Zhao Xingsha. Parmi les disciples de la division pourpre de Maître, je suis celui qui est entré le plus tôt dans la secte. Tu peux m'appeler Frère Aîné. »
 
 Wang Lin regarda l'homme, puis joignit les mains: « Wang Lin salue le Frère Aîné. »
 

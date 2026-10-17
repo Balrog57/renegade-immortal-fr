@@ -10,7 +10,7 @@ Cet homme vêtu de bleu était d'âge moyen. Ses yeux étaient froids, animés d
 
 Il sortit de la porte de l'autel et s'éleva dans les airs. Sa silhouette n'était pas encore tout à fait solidifiée; si on le regardait, on pouvait encore distinguer l'autel derrière lui.
 
-Wang Lin flottait dans les airs, et derrière lui se trouvait le papillon apparu après l'activation du Char de Destruction Divine. Le papillon battait doucement des ailes pour maintenir sa suspension.
+Wang Lin flottait dans les airs, et derrière lui se trouvait le papillon apparu après l'activation du Char de Guerre Anti-Dieu. Le papillon battait doucement des ailes pour maintenir sa suspension.
 
 Les membres du Clan des Immortels Élus, empreints de prudence, reculèrent tout en fixant l'homme d'âge moyen. Les yeux de Ta Shan étaient glacials lorsqu'il fit un pas en avant et cria: « Qui est cet homme?! »
 
@@ -68,7 +68,7 @@ Il n'y avait aucun doute sur l'identité de cet individu. « Dès que vous les r
 
 Le vieil homme n'avait pas compris auparavant; il avait confondu cette excitation et ce respect avec de la loyauté. Mais face à l'être céleste, la vérité s'imposa à lui.
 
-« Je ne peux m'empêcher d'être ému... Je ne peux m'empêcher d'être respectueux... » Le vieil homme esquissa un sourire pitoyable et s'agenouilla au sol en murmurant: « Ce humble serviteur salue l'Être Céleste Supérieur. »
+« Je ne peux m'empêcher d'être ému... Je ne peux m'empêcher d'être respectueux... » Le vieil homme esquissa un sourire pitoyable et s'agenouilla au sol en murmurant: « Cet humble serviteur salue l'Être Céleste Supérieur. »
 
 Il n'était pas le seul à s'agenouiller. Les cœurs des autres membres du Clan des Immortels Élus tremblèrent sous le regard de l'homme d'âge moyen. Une force intérieure les obligeait à la soumission. Même s'ils devaient mourir, même si leurs âmes se brisaient, ils étaient condamnés à céder!
 
@@ -104,7 +104,7 @@ Les yeux de Ta Shan étaient éteints, mais son regard restait indomptable. Cepe
 
 À cet instant, un silence absolu régna dans les environs. Xu Liguo s'était déjà éclipsé dès qu'il eut senti le danger. Il réfléchissait à savoir s'il devrait résister ou se rendre si ce démon venait à être vaincu.
 
-La bête-moustique tournait dans les airs, les yeux rivés sur l'homme d'âge moyen. Le crapaud de tonnerre observait la scène à distance, le regard froid et le ventre gonflé.
+La bête moustique tournait dans les airs, les yeux rivés sur l'homme d'âge moyen. Le crapaud tonnerre observait la scène à distance, le regard froid et le ventre gonflé.
 
 L'homme en bleu fixait Wang Lin, mais il n'agissait pas avec précipitation. Il avait naturellement perçu le niveau de culture de ce dernier, et le papillon aux côtés de Wang Lin lui inspirait un très fort sentiment de danger.
 

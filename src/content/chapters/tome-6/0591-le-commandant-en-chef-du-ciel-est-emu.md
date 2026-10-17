@@ -10,11 +10,11 @@ slug: le-commandant-en-chef-du-ciel-est-emu
 
 « Si vous n'y arrivez pas, alors taisez-vous! Si vous continuez à faire du bruit, ne me reprochez pas de devoir vous traiter durement! » L'homme en armure dorée laissa échapper un reniflement glacial.
 
-Wang Lin regarda froidement l'homme en armure dorée. Le niveau de culture de cet homme était extrêmement élevé. Lorsqu'il avait encaissé cette lance dorée, Wang Lin avait pu constater que sa culture se situait au sommet du milieu du stade Ascendant, à un cheveu seulement du stade tardif!
+Wang Lin regarda froidement l'homme en armure dorée. Le niveau de culture de cet homme était extrêmement élevé. Lorsqu'il avait encaissé cette lance solaire, Wang Lin avait pu constater que sa culture se situait au sommet du milieu du stade Ascendant, à un cheveu seulement du stade tardif!
 
 Bien que le niveau de culture de cet individu ne soit qu'un cran au-dessus de celui du Vice-Commandant en Chef Xuan, pour Wang Lin, l'écart était abyssal!
 
-Cependant, ce n'était là que l'aspect secondaire. Le plus important résidait dans le fait que le sort cultivé par l'homme en armure dorée était d'une tyrannie extrême. En encaissant la lance solaire, Wang Lin avait immédiatement perçu la force mystérieuse qui sous-tendait ce pouvoir. Le sort de cet homme était lié aux flammes Yang. Combiné à sa culture, cela le plaçait au sommet des cultivateurs Ascendants du stade intermédiaire. Il était même assez puissant pour affronter un cultivateur Ascendant moyen du stade tardif!
+Cependant, ce n'était là que l'aspect secondaire. Le plus important résidait dans le fait que le sort cultivé par l'homme en armure dorée était d'une tyrannie extrême. En encaissant la lance solaire, Wang Lin avait immédiatement perçu la force mystérieuse qui sous-tendait ce pouvoir. Le sort de cet homme était lié aux flammes Yang. Combiné à sa culture, cela le plaçait au sommet des cultivateurs Ascendants du stade intermédiaire. Il était même assez puissant pour affronter un cultivateur Ascendant ordinaire du stade tardif!
 
 À moins de croiser un cultivateur Ascendant titré, il serait très difficile de le vaincre!
 
@@ -28,7 +28,7 @@ Wang Lin détourna son regard et cessa de prêter attention à l'homme en armure
 
 « Frapper ce tambour ne suit pas mon Dao, mais le rebond qu'il produit est une forme de défi. La force que j'utilise pour frapper suit la volonté des cieux, mais le rebond, lui, défie les cieux! »
 
-« Ce cycle de soumission puis de défi crée un mystérieux cycle céleste... » Les yeux de Wang Lin brillèrent d'une lueur énigmatique alors qu'il fixait le tambour démoniaque. À cet instant, il n'hésita plus; il prit une profonde inspiration et frappa le tambour.
+« Cette soumission suivie d'un défi renferme les mutations du Dao céleste... » Les yeux de Wang Lin brillèrent d'une lueur énigmatique alors qu'il fixait le tambour démoniaque. À cet instant, il n'hésita plus; il prit une profonde inspiration et frappa le tambour.
 
 *Dong!* La neuvième résonance jaillit du tambour!
 
@@ -122,7 +122,7 @@ Le visage de Wang Lin était d'une pâleur mortelle, mais ses yeux brillaient!
 
 « J'ai été blessé par la purification de la moelle non pas parce que ma culture est insuffisante, mais parce que mon Dao est différent! Dans ce monde, qu'il s'agisse de cultivateurs ou d'autres créatures, tant qu'ils cultivent pour défier les cieux, ils possèdent tous leur propre nature de défi! »
 
-« Bien que le mot soit "défier", chacun en a sa propre compréhension, et il existe d'innombrables Dao pour cela! » Les yeux de Wang Lin s'illuminèrent comme jamais auparavant. Bien que son visage fût pâle, à cet instant, c'était comme si son domaine fusionnait avec son corps! La lumière dans ses yeux s'estompa pour faire place à une profonde tristesse et à la solitude.
+« Bien que le mot soit "défier", chacun en a sa propre compréhension, et il existe d'innombrables Dao pour cela! Moi, Wang Lin, je cultive le Dao depuis sept cents ans, et j'ai mon propre Dao! » Les yeux de Wang Lin s'illuminèrent comme jamais auparavant. Bien que son visage fût pâle, à cet instant, un état d'esprit nouveau descendait sur lui! La lumière dans ses yeux s'estompa pour faire place à une profonde tristesse et à la solitude.
 
 Puis, il leva sa main droite et toucha délicatement le tambour démoniaque!
 

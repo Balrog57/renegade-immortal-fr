@@ -20,7 +20,7 @@ Yun Quezi vit l'homme âgé assis au sommet de la montagne avec le petit singe s
 
 Yun Quezi fixa l'homme âgé et dit: « Je me demande quel cultivateur a osé pratiquer la possession... Pourquoi ne pas venir avec votre véritable corps?! »
 
-L'homme âgé ouvrit les yeux. Il lança un regard nonchalant à Yun Quezi et dit: « Toi et moi ne nous connaissons pas, alors en quoi cela importerait-il que je vienne avec mon vrai corps ou non? Ou crois-tu être capable de reconnaître ce vieil homme?! » Le petit singe poussa un cri strident vers Yun Quezi et ses yeux brillèrent d'un rouge sinistre.
+L'homme âgé ouvrit les yeux. Il lança un regard nonchalant à Yun Quezi et dit: « Toi et moi ne nous connaissons pas, alors en quoi cela importerait-il que je vienne avec mon vrai corps ou non? Ou crois-tu être capable de reconnaître ce vieil homme?! » Le petit singe montra les dents à Yun Quezi et ses yeux brillèrent d'un éclat rouge.
 
 Le regard de Yun Quezi resta calme face au singe, puis il sourit. « Ainsi, c'est une marionnette... »
 
@@ -106,7 +106,7 @@ Wang Lin regarda calmement tout le monde jusqu'à ce que son regard se pose fina
 
 Wang Lin regarda Yun Quezi, qui lui rendit son regard; tous deux restèrent silencieux.
 
-Peu de temps après, Wang Lin eut un sourire amer et dit: « Junior salue son aîné... »
+Peu de temps après, Wang Lin eut un sourire amer et dit: « Junior salue Senior... »
 
 Yun Quezi soupira, secoua la tête et répondit: « Toi aussi, tu es venu ici... »
 

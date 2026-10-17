@@ -22,9 +22,9 @@ Wang Lin fixa le fourneau et dit lentement: « Je vais rester ici quelques jours
 
 Ta Shan réfléchit silencieusement, puis leva la tête pour regarder Wang Lin. Après une hésitation, il demanda: « Êtes-vous... vraiment un immortel? »
 
-Wang Lin détourna le regard pour fixer Ta Shan. Lorsqu'il avait demandé à être conduit seul, il avait déjà compris que l'homme avait une question à lui poser. Wang Lin regarda Ta Shan avec calme et sérénité.
+Wang Lin détourna le regard pour fixer Ta Shan. Lorsque Ta Shan avait demandé à ouvrir la marche, il avait déjà compris que l'homme avait une question à lui poser. Wang Lin regarda Ta Shan avec calme et sérénité.
 
-Ta Shan afficha une expression amère et murmura: « Dans mon enfance, j'entendais souvent mes aînés dire que nous avions été choisis par les immortels. Que nous devions passer nos vies à leur servir. Que c'était l'honneur de mon clan... »
+Ta Shan afficha une expression amère et murmura: « Dans mon enfance, j'entendais souvent mes aînés dire que nous avions été choisis par les immortels, une lignée chérie des immortels. Que nous devions passer nos vies à leur servir. Que c'était l'honneur de mon clan... »
 
 « Cet honneur était la seule croyance de mon cœur en grandissant. Et cela ne concernait pas que moi, mais presque tous ceux qui avaient grandi au sein du clan. »
 
@@ -132,4 +132,4 @@ Le ciel était bleu, mais grâce à sa vision, Wang Lin pouvait distinguer vague
 
 Cet objet mesurait environ 50 mètres de long et 13 mètres de large. Dès son apparition, il dégagea une aura terrifiante. D'innombrables épines le recouvraient, lui donnant un aspect féroce. Quiconque le regardait ne pouvait s'empêcher de ressentir une pointe de terreur.
 
-Le troisième Charriot Tueur de Dieux!
+Le troisième Chariot Tueur de Dieux!

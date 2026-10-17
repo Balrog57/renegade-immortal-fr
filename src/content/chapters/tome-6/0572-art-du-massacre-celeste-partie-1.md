@@ -18,7 +18,7 @@ Les deux silhouettes du manoir Mo se révélèrent devant la Prison Hong. Il s'a
 
 Dès leur apparition, l'énorme porte de fer noir qui se dressait devant eux s'entrouvrit brusquement. Un homme voûté au visage sombre sortit de cette fente. Il les dévisagea et, sans un mot, fit un geste de la main avant de rentrer à l'intérieur.
 
-Les yeux de Wang Lin se plissèrent imperceptiblement. Le niveau de culture de cet homme au visage sombre était le même que celui de Mo Lihai. Tous deux possédaient une culture équivalente à celle de cultivateurs du stade avancé de la Transformation de l'Âme!
+Les yeux de Wang Lin se plissèrent imperceptiblement. Le niveau de culture de cet homme au visage sombre était le même que celui de Mo Lihai. Tous deux possédaient une culture équivalente à celle de cultivateurs du sommet du stade tardif de la Transformation de l'Âme!
 
 Mo Lihai fit un pas en avant et se faufila comme un éclair à travers l'ouverture. Wang Lin le suivit avec calme.
 
@@ -126,7 +126,7 @@ L'homme enfermé dans la cellule opposée était un colosse. Le prisonnier de la
 
 Wang Lin ne répondit pas. Il pointa les deux hommes du doigt. Deux points rouge sang apparurent sur leurs fronts et se propagèrent. Ils s'effondrèrent au sol, mais une lueur de soulagement brilla dans leurs yeux.
 
-Depuis son arrivée, Wang Lin avait clairement senti une aura de mort mêlée au ressentiment. Au début, il pensait que cela était dû au nombre de morts, mais il réalisa vite que cette aura émanait des prisonniers eux-mêmes! Ils mouraient d'envie! Mais beaucoup n'avaient pas le courage de se donner la mort!
+Depuis son arrivée, Wang Lin avait clairement senti une aura de mort mêlée au ressentiment. Au début, il pensait que cela était dû au nombre de morts, mais il réalisa vite que cette aura émanait des prisonniers eux-mêmes! Ils ne cherchaient qu'à mourir! Mais beaucoup n'avaient pas le courage de se donner la mort!
 
 En observant leurs corps, Wang Lin nota qu'il n'avait pas utilisé l'énergie de massacre pour les tuer; leurs corps restaient donc intacts. Pourtant, une étrange aura s'était évaporée de leur chair. Les yeux de Wang Lin s'illuminèrent: il sentait avoir saisi quelque chose, bien que cela reste encore flou.
 
@@ -166,7 +166,7 @@ Wang Lin suivit l'homme et quitta la zone pour entamer une nouvelle descente. Le
 
 Après un long moment, alors que Wang Lin continuait sa descente, une odeur de sang ferreuse se fit sentir. L'intention meurtrière ici était dix, cent, mille fois plus puissante qu'au-dessus. Le passage n'était plus sombre mais baignait dans une lueur rouge sang.
 
-L'homme nommé Xu dit doucement: « J'ai enfreint les règles en vous conduisant ici, ne le dites à personne, pas même à Mo Lihai. Ce palais a été créé par l'Empereur Démon et a accumulé assez d'intention meurtrière pour affecter l'esprit de quiconque. Ne luttez pas contre elle; acceptez-la avec votre cœur et ressentez cette intention meurtrière! »
+L'homme nommé Xu dit doucement: « J'ai enfreint les règles en vous conduisant ici, ne le dites à personne, pas même à Mo Lihai. Cet endroit a été façonné par l'Empereur Démon et a accumulé assez d'intention meurtrière pour affecter l'esprit de quiconque. Ne luttez pas contre elle; acceptez-la avec votre cœur et ressentez cette intention meurtrière! »
 
 Wang Lin réfléchit un instant. En regardant l'homme nommé Xu, il sentait la puissance démoniaque qui montait des profondeurs. Cette intention était monstrueuse et devait être d'une aide précieuse pour son Art du Massacre Céleste.
 

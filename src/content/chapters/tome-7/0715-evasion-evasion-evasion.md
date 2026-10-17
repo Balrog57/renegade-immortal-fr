@@ -58,7 +58,7 @@ Il connaissait ce sort. C'était un sort de fragmentation que seul un ancien die
 
 Ce qu'il prononça était lui aussi la langue des anciens dieux, héritée de Tu Si!
 
-La terre s'immobilisa soudainement et la gueule géante s'entrouvrit légèrement. Au même moment, deux autres fissures apparurent, révélant une paire d'yeux froids! Ce regard tomba sur Wang Lin, empreint d'une froideur mêlée de confusion.
+La terre s'immobilisa soudainement et la gueule géante se referma légèrement. Au même moment, deux autres fissures apparurent, révélant une paire d'yeux froids! Ce regard tomba sur Wang Lin, empreint d'une froideur mêlée de confusion.
 
 L'interruption du Serpent aux yeux de lune stoppa l'effondrement de l'espace. Wang Lin s'enfuit sans hésiter, et la garde céleste le suivit sans relâche. À cet instant précis, une silhouette mince surgit des profondeurs de la fissure, animée par un mélange de terreur et d'exultation.
 

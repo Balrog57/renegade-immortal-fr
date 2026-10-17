@@ -6,17 +6,17 @@ bookTitle: Arriving on Tian Yun
 en: "Chapter 511 - Battle!"
 slug: bataille
 ---
-Les deux anciens de la Secte de l'Épée Da Lou furent projetés en arrière dans un même élan, manquant de cracher leur sang alors que leurs corps explosaient sous l'impact, laissant derrière eux de profondes empreintes dans le sol.
+Les deux anciens de la Secte de l'Épée Da Lou crachèrent du sang presque en même temps et furent projetés en arrière, laissant derrière eux plusieurs profondes empreintes de pas dans le sol.
 
 Chaque pas qu'ils laissaient faisait légèrement trembler la terre.
 
-Alors que le gaz gris se propageait, un filament de celui-ci jaillit tel un trait d'épée. Sa cible n'était pas les deux anciens, mais Lu Songyi, l'ancien du stade de la Formation de l'Âme, qui tentait secrètement de récolter les Fruits Dorés Brillants.
+Alors que le gaz gris se propageait, un filament de celui-ci jaillit tel un trait d'épée. Sa cible n'était pas les deux anciens, mais Lu Songyi, l'ancien du stade de la Formation de l'Âme, qui tentait secrètement de récolter les Fruits d'Or Brillants.
 
 L'expression de Lu Songyi changea radicalement. Réalisant qu'il ne pourrait pas bouger à temps, il entreprit de se téléporter. Il savait que cette manœuvre était extrêmement périlleuse, mais à cet instant, il n'avait plus le luxe de s'en soucier. Sa silhouette commença à se distordre, sur le point de disparaître.
 
-Cependant, un froid renâclant émana du gaz gris alors qu'il chargeait vers lui.
+Cependant, un reniflement glacial émana du gaz gris alors qu'il chargeait vers lui.
 
-Après ce ricanement, le gaz gris se referma brusquement et perça l'espace distordu. En un clin d'œil, il transperça le corps de Lu Songyi juste avant qu'il ne puisse achever sa téléportation.
+Après ce reniflement, le gaz gris se referma brusquement et perça l'espace distordu. En un clin d'œil, il transperça le corps de Lu Songyi juste avant qu'il ne puisse achever sa téléportation.
 
 « Toi! » Lu Songyi voulut s'exclamer, mais son corps trembla soudainement et commença à gonfler comme un ballon.
 
@@ -64,7 +64,7 @@ Il avait déjà entendu les rumeurs concernant la liste des élus pour la Mer de
 
 Maintenant qu'il avait Wang Lin face à lui, il décida de jouer sa chance! Il pariait que Wang Lin n'oserait pas agir sans retenue, car ils pourraient tous deux riposter avec force et l'endommager sérieusement, ce qui compromettrait son voyage vers la Mer des Esprits Démoniaques Orientaux.
 
-L'ancien trapu n'avait pas ouvert la bouche depuis l'apparition de Wang Lin, mais ses yeux ne l'avaient pas quitté. En entendant les paroles de Wang Lin, il comprit intérieurement que la situation était périlleuse. D'après ses observations, cet homme n'agissait jamais sans une réflexion approfondie. Plutôt que de perdre du temps en paroles, il préférait qu'ils s'unissent pour attaquer immédiatement. Leurs chances de l'emporter contre un cultivateur de la Transformation de l'Âme au stade intermédiaire, même à deux contre un, n'étaient déjà pas élevées.
+L'ancien trapu n'avait pas ouvert la bouche depuis l'apparition de Wang Lin, mais ses yeux ne l'avaient pas quitté. En entendant les paroles de Wang Lin, il comprit intérieurement que la situation était périlleuse. D'après ses observations, cet homme n'était pas du genre à hésiter ou à peser le pour et le contre. Plutôt que de perdre du temps en paroles, il préférait qu'ils s'unissent pour attaquer immédiatement. Leurs chances de l'emporter contre un cultivateur de la Transformation de l'Âme au stade intermédiaire, même à deux contre un, n'étaient déjà pas élevées.
 
 L'ancien trapu serra les dents et, sans un mot, se lança dans l'action. Il frappa son sac de rangement, et un drapeau couleur de sang apparut dans sa main. D'un revers, une brume écarlate jaillit du drapeau pour recouvrir instantanément tout son corps.
 
@@ -76,7 +76,7 @@ Simultanément, l'ancien se mordit la langue et cracha une importante quantité 
 
 Au moment de sa disparition, une tête illusoire haute d'une trentaine de mètres apparut derrière l'ancien. Cette tête, immense et d'un noir verdâtre, était dépourvue de cheveux et ressemblait à un spectre malveillant. Bien qu'illusoire, elle paraissait presque tangible et dégageait une aura glaciale.
 
-Dès son apparition, la tête poussa un rugissement, s'élança derrière l'ancien et chargea Wang Lin!
+Dès son apparition, la tête poussa un rugissement, s'élança de derrière l'ancien et chargea Wang Lin!
 
 L'ancien trapu ordonna: « Attaquez! »
 
@@ -84,13 +84,13 @@ Shi Fang serra les dents. Sans dire un mot, il forma un sceau et trancha l'air. 
 
 Conscient que leurs chances étaient infimes, Shi Fang cracha également une bouffée de sang essentiel. Il s'assit alors en position du lotus, recueillant son sang au centre de sa paume. Puis, dans un rugissement, il le frappa violemment contre son front.
 
-Dans un bruit de tonnerre, le corps de Shi Fang trembla et une sphère de lumière verte jaillit de son front. Dans cette lueur, l'âme originelle de Shi Fang s'en échappa soudainement; il ouvrit la bouche et une lumière verte aveuglante en rayonna. Cette lumière se mua en une épée de la taille d'un doigt, gravée d'une feuille de saule. Son âme originelle pénétra cette lame pour poursuivre l'énergie d'épée qu'il venait de projeter.
+Dans un bruit de tonnerre, le corps de Shi Fang trembla et une sphère de lumière verte jaillit de son front. Dans cette lueur, l'âme originelle de Shi Fang s'en échappa soudainement; il ouvrit la bouche et une lumière verte aveuglante en rayonna. Cette lumière se mua en une épée volante de la taille d'un doigt, en forme de feuille de saule. Son âme originelle pénétra cette lame pour poursuivre l'énergie d'épée qu'il venait de projeter.
 
 « Acceptez la mort! »
 
 Les deux anciens de la Secte de l'Épée Da Lou au stade initial se battaient déjà de toutes leurs forces.
 
-Wang Lin restait immobile, l'expression impassible et le regard imperturbable. Il fit un pas, leva la main, pressa l'air, et une lueur noire apparut sur ses doigts.
+Wang Lin restait immobile, l'expression impassible et le regard imperturbable. Il fit un pas, leva la main, pressa l'air, et une lueur noire apparut sur son pouce.
 
 Le Doigt de la Mort!
 
@@ -118,4 +118,4 @@ Le sort de vie de l'ancien trapu fut brisé, faisant pâlir instantanément son 
 
 Il était véritablement terrifié!
 
-Il avait déjà utilisé ce sort de Dévoration de l'Esprit Céleste contre un cultivateur de la Transformation de l'Âme au stade intermédiaire. Bien que ce dernier ait fini par briser le sort, il avait été en danger tout au long du combat. Mais Wang Lin l'avait dissipé avec une telle désinvolture... Comment ne pas fuir?
+Il avait déjà utilisé ce sort de Dévoration de l'Esprit Céleste contre un cultivateur de la Transformation de l'Âme au stade intermédiaire. Bien que ce dernier ait fini par briser le sort, il avait été en grand péril tout au long du combat. Mais Wang Lin l'avait dissipé avec une telle désinvolture... Comment ne pas fuir?

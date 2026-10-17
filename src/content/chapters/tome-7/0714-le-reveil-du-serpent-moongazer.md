@@ -20,11 +20,11 @@ Une douleur atroce se propageait à travers le gigantesque Serpent aux yeux de l
 
 Des volutes de brume rouge s'échappaient des innombrables tentacules qui recouvraient la planète. Ces derniers tremblaient avec violence, tandis que des rugissements étouffés semblaient sourdre du globe lui-même.
 
-Tous les tentacules à la surface s'étiraient frénétiquement, leur longueur étant multipliée par plusieurs par rapport aux mille pieds initiaux. Si l'on observait la planète Yun Xia depuis l'espace, elle ressemblerait à un gigantesque oursin!
+Tous les tentacules à la surface s'étiraient frénétiquement, leur longueur étant multipliée par plusieurs par rapport aux dix mille pieds initiaux. Si l'on observait la planète Yun Xia depuis l'espace, elle ressemblerait à un gigantesque oursin!
 
 Au plus profond de la planète Yun Xia, les yeux de Wang Lin brillèrent d'un éclat plus intense encore. Une force d'aspiration infinie émanait de ses bras et se propageait sur les deux segments de l'os. Cette aspiration agissait comme une lame, séparant l'os du corps du Serpent aux yeux de lune.
 
-Au cours de ce processus, le gigantesque serpent tressaillit avec plus de violence encore. D'innombrables fissures apparurent à la surface de la planète et les tentacules s'étendirent davantage. Simultanément, une masse considérable de terre se détacha du corps du Serpent aux yeux de lune. Vu du ciel, on aurait dit que d'immenses quantités de poussière s'arrachaient à la planète pour flotter dans l'espace.
+Au cours de ce processus, le gigantesque serpent tressaillit avec plus de violence encore. D'innombrables fissures apparurent à la surface de la planète et les tentacules s'étendirent davantage. Simultanément, une masse considérable de terre se détacha du corps du Serpent aux yeux de lune. Vu depuis la planète, on aurait dit que d'immenses quantités de terre flottaient et s'élevaient à mi-hauteur dans le ciel.
 
 Pourtant, depuis l'espace, on verrait plutôt d'innombrables masses terrestres se détacher de la planète Yun Xia et dériver lentement.
 
@@ -38,7 +38,7 @@ Sur la planète Yun Xia, le regard de Wang Lin devint encore plus vif. La terre 
 
 Wang Lin se redressa soudainement et se déplaça avec la rapidité de la lumière. Ses yeux contenaient désormais la puissance du tonnerre. Il atteignit instantanément le segment gauche de l'os, agrippa fermement les deux mains et hurla: « Lève-toi! »
 
-Ce rugissement fut comme un coup de tonnerre, déversant toute l'énergie de Wang Lin en échange d'une puissance colossale. D'innombrables veines sur ses bras se gonflèrent, et des éclairs de runes apparurent sous l'effet du cycle de son énergie spirituelle céleste.
+Ce rugissement fut comme un coup de tonnerre, comme si Wang Lin avait expulsé d'un souffle tout l'air vicié de son corps pour gagner une puissance colossale. D'innombrables veines sur ses bras se gonflèrent, et des éclairs de runes apparurent sous l'effet du cycle de son énergie spirituelle céleste.
 
 Ses mains serraient ardemment la section gauche de l'os. Une trace de folie traversait son regard, mais au plus profond de cette démence résidait un calme extraordinaire.
 
@@ -80,7 +80,7 @@ Le fracas fit trembler davantage le monde, et le bruit de l'os frottant contre l
 
 Cette moitié d'os était si massive qu'elle s'étirait sur des kilomètres, telle une chaîne de montagnes. De loin, elle ressemblait à un gigantesque dragon de feu doré!
 
-L'objet étant trop volumineux pour être rangé dans son sac de rangement, Wang Lin dut traîner l'os tout en s'élançant vers le ciel.
+L'objet étant trop volumineux pour être rangé dans son sac de rangement, Wang Lin dut le porter sur son épaule tout en s'élançant vers le ciel.
 
 Sa silhouette paraissait insignifiante face à cet os colossal; sans un regard attentif, on ne pourrait même pas le distinguer.
 

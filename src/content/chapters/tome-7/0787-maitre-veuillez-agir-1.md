@@ -20,13 +20,13 @@ Derrière l'homme en robe dorée, plusieurs cultivateurs serrèrent les dents. I
 
 L'étrange homme aux cheveux blancs laissa échapper un rire sinistre et, en un éclair, son corps sembla fusionner avec le monde, disparaissant sans laisser de trace. Lorsqu'il réapparut, il se tenait déjà près de la porte céleste, là où le gigantesque éclair rouge descendait du ciel.
 
-Dès son apparition, sa main droite traça un sceau et frappa l'éclair pourpre. Un grondement sourd retentit, faisant vibrer les cieux et la terre.
+Dès son apparition, sa main droite traça un sceau et frappa l'éclair rouge. Un grondement sourd retentit, faisant vibrer les cieux et la terre.
 
 « Porte Céleste du Tonnerre, ferme-toi! » Sa voix rauque s'engouffra dans les oreilles des cultivateurs environnants comme un vent glacial.
 
 L'immense éclair rouge commença à se rétracter rapidement.
 
-À cet instant, les cultivateurs alentour réagirent enfin. Ils dégainèrent divers trésors et chargèrent l'inconnu. Parmi eux, une dizaine de cultivateurs au stade Yin Illusoire constituaient la force de frappe principale, fonçant droit sur l'homme aux cheveux blancs.
+À cet instant, les cultivateurs alentour réagirent enfin. Ils dégainèrent divers trésors et chargèrent l'inconnu. Parmi eux, moins de dix cultivateurs au stade Yin Illusoire constituaient la force de frappe principale, fonçant droit sur l'homme aux cheveux blancs.
 
 « Le Royaume Céleste du Tonnerre va se refermer, et vous tous, vous serez ma nourriture! » Le regard de l'homme aux cheveux blancs était d'une froideur absolue. Sans même daigner considérer les attaques qui convergeaient vers lui, il disparut pour réapparaître derrière un cultivateur au stade Ascendant avancé. Sa vitesse défiait l'imagination.
 

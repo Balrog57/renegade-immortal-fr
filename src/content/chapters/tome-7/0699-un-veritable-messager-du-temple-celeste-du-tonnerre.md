@@ -48,7 +48,7 @@ Qing Yi hocha la tête, les yeux remplis de tendresse.
 
 Wang Ping et Qing Yi s'installèrent dans un modeste village de montagne et menèrent une vie paisible. Les années passèrent; ils n'étaient plus jeunes, et le défilé de sa vie traversait souvent l'esprit de Wang Ping.
 
-Sa vie entière se résumait à dix-huit ans de vie ordinaire, huit ans de voyage, vingt-cinq ans de combats et dix ans en tant que dirigeant suprême. Bien que ce fût une existence brève, elle fut plus exaltante que tout ce que des gens ordinaires pourraient jamais connaître.
+Sa vie entière se résumait à dix-neuf ans de vie ordinaire, huit ans de voyage, vingt-cinq ans de combats et dix ans en tant que dirigeant suprême. Bien que ce fût une existence brève, elle fut plus exaltante que tout ce que des gens ordinaires pourraient jamais connaître.
 
 Cependant, il était finalement revenu à son point de départ, à sa vie ordinaire. Chaque matin, il se levait pour sculpter le bois dans la cour. Il y avait une certaine chaleur dans cette banalité. Qing Yi restait toujours derrière lui, l'observant d'un regard doux tandis qu'il sculptait le bois, trait après trait...
 
@@ -94,7 +94,7 @@ Wang Ping dit doucement: « Père avait raison, une vie ordinaire est préférab
 
 À ses côtés, Qing Yi le regarda silencieusement et murmura: « Puisque tu as compris, pourquoi n'irais-tu pas le voir? »
 
-Wang Ping posa la sculpture de son père. C'était un portrait de Wang Lin tel qu'il était dix ans auparavant. Il s'assit devant la table et dit avec douceur: « Allons manger. »
+Wang Ping posa la sculpture de son père. C'était Wang Lin tel qu'il était dix ans auparavant, assis devant la table du repas, disant avec douceur: « Mangeons. »
 
 « Qing Yi, tu ne comprends pas... » La sagesse dans les yeux de Wang Ping s'intensifiait avec l'âge.
 
@@ -108,7 +108,7 @@ Le corps de Qing Yi trembla. Elle s'apprêtait à parler, mais Wang Ping l'inter
 
 « Ces années ont été dures pour toi. En tant que cultivatrice, tu peux changer d'apparence. Pour que je ne me sente pas seul, tu as progressivement vieilli avec moi. Moi, Wang Ping, je ne l'oublierai jamais. S'il y a une autre vie, je ne t'oublierai jamais! »
 
-Des larmes coulèrent sur les joues de Qing Yi. Son niveau de culture avait été élevé par Wang Lin jusqu'au sommet du stade avancé de l'Âme Naissante. Il y a plus de vingt ans, elle avait compris son domaine en accompagnant Wang Ping: son domaine était la Passion sans Regret.
+Des larmes coulèrent sur les joues de Qing Yi. Son niveau de culture avait été élevé par Wang Lin jusqu'au sommet du stade avancé de l'Âme Naissante. Il y a vingt ans, elle avait compris son domaine en accompagnant Wang Ping: son domaine était la Passion sans Regret.
 
 « Je t'accompagnerai même dans l'au-delà! » dit doucement Qing Yi. « La culture n'est que poussière à mes yeux... Je ne veux pas être une céleste impitoyable, je veux simplement être une personne sentimentale... »
 
@@ -126,7 +126,7 @@ Soixante-dix ans auparavant, un bouleversement avait eu lieu sur la planète Mil
 
 D'après les investigations, il semblait que le messager suspect n'avait pas quitté la planète Ran Yun; il avait donc été envoyé ici pour vérifier.
 
-Le niveau de culture de cet homme d'âge moyen avait déjà dépassé le premier stade et se situait au niveau de l'Illusion Yin. Assis sur sa Bête du Tonnerre, il pénétra dans le domaine nord sans ralentir, fonçant droit vers la planète Ran Yun.
+Le niveau de culture de cet homme d'âge moyen avait déjà dépassé le premier stade et se situait au stade Yin Illusoire. Assis sur sa Bête du Tonnerre, il pénétra dans le domaine nord sans ralentir, fonçant droit vers la planète Ran Yun.
 
 « Il y a même des gens qui osent usurper l'identité d'un messager du Temple Céleste du Tonnerre. Une telle insolence ne s'était pas vue depuis bien longtemps! » ricana l'homme. En tant que messager du Temple Céleste du Tonnerre, son pouvoir était immense. Dans tout le Système Stellaire de Luotian, hormis quelques anciennes familles de culture, presque personne n'osait provoquer le Temple.
 

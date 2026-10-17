@@ -54,7 +54,7 @@ C'est durant cette phase que la puissance mystérieuse émanant de la Mer se pro
 
 Chaque fois que la porte s'ouvre, une foule immense s'y engouffre. Si le nombre minimal est de quelques centaines, il peut dépasser les mille participants. Les plus faibles atteignent le stade de la Transformation de l'Âme, tandis que les plus puissants ont effleuré le stade du Yin et du Yang.
 
-C'est là le niveau de culture le plus élevé autorisé, car la planète Tian Yun impose des restrictions strictes: quiconque a atteint le stade de l'Ascendant est formellement interdit d'entrée.
+C'est là le niveau de culture le plus élevé autorisé, car la planète Tian Yun impose des restrictions strictes: quiconque a dépassé le stade de l'Ascendant est formellement interdit d'entrée.
 
 Après tout, ce lieu sert à l'entraînement des disciples; même lors de son ouverture, elle n'est que partiellement accessible afin d'éviter un massacre généralisé.
 
@@ -72,7 +72,7 @@ Ce jour-là, un éclat rouge vint presque recouvrir toute la zone entourant la M
 
 Surgissant de cette lumière rouge sang, un jade géant d'un rouge profond flotta lentement vers la mer. Sur le sommet de ce bloc de jade siégeait une femme. Elle possédait des yeux de phénix rouges et ses sourcils magnifiques étaient empreints d'une intention meurtrière. Sa robe blanche, contrastant violemment avec le jade sanglant, créait un effet visuel saisissant.
 
-Bien qu'assise en position de lotus, sa silhouette élancée était parfaitement décelable. Elle arborait une chevelure noire et soyeuse, un visage délicat d'une pureté de fleur, une peau aussi lisse que du cristal et un nez raffiné. Ses yeux de phénix rouge brillaient comme le soleil éclatant sur la surface d'un lac, mais ils dissimulaient une profondeur et une froideur abyssales. Quiconque s'égarait dans son regard ne serait pas chanceux...
+Bien qu'assise en position de lotus, sa silhouette élancée était parfaitement décelable. Elle arborait une chevelure noire et soyeuse, un visage délicat d'une pureté de fleur, une peau aussi lisse que du cristal et un nez raffiné. Ses yeux de phénix rouge brillaient comme le soleil éclatant sur la surface d'un lac, mais ils dissimulaient une profondeur et une froideur abyssales. Quiconque s'égarait dans son regard serait condamné sans retour...
 
 Elle traversa les airs sur son jade de sang. Tous ceux qui l'aperçurent s'écartèrent pour lui laisser le passage jusqu'aux abords de la Mer des Esprits Démoniaques de l'Est, où elle finit par s'immobiliser dans une zone déserte.
 
@@ -84,17 +84,17 @@ L'Ancêtre du Sang, Yao Xinghai, était un vieux monstre célèbre dans les envi
 
 Cet homme possédait sa propre planète de culture autour de Tian Yun. Il y capturait des indigènes pour se nourrir de leur sang et cultiver ses arts démoniaques.
 
-Yao Xinghai n'avait jamais pris de disciple, à l'exception d'une seule personne: sa fille bien-aimée. Il lui avait transmis toutes ses techniques et avait même défié les lois célestes pour aider son lignage à éveiller ses pouvoirs.
+Yao Xinghai n'avait jamais pris de disciple, à l'exception d'une seule personne: sa fille bien-aimée. Il lui avait transmis toutes ses techniques et avait même défié les lois célestes pour changer son destin et lui faire acquérir des pouvoirs divins.
 
 Ce duo père-fille passait le plus clair de son temps sur la Planète du Sang, loin de tout contact social. Mais plus ils restaient isolés, moins on osait s'en prendre à eux.
 
-Loin de ces événements, sur la Planète Terre — l'une des cinq planètes orbitant autour de Tian Yun — et juste devant le grand réseau de transfert de la Secte Xuan Yuan, le jeune maître de la secte, Sun Yunshan, se tenait là, silencieux. Malgré son calme apparent, il tapotait nerveusement sa paume avec son éventail tout en scrutant l'horizon.
+Loin de ces événements, sur la Planète Terre — l'une des cinq planètes orbitant autour de Tian Yun — et juste devant le grand réseau de transfert de la Secte Xuan Yuan, le jeune maître de la secte, Sun Yunshan, se tenait là, silencieux. Malgré son calme apparent, il tapotait machinalement sa paume avec son éventail tout en scrutant l'horizon.
 
 Trois silhouettes le suivaient!
 
 Il s'agissait de trois vieillards aux cheveux blancs. Bien que vêtus simplement, ils dégageaient une aura terrifiante qui semblait raréfier l'air environnant.
 
-À la périphérie du réseau de transfert, plusieurs centaines de disciples de la Secte Xuan Yuan étaient assis en divers points, pratiquant leur culture en silence. Ils attendaient l'ordre d'utiliser leur énergie spirituelle pour stimuler l'Énergie Céleste du réseau et l'activer.
+À la périphérie du réseau de transfert, plusieurs centaines de disciples de la Secte Xuan Yuan étaient assis en divers points, pratiquant leur culture en silence. Ils attendaient l'ordre de libérer toute l'énergie spirituelle de leur corps et, de concert avec les jades immortels du réseau, l'activer.
 
 Tandis que Sun Yunshan tapotait doucement son éventail de jade, son visage demeurait serein, sans trace d'impatience.
 

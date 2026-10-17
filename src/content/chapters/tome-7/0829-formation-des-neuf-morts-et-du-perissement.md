@@ -8,25 +8,25 @@ slug: formation-des-neuf-morts-et-du-perissement
 ---
 Cette vengeance brutale s'intensifia rapidement. Ce fut comme un coup de tonnerre frappant les cultivateurs qui traquaient Wang Lin, faisant trembler leurs esprits.
 
-Le fait que Wang Lin n'ait pas tué les cultivateurs au stade de la Transformation de l'Âme ou en dessous signifiait qu'il leur laissait encore une issue. Cependant, la portée sanglante de cet acte était évidente.
+Le fait que Wang Lin n'ait pas tué les cultivateurs en dessous du stade de la Transformation de l'Âme signifiait qu'il leur laissait encore une issue. Cependant, la portée sanglante de cet acte était évidente.
 
 « S'ils continuent à s'impliquer dans cette affaire, alors ceux qui sont en dessous du stade de la Transformation de l'Âme seront exécutés! »
 
 D'innombrables tempêtes de colère éclatèrent immédiatement. Les cultivateurs dont les familles avaient été massacrées semblaient avoir perdu la raison; ils ne reculèrent pas et jurèrent de venger Xu Mu!
 
-Cependant, encore plus de familles de cultivateurs se montrèrent hésitantes, en particulier celles du Domaine de l'Ouest. On ignorait qui avait pris l'initiative, mais bientôt, elles quittèrent toutes discrètement les lieux pour retourner sur leurs planètes de culture. Soudain, le blocus dans le Domaine de l'Ouest commença à s'étioler. De nombreuses familles de cultivateurs évaluèrent la vengeance sanglante de Wang Lin et, après un long moment, finirent par se retirer lentement.
+Cependant, encore plus de familles de cultivateurs se montrèrent hésitantes, en particulier celles du Domaine Occidental. On ignorait qui avait pris l'initiative, mais bientôt, elles quittèrent toutes discrètement les lieux pour retourner sur leurs planètes de culture. Soudain, le blocus dans le Domaine Occidental commença à s'étioler. De nombreuses familles de cultivateurs évaluèrent la vengeance sanglante de Wang Lin et, après un long moment, finirent par se retirer lentement.
 
 Après tout, exposer leurs cadets à la mort pour les simples bénéfices de la famille Yao dépassait leur ligne de conduite. Plus important encore, les actions de Wang Lin avaient fait ressentir un frisson glacial dans le cœur de ces cultivateurs dont l'intérêt primordial résidait dans leurs familles.
 
 Ils pouvaient ressentir la folie qui émanait de Wang Lin. S'ils persévéraient, ils ne savaient pas ce qu'il serait capable de faire.
 
-Outre les familles du Domaine de l'Ouest, celles des autres domaines commencèrent à hésiter, mais peu partirent. Après tout, leurs familles n'étaient pas dans le Domaine de l'Ouest. Pour eux, ce Xu Mu mourrait inévitablement et ne faisait que se débattre avant la fin.
+Outre les familles du Domaine Occidental, celles des autres domaines commencèrent à hésiter, mais peu partirent. Après tout, leurs familles n'étaient pas dans le Domaine Occidental. Pour eux, ce Xu Mu mourrait inévitablement et ne faisait que se débattre avant la fin.
 
-Peu importe ses efforts, il restait prisonnier du Domaine de l'Ouest. Puisqu'il ne pouvait s'échapper, la question de la vengeance n'avait plus lieu d'être.
+Peu importe ses efforts, il restait prisonnier du Domaine Occidental. Puisqu'il ne pouvait s'échapper, la question de la vengeance n'avait plus lieu d'être.
 
-Bien que ce fût le cas, Wang Lin sentait clairement que la pression du blocus dans le Domaine de l'Ouest s'atténuait. Cependant, durant cette période, il sentait aussi que la femme capable de fusionner avec le monde se rapprochait de plus en plus. À plusieurs reprises, elle avait failli le rattraper.
+Bien que ce fût le cas, Wang Lin sentait clairement que la pression du blocus dans le Domaine Occidental s'atténuait. Cependant, durant cette période, il sentait aussi que la femme capable de fusionner avec le monde se rapprochait de plus en plus. À plusieurs reprises, elle avait failli le rattraper.
 
-Wang Lin fronça les sourcils. La poursuite de l'adversaire était bien trop proche. L'espace dans le Domaine de l'Ouest où Wang Lin pouvait manœuvrer rétrécissait également de façon rapide. S'il ne trouvait pas un moyen de s'en extraire, il se retrouverait dans une situation périlleuse!
+Wang Lin fronça les sourcils. La poursuite de l'adversaire était bien trop proche. L'espace dans le Domaine Occidental où Wang Lin pouvait manœuvrer rétrécissait également de façon rapide. S'il ne trouvait pas un moyen de s'en extraire, il se retrouverait dans une situation périlleuse!
 
 La silhouette de Wang Lin apparut parmi les étoiles et il fronça les sourcils. L'intention meurtrière qui s'était condensée ces derniers jours était si puissante qu'elle semblait presque prendre corps.
 
@@ -40,7 +40,7 @@ Wang Lin fusionna également avec le monde dans l'intention de perdre Yao Bingyu
 
 En restant fusionné avec le monde jusqu'à ce que cela lui soit douloureux, Wang Lin parvint enfin à faire perdre sa trace à Yao Bingyun. Cependant, cela lui coûta trois jours!
 
-Durant ces trois jours, le blocus formé par les cultivateurs du Domaine de l'Ouest s'était considérablement resserré, tel un cercle qui se contracte sans cesse!
+Durant ces trois jours, le blocus formé par les cultivateurs du Domaine Occidental s'était considérablement resserré, tel un cercle qui se contracte sans cesse!
 
 Une puissante intention meurtrière s'était accumulée au sein du blocus. Cette aura était si intense qu'elle repoussait la poussière de l'espace.
 
@@ -82,7 +82,7 @@ Il s'enfonça dans les profondeurs de la planète et s'assit. Une lueur meurtri�
 
 Avec un ricanement, Wang Lin ferma les yeux. Il ne laissait transparaître aucune trace de son aura; c'était comme s'il avait fusionné avec la planète elle-même.
 
-Le temps s'écoula. Trois jours plus tard, le blocus dans le Domaine de l'Ouest continuait de se resserrer. Ce jour-là, la première vague de cultivateurs atteignit la planète où se cachait Wang Lin.
+Le temps s'écoula. Trois jours plus tard, le blocus dans le Domaine Occidental continuait de se resserrer. Ce jour-là, la première vague de cultivateurs atteignit la planète où se cachait Wang Lin.
 
 Une femme menait la troupe: Yao Bingyun. Son expression était glaciale tandis que sa main droite formait un sceau, comme si elle pratiquait une divination. Son regard se posa sur la planète et, ses yeux s'illuminèrent, elle déclara froidement: « Xu Mu est ici! »
 
@@ -138,7 +138,7 @@ Des rugissements et des cris de rage résonnèrent. Les cultivateurs piégés ut
 
 Cependant, la puissance des explosions semblait avoir fusionné pour devenir extrêmement redoutable. En se propageant, si un cultivateur mourait, son âme d'origine ne pouvait absolument pas s'échapper; elle était absorbée par la tempête et forcée d'exploser à son tour, devenant ainsi une partie de cette force destructrice.
 
-Toutefois, de nombreux cultivateurs Illusoires Yin et Corporels Yang figuraient parmi les poursuivants. Après le tumulte initial, ils se regroupèrent. La contre-attaque qu'ils formèrent fut d'une puissance inouïe.
+Toutefois, de nombreux cultivateurs Yin Illusoire et Corporel Yang figuraient parmi les poursuivants. Après le tumulte initial, ils se regroupèrent. La contre-attaque qu'ils formèrent fut d'une puissance inouïe.
 
 Sous la direction de Yao Bingyun, chaque fois qu'elle attaquait, une grande partie de la force destructrice de la formation s'effondrait. C'était comme si la tempête qui se contractait et dévorait tout ne pouvait plus rien engloutir; au contraire, elle était repoussée vers l'extérieur par la riposte des cultivateurs.
 
@@ -192,4 +192,4 @@ Les récits des combats entre Xu Mu et la famille Yao furent propagés et devinr
 
 Le nom « Xu Mu » était devenu légendaire!
 
-Dans le Temple Céleste du Tonnerre, au sommet de la Pagode Nuageuse, Qing Shui méditait les yeux clos. Il ouvrit les paupières, regarda au loin et murmura: « Cet enfant possède un style semblable au mien dans ma jeunesse, très bien! »
+Dans le Temple Céleste du Tonnerre, au sommet du Pavillon des Nuages, Qing Shui méditait les yeux clos. Il ouvrit les paupières, regarda au loin et murmura: « Cet enfant possède un style semblable au mien dans ma jeunesse, très bien! »

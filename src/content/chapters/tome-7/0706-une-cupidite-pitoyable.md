@@ -14,7 +14,7 @@ La première condition pour raffiner une marionnette était que la personne raff
 
 Wang Lin dit calmement: « Je tiendrai ma promesse, mais cette seconde étape ne pourra aboutir que si tu es d'accord. Afin d'éviter tout accident, j'ai dû forcer ton âme originelle à sortir. » De sa main droite, il fit signe au gardien céleste et à la Bête du Tonnerre de s'emparer immédiatement du Daoïste du Tonnerre. Si celui-ci tentait quoi que ce soit, ils attaqueraient sans la moindre hésitation.
 
-Sans accorder un regard à l'âme originelle du Daoïste du Tonnerre, Wang Lin saisit le corps de ce dernier. Après avoir récupéré le sac de stockage, il cracha une nouvelle bouffée d'énergie originelle qui enveloppa le corps du Daoïste du Tonnerre.
+Sans accorder un regard à l'âme originelle du Daoïste du Tonnerre, Wang Lin saisit le corps de ce dernier. Après avoir récupéré le sac de rangement, il cracha une nouvelle bouffée d'énergie originelle qui enveloppa le corps du Daoïste du Tonnerre.
 
 L'âme originelle du Daoïste du Tonnerre affichait une humeur extrêmement sombre alors qu'il fixait froidement Wang Lin. Il voulait voir quelle sorte d'empreinte ce Xu Mu allait laisser!
 
@@ -38,7 +38,7 @@ Cependant, il n'osait pas agir avec imprudence. Le sceau posé sur son âme orig
 
 « Trop bruyant! » Wang Lin fronça les sourcils et fit un geste de la main. Deux rayons de l'énergie d'épée de Ling Tianhou jaillirent, remplissant instantanément la grotte. Cette énergie était imprégnée du domaine tyrannique de Ling Tianhou. Sous la pression de ces deux rayons, le Daoïste du Tonnerre se tut immédiatement. L'horreur dans ses yeux redoubla lorsqu'il vit l'éclat de cette énergie d'épée.
 
-Son regard amer balaya les dangers qui l'entouraient. Sans compter qu'en l'état actuel, alors qu'il manquait cruellement d'énergie originelle, il n'oserait pas se précipiter même s'il l'avait retrouvée intégralement. Ce qu'il craignait par-dessus tout, c'étaient ces deux rayons d'énergie d'épée!
+Son regard amer balaya les dangers qui l'entouraient. Sans parler de son état actuel, privé d'énergie originelle: même au sommet de sa puissance, il n'aurait pas osé affirmer pouvoir briser cet encerclement avec une entière certitude. Ce qu'il craignait par-dessus tout, c'étaient ces deux rayons d'énergie d'épée!
 
 Une fois le Daoïste du Tonnerre réduit au silence, le Sens Divin de Wang Lin se déploya pour couvrir la planète entière. Après un long moment, ses yeux se plissèrent et il leva sa main droite. Les environs tremblèrent et la rivière des enfers apparut dans le ciel, à l'extérieur de la grotte.
 
@@ -74,9 +74,9 @@ Dans le système stellaire de Luotian, la planète Yun Xia était une terre de m
 
 Soudain, le brouillard épais commença à s'agiter violemment, comme si quelque chose tentait de s'en extraire. Ce tumulte dans la brume devint de plus en plus intense.
 
-En un instant, un corps frêle vêtu de haillons jaillit dans un état lamentable. Ses yeux étaient pétris de terreur tandis qu'il s'élançait, suivi par un immense fourneau qui semblait le poursuivre.
+En un instant, un corps frêle vêtu de haillons jaillit dans un état lamentable. Ses yeux étaient pétris de terreur tandis qu'il s'élançait, devant lui se trouvait un immense fourneau.
 
-Alors qu'il était sur le point de franchir la limite du brouillard, son visage émacié fut pris d'extase. C'était la huitième fois en plus de soixante ans qu'il tentait de s'échapper... Mais à cet instant précis, un long tentacule frappa à une vitesse inimaginable depuis la planète Yun Xia. Il enroula la silhouette frêle et le traîna impitoyablement vers les profondeurs.
+Alors qu'il était sur le point de franchir la limite du brouillard, son visage émacié fut pris d'extase. C'était la huitième fois en plus de soixante-dix ans qu'il tentait de s'échapper... Mais à cet instant précis, un long tentacule frappa à une vitesse inimaginable depuis la planète Yun Xia. Il enroula la silhouette frêle et le traîna impitoyablement vers les profondeurs.
 
 Cet homme s'appelait Cupidité. Saisi par le tentacule et entraîné rapidement vers le bas, il regarda le brouillard dense qui l'entourait, ses yeux révélant un désespoir total.
 

@@ -68,7 +68,7 @@ Bien que le visage de Chen Tao fût assombri, l'intention de combat dans ses yeu
 
 Wang Lin fixa Chen Tao et répondit lentement: « Tu n'as pas les qualifications pour être mon aîné! »
 
-Chen Tao regarda Wang Lin, éclata de rire et déclara: « Combattre cette bête va me coûter un peu de temps, mais dès que je t'aurai capturé, cette bête ne pourra plus s'échapper! »
+Chen Tao regarda Wang Lin, éclata de rire et déclara: « Combattre cette bête va me coûter un peu de temps, mais dès que je t'aurai capturé, cette bête ne pourra plus s'échapper! Regarde donc si j'ai, oui ou non, la qualification pour être ton aîné! »
 
 L'adversaire était un cultivateur Ascendant; Wang Lin savait qu'il n'était pas de taille, mais il ne pouvait pas simplement capituler. Même en cas de défaite, il voulait que cet homme sache qu'on ne devait pas le sous-estimer.
 
@@ -84,7 +84,7 @@ Cette scène stupéfia la majorité des cultivateurs environnants. Même l'Omnis
 
 Parmi les spectateurs, un vieil homme au visage rubicond, portant une immense gourde rouge dans le dos, laissa échapper un rot d'ivrogne en murmurant: « Pourquoi ce sort ressemble-t-il exactement à celui utilisé par ce fou que j'ai croisé en chemin? »
 
-Lorsque Chen Tao fut à 16 mètres de Wang Lin, il fut soudainement envahi par un sentiment de danger qu'il n'avait pas ressenti depuis une éternité. La dernière fois, c'était face à de grands maîtres anciens. À cet instant précis, toute l'aura vitale de Wang Lin disparut. Seuls ses yeux brillaient, mais ils étaient empreints de la froideur de la mort. Ce regard glaça Chen Tao!
+Lorsque Chen Tao fut à 16 mètres de Wang Lin, il fut soudainement envahi par un sentiment de danger qu'il n'éprouvait presque plus ces dernières années, sauf face à de vieux monstres. À cet instant précis, toute l'aura vitale de Wang Lin disparut. Seuls ses yeux brillaient, mais ils étaient empreints de la froideur de la mort. Ce regard glaça Chen Tao!
 
 « Quel genre de regard est-ce là?! Même ceux qui cultivent le Dao impitoyable ne peuvent posséder une telle expression! »
 
@@ -94,7 +94,7 @@ Le Doigt des Enfers était le dernier des sorts mortels de Situ Nan. Cultiver ce
 
 À l'époque, Situ Nan avait atteint l'illumination lors de cette transition entre les deux mondes tout en pratiquant sa méthode, puis il l'avait combinée avec un sort céleste pour créer ce sort mortel. Situ Nan se vantait fièrement que, bien que la puissance de ce sort ne surpassât pas celle du sort céleste brisé, elle n'en était pas loin! C'est pour cette raison qu'il exigeait d'atteindre le stade Ascendant pour être utilisé librement.
 
-D'un simple mouvement du petit doigt, le ciel s'obscurcit soudainement et des éclairs déchirèrent les nuées. Au même moment, le firmament sembla s'ouvrir sous l'action de deux mains gigantesques, et un immense parchemin représentant montagnes et rivières apparut dans les cieux.
+D'un simple mouvement du petit doigt, le ciel s'obscurcit soudainement et des éclairs déchirèrent les nuées. Au même moment, le firmament sembla être écarté d'une seule main, et un immense parchemin représentant montagnes et rivières apparut dans les cieux.
 
 Ce Doigt des Enfers activa le domaine de Wang Lin. Des vagues de gaz gris jaillirent du parchemin avec frénésie et commencèrent à se rassembler à une vitesse prodigieuse, formant un second Doigt des Enfers.
 
@@ -110,9 +110,9 @@ Le corps de Wang Lin fut projeté en arrière d'une centaine de mètres, puis re
 
 Quant à Chen Tao, son expression était redevenue normale alors qu'il baissait ses bras, fixant Wang Lin d'un regard indifférent. Son intention de combat ne faiblit pas, elle s'intensifia même lorsqu'il déclara solennellement: « Une fois que tu auras atteint le stade Ascendant, nous nous battrons à nouveau, Septième Frère! »
 
-Chen Tao prit une profonde inspiration pour réprimer la violente énergie spirituelle céleste qui bouillonnait en lui. L'attaque de Wang Lin avait été totalement imprévue! S'il n'avait pas rencontré de chance sur son chemin et atteint le stade intermédiaire de l'Ascendance, il aurait sans doute été blessé malgré sa capacité à encaisser le coup.
+Chen Tao prit une profonde inspiration pour réprimer la violente énergie spirituelle céleste qui bouillonnait en lui. L'attaque de Wang Lin avait été totalement imprévue! S'il n'avait pas rencontré de chance sur son chemin et atteint le stade intermédiaire de l'Ascendant, il aurait sans doute été blessé malgré sa capacité à encaisser le coup.
 
-L'Omniscient observa Wang Lin. L'admiration dans ses yeux grandit et il sourit: « Vous appartenez tous deux à la Division Pourpre et êtes mes disciples, alors ne gardez aucune rancœur l'un envers l'autre. Chen Tao, tu as vaincu aujourd'hui, tu seras donc le véritable disciple de la Division Pourpre! »
+L'Omniscient observa Wang Lin. L'admiration dans ses yeux grandit et il sourit: « Vous appartenez tous deux à la Division Violette et êtes mes disciples, alors ne gardez aucune rancœur l'un envers l'autre. Chen Tao, tu as vaincu aujourd'hui, tu seras donc le véritable disciple de la Division Violette! »
 
 Sur ces mots, l'Omniscient pointa l'espace entre ses sourcils; un cristal pourpre d'une pureté cristalline apparut sur son front et tomba dans sa main. Il lança ensuite le cristal, qui vola dans un rayon de lumière pourpre vers Chen Tao et s'inséra entre ses sourcils.
 
@@ -130,4 +130,4 @@ Les yeux de l'Omniscient devinrent sérieux et il hocha la tête. Il se tourna v
 
 Wang Lin répondit respectueusement, les yeux étincelants.
 
-Un sort interdit! Ce n'est qu'une fois devenu véritablement le disciple de l'Omniscient et après avoir vénéré l'esprit ancestral que l'on pouvait étudier ce sort interdit, créé par l'Omniscient en imitant un sort céleste. C'était une opportunité que des dizaines de milliers de personnes auraient désirée plus que tout.
+Un sort interdit! Ce n'est qu'une fois devenu véritablement le disciple de l'Omniscient et après avoir vénéré l'esprit ancestral que l'on pouvait étudier ce sort interdit, créé par l'Omniscient en imitant un sort céleste. C'était une opportunité que d'innombrables personnes auraient désirée plus que tout.

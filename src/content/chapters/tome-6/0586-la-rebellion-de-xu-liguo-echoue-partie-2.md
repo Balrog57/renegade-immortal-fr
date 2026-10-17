@@ -18,9 +18,9 @@ Bien que Xu Liguo ait réussi à résister à la restriction par quelque moyen i
 
 Xu Liguo s'enfuyait à toute allure. Autrefois simple âme, il était désormais un esprit d'épée, et sa vitesse surpassait de loin celle qu'il possédait autrefois. En cet instant, mû par la terreur, il déployait toute sa puissance, fuyant tel un fantôme désespéré.
 
-« Diable! J'ai tant contribué et pourtant tu as essayé de me tuer. N'avais-je pas simplement trouvé une petite beauté que j'aimais? N'avais-je pas simplement caché un petit secret? N'avais-je pas seulement décidé de trouver une occasion de saisir l'épée céleste et la petite lame noire pour m'enfuir? Euh... » Xu Liguo laissa échapper un soupir en comprenant enfin pourquoi ce démon voulait sa peau.
+« Diable! J'ai tant contribué et pourtant tu as essayé de me tuer. N'avais-je pas simplement trouvé une petite beauté que j'aimais? N'avais-je pas simplement caché un petit secret? N'avais-je pas seulement décidé de trouver une occasion d'emporter l'épée céleste et la petite lame noire pour m'enfuir? Euh... » Xu Liguo laissa échapper un soupir en comprenant enfin pourquoi ce démon voulait sa peau.
 
-Après sa rencontre avec la petite lame noire, il avait appris de nombreux sorts propres aux esprits d'épée. De plus, avec l'aide de ce dernier, ils avaient déployé d'immenses efforts pour réussir à assouplir la restriction que Wang Lin avait placée en lui.
+Après sa rencontre avec la petite lame noire, les deux âmes avaient conversé à longueur de journée et il avait appris de nombreux sorts propres aux esprits d'épée. De plus, avec l'aide de ce dernier, ils avaient déployé d'immenses efforts pour réussir à assouplir la restriction que Wang Lin avait placée en lui.
 
 Xu Liguo étant d'un naturel craintif, il s'était montré extrêmement prudent. Il avait profité du moment où Wang Lin était engagé dans une lutte acharnée contre un autre adversaire pour desserrer le sceau en lui, de sorte que Wang Lin ne s'en soit effectivement pas rendu compte.
 
@@ -52,7 +52,7 @@ Wang Lin tendit deux doigts pour l'intercepter, mais la lame parvint à l'évite
 
 Le fracas du métal retentit une nouvelle fois, et la lame noire fut de nouveau repoussée. Cette fois, elle semblait habitée par une rage extrême; elle recula pour tenter une nouvelle attaque, mais soudain, elle se tourna vers Xu Liguo, comme si elle voulait l'emporter avec elle pour s'enfuir.
 
-« Intéressant! » Les yeux de Wang Lin s'illuminèrent. Grâce aux sceaux de vie qui la harcelaient, la lame était bien plus facile à manipuler qu'auparavant.
+« Intéressant! » Les yeux de Wang Lin s'illuminèrent. Grâce à l'aide des sceaux de vie, affronter cette lame pour la deuxième fois était bien plus facile que la première fois, jadis.
 
 Alors que la lame noire fonçait vers Xu Liguo, Wang Lin fit un pas, et l'énergie spirituelle céleste se propagea instantanément autour de son pied, prenant celui-ci pour centre. Cette énergie s'étendit sur plus de trois cents mètres, entrant en résonance avec le sceau à l'intérieur du corps de Xu Liguo, ce qui figea ce dernier sur place.
 
@@ -68,4 +68,4 @@ La lame noire, prise d'une grande inquiétude, voulut interrompre ce processus, 
 
 Wang Lin ignora Xu Liguo et tendit la main vers la lame noire.
 
-La lame voulut encore esquiver, mais le regard de Wang Lin se glaça et il rugit: « Aura du massacre! »
+La lame voulut encore esquiver, mais le regard de Wang Lin se glaça et il rugit: « Énergie de massacre! »

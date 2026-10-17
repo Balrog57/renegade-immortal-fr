@@ -7,17 +7,17 @@ en: Chapter 626 - Identity of the White-Robed Female Corpse
 slug: lidentite-de-la-femme-a-la-robe-blanche
 ---
 
-« Le Stylo d'Inspiration Immortelle est un trésor imprégné de la puissance du Grand Yin. Mon père a collecté douze étoiles et les a transformés en douze symboles que l'on peut tracer avec ce stylo. Sa puissance est satisfaisante.
+« Le Stylo d'Inspiration Immortelle est un trésor imprégné de la puissance du Grand Yin. Mon père a collecté douze étoiles et les a transformés en douze symboles empreints de la puissance primordiale, que l'on peut tracer avec ce stylo. Sa puissance est satisfaisante.
 
 « Le Filet de Capture Céleste... Bien que ce trésor soit assez ordinaire, l'âme qui l'habite semble avoir acquis une certaine intelligence. Il est très intéressant, je pense donc qu'il vous plaira.
 
 « Quant au troisième trésor, il est préférable de l'utiliser avec votre Épée Céleste de la Pluie. Ce trésor s'appelle le Fourreau Spirituel. Placer l'épée céleste à l'intérieur permet de renforcer l'esprit de l'arme. Mon père a utilisé le Métal Céleste d'Origine provenant du Bassin de Purification Céleste pour le fabriquer.
 
-« En ce qui concerne le sort céleste, bien qu'il s'agisse d'un sort de basse qualité au pouvoir ordinaire, il est très fascinant. Ce sort se nomme le Sort d'Arrêt. Mon père l'a découvert par accident sur une planète mystérieuse. Malheureusement, il était incomplet, mais mon père a réussi à le restaurer après l'avoir étudié.
+« En ce qui concerne le sort céleste, bien qu'il s'agisse d'un sort de basse qualité au pouvoir ordinaire, il est très fascinant. Ce sort se nomme le Sort d'Arrêt. Mon père l'a découvert par accident sur une mystérieuse planète antique. Malheureusement, il était incomplet, mais mon père a réussi à le restaurer après l'avoir étudié.
 
 « Mon père pressent qu'il ne s'agit que d'une partie d'un vaste sort combiné. Hélas, ce que j'ai trouvé étant incomplet, je n'ai pu restaurer l'intégralité de la technique. »
 
-L'excitation sur le visage de Wang Lin s'apaisa progressivement. Le jade était divisé en trois parties. La première contenait une description détaillée et des instructions pour trois trésors célestes.
+L'excitation sur le visage de Wang Lin s'apaisa progressivement. Le jade était divisé en trois parties. La première contenait une description détaillée et des instructions pour trois trésors célestes ainsi que pour le sort céleste.
 
 Il n'y avait aucune restriction sur cette première partie, qui pouvait être consultée aisément. Quant aux deux autres, elles étaient protégées par des sceaux. Lorsqu'on tentait de les sonder avec son Sens Divin, on ne percevait que des images et des mots chaotiques, rendant toute lecture impossible.
 
@@ -27,11 +27,11 @@ Une remarque était également gravée dans le jade: « Mon père a placé une r
 
 Cependant, ce jade existait depuis bien trop longtemps; assez longtemps pour que, même avec la puissante culture de son propriétaire, le passage des âges ne puisse être totalement compensé. La restriction de la première section avait disparu, et celle de la deuxième s'était considérablement affaiblie. Seule la restriction de la dernière partie était restée parfaitement intacte.
 
-« Parmi les trois trésors célestes, je n'en vois que deux. Le Fourreau Spirituel est absent... Ces objets furent offerts à une femme nommée Qin Shuang. Si son nom est Qin, alors son père est... »
+« Parmi les trois trésors célestes, je n'en vois que deux. Le Fourreau Spirituel est absent... Ces objets furent offerts à une femme nommée Qing Shuang. Si son nom est Qing, alors son père est... »
 
 Les yeux de Wang Lin s'illuminèrent et il murmura: « L'Empereur Céleste Qing Lin! »
 
-Après avoir examiné attentivement le jade dans sa main, Wang Lin se mit à réfléchir. Il ferma les yeux. « D'après le ton de ces inscriptions, cette Qin Shuang était la fille de l'Empereur Céleste de la Pluie. Elle possédait également une arme appelée l'Épée Céleste de la Pluie... » Il ouvrit soudainement les yeux dans un éclat de lumière dorée.
+Après avoir examiné attentivement le jade dans sa main, Wang Lin se mit à réfléchir. Il ferma les yeux. « D'après le ton de ces inscriptions, cette Qing Shuang était un Seigneur Céleste du Royaume Céleste de la Pluie. Elle possédait également une arme appelée l'Épée Céleste de la Pluie... » Il ouvrit soudainement les yeux dans un éclat de lumière dorée.
 
 « L'Épée Céleste de la Pluie... L'Épée Céleste de la Pluie... Une telle coïncidence pourrait-elle exister dans ce monde... La femme à la robe blanche dont le senior Zhou Yi était si épris... Serait-elle la fille de l'Empereur Céleste Qing Lin?! » Wang Lin réfléchit un instant avant de tapoter son sac de rangement. La pagode que Zhou Yi lui avait donnée en sortit. Avant qu'elle ne puisse croître, la main droite de Wang Lin traça un sceau et pointa la structure. Le corps de la femme en blanc, d'une beauté capable de faire s'emballer n'importe quel cœur, s'envola lentement.
 
@@ -45,15 +45,15 @@ Une goutte de sang rouge perla de la blessure sur le poignet de la femme à la r
 
 Wang Lin retira l'énergie d'épée de Ling Tianhou et recueillit la goutte de sang. D'un revers de manche, il renvoya la femme dans la pagode, puis remit celle-ci dans son sac de rangement.
 
-« Je n'ai besoin que de ce test pour savoir si tu es réellement Qin Shuang! » Wang Lin pressa sans l'ombre d'une hésitation la goutte de sang contre le jade.
+« Je n'ai besoin que de ce test pour savoir si tu es réellement Qing Shuang! » Wang Lin pressa sans l'ombre d'une hésitation la goutte de sang contre le jade.
 
 Au contact du sang, celui-ci se mua instantanément en une brume rouge qui pénétra progressivement dans la pierre. Des craquements retentirent alors que le jade vert perdait une de ses couches protectrices. Un jade d'un vert cristallin, parcouru d'une fine ligne écarlate, apparut.
 
-Wang Lin ne prit même pas la peine d'admirer la beauté de l'objet; il le balaya de son Sens Divin. Il prit soudain une inspiration glacée et resta interdit.
+Wang Lin ne prit même pas la peine d'admirer la beauté de l'objet; il le balaya de son Sens Divin. Il prit soudain une inspiration glacée et se plongea dans ses pensées.
 
 Les sceaux des deux dernières parties du jade venaient d'être levés!
 
-« Elle... était bel et bien Qin Shuang... » soupira Wang Lin. Son Sens Divin retourna dans le jade pour explorer le contenu des deux sections restantes.
+« Elle... était bel et bien Qing Shuang... » soupira Wang Lin. Son Sens Divin retourna dans le jade pour explorer le contenu des deux sections restantes.
 
 Le temps s'écoula lentement. Wang Lin resta immergé dans les secrets du jade pendant une durée indéterminée.
 
@@ -83,7 +83,7 @@ Wang Lin referma sa main droite et les dix fragments fusionnèrent en un seul. P
 
 Une fois le fragment récupéré, l'âme originelle du vieil homme fut projetée hors de la tour et dévorée par le nuage noir extérieur, devenant un simple fragment d'âme parmi d'autres. Quant au corps, Wang Lin ne daigna même pas le regarder; d'un revers de manche, il le réduisit en poussière.
 
-L'une des raisons pour lesquelles il l'avait jeté à la bannière de l'âme était d'éviter le gaspillage: après tout, il s'agissait d'une âme originelle au stade tardif de la Transformation de l'Âme. L'autre raison était l'intérêt de Wang Lin pour la grotte que le vieillard avait découverte.
+L'une des raisons pour lesquelles il l'avait jeté à l'Étendard de l'Âme était d'éviter le gaspillage: après tout, il s'agissait d'une âme originelle au stade tardif de la Transformation de l'Âme. L'autre raison était l'intérêt de Wang Lin pour la grotte que le vieillard avait découverte.
 
 Toutefois, Wang Lin savait qu'il n'était pas temps de partir. L'essentiel était d'utiliser les quelques décennies restantes pour porter sa culture et ses trésors magiques vers un nouveau sommet. Il devait se préparer pour l'accord centenaire conclu avec l'Ancien Démon.
 
@@ -93,11 +93,11 @@ En pensant au sort, Wang Lin laissa poindre une pointe d'excitation. C'était un
 
 Après tout, les sorts célestes étaient d'une rareté absolue. Même des êtres comme l'Omniscient en brûlaient d'envie, alors imaginez pour quelqu'un comme Wang Lin. Les sorts célestes étaient de véritables pouvoirs, des techniques dont la puissance surpassait de loin celle des sorts ordinaires!
 
-La Terre des Esprits Démoniaques attirait tant de cultivateurs que certains étaient prêts à massacrer ou à se prosterner devant les indigènes, tout cela pour une chance de fusionner avec un ancien démon et d'apprendre un sort céleste. À la Secte du Destin Céleste, il fallait occuper le rang de disciple véritable pendant des années incalculables avant d'espérer en recevoir un. Et même là, l'Omniscient ne choisissait jamais le meilleur, mais un sort ordinaire.
+La Terre des Esprits Démoniaques attirait tant de cultivateurs que certains étaient prêts à massacrer ou à se prosterner devant les indigènes, tout cela pour une chance de fusionner avec un ancien démon et d'apprendre un sort céleste. À la Secte du Destin Céleste, il fallait conserver pendant des années incalculables le titre de l'un des Sept Disciples du Destin Céleste avant d'espérer en recevoir un. Et même là, l'Omniscient ne choisissait jamais le meilleur, mais un sort ordinaire.
 
 « Le Sort d'Arrêt! » Wang Lin prit une profonde inspiration et l'incantation apparut dans son esprit. Il ferma lentement les yeux pour s'immerger dans la technique.
 
-Le temps passa silencieusement; en un clin d'œil, vingt ans s'étaient écoulés.
+Le temps passa silencieusement; en un clin d'œil, plus de vingt ans s'étaient écoulés.
 
 La guerre entre le Pays Démoniaque Céleste et le Pays Démoniaque du Feu s'éternisait. L'intensité des combats augmentait à mesure que le conflit perdurait. Les autres nations ne purent plus rester en retrait et décidèrent enfin d'intervenir.
 
@@ -107,4 +107,4 @@ Quant aux autres cités du Pays Démoniaque Céleste, l'Ancien Démon les abando
 
 Dans ce contexte, la Tribu de l'Affinement de l'Âme s'étendit et se renforça rapidement. Au cours des dernières décennies, sur les champs de bataille du Pays Démoniaque du Feu, des silhouettes mystérieuses vêtues de noir attirèrent l'attention des deux camps. Ces hommes en robe noire apparaissaient souvent sur les lieux des combats pour absorber une quantité massive de fragments d'âmes et de vies.
 
-Chacun d'eux avait tué d'innombrables ennemis, affichant des performances exceptionnelles. Les soldats démons qui s'étaient rapidement illustrés dans les deux armées furent promus pour remplacer les généraux tombés au combat.
+Parallèlement, les soldats démons qui avaient tué d'innombrables ennemis sur les champs de bataille, affichant des performances exceptionnelles et une puissance grandement accrue, furent promus au rang de généraux dans les armées des deux pays pour remplacer les généraux tombés au combat.

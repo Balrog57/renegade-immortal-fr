@@ -7,9 +7,9 @@ en: Chapter 489 - Birthday Celebration
 slug: celebration-danniversaire
 ---
 
-Wang Lin se déplaçait dans la forêt tel un éclair. Après de nombreux tests, il finit par trouver la limite de ce bois. La bordure était entourée d'une lumière argentée, et il n'y avait aucun moyen pour lui de s'en échapper.
+Wang Lin se déplaçait telle la foudre au fond de la forêt de pierre, hérissée de piliers pointus. Après de nombreux tests, il finit par trouver la limite de cette forêt de pierre. La bordure était entourée d'un voile de lumière argentée, et il n'y avait aucun moyen pour lui de s'en échapper.
 
-Finalement, il décida de s'asseoir et frappa son sac de contenance. D'innombrables jades célestes en jaillirent et tournèrent autour de lui. De loin, Wang Lin était très frappant, se tenant au centre de tous ces jades célestes.
+Finalement, il décida de s'asseoir en tailleur sur un pilier de pierre et frappa son sac de contenance. D'innombrables jades célestes en jaillirent et tournèrent autour de lui. De loin, Wang Lin était très frappant, se tenant au centre de tous ces jades célestes.
 
 Ses yeux brillaient actuellement comme des torches. Il pointa les jades du doigt et, soudainement, l'un d'eux vola vers son extrémité digitale.
 
@@ -23,7 +23,7 @@ La posture de Wang Lin ne changea pas alors qu'il absorbait l'énergie spirituel
 
 Un halo doré se forma progressivement derrière lui. Ce halo, chargé d'énergie spirituelle céleste, était empreint d'une aura tyrannique.
 
-Ce type de halo se forme lorsqu'un être remplit son corps d'énergie spirituelle céleste. Une fois fusionnée avec le corps, elle augmente la capacité de stockage de l'individu, lui permettant ainsi d'utiliser plus librement une quantité accrue d'énergie.
+Ce type de halo se forme lorsqu'un être remplit son corps d'énergie spirituelle céleste. Une fois fusionné avec le corps, il donne à l'énergie spirituelle céleste comme un renfort supplémentaire, et l'on a moins de craintes lors des combats magiques.
 
 Wang Lin ne cessa sa culture pour un seul instant. À présent, il ne restait que quelques jades célestes tournoyant autour de lui. Il projeta son sens divin et encore plus de jades jaillirent de son sac.
 
@@ -37,15 +37,15 @@ Trois mois passèrent en un clin d'œil. C'était le jour d'une grande célébra
 
 L'Omniscient célébrait son anniversaire tous les 10 000 ans. Très peu de gens savaient aujourd'hui combien de fois il avait célébré cet événement. Mais sans exception, chaque fois qu'il le faisait, la planète entière participait aux festivités; même l'Alliance de Culture envoyait un représentant pour assister à la cérémonie.
 
-Même pour une planète de culture de rang 7, il était très rare que quelqu'un de l'Alliance de Culture soit présent.
+Même pour une planète de culture de rang 7, rares étaient celles qui y parvenaient; seul l'Omniscient en était capable!
 
-Un mois auparavant, la formation défensive de brume violette avait été transformée en une ceinture pourpre entourant la planète, et d'innombrables disciples de la Secte Céleste avaient été dépêchés pour accueillir les invités. Contrairement aux étrangers, de nombreux natifs de la planète Tian Yun arrivèrent également, chargés de cadeaux.
+Un mois auparavant, la formation défensive de brume violette avait été transformée en une ceinture pourpre entourant la planète, et d'innombrables disciples de la Secte Céleste avaient été dépêchés pour accueillir les invités. Outre les étrangers, de nombreux natifs de la planète Tian Yun arrivèrent également, chargés de cadeaux.
 
 Une foule immense provenant des cinq planètes mineures gravitant autour de Tian Yun vint aussi célébrer l'anniversaire de l'Omniscient. Même les vieux monstres qui contrôlaient eux-mêmes les planètes extérieures se rendirent sur la planète Tian Yun. On pouvait dire que personne sur la planète n'ignorait cet événement. Durant le mois précédant la fête, une multitude de logements furent construits pour les convives.
 
 Tous les disciples des sept divisions de la Secte du Destin Céleste étaient extrêmement occupés. Avec une telle concentration de membres d'autres sectes et d'étrangers, les échanges et les conversations étaient inévitables. Personne présent ici n'était faible; échanger avec autrui était donc pour eux une opportunité très bénéfique.
 
-Ce jour-là, la personne chargée d'accueillir ceux qui arrivaient sur la planète Tian Yun était le frère aîné de la division pourpre, Zhao Xingsha. Il portait une robe violette brodée de fils de soie dorés, son jeton pendait à son épaule et une épée ancienne reposait dans son dos. Son allure était très élégante et, avec son sourire empreint de douceur, quiconque le voyait éprouvait instinctivement un sentiment de sympathie envers lui.
+Ce jour-là, la personne chargée d'accueillir ceux qui arrivaient sur la planète Tian Yun était le frère aîné de la division pourpre, Zhao Xingsha. Il portait une robe violette brodée de fils de soie dorés, un pendentif de jade chaud pendait à sa taille et une épée ancienne reposait dans son dos. Son allure était très élégante et, avec son sourire empreint de douceur, quiconque le voyait éprouvait instinctivement un sentiment de sympathie envers lui.
 
 Il se tenait actuellement au sommet de la brume violette, contemplant la planète en contrebas. Il esquissa un sourire et murmura pour lui-même: « C'est la première fois que je participe à l'anniversaire du Maître, et j'ai effectivement rencontré beaucoup d'amis. Surtout le jeune maître de la Secte Yun Luo; sa culture est plutôt impressionnante et sa personnalité me plaît. »
 
@@ -55,7 +55,7 @@ Il se tenait actuellement au sommet de la brume violette, contemplant la planèt
 
 Les yeux de Zhao Xingsha brillèrent d'une lueur mystérieuse et ses lèvres formèrent un léger sourire. La brume violette commença soudainement à s'agiter; Zhao Xingsha retrouva alors son expression sereine et regarda au loin.
 
-Il aperçut un gigantesque char de guerre doré volant lentement vers la planète. Ce char était colossal, haut de plus de 3,3 kilomètres. Quatre bêtes démoniaques géantes tiraient l'engin, ce qui lui permettait d'avancer si rapidement. Avant même qu'il ne soit à portée, on pouvait entendre des rugissements tonitruants provenant de cette direction.
+Il aperçut un gigantesque char de guerre doré volant lentement vers la planète. Ce char, entièrement doré et hérissé d'innombrables piques menaçantes, était colossal, haut de plus de 3,3 kilomètres. Quatre bêtes démoniaques géantes tiraient l'engin, ce qui lui permettait d'avancer si rapidement. Avant même qu'il ne soit à portée, on pouvait entendre des rugissements tonitruants provenant de cette direction.
 
 Ces rugissements émanaient des quatre bêtes qui tiraient le char. Leurs corps étaient énormes et il s'agissait d'une espèce capable de voler sur de courtes distances dans l'espace. Bien qu'elles ne puissent utiliser aucun sort, elles ne devaient pas être sous-estimées.
 
@@ -73,7 +73,7 @@ La masse de chair assise sur le siège fronça les sourcils et s'exclama: « Pou
 
 Zhao Xingsha prit une profonde inspiration. Son sourire serein revint sur son visage et il répondit respectueusement: « Par ici, Senior! » D'un geste de la main, il fit bouger la brume violette pour révéler un long passage.
 
-Sous la guidance de Zhao Xingsha, le gigantesque char doré vola lentement vers la planète Tian Yun. Des scènes similaires se produisaient plusieurs fois par jour sur toute la planète. À mesure que les divers cultivateurs puissants arrivaient, les discussions à leur sujet devenaient monnaie courante. Il y avait souvent des échanges de techniques ou d'idées, mais chacun connaissait sa place, évitant ainsi tout incident majeur.
+Sous la guidance de Zhao Xingsha, le gigantesque char doré vola lentement vers la planète Tian Yun. Des scènes similaires se produisaient presque chaque jour sur la planète Tian Yun. À mesure que les divers cultivateurs puissants arrivaient, les discussions à leur sujet devenaient monnaie courante. Des duels amicaux avaient souvent lieu, mais chacun savait garder la mesure, évitant ainsi tout incident majeur.
 
 La zone des sept divisions de la Secte du Destin Céleste et ses environs immédiats, s'étendant sur des dizaines de milliers de kilomètres, étaient totalement occupés par des lofts luxueux. Ces édifices avaient tous été érigés en quelques mois grâce à la magie, dans le seul but d'offrir un lieu de repos aux invités.
 
@@ -85,4 +85,4 @@ Les arrivées se poursuivirent jusqu'à ce que le jour de l'anniversaire de l'Om
 
 Ce jour-là, le ciel était sans nuages, d'un bleu serein, et une brise légère portait le parfum des fleurs. Au total, huit lieux accueillaient la célébration. Une fête se déroulait dans chacune des sept divisions. En plus de ces sept célébrations, la dernière avait lieu dans la section principale, là où se tenait la cérémonie majeure. Quiconque pouvait être présent ici n'était aucun homme ordinaire.
 
-Le Démon Doré n'était pas qualifié pour y assister. Malgré son statut, il ne pouvait participer qu'à l'une des célébrations secondaires.
+Le Démon Doré n'était pas qualifié pour y assister. Malgré son statut, il ne pouvait participer qu'à l'une des célébrations secondaires, celle de la division rouge.

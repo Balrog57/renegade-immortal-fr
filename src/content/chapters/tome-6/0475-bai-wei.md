@@ -6,7 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 475 - Bai Wei
 slug: bai-wei
 ---
-« Aîné, la boutique du clan Shang se trouve juste derrière. Ce n'est pas un endroit où l'on peut entrer comme bon nous semble, il y aura donc des patrouilles... » Avant que Li Dannan ne puisse achever sa phrase, des ondulations bleues apparurent soudainement dans le vide et se propagèrent vers Wang Lin.
+« Aîné, la boutique du clan Shang est la plus enfoncée, tout au fond. Ce n'est pas un endroit où l'on peut entrer comme bon nous semble, il y aura donc des patrouilles... » Avant que Li Dannan ne puisse achever sa phrase, des ondulations bleues apparurent soudainement dans le vide et se propagèrent vers Wang Lin.
 
 « Intrus, arrête-toi! » Une voix froide et arrogante jaillit du néant.
 
@@ -32,7 +32,7 @@ L'expression du jeune homme changea radicalement. Il ne pensait pas qu'un cultiv
 
 Il voulut battre en retraite, mais son corps semblait entravé par une force invisible; il ne pouvait plus bouger d'un pouce. Il ne put que regarder le poing s'agrandir devant lui.
 
-Une goutte de sueur froide perla du bout de son nez, mais ses yeux restèrent calmes, sans l'ombre d'une panique. Il connaissait clairement le niveau de culture de Wang Lin et pourtant, cet homme osait agir avec une telle arrogance. Cela signifiait qu'il possédait soit une méthode de culture prodigieuse, soit un statut exceptionnel.
+Une goutte de sueur froide perla du bout de son nez, mais ses yeux restèrent calmes, sans l'ombre d'une panique. Il avait clairement discerné le niveau de culture de Wang Lin et avait pourtant osé proférer des paroles aussi arrogantes. Cela signifiait qu'il possédait soit une culture hors du commun, soit un statut exceptionnel.
 
 « Arrête! » Un son ténu provint de la troisième boutique, suivi d'une lueur verte. Au cœur de cette lumière ne se trouvait qu'une tasse à thé qui volait à une vitesse inimaginable, saturée d'énergie spirituelle céleste.
 
@@ -44,7 +44,7 @@ La vitesse de la tasse ralentit et sa trajectoire dévia selon la rotation du ce
 
 Un cri de surprise s'éleva de l'intérieur de la boutique.
 
-Le poing droit de Wang Lin fendit l'air avec la rapidité de l'éclair et percuta l'espace juste devant le jeune homme. Le visage de ce dernier devint instantanément rouge et il cracha une bouchée de sang. Ses yeux s'obscurcirent alors qu'il titubait en arrière; son corps trembla de nouveau avant qu'il n'expire un second jet de sang.
+Le poing droit de Wang Lin fendit l'air avec la rapidité de l'éclair et percuta l'espace juste devant le jeune homme. Le visage de ce dernier devint instantanément rouge et il cracha une gorgée de sang brun. Ses yeux s'obscurcirent alors qu'il titubait en arrière; son corps trembla de nouveau avant qu'il n'expire un second jet de sang.
 
 Il fut secoué par de violents tremblements tandis qu'une énergie spirituelle céleste blanche s'échappait frénétiquement de ses pores. En un instant, il ne resta plus aucune trace d'énergie céleste dans son corps.
 
@@ -60,7 +60,7 @@ Le sort « Rotation des Étoiles » était une technique que Situ Nan lui avait 
 
 « Ce frère possède de bonnes techniques. Puis-je connaître votre nom? » Une voix calme émana de la boutique, suivie de l'apparition d'une silhouette haute et droite.
 
-Il s'agissait d'un jeune homme élancé, aux sourcils acérés et aux yeux sombres. Son regard était semblable à celui des étoiles, rendant toute tentative de lecture impossible. Sa simple présence faisait onduler l'espace environnant. Il avait manifestement atteint le sommet du milieu du stade de la Transformation de l'Âme; c'était ce qui expliquait l'émission d'énergie spirituelle céleste qu'il dégageait.
+Il s'agissait d'un jeune homme élancé, vêtu d'une robe violette, aux sourcils acérés et aux yeux sombres. Son regard était semblable à celui des étoiles, rendant toute tentative de lecture impossible. Sa simple présence faisait onduler l'espace environnant. Il avait manifestement atteint le sommet du milieu du stade de la Transformation de l'Âme; c'était ce qui expliquait l'émission d'énergie spirituelle céleste qu'il dégageait.
 
 Wang Lin tourna la tête vers lui et, gardant son calme, répondit simplement: « Wang Lin! »
 
@@ -82,13 +82,13 @@ Bai Wei sourit et secoua la tête. « Puisque le frère Wang ne souhaite pas s'�
 
 Wang Lin acquiesça, joignit les mains et passa devant les deux hommes. Le cœur de Li Dannan battait la chamade alors qu'il suivait rapidement, craignant que s'il tardait trop, un imprévu ne vienne le blesser.
 
-Le regard de Bai Wei suivit la silhouette de Wang Lin avec une lueur singulière. Il rangea son éventail, frappa sa main gauche et déclama: « Les montagnes portent des arbres, les arbres ont des branches; le cœur plaît au seigneur, mais le seigneur l'ignore... »
+Le regard de Bai Wei suivit la silhouette de Wang Lin avec une lueur singulière. Il rangea son éventail, frappa sa main gauche et déclama: « Les montagnes portent des arbres, les arbres ont des branches; mon cœur aime le seigneur, mais le seigneur l'ignore... »
 
 Le jeune homme dont la fondation avait été ruinée observa Bai Wei, une pointe d'étrangeté s'accentuant dans son regard.
 
 Ce n'est que lorsque la silhouette de Wang Lin eut disparu dans la dernière boutique que Bai Wei détourna les yeux. Il regarda son serviteur et sourit: « Ce n'est qu'une fondation céleste. Une fois que je serai revenu sur la planète Tian Yun, je t'en donnerai une nouvelle! Allons-y: c'est le grand anniversaire des dix mille ans de notre maître, je ne saurais arriver en retard. »
 
-Sur ce, il rentra dans la troisième boutique. L'objet qu'il cherchait n'était pas rare, mais après avoir inspecté les neuf boutiques, il ne l'avait trouvé que dans celle-ci.
+Sur ce, il rentra dans la troisième boutique. L'objet qu'il cherchait n'était pas précieux, mais fort ingénieux, et après avoir inspecté les neuf boutiques, il ne l'avait trouvé que dans celle-ci.
 
 Normalement, partout où Bai Wei se trouvait, nul autre n'était autorisé à être présent. Cette arrogance s'était transmise à son serviteur, ce qui expliquait pourquoi celui-ci avait tenté d'empêcher Wang Lin de pénétrer dans la ville nord.
 
@@ -106,7 +106,7 @@ Dans les mains de chaque statue se trouvait une boîte. À l'intérieur de ces b
 
 Elle portait une robe d'un blanc immaculé, ornée de neuf fleurs de mandara brodées de fils d'argent sur les bordures. Le contraste avec la blancheur de la robe était saisissant.
 
-Ses cheveux noirs et soyeux retombaient négligemment derrière sa tête. Trois épingles en cristal violet clair maintenaient sa coiffure, ne laissant que deux mèches pour osciller doucement au gré de la brise. Sous son œil gauche, trois fins accessoires d'un violet pâle, aussi délicats que des ailes de cigale, attiraient le regard. La lumière qui jouait sur eux la rendait aussi sublime qu'une peinture.
+Ses cheveux noirs et soyeux retombaient négligemment derrière sa tête. Trois épingles en cristal violet clair maintenaient sa coiffure, ne laissant que deux mèches d'un violet éclatant pour osciller doucement au gré de la brise. Sous son œil gauche, trois fins accessoires d'un violet pâle, aussi délicats que des ailes de cigale, attiraient le regard. La lumière qui jouait sur eux la rendait aussi sublime qu'une peinture.
 
 « Cher compagnon de culture, bienvenue dans la boutique du clan Shang! » La voix de la femme était aussi mélodieuse que le chant d'un oiseau.
 
@@ -114,4 +114,4 @@ Sa beauté était absolue, mais ce qui captiva l'attention de Wang Lin fut le fi
 
 Même les neuf fleurs de mandara étaient des trésors magiques extrêmement rares. Même les trois épingles dans ses cheveux l'étaient également. Son corps entier était paré de trésors magiques. Cela témoignait véritablement de l'immense richesse de ce lieu.
 
-Wang Lin ne perdit pas de temps et demanda calmement: « Cette boutique possède-t-elle du liquide de neige d'encre? »
+Wang Lin ne perdit pas de temps et demanda calmement: « Cette boutique possède-t-elle de l'encre de neige? »

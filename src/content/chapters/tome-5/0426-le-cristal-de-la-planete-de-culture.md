@@ -8,7 +8,7 @@ slug: le-cristal-de-la-planete-de-culture
 ---
 « Oh? » Wang Lin tourna le regard vers Situ Nan.
 
-Les yeux de Situ Nan brillaient de joie. Dans un sourire, il déclara: « Bien! Ce vieil homme a enfin choisi son corps! Wang Lin, suis-moi au pôle Nord. C'est là que se trouve l'enveloppe que je convoite! »
+Les yeux de Situ Nan brillaient de joie. Dans un sourire, il déclara: « Bien! Ce vieil homme a enfin choisi son corps! Wang Lin, suis-moi à la Petite Terre des Flammes du Nord, sur la planète Suzaku. C'est là que se trouve mon futur corps! »
 
 Sur ces mots, il s'élança dans les airs.
 
@@ -26,7 +26,7 @@ Un léger sourire étira les lèvres de Wang Lin alors qu'il frottait la grosse 
 
 Situ Nan prit le jade. Après l'avoir scanné, son expression changea radicalement. Il finit par dire d'un ton embarrassé: « Laisse tomber... Je n'en veux plus... »
 
-Le jade que Wang Lin lui avait offert contenait des informations sur la planète où le Dieu Antique avait trouvé une quantité prodigieuse de bêtes moustiques.
+Le jade que Wang Lin lui avait offert contenait des informations sur la région stellaire inconnue où, dans les souvenirs du Dieu Antique Tu Si, se trouvait une quantité prodigieuse de bêtes moustiques.
 
 Malgré toute sa fierté, le cœur de Situ Nan trembla en découvrant ces données. Il reporta un regard étrange sur la créature.
 
@@ -54,7 +54,7 @@ Le corps du moustique trembla dans un cri strident. Ce sourire avait failli le f
 
 Tandis qu'ils volaient, Wang Lin réfléchit un instant et demanda: « Situ, connais-tu le Royaume Ji? »
 
-L'expression de Situ Nan devint solennelle: « Le Dao Ji est le Ji des trois royaumes. Pourquoi me demandes-tu cela? »
+L'expression de Situ Nan devint solennelle: « Le Royaume Ji parmi les trois royaumes initiaux du Dao Ji? Pourquoi me demandes-tu cela? »
 
 Wang Lin regarda son compagnon. Dans ce monde, hormis Li Muwan, la seule personne en qui il pouvait avoir une confiance absolue était Situ Nan.
 
@@ -84,9 +84,9 @@ Situ Nan prit le jade et, d'une seule inspiration, le draina jusqu'à ce qu'il s
 
 Sur ces mots, il disparut.
 
-Lorsque Situ Nan réapparut et fit fuir Zhu Quezi, tous les cultivateurs Ascendants ressentirent cette aura puissante.
+Lorsque Situ Nan apparut face à Zhu Quezi, tous les cultivateurs Ascendants ressentirent cette aura puissante.
 
-Un vieil homme vêtu de blanc apparut dans le ciel à l'est du pays de Suzaku. C'était Chu Yunfei, l'unique cultivateur Ascendant de la Secte du Jade Céleste. À cet instant, son expression était troublée. Après un moment, il soupira: « Une aura d'une puissance inouïe... »
+Un vieil homme aux cheveux blancs apparut dans le ciel à l'est du pays de Suzaku. C'était Chu Yunfei, l'unique cultivateur Ascendant de la Secte du Jade Céleste. À cet instant, son expression était troublée. Après un moment, il soupira: « Une aura d'une puissance inouïe... »
 
 Il secoua légèrement la tête. En regardant vers l'est, son regard se glaça. Derrière lui se trouvaient des dizaines de cultivateurs; la plupart étaient au stade de la Formation de l'Âme, et seuls trois atteignaient celui de la Transformation de l'Âme.
 

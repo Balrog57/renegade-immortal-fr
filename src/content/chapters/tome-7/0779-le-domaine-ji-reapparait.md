@@ -58,7 +58,7 @@ L'éclair rouge faisait rage au sein de l'âme originelle de Wang Lin, imprégn�
 
 Cela empêcha l'éclair rouge de déployer toute sa puissance. Pourtant, c'était le Royaume Ji, et il était d'une puissance phénoménale. Bien qu'entourée d'énergie originelle, cette dernière se désintégrait rapidement de l'intérieur. Il était évident que les réserves de Wang Lin deviendraient bientôt inefficaces.
 
-C'est parce que Wang Lin connaissait extrêmement bien le Royaume Ji qu'il ne paniqua pas, continuant à superposer des couches d'énergie originelle. Grâce à son expérience passée avec le Royaume Ji, son âme originelle n'était pas totalement sans défense face à lui.
+C'est parce que Wang Lin connaissait extrêmement bien le Royaume Ji qu'il ne paniqua pas, continuant à superposer des couches d'énergie originelle. Bien que son âme originelle se soit fusionnée avec le Dragon de Tonnerre Ancien, les souvenirs d'autrefois faisaient qu'elle n'était pas totalement sans défense face au Royaume Ji.
 
 Après tout, il avait été autrefois le maître du Royaume Ji!
 
@@ -112,9 +112,9 @@ Li Yuan vit que Wang Lin s'était rétabli, mais avant qu'il ne puisse poser la 
 
 Wang Lin répondit: « N'en parlons plus. Il vaut mieux quitter cet endroit le plus vite possible! » Il accéléra sa course jusqu'à ce qu'ils atteignent la bordure du fragment et plongent dans le vide.
 
-Dans le vide, Wang Lin regarda devant lui et déclara: « Frère Li, je me rends dans un lieu appelé le Pavillon de la Collection! S'il y a des restrictions là-bas, j'espère que vous pourrez m'aider! »
+Dans le vide, Wang Lin regarda devant lui et déclara: « Frère Li, je me rends dans un lieu appelé le Pavillon des Collections! S'il y a des restrictions là-bas, j'espère que vous pourrez m'aider! »
 
-Plutôt que d'explorer des palais célestes au hasard, il était préférable de se diriger vers le Pavillon de la Collection d'après les souvenirs du membre de la famille Yao. Il y avait certainement des sorts célestes là-bas!
+Plutôt que d'explorer des palais célestes au hasard, il était préférable de se diriger vers le Pavillon des Collections d'après les souvenirs du vieillard de la famille Yao. Il y avait certainement des sorts célestes là-bas!
 
 Li Yuan hocha la tête: « Je ferai de mon mieux! » Il ne savait pourquoi, mais après ce qui s'était passé dans le tunnel, une peur persistante l'habitait, comme si un événement majeur était sur le point de se produire.
 

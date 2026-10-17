@@ -56,9 +56,9 @@ Un homme d'âge moyen vêtu de bleu était assis à côté de Shengong Hu. Son v
 
 L'homme prit un ton étrange et dit lentement: « J'ai entendu dire que le toujours arrogant Shengong Hu a désormais un seigneur. Je ne l'ai pas cru au début, mais en voyant qu'une partie de votre âme dao fait défaut, il semble que ce soit vrai! Quel dommage! Quel dommage! »
 
-L'expression de Shengong Hu resta imperturbable. Il regarda froidement l'homme avant de répondre calmement: « Un homme borné et sans ambition ne peut comprendre celle d'un être doté d'une grande intelligence. Une personne superficielle ne peut concevoir les pensées d'un esprit ambitieux! Tang Yangfeng, tu n'es pas moi! »
+L'expression de Shengong Hu resta imperturbable. Il regarda froidement l'homme avant de répondre calmement: « Les moineaux ne peuvent comprendre l'ambition des aigles, ni les êtres vils et superficiels le cœur des cygnes sauvages! Tang Yanfeng, tu n'es pas moi! »
 
-Les yeux de l'homme nommé Tang devinrent glacials et il esquissa un sourire lugubre. « Je veux voir quel genre d'intelligence tu possèdes donc! »
+Les yeux de l'homme nommé Tang devinrent glacials et il esquissa un sourire lugubre. « Je voudrais bien voir quelles ambitions animent ces aigles et ces cygnes sauvages! »
 
 Shengong Hu ne répondit plus. Durant ces vingt années, il avait subi une immense pression, venant tant de sa famille que du Temple Céleste du Tonnerre. Tout cela parce qu'il avait prêté allégeance à Wang Lin!
 
@@ -66,15 +66,15 @@ Au sein de sa famille, on l'avait réprimandé pour sa décision irréfléchie. 
 
 Par exemple, avec son talent, il n'aurait pas dû être ici. Il aurait dû rejoindre la majorité des autres messagers et entrer dans le Royaume Céleste par une autre voie. Bien qu'il ne fût pas le seul messager présent, ces personnes ne pouvaient en aucun cas l'égaler en termes de statut.
 
-En y pensant, Shengong n'éprouvait aucun regret; il ressentait au contraire une immense fierté. Non seulement il savait qu'il n'avait pas tort, mais il sentait que c'était la meilleure décision de sa vie! Ce qu'il avait dit à Tang Yangfeng était la même chose qu'il avait asséné aux anciens de sa famille!
+En y pensant, Shengong n'éprouvait aucun regret; il ressentait au contraire une immense fierté. Non seulement il savait qu'il n'avait pas tort, mais il sentait que c'était la meilleure décision de sa vie! Ce qu'il avait dit à Tang Yanfeng était la même chose qu'il avait asséné aux anciens de sa famille!
 
 « Même le Grand Ancien de la famille est bloqué au stade du Nirvana Purificateur, il est donc inutile de parler de la légendaire troisième étape... Quelles qualifications ont-ils pour me guider?! » Les yeux de Shengong Hu brillaient d'un éclat vif.
 
-Tang Yangfeng ricana. Ce Shengong Hu avait été le premier de leur génération à devenir messager du Temple Céleste du Tonnerre. Cependant, par un seul faux pas, il se retrouvait dans une telle situation.
+Tang Yanfeng ricana. Ce Shengong Hu avait été le premier de leur génération à devenir messager du Temple Céleste du Tonnerre. Cependant, par un seul faux pas, il se retrouvait dans une telle situation.
 
 À cet instant, une lumière vive apparut soudainement au loin. Un instant plus tard, un grondement tonitruant s'approcha comme une tempête.
 
-Tous les cultivateurs ouvrirent les yeux pour regarder. Tang Yangfeng ne fit pas exception.
+Tous les cultivateurs ouvrirent les yeux pour regarder. Tang Yanfeng ne fit pas exception.
 
 Au moment où il fixa la lueur, celle-ci s'intensifia brusquement et fonça droit sur eux. La lumière portait un fracas puissant et se rapprochait à une vitesse incroyable.
 
@@ -90,7 +90,7 @@ Sous les regards stupéfaits de tous, la météorite de tonnerre percuta soudain
 
 Non seulement lui, mais presque tous ceux qui se trouvaient à proximité se levèrent d'un bond pour fixer la porte. Ils n'avaient jamais entendu parler de quiconque capable de pénétrer avant l'ouverture de la porte. Cela dépassait toutes leurs attentes.
 
-Tang Yangfeng fixa la Porte Céleste du Tonnerre avec stupeur. Il murmura: « Qu'est-ce que c'est... Comment quelqu'un peut-il entrer avant qu'elle ne s'ouvre... Est-ce possible d'entrer ainsi? » Il fronça les sourcils.
+Tang Yanfeng fixa la Porte Céleste du Tonnerre avec stupeur. Il murmura: « Qu'est-ce que c'est... Comment quelqu'un peut-il entrer avant qu'elle ne s'ouvre... Est-ce possible d'entrer ainsi? » Il fronça les sourcils.
 
 Il n'était pas le seul à avoir cette pensée, mais personne n'osait tenter l'expérience, excepté un individu. Le corps de cet homme vacilla et un clone en sortit. Il pointa le doigt vers l'avant et le clone chargea vers le tonnerre rouge sombre.
 
@@ -100,7 +100,7 @@ Simultanément, un éclair de tonnerre rouge sombre jaillit vers le cultivateur 
 
 L'expression de ce dernier changea radicalement. Bien qu'il fût au stade de l'Yin Illusoire, face à ce tonnerre, son cuir chevelu devint engourdi et il manqua de perdre la raison. Il fit volte-face pour s'enfuir, mais le tonnerre rouge le poursuivit de près. L'éclair pénétra son corps avant d'en ressortir après avoir effectué un cycle complet à l'intérieur de lui.
 
-Le cultivateur trembla, puis tout son être, ainsi que son âme originelle et sa sacoche de rangement, s'effondrèrent!
+Le cultivateur trembla, puis tout son être, ainsi que son âme originelle et son sac de rangement, s'effondrèrent!
 
 Un silence de mort s'installa parmi les cultivateurs environnants.
 
@@ -108,10 +108,10 @@ Personne ne remarqua qu'à cet instant, Shengong Hu avait baissé la tête, mais
 
 « Moi, Shengong Hu, je ne me suis pas trompé. Mon Senior est vraiment un être incroyable. Le tonnerre qu'il a attiré a atteint ce degré et a pu pénétrer le Royaume Céleste du Tonnerre avant même son ouverture. Une telle culture est vraiment... incroyable! »
 
-Un homme se tenait sur un pic couvert d'innombrables éclairs, sur un fragment du Royaume Céleste du Tonnerre encore fermé.
+Dans le Royaume Céleste du Tonnerre encore fermé, sur un fragment de continent effondré, un homme se tenait sur un pic entièrement noir parcouru d'innombrables éclairs.
 
-C'était un vieil homme aux cheveux blancs flottant au vent. Tandis que ses vêtements blancs ondulaient dans l'air, il gardait les mains derrière le dos et fronçait les sourcils, comme plongé dans une profonde réflexion. Cependant, il fut soudainement surpris en regardant au loin et s'exclama doucement:
+C'était un vieil homme aux cheveux blancs flottant au vent. Tandis que ses larges vêtements ondulaient dans l'air, il gardait les mains derrière le dos et fronçait les sourcils, comme plongé dans une profonde réflexion. Cependant, il fut soudainement surpris en regardant au loin et s'exclama doucement:
 
-« Intéressant! » Le vieil homme afficha un air de curiosité. Une bourrasque de vent souffla et son corps se transforma en d'innombrables particules dorées avant de disparaître de cette montagne de tonnerre.
+« Intéressant! » Le vieil homme afficha un air de curiosité. Une bourrasque de vent souffla et son corps se transforma en d'innombrables points scintillants avant de disparaître de cette montagne de tonnerre.
 
 Si Wang Lin avait été présent, il aurait immédiatement reconnu que lors de la disparition du vieil homme, une faible aura de retour à l'origine s'était manifestée...

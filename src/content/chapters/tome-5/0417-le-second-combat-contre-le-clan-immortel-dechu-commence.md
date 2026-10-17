@@ -14,7 +14,7 @@ La vieille femme poussa un soupir. Bien qu'elle fût au stade avancé de la Tran
 
 L'homme aux robes violettes qui se tenait près de la femme affichait une expression sombre. Il était au stade initial de la Transformation de l'Âme. Il savait qu'il aurait pu tuer Li Yuanfeng sans l'ombre d'un doute, mais contre l'ancêtre du Clan du Démon Géant, la victoire aurait été bien difficile à obtenir. Pourtant, ce jeune homme devant lui avait réussi à éliminer les deux. Bien que Wang Lin ne fût pas encore un cultivateur de la Transformation de l'Âme, il le considérait déjà comme un égal en termes de culture.
 
-Du Tian laissa échapper un rire. Il était très satisfait des actions de Wang Lin. Les membres de la Secte du Raffinage de l'Âme devaient agir ainsi.
+Du Tian laissa échapper un rire. Il était très satisfait des actions de Wang Lin. Les membres de la Secte de l'Affinement de l'Âme devaient agir ainsi.
 
 Du Tian déclara: « Ne perdons plus de temps. Selon les règles, donnez-moi la moitié de vos jades célestes! »
 
@@ -24,25 +24,25 @@ Du Tian la regarda et répondit: « Cela dépendra du nombre de jades célestes 
 
 La vieille femme eut un sourire amer. Elle sortit un sac de rangement et le lança à Du Tian sans même y regarder. Elle dit: « Cela devrait vous satisfaire. »
 
-Du Tian attrapa le sac. Après l'avoir scanné avec son Sens Divin, son expression devint étrange. Il regarda la vieille femme et dit: « Vous, les membres de la Secte des Insectes Démoniaques, étiez vraiment immensément riches autrefois. Mon maître vous a pris tant de jades célestes, et pourtant vous en possédez encore autant. Avez-vous trouvé un moyen de les accumuler? »
+Du Tian attrapa le sac. Après l'avoir scanné avec son Sens Divin, son expression devint étrange. Il regarda la vieille femme et dit: « Vous, les membres de la Secte des Insectes Démoniaques, devez vraiment avoir été des rats dans votre vie antérieure. Mon maître vous a pris tant de jades célestes, et pourtant vous en possédez encore autant. Avez-vous trouvé un moyen de les accumuler? »
 
 La vieille femme répondit calmement: « Cela ne te regarde pas. Souviens-toi de notre accord. » Sur ce, elle s'envola vers l'horizon.
 
 L'Ancien aux robes violettes regarda une dernière fois Wang Lin avant de lui faire une salutation respectueuse et de partir.
 
-C'est ainsi que Du Tian emmena Wang Lin à travers Pilu, pillant une quantité massive de jades célestes. En chemin, Wang Lin comprit réellement à quel point Du Tian était tyrannique. Du Tian sortait le drapeau des âmes du milliard de fragments pour exiger des jades célestes. S'ils refusaient, il libérait les fragments d'âmes et utilisait le peu de temps qu'il leur restait pour semer le chaos dans la secte.
+C'est ainsi que Du Tian emmena Wang Lin à travers Pilu, pillant une quantité massive de jades célestes. En chemin, Wang Lin comprit réellement à quel point Du Tian était tyrannique. Du Tian sortait le drapeau d'âmes d'un milliard pour exiger des jades célestes. S'ils refusaient, il libérait les fragments d'âmes et utilisait le peu de temps qu'il lui restait à vivre pour tenir tête à la secte.
 
-La notoriété de la Secte du Raffinage de l'Âme était tristement célèbre. Les deux autres sectes de Pilu étaient furieuses, mais comme la Secte du Raffinage de l'Âme avait toujours agi ainsi, elles finissaient par céder les jades célestes.
+La notoriété de la Secte de l'Affinement de l'Âme était tristement célèbre. Les deux autres sectes de Pilu étaient furieuses, mais comme la Secte de l'Affinement de l'Âme avait toujours agi ainsi, elles finissaient par céder les jades célestes.
 
-Du Tian tapota son sac de rangement et sourit à Wang Lin: « Tu vois tout ceci? C'est ainsi que ma Secte du Raffinage de l'Âme a agi pendant des dizaines de milliers d'années. Lorsque tu posséderas le drapeau des âmes du milliard de fragments, tu devras agir de même, sans quoi tu terniras le nom de ma Secte. »
+Du Tian tapota son sac de rangement et sourit à Wang Lin: « Tu vois tout ceci? C'est ainsi que ma Secte de l'Affinement de l'Âme a agi pendant des dizaines de milliers d'années. Lorsque tu posséderas le drapeau d'âmes d'un milliard, tu devras agir de même, sans quoi tu terniras le nom de ma Secte. »
 
 Bien que son corps fût imprégné d'une aura de mort, Wang Lin pouvait ressentir un certain soulagement dans le cœur de Du Tian.
 
-« Il y a bien longtemps, un ancêtre de ma Secte voulait atteindre le stade Ascendant. La quantité de jades célestes dont il avait besoin était bien supérieure à ce que tu requiers. Finalement, après avoir passé en revue toute la planète, il se rendit dans le pays de Suzaku. Avec le drapeau des âmes du milliard de fragments, même les cultivateurs Ascendants n'osaient pas s'en prendre à lui. Il a ainsi pu s'emparer des jades célestes par la force », raconta Du Tian.
+« Il y a bien longtemps, un ancêtre de ma Secte voulait atteindre le stade Ascendant. La quantité de jades célestes dont il avait besoin était bien supérieure à ce que tu requiers. Finalement, après avoir passé en revue toute la planète, il se rendit dans le pays de Suzaku. Avec le drapeau d'âmes d'un milliard, même les cultivateurs Ascendants n'osaient pas s'en prendre à lui. Il a ainsi pu s'emparer des jades célestes par la force », raconta Du Tian.
 
 Wang Lin eut un sourire amer. Il pouvait imaginer le mal de tête que les cultivateurs Ascendants de Suzaku avaient dû ressentir à l'époque. Donner les jades célestes revenait presque à leur offrir de l'argent gratuitement. Après tout, chaque génération détenant ce drapeau était une tyrannie.
 
-Wang Lin pensa secrètement: « Je crois comprendre comment la Secte du Raffinage de l'Âme est passé d'un pays de culture de rang 5 à n'être plus qu'une simple secte... »
+Wang Lin pensa secrètement: « Je crois comprendre comment la Secte de l'Affinement de l'Âme est passé d'un pays de culture de rang 5 à n'être plus qu'une simple secte... »
 
 « Cependant, cet ancêtre a échoué et a fini par mourir. En vérité, je ne cautionne pas ses actes; à moins que ce ne soit absolument nécessaire, il vaut mieux ne pas provoquer les cultivateurs Ascendants. Il aurait mieux fait de faire comme nous le faisons actuellement. Avec ce drapeau, nous pouvons traverser un pays de culture de rang 5 et piller n'importe quelle secte sur notre passage. Même si nous rencontrons les puissants cultivateurs du Clan Immortel Déchu, cela n'aura aucune importance. »
 
@@ -52,13 +52,13 @@ Les actes tyranniques de Du Tian ne se limitaient pas à Pilu. En réalité, il 
 
 En trois mois, Du Tian traversa quatre pays de culture de rang 5. Lorsqu'ils passaient, c'était comme le passage d'une nuée de sauterelles. Même certaines familles de cultivateurs furent touchées et durent céder les quelques jades célestes qu'elles possédaient.
 
-Quant aux sectes, Du Tian n'attendait même pas de discuter avant de sortir le drapeau des âmes du milliard de fragments. Les fragments d'âmes enveloppaient la secte, puis plus de dix âmes de la Transformation de l'Âme en émergeaient. Ce n'était pas une attaque qu'une secte de rang 5 pouvait espérer repousser.
+Quant aux sectes, Du Tian n'attendait même pas de discuter avant de sortir le drapeau d'âmes d'un milliard. Les fragments d'âmes enveloppaient la secte, puis plus de dix âmes de la Transformation de l'Âme en émergeaient. Ce n'était pas une attaque qu'une secte de rang 5 pouvait espérer repousser.
 
 Du Tian collectait une quantité prodigieuse de jades célestes et les rangeait dans son sac. Dans le quatrième pays, il provoqua enfin une réaction des cultivateurs locaux: quatre experts de la Transformation de l'Âme s'unirent pour l'attaquer.
 
 Cette fois, Wang Lin comprit réellement la puissance du drapeau. Avant même qu'il n'ait le temps d'agir, les quatre hommes furent repoussés. Cela ne fut possible que parce que Du Tian ne souhaitait pas tuer; autrement, l'un d'eux serait certainement devenu une nouvelle âme primaire pour le drapeau.
 
-Face à la tyrannie dont Du Tian faisait preuve durant les deux dernières années de sa vie, Wang Lin dut sortir son chapeau de paille pour dissimuler son apparence, afin d'éviter que les sectes pillées ne partent à sa recherche dans le futur.
+Face à la tyrannie dont Du Tian faisait preuve durant les deux dernières années de sa vie, Wang Lin dut sortir son chapeau de paille pour dissimuler son apparence, afin d'éviter que, une fois Du Tian devenu âme primaire du drapeau, les sectes pillées ne partent à sa recherche dans le futur.
 
 Quatre pays de culture de rang 5, 13 sectes et plus de 100 familles de cultivateurs. En incluant celles de Pilu, cela faisait un total de 16 sectes. En trois mois, Du Tian leur avait dérobé une fortune en jades célestes. Ce jour-là, il s'arrêta.
 
@@ -66,7 +66,7 @@ Du Tian dit à Wang Lin d'un ton solennel: « Cette quantité de jades devrait s
 
 Wang Lin hocha la tête. Il n'avait aucun problème avec le fait de voler, mais il ne partageait pas les méthodes de Du Tian. Il estimait qu'il fallait soit tout prendre, soit ne rien prendre du tout. Peut-être que le processus aurait été plus ardu, mais la quantité de jades en leur possession aurait été plus du double de ce qu'ils possédaient actuellement.
 
-Une fois les ressources réunies, Du Tian emmena Wang Lin vers la Secte du Raffinage de l'Âme pour le protéger pendant sa percée vers la Transformation de l'Âme.
+Une fois les ressources réunies, Du Tian emmena Wang Lin vers la Secte de l'Affinement de l'Âme pour le protéger pendant sa percée vers la Transformation de l'Âme.
 
 Du Tian soupira: « La planète Suzaku est bien trop petite. Quand j'étais jeune, je suis parti une fois pour me rendre à Tian Yun. Cette planète est dix fois plus vaste que Suzaku. Les sectes y sont légion et les jades célestes encore plus nombreux. Si je n'avais pas été trop faible, il aurait été délicieux de piller leurs sectes. On dit qu'au sein de l'Alliance de la Culture, de nombreux pays de rang 6 organisent des raids pour dépouiller d'autres planètes. »
 
@@ -86,9 +86,9 @@ Cette bataille avait duré trois ans avant que le Clan Immortel Déchu ne se ret
 
 Au cours de ce conflit, deux figures s'étaient élevées au-dessus de toutes les autres: Liu Mei et Qian Feng.
 
-Liu Mei, par sa beauté sans pareille, avait captivé tous les jeunes cultivateurs masculins. Son niveau de culture était également très élevé; elle se trouvait au stade intermédiaire de la Transformation de l'Âme, ce qui la rendait encore plus remarquable. Dès son apparition, elle avait éclipsé la renommée de Papillon Rouge pour devenir la nouvelle favorite des cieux. On semblait ne plus prêter attention qu'à elle.
+Liu Mei, par sa beauté sans pareille, avait captivé tous les jeunes cultivateurs masculins. Son niveau de culture était également très élevé; elle se trouvait au stade intermédiaire de la Transformation de l'Âme, ce qui la rendait encore plus remarquable. Dès son apparition, elle avait éclipsé la renommée de Papillon Rouge pour devenir la nouvelle favorite des cieux. Plus personne ne semblait s'intéresser à Papillon Rouge.
 
-Ce qui alimentait davantage les conversations était le fait qu'elle soit la disciple personnelle du Suzaku actuel et une candidate au titre de prochain Suzaku. Dès son apparition, elle avait attiré l'attention de plusieurs chamans à sept feuilles, parvenant même à capturer un shaman à huit feuilles, aussi puissant qu'un cultivateur au stade avancé de la Transformation de l'Âme. Sa renommée était devenue fulgurante.
+Ce qui alimentait davantage les conversations était le fait qu'elle soit la disciple personnelle du Suzaku actuel et une candidate au titre de prochain Suzaku. Dès son apparition, elle avait capturé plusieurs chamans à sept feuilles, et même un chaman à huit feuilles, aussi puissant qu'un cultivateur au stade avancé de la Transformation de l'Âme. Sa renommée était devenue fulgurante.
 
 Un autre aspect de sa personnalité fascinait tout le monde: les rumeurs disaient qu'elle était empreinte de bonté et d'une pureté de cœur absolue, malgré son immense puissance. Elle n'avait jamais tué personne de sa vie; même lors des combats contre le Clan Immortel Déchu, elle se contentait de capturer ses adversaires sans les achever. Grâce à ces vertus, elle jouissait d'un respect unanime. Partout où elle apparaissait, les cultivateurs environnants obéissaient à ses ordres avec déférence. Même dans des batailles perdues d'avance, sa simple présence redonnait courage aux troupes, leur permettant de remporter la victoire grâce à son aide. Cette femme était considérée comme l'un des deux génies de cette génération.
 

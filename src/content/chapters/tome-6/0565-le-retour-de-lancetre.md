@@ -60,7 +60,7 @@ Le visage de Wang Lin resta de marbre: « Que veux-tu? »
 
 Le général démon répondit posément: « Dans trois mois, je dois retourner à la capitale du Pays Démon Céleste pour un compte rendu. Durant cette période, une compétition aura lieu entre les généraux démons. Si tu promets de m'aider, j'oublierai le massacre de mes soldats. Sinon, même si je meurs, tu ne pourras jamais prendre pied dans ce pays! »
 
-À cet instant, il considérait Wang Lin comme son égal. Sans compter cette paume illusoire, le simple fait que Wang Lin ait pu briser son coup de poing des dix effondrements et résister à la Mer Démoniaque des Cent Vagues fit bondir sa considération pour lui!
+À cet instant, il considérait Wang Lin comme son égal. Sans compter cette paume illusoire, le simple fait que Wang Lin ait pu briser son coup de poing des dix effondrements et résister à la Mer Démoniaque aux Cent Vagues fit bondir sa considération pour lui!
 
 « Cet homme possède le même niveau de culture que moi. S'il n'était pas vrai que ses sorts ne font pas le poids face aux miens, ce serait un combat acharné! » En pensant aux sorts, il se remémora soudainement cette paume, et l'idée que les techniques de Wang Lin étaient inférieures aux siennes disparut instantanément.
 
@@ -98,13 +98,13 @@ Les paroles du général démon s'adressaient aux cinq subordonnés, mais il mur
 
 Ces derniers restèrent silencieux, levant la tête vers la direction prise par Wang Lin. Un sentiment complexe et indicible s'installa dans leurs cœurs.
 
-Wang Lin flottait dans les airs et déploya son Sens Divin. Il localisa la Prison Sombre à l'intérieur de la ville et apparut devant elle, portant Treize inconscient.
+Wang Lin flottait dans les airs et déploya son Sens Divin. Il localisa la Prison des Ténèbres à l'intérieur de la ville et apparut devant elle, portant Treize inconscient.
 
-Cette Prison Sombre était souterraine, sous la Grande Muraille Antique. Bien que des restrictions protégeaient toute la zone, aucune, hormis celles situées dans les profondeurs de la prison, ne pouvait arrêter Wang Lin.
+Cette Prison des Ténèbres était souterraine, sous la Grande Muraille Antique. Bien que des restrictions protégeaient toute la zone, aucune, hormis celles situées dans les profondeurs de la prison, ne pouvait arrêter Wang Lin.
 
 Vu le statut de Hu Pao, il ne pouvait pas être enfermé dans les profondeurs de la prison. Wang Lin déploya son Sens Divin mais ne trouva aucune trace de lui. Il poussa un soupir, puis disparut sans laisser de trace.
 
-Wang Lin se déplaçait à une vitesse fulgurante. Sa culture ayant atteint le sommet du stade de la Transformation de l'Âme, sa célérité était décuplée. Bien qu'il portât Treize, il ne lui fallut que peu de temps pour revenir vers la Tribu du Affinement de l'Âme.
+Wang Lin se déplaçait à une vitesse fulgurante. Sa culture ayant atteint le sommet du stade de la Transformation de l'Âme, sa célérité était plusieurs fois supérieure à auparavant. Bien qu'il portât Treize, il ne lui fallut que peu de temps pour revenir vers la Tribu du Affinement de l'Âme.
 
 Wang Lin apparut dans un éclair de lumière à des dizaines de kilomètres de la tribu. Devant lui, la Tribu du Affinement de l'Âme se dessinait au loin!
 
@@ -116,7 +116,7 @@ Les membres de la tribu s'étaient habitués à ces lamentations spectrales éma
 
 La majorité des habitants de la tribu étaient en pleine culture à cet instant. Ils avaient tous extrait leur âme, laissant les fragments s'échapper des fanions d'âme pour rejoindre le brouillard noir. Simultanément, des fragments revenaient du brouillard pour réintégrer les fanions.
 
-Dès son apparition, Wang Lin fit un pas et fonça vers la tribu comme un éclair. Il esquissa un sourire, ayant déjà remarqué plus de dix individus, répartis en dix points différents, observant attentivement les environs.
+Dès son apparition, Wang Lin fit un pas et fonça vers la tribu comme un éclair. Il esquissa un sourire, ayant déjà remarqué plus de dix individus, dissimulés en différents points, observant attentivement les environs.
 
 Il connaissait bien ces gens; leur devoir était d'assurer la garde extérieure!
 

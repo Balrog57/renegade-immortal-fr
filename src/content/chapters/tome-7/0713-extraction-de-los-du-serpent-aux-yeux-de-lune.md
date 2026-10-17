@@ -52,7 +52,7 @@ S'il n'avait pas eu ce fourneau, il serait déjà retourné au néant.
 
 La planète Yun Xia était très calme, et il avait réussi à s'enfoncer profondément vers le trésor qu'il percevait. Le trésor qu'il convoitait était la Fleur de Lune du Serpent aux yeux de lune.
 
-En chemin, il avait aperçu le filon métallique et, après avoir hésité un instant, il y avait enfoncé la montagne céleste. Sa cupidité l'avait poussé à vouloir arracher de larges sections d'un coup.
+En chemin, il avait aperçu le filon métallique et, après avoir hésité un instant, il y avait enfoncé la montagne de pierre. Sa cupidité l'avait poussé à vouloir arracher de larges sections d'un coup.
 
 Malheureusement, cette douleur intense avait réveillé le Serpent aux yeux de lune. S'il n'avait pas sorti le fourneau assez rapidement, il aurait déjà été tué.
 
@@ -110,7 +110,7 @@ La puissance mystérieuse du Fruit d'Ascension Céleste semblait former un océa
 
 Le sol trembla violemment et une aura d'excitation intense émana de la terre. Tous les tentacules semblèrent perdre leur agressivité et commencèrent à onduler joyeusement, comme s'ils étaient ivres.
 
-Si la culture de Wang Lin avait été insuffisante ou s'il n'avait pas possédé l'expérience du démon dispersé tirant sur l'âme de la planète, il n'aurait ressenti que le tremblement de terre et non ce sentiment d'exaltation émanant de l'âme du Serpent aux yeux de lune.
+Si la culture de Wang Lin avait été insuffisante ou s'il n'avait pas vécu l'expérience du Démon Dispersé contrôlant son corps pour extraire l'âme de la Planète des Mille Illusions, il n'aurait ressenti que le tremblement de terre et non ce sentiment d'exaltation émanant de l'âme du Serpent aux yeux de lune.
 
 Les yeux de Wang Lin s'illuminèrent. Sans hésiter, il déploya ses bras et toucha les deux côtés de la fissure osseuse. C'était comme s'il les unissait à son propre corps.
 
@@ -120,7 +120,7 @@ Elle se divisa en deux parties le long de ses bras et jaillit tel deux dragons f
 
 Wang Lin rugit: « Extraction osseuse! »
 
-Une aspiration puissante jaillit de la rivière des enfers. Cette troisième capacité provenait de l'Abîme des Marées dans les Terres de l'Esprit Démoniaque. Ce pouvoir avait été acquis lors d'une illumination, quand Wang Lin avait expérimenté la force invisible créée par l'intersection de deux systèmes stellaires.
+Une aspiration puissante jaillit de la rivière des enfers. Cette troisième capacité provenait de l'Abîme des Marées dans la Terre des Esprits Démoniaques. Ce pouvoir avait été acquis lors d'une illumination, quand Wang Lin avait expérimenté la force invisible créée par l'intersection de deux systèmes stellaires.
 
 Sa puissance croîtrait indéfiniment au rythme de son Dao. À cet instant, il l'utilisait avec sa culture de stade avancé de l'Ascendant, et cela suffisait à faire trembler la planète entière. Même le brouillard entourant la planète fut affecté!
 

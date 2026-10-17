@@ -12,7 +12,7 @@ Les nuages et les brumes saturaient l'espace, enveloppant les cent mille montagn
 
 C’était là que se trouvait la secte extérieure de la Secte du Destin Céleste.
 
-À cet instant, des éclats de lumière d'épée fusaient dans tous les sens à travers le secteur; l'activité y était intense. Wang Lin, posté au pied de la montagne, contemplait le temple géant. Il prit une profonde inspiration et fit un pas en avant. Puis, se transformant en un rayon de lumière blanche, il s’élança.
+À cet instant, des éclats de lumière d'épée fusaient dans tous les sens à travers le secteur; l'activité y était intense. Wang Lin, posté à l'extérieur des cent mille montagnes, contemplait le temple géant. Il prit une profonde inspiration et fit un pas en avant. Puis, se transformant en un rayon de lumière blanche, il s’élança.
 
 Peu de temps après, Wang Lin atteignit une vaste montagne. Alors qu'il s'apprêtait à la franchir, son expression changea; il s'arrêta net et scruta l'horizon.
 
@@ -20,7 +20,7 @@ Peu de temps après, Wang Lin atteignit une vaste montagne. Alors qu'il s'apprê
 
 Le visage de Wang Lin se fit respectueux. Il joignit les mains et déclara d'une voix forte: « Wang Lin, de la planète Suzaku, vient saluer l'Omniscient. »
 
-« Wang Lin, l'honorable Omniscient est déjà informé de ton arrivée. Cependant, pour pénétrer dans la Secte du Destin Céleste, même les disciples honoraires doivent passer trois épreuves. Oses-tu les accepter? »
+« Wang Lin, l'honorable Omniscient est déjà informé de ton arrivée. Cependant, pour pénétrer dans la Secte du Destin Céleste, même les disciples ordinaires doivent passer trois épreuves. Oses-tu les accepter? »
 
 L'expression de Wang Lin devint très sérieuse. Il ne répondit pas immédiatement, mais demanda: « Quelles sont ces trois épreuves? »
 
@@ -30,7 +30,7 @@ Une fois la parole achevée, des dizaines de milliers de rayons de lumière conv
 
 Wang Lin esquissa un léger sourire et répondit: « Pourquoi hésiterais-je? » Sur ces mots, il pénétra dans l'anneau de lumière.
 
-Au sommet d'une haute montagne de la Secte du Destin Céleste trônait un arbre Bohi. Sa cime était immense, telle un parasol capable de couvrir le firmament. Quiconque levait les yeux vers lui ressentait une irrésistible envie de l'adorer.
+Au sommet d'une haute montagne de la Secte du Destin Céleste trônait un arbre Bodhi. Sa cime était immense, telle un parasol capable de couvrir le firmament. Quiconque levait les yeux vers lui ressentait une irrésistible envie de l'adorer.
 
 Sous cet arbre se trouvaient trois individus.
 
@@ -52,7 +52,7 @@ L'homme au visage froid ricana: « Le Pavillon des Nuages Pourpres... Intéressa
 
 « Frère cadet Zhou, qu’y a-t-il d’intéressant? » demanda l'homme au regard doux en se tournant vers lui.
 
-« Frère aîné, cherchez-vous à me tester? Le Pavillon des Nuages Pourpres n'est pas un lieu où un simple disciple honoraire peut séjourner. Le Palais du Ciel Pourpre et mon propre Palais du Rêve Pourpre sont les seuls domaines réservés aux véritables disciples de notre Maître! Je crains que le Pavillon des Nuages Pourpres ne soit bientôt rebaptisé le Pavillon du Bois Pourpre! »
+« Frère aîné, cherchez-vous à me tester? Le Pavillon des Nuages Pourpres n'est pas un lieu où un simple disciple honoraire peut séjourner. Le Pavillon du Ciel Pourpre et mon propre Pavillon du Rêve Pourpre sont les seuls domaines réservés aux véritables disciples de notre Maître! Je crains que le Pavillon des Nuages Pourpres ne soit bientôt rebaptisé le Pavillon du Bois Pourpre! »
 
 L'homme au regard doux sourit: « Wang Lin n'est pas un homme ordinaire, et il semble que le Maître ait été véritablement touché au point d'accepter un nouveau disciple. Nous allons bientôt gagner un autre frère cadet. N'est-ce pas une joie? »
 
@@ -78,6 +78,6 @@ Wang Lin la regarda et murmura: « Est-ce donc la première épreuve... une illu
 
 Li Muwan esquissa un faible sourire avant de disparaître avec Wang Lin.
 
-Dans la Secte du Destin Céleste, sous l'arbre Bohi, le jeune homme au regard doux s'exclama, ses yeux brillant d'une lueur mystérieuse.
+Dans la Secte du Destin Céleste, sous l'arbre Bodhi, le jeune homme au regard doux s'exclama, ses yeux brillant d'une lueur mystérieuse.
 
 « À moins que le Maître ne se soit trompé, cet homme possède une immense sagesse! Face à la première épreuve, les gens ordinaires n'ont que deux réactions: ils cherchent à s'apaiser pour l'éviter, ou tentent de la briser par la force. Cet homme est véritablement singulier; il a choisi de chercher le Dao! »

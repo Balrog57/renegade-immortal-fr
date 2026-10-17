@@ -42,13 +42,13 @@ En voyant cela, Wang Lin s'arrêta brusquement.
 
 Tout ce qui se dressait devant lui était trop différent de ce qu'il avait perçu auparavant. Bien qu'il ne se souciait ni du bien ni du mal et qu'il agît selon les désirs de son cœur, il ne put s'empêcher de laisser échapper un soupir de honte.
 
-Avec sa culture de Transformation de l'Âme, il avait déployé tant d'efforts pour briser cette formation... Il n'aurait jamais pu imaginer que cet endroit ne fût qu'un simple village!
+Avec sa culture de Transformation de l'Âme intermédiaire, il avait déployé tant d'efforts pour briser cette formation... Il n'aurait jamais pu imaginer que cet endroit ne fût qu'un simple village!
 
 Tous ceux qui accompagnaient le vieil homme nommé Ouyang Hua étaient des mortels...
 
 Le sens divin de Wang Lin balaya la vallée.
 
-Ouyang Hua et ses compagnons fronçaient encore les sourcils. Lorsqu'ils remarquèrent l'arrêt de Wang Lin, leurs cœurs tremblèrent. Certains membres du clan se mordirent si fort la lèvre inférieure qu'ils en serrèrent les poings. À leurs yeux, c'était leur foyer, et pour lui, ils étaient prêts à tout sacrifier, même leur vie!
+Lorsque Ouyang Hua et ses compagnons virent Wang Lin s'arrêter et scruter les alentours, les sourcils toujours froncés, leurs cœurs tremblèrent. Certains membres du clan se mordirent si fort la lèvre inférieure qu'ils en serrèrent les poings. À leurs yeux, c'était leur foyer, et pour lui, ils étaient prêts à tout sacrifier, même leur vie!
 
 Ouyang Hua s'approcha rapidement de Wang Lin et dit amèrement: « Céleste Suprême... vous? »
 
@@ -88,7 +88,7 @@ La demeure était d'une taille décente, meublée d'un lit, d'une table et de ch
 
 Debout dans la pièce, le regard de Wang Lin resta figé sur la toile tandis qu'il méditait silencieusement. La peinture était déjà jaunie et ses coins endommagés. Le support lui-même était tout ridé; elle avait manifestement beaucoup d'âge.
 
-L'homme représenté semblait âgé d'une quarantaine d'années. Il regardait au loin comme s'il était plongé dans une profonde réflexion, sa main posée négligemment devant sa poitrine en formant un étrange sceau. En suivant la direction de son regard, on apercevait le ciel où flottait un nuage noir d'où semblaient émaner des illusions. Cependant, la peinture étant trop ancienne, il était impossible de distinguer ce qui se cachait réellement dans ce nuage sombre.
+L'homme représenté semblait âgé d'une quarantaine d'années et portait une étrange robe daoïste. Il regardait au loin comme s'il était plongé dans une profonde réflexion, sa main posée négligemment devant sa poitrine en formant un étrange sceau. En suivant la direction de son regard, on apercevait le ciel où flottait un nuage noir d'où semblaient émaner des illusions. Cependant, la peinture étant trop ancienne, il était impossible de distinguer ce qui se cachait réellement dans ce nuage sombre.
 
 Ouyang Hua se tenait respectueusement aux côtés de Wang Lin; en suivant le regard de ce dernier vers la toile, il laissa échapper un air d'admiration inconscient.
 
@@ -120,6 +120,6 @@ Ouyang Hua ajouta précipitamment: « Tout ce que je sais provient de l'ancêtre
 
 Wang Lin médita en contemplant le parchemin, un air de nostalgie sur le visage. Son cœur sembla traverser la Mer des Esprits Démoniaques de l'Est, franchir l'espace et le ciel pour revenir à sa terre natale sur la planète Suzaku.
 
-Son esprit remonta également plusieurs centaines d'années en arrière, vers le jeune homme qui venait de quitter la vallée, celui qui n'avait pas été accepté par les immortels et dont tout le village se moquait.
+Son esprit remonta également plusieurs centaines d'années en arrière, vers le jeune homme qui venait de quitter son village de montagne, celui qui n'avait pas été accepté par les immortels et dont tout le village se moquait.
 
 Après de multiples tourments du destin, ce jeune homme avait fini par être admis dans une secte. Cette secte s'appelait la Secte Heng Yue...

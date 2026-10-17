@@ -12,7 +12,7 @@ Au pied du mont Quilian, une petite rivière serpentait, s'étirant sur plusieur
 
 « À l'époque, l'eau de cette rivière était douce, et parfois, des nuages descendaient jusqu'au sommet du Quilian. On disait que si quelqu'un parvenait à respirer la brume de ces nuages, son corps deviendrait vigoureux et il ne tomberait pas malade pendant dix ans! » Une voix juvénile résonna depuis le village.
 
-Ce jeune homme avait environ quatorze ou quinze ans et affichait une allure assez rustre. À cet instant, il s'adressait à sept ou huit enfants rassemblés devant lui, leur contant les souvenirs d'il y a cinq ans.
+Ce jeune homme avait environ quatorze ou quinze ans et avait l'air robuste et vif. À cet instant, il s'adressait à sept ou huit enfants rassemblés devant lui, leur contant les souvenirs d'il y a cinq ans.
 
 « Regardez-moi, ai-je été malade durant toutes ces années? C'est parce que mon père m'a emmené respirer la brume des nuages. Ce goût... ah, c'était un pur délice! » Le jeune homme parlait avec une fierté non dissimulée, gesticulant avec enthousiasme.
 
@@ -20,21 +20,21 @@ Ce jeune homme avait environ quatorze ou quinze ans et affichait une allure asse
 
 « Wang Ping, parmi nous tous, c'est bien toi qui en as le plus besoin. Malheureusement, après la colère du Grand-Père Céleste, ces nuages ont disparu. S'ils étaient encore là et que ton père t'y avait emmené, tu ne serais pas tombé malade pendant dix ans », dit le jeune homme en posant son regard sur un garçon au sein de la foule.
 
-Ce garçon avait environ cinq ou six ans. Son visage était pâle et sa constitution fragile. Bien qu'il fût bien plus petit que les autres enfants, il possédait une grande beauté; sans sa mine maladive, il aurait eu l'apparence délicate d'une poupée de porcelaine. Enveloppé dans un pull, ses yeux brillaient d'excitation lorsqu'il répondit: « Grand frère Zhou, je demanderai à mon père de m'y emmener dès que je serai rentré. »
+Ce garçon avait environ cinq ou six ans. Son visage était pâle et sa constitution fragile. Bien qu'il fût bien plus petit que les autres enfants, il possédait une grande beauté; sans sa mine maladive, il aurait eu l'apparence délicate d'une poupée de porcelaine. Vêtu d'une petite chemise de toile de kudzu, ses yeux brillaient d'excitation lorsqu'il répondit: « Grand frère Zhou, je demanderai à mon père de m'y emmener dès que je serai rentré. »
 
-Le jeune homme éclata de rire: « L'oncle charpentier Wang est doué pour la sculpture, mais les nuages du sommet Quilian ont disparu, alors comment pourrait-il t'y emmener? Écoutez-moi, le mieux est que vous appreniez tous à pratiquer les arts martiaux chaque jour. Cela fortifiera vos corps et, une fois adultes, nous pourrons parcourir le monde martial. »
+Le jeune homme éclata de rire: « L'oncle charpentier Wang est doué pour la sculpture, mais les nuages du sommet Quilian ont disparu, alors comment pourrait-il t'y emmener? Écoutez-moi, vous feriez mieux de m'imiter: nous nous exerçons à l'escrime chaque jour. Cela fortifie le corps et, une fois adultes, nous parcourrons le monde martial, l'épée à la main! »
 
 Les idéaux grandioses du jeune homme enflammèrent davantage l'enthousiasme des autres enfants.
 
 Alors qu'il s'emportait lui aussi dans son élan, divers appels vinrent du village.
 
-Le jeune homme leva la tête et soupira: « Bon, l'entraînement martial est terminé pour aujourd'hui. Nous reprendrons après le dîner. »
+Le jeune homme leva la tête et soupira: « Bon, l'assemblée du monde martial est terminée pour aujourd'hui. Nous la rouvrirons après le dîner. »
 
 Les enfants se dispersèrent avec une pointe de regret. Le petit Wang Ping marcha vers le village, les yeux brillants, jetant parfois des regards vers le sommet du Quilian.
 
-En chemin, un homme corpulent sortit du village. C'était un colosse qui portait une fourche militaire, un arc et des flèches, avec un cerf suspendu sur l'épaule.
+En chemin, un homme corpulent sortit du village. C'était un colosse qui portait une fourche d'acier et des flèches de chasseur, avec un cerf suspendu sur l'épaule.
 
-L'homme vit l'enfant et sourit: « Petit de la famille Wang, es-tu allé faire tes exercices martiaux avec mon fils? »
+L'homme vit l'enfant et sourit: « Petit de la famille Wang, es-tu encore allé tenir je ne sais quelle assemblée du monde martial avec mon fils? »
 
 L'enfant hocha timidement la tête: « Salutations, oncle Zhou. »
 
@@ -44,7 +44,7 @@ L'enfant acquiesça rapidement et guida l'homme vers sa demeure. Peu après, une
 
 Un jeune homme sortit de la maison. Il avait l'air tout à fait ordinaire, sans rien de particulier; il n'avait en rien la beauté de l'enfant. En se tenant à ses côtés, beaucoup n'auraient jamais deviné qu'ils étaient père et fils.
 
-Le jeune homme portait des vêtements de lin grossier et ses mains étaient couvertes d'ampoules. En sortant, il sourit: « Grand frère Zhou, la récolte d'aujourd'hui semble fructueuse. »
+Le jeune homme portait des vêtements de lin grossier et ses mains étaient couvertes de cals. En sortant, il sourit: « Grand frère Zhou, la récolte d'aujourd'hui semble fructueuse. »
 
 L'enfant courut dans la pièce pour sortir un pain blanc à la vapeur. Il rejoignit le jeune homme, s'assit sur un tabouret de bois et commença à manger.
 
@@ -52,7 +52,7 @@ L'homme nommé Zhou posa le cerf et rit: « Frère Wang, j'ai croisé ce cerf en
 
 Le jeune homme esquissa un sourire serein. Il caressa la tête de l'enfant et ajouta: « Avec vos talents martiaux, Grand frère Zhou, abattre un cerf n'est guère difficile. »
 
-L'homme de la famille Zhou rit de bon cœur: « Frère Wang, mon fils grandit. Dans deux ans, je lui construirai une maison pour qu'il puisse se marier. La construction est en cours, mais il manque encore les meubles. Je vais devoir solliciter ton aide pour cela. »
+L'homme de la famille Zhou rit de bon cœur: « Frère Wang, mon fils grandit. Dans deux ans, je compte lui trouver une épouse. La maison va bientôt être construite, mais il manque encore l'ameublement. Je vais devoir solliciter ton aide pour cela. »
 
 Wang Lin sourit: « Aucun problème. Ne vous inquiétez pas, Grand frère Zhou. »
 
@@ -88,7 +88,7 @@ Il referma son poing, broyant la masse sombre.
 
 Le visage de Wang Ping retrouva une légère coloration rosée.
 
-En contemplant l'enfant, Wang Lin laissa échapper un soupir. Il recouvrit le garçon avec la couverture qu'il avait écartée, puis sortit de la pièce.
+En contemplant l'enfant, Wang Lin laissa échapper un soupir. Il recouvrit le garçon avec la couverture que l'enfant avait repoussée, puis sortit de la pièce.
 
 Dans la cour, la lumière lunaire enveloppait le corps de Wang Lin, lui conférant une aura de solitude mélancolique.
 
@@ -122,16 +122,16 @@ Wang Lin réfléchit longuement avant de lever les yeux vers la lune et de répo
 
 « Un cycle de réincarnation... » soupira Sun Tai. « Ne voulez-vous pas qu'il devienne un cultivateur? Avec votre niveau de culture, vous pourriez lui offrir un chemin bien plus facile sur la voie de la culture. Il pourrait jouir d'un avantage supérieur à celui des descendants directs de grandes familles de cultivateurs. »
 
-Un regard de dépit traversa les yeux de Wang Lin, qui déclara d'une voix feutrée: « Je ne le laisserai jamais cultiver de sa vie! »
+Une pointe d'abattement traversa les yeux de Wang Lin, qui déclara d'une voix feutrée: « Je ne le laisserai jamais cultiver de sa vie! »
 
 Sun Tai marqua une pause et tenta: « Le talent de cet enfant est exceptionnel... »
 
 « Je ne le laisserai pas cultiver! » répéta Wang Lin. Son regard se fixa sur Sun Tai avec une intensité implacable: « Jamais! »
 
-Wang Lin se demanda intérieurement: *La culture, la culture... qu'y a-t-il au bout de ce chemin?* Sa propre vie n'avait été qu'une succession d'instabilités et une route solitaire. Il refusait que son fils subisse le même sort.
+Wang Lin se demanda intérieurement: *La culture, la culture... qu'y a-t-il au bout de ce chemin?* Sa propre vie n'avait été que malheur et solitude. Il refusait que son fils subisse le même sort.
 
 Il connaissait trop bien la cruauté du monde de la culture, ses massacres et ses périls constants.
 
 « Ping Er a déjà subi trop de choses qu'un enfant ne devrait jamais connaître. Je l'ai nommé Wang Ping dans l'espoir que sa vie soit paisible et sûre. J'espérais qu'il devienne un simple mortel qui se marierait, élèverait des enfants et mènerait une existence tranquille... Désormais, ne parlez plus jamais de culture! »
 
-La voix de Wang Lin était empreinte d'une résolution absolue. Elle ne changerait pas, car elle ne pouvait plus changer.
+La voix de Wang Lin était empreinte d'une résolution absolue. Elle ne pouvait pas changer, et elle ne changerait pas.

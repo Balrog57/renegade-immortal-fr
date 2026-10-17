@@ -19,7 +19,7 @@ La troisième ancêtre de la onzième couche cracha aussitôt du sang. C'était 
 
 Le parchemin de la première couche se referma rapidement après l'appel de la troisième ancêtre, puis disparut.
 
-Les yeux de Wang Lin s'illuminèrent. Sans dire un mot, il saisit son propre parchemin. Il n'eut pas le temps de l'examiner et s'élança vers la sortie.
+Les yeux de Wang Lin s'illuminèrent. Sans dire un mot, il saisit son propre parchemin. Il n'eut pas le temps de l'examiner; il le rangea dans son sac de rangement et s'élança vers la sortie.
 
 Au gouffre béant menant à la sortie du Cimetière des Immortels, Wang Lin s'enveloppa une fois de plus de fragments d'âme pour traverser l'arbre. Dehors, la nuit était tombée et l'obscurité était totale.
 
@@ -71,17 +71,17 @@ Ces trois mois de trêve étaient une période propice au rétablissement. Toute
 
 À cinq mille kilomètres de là, un nuage noir recouvrait la zone: c'était là que se trouvait l'armée d'assaut occidentale du Clan des Immortels Délaissés.
 
-Au centre du camp des cultivateurs se dressait une hutte très luxueuse. Qian Feng y était assis, Papillon Rouge derrière lui. On pouvait lire dans ses yeux une certaine confusion mêlée à un combat intérieur profondément dissimulé.
+Au centre du camp des cultivateurs se dressait une hutte très luxueuse. Qian Feng était assis en tailleur devant, Papillon Rouge debout derrière lui. Ses yeux ternes laissaient voir une certaine confusion mêlée à un combat intérieur profondément dissimulé.
 
 Le regard de Qian Feng était aussi tranchant que l'éclair alors qu'il fixait le nuage noir au loin. Son expression était d'une grande noirceur.
 
 « À quoi ce vieil homme pense-t-il? La situation devient trop périlleuse. Nous ferions mieux d'abandonner la planète Suzaku, de partir loin et de revenir quand nous aurons la puissance nécessaire pour vaincre. Si cette impasse perdure, le moral des troupes finira par s'effondrer. »
 
-Ses yeux brillèrent, il laissa échapper un reniflement froid et marmonna pour lui-même: « Je me demande où se cache ce Ceng Niu. Il a osé me blesser. Si je le rencontre, je dévorerai sans faute son domaine. Bien que l'Étendard de l'Âme d'un Milliard soit puissant, le vieil homme m'a remis un trésor. Vu à quel point il semblait tourmenté, ce trésor doit être redoutable. Grâce à lui, j'ai une réelle confiance pour affronter l'Étendard de Ceng Niu.
+Ses yeux brillèrent, il laissa échapper un reniflement froid et marmonna pour lui-même: « Je me demande où se cache ce Ceng Niu. Il a osé me blesser. Si je le rencontre, je dévorerai sans faute son domaine. Bien que l'Étendard de l'Âme d'un Milliard soit puissant, le vieil homme m'a remis un trésor. Vu à quel point il y tient, ce trésor doit être redoutable. Grâce à lui, j'ai une réelle confiance pour affronter l'Étendard de Ceng Niu.
 
 « Cependant, il vaut mieux ne pas utiliser le trésor du vieil homme, sauf nécessité absolue. Ce vieux sac d'os a bien caché ses intentions, mais j'ai remarqué depuis longtemps que son attitude envers moi était singulière.
 
-« J'aurai besoin de l'aide de ma sœur apprentie pour dévorer le domaine de Ceng Niu. Je devrai planifier cela avec soin! Une fois que j'aurai dévoré le domaine de cet homme et capturé ma sœur apprentie, je quitterai cette planète. L'univers est vaste et je serai libre de faire ce que je veux. Auparavant, le titre de Suzaku m'importait, mais maintenant que la planète est en plein chaos, ce titre ne me sert à rien! Cependant, avant de partir, je dois tuer cette traînée de Zi Xin! »
+« J'aurai besoin de l'aide de ma sœur apprentie pour dévorer le domaine de Ceng Niu. Je devrai planifier cela avec soin! Une fois que j'aurai dévoré le domaine de cet homme et capturé ma sœur apprentie, je quitterai cette planète. L'univers est vaste et je serai libre de faire ce que je veux. Auparavant, le titre de Suzaku m'importait, mais maintenant que la planète est en plein chaos, ce titre ne me sert à rien! Cependant, avant de partir, je dois torturer à mort cette traînée de Zi Xin! »
 
 Un mois plus tard, une silhouette apparut près de la Secte des Cadavres, à Zhao. C'était un jeune homme vêtu d'une robe blanche, dont le visage dégageait une aura antique.
 
@@ -99,7 +99,7 @@ La dernière tâche de Wang Lin consistait à se rendre auprès du corps gigante
 
 Wang Lin possédait une hache géante dans son sac de rangement; cette hache appartenait à cet ancêtre fondateur. Wang Lin était venu y extraire une quantité massive de sang, afin que son corps original puisse utiliser les techniques des Anciens Dieux. Cela faisait partie de ses préparatifs pour quitter ces lieux.
 
-Wang Lin n'avait aucun intérêt à s'impliquer dans le chaos de la planète Suzaku; il ne cherchait qu'à obtenir le Cristal de la Planète de Culture afin de récupérer cette parcelle de son âme. Ensuite, il se rendrait sur la planète Tian Yun pour trouver l'Omniscient et devenir son disciple. Il cultiverait alors jusqu'au stade d'Ascendant sous un nouveau ciel.
+Wang Lin n'avait aucun intérêt à s'impliquer dans le chaos de la planète Suzaku; il ne cherchait qu'à obtenir le Cristal de la Planète de Culture afin de récupérer cette parcelle de son âme. Ensuite, il se rendrait sur la planète Tian Yun pour y devenir disciple d'un maître. Il cultiverait alors jusqu'au stade d'Ascendant sous un nouveau ciel.
 
 Il reviendrait certainement sur la planète Suzaku à l'avenir, mais le moment venu, il ne serait plus une pièce parmi les pions d'un plan étranger; il serait tel un empereur que le Suzaku actuel devrait regarder avec respect.
 

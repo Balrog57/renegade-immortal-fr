@@ -46,7 +46,7 @@ Le corps du vieil homme aux cheveux blancs semblait extrêmement affaibli. Il so
 
 --------------
 
-« Depuis que ce vieil homme a mémoire, je vis déjà ici. Je n'ai aucune idée du temps qui s'est écoulé depuis lors... » Ouyang Hua était assis à l'extérieur de la vallée, devant une table garnie de quelques fruits.
+« Depuis que ce vieil homme a mémoire, je vis déjà ici. Je n'ai aucune idée du temps qui s'est écoulé depuis lors... » Ouyang Hua était assis à l'extérieur de la vallée, devant une table en os garnie de quelques fruits.
 
 Wang Lin, l'expression sereine, était assis en position du lotus face au vieil homme.
 
@@ -56,13 +56,13 @@ La voix d'Ouyang Hua était monocorde lorsqu'il reprit: « Ce vieil homme ne con
 
 Le regard de Wang Lin resta calme lorsqu'il demanda lentement: « Savez-vous d'où je viens? »
 
-« Dès votre apparition à l'extérieur de la vallée, j'ai su que vous n'étiez pas de cette terre. Il faut dire que vous et vos compagnons ne venez qu'une fois tous les 5 000 ans, et chaque fois que vous apparaissez, vous apportez avec vous un bain de sang sans fin... C'est pourquoi je n'ai pas salué votre arrivée. » Ouyang Hua soupira doucement.
+« Dès votre apparition à l'extérieur de la vallée, j'ai su que vous n'étiez pas de cette terre. Il faut dire que vous et vos compagnons ne venez qu'une fois tous les 5 000 ans, et chaque fois que vous apparaissez, vous apportez avec vous un bain de sang sans fin... C'est pourquoi je ne souhaite pas votre venue. » Ouyang Hua soupira doucement.
 
 Wang Lin demanda d'un ton serein: « Avez-vous des nouvelles d'autres étrangers? »
 
 Ouyang Hua répondit sans hésiter: « Aucune pour le moment, et j'espère qu'il n'y en aura pas à l'avenir. Étranger, il n'y a rien pour vous ici. J'ai dit ce que j'avais à dire, vous devriez donc partir. Rendez-vous à cette Grande Muraille Antique; vous y trouverez peut-être ce que vous cherchez. »
 
-Wang Lin demanda calmement: « Et cette chose dont vous dites sans cesse que j'en ai besoin? Qu'est-ce que c'est, exactement? »
+Wang Lin demanda calmement: « Cette chose dont vous avez parlé à deux reprises comme de ce dont j'ai besoin? Qu'est-ce que c'est, exactement? »
 
 Le visage d'Ouyang Hua s'assombrit. Il se leva, fixa Wang Lin et déclara: « Étranger, j'ai dit tout ce qu'il y avait à dire. Bien que vous possédiez certain talent, si je n'avais pas refusé de me battre avec vous, je ne vous aurais certainement pas laissé partir après que vous avez capturé les membres de ma tribu. Ne vous méprenez pas! Si vous n'êtes pas parti d'ici dans trois respirations, ne me reprochez pas d'être impitoyable! »
 
@@ -70,7 +70,7 @@ Les yeux de Wang Lin devinrent glacials alors qu'il fixait l'Ancien. Il agita la
 
 La formation entourant la vallée s'activa d'elle-même et, à l'impact de la lumière verte, un grondement retentit.
 
-Wang Lin laissa échapper un reniflement froid, frappa son sac de stockage et le drapeau de restriction apparut. Il agita le drapeau, et les 999 restrictions s'envolèrent pour recouvrir la zone d'un brouillard noir. Dans cette obscurité, la silhouette de Wang Lin lui donnait l'apparence d'un général démoniaque.
+Wang Lin laissa échapper un reniflement froid, frappa son sac de stockage et le drapeau de restriction apparut. Il agita le drapeau, et les 999 restrictions s'envolèrent pour recouvrir la zone d'un brouillard noir. Dans cette obscurité, la silhouette de Wang Lin lui donnait l'apparence d'un seigneur démon.
 
 Son regard glacial dégageait une pression infinie.
 
@@ -102,7 +102,7 @@ Dès leur apparition, ces ondes furent attirées par la force mystérieuse produ
 
 Cette illusion avait une forme humaine mais mesurait une dizaine de mètres de haut. Seule sa silhouette était visible, ses traits demeurant indistincts. La figure était entièrement composée de lumière verte.
 
-Dès que l'illusion apparut, la voix d'Ouyang Hua retentit aussitôt: « Étranger, vous avez attiré cela sur vous! Illusion verte, tuez-le et rapportez son âme en sacrifice pour la Nuit Démoniaque de ce jour! »
+Dès que l'illusion apparut, la voix d'Ouyang Hua retentit aussitôt: « Étranger, vous avez attiré cela sur vous! Illusion verte, tuez-le et rapportez son âme en sacrifice pour le Jour des Esprits Démoniaques de cette nuit! »
 
 À ces mots, un rugissement inhumain jaillit de l'illusion. Ce cri n'était pas assourdissant, mais il fit changer les couleurs du ciel et fit instantanément trembler le sol!
 

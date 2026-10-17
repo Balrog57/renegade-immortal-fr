@@ -58,7 +58,7 @@ Cette intention meurtrière fit chuter instantanément la température environna
 
 Cette énergie était monstrueuse. À son apparition, elle sembla saturer le ciel de lames invisibles!
 
-Une autre épée accompagnait l'épée céleste. C'était une arme précieuse sur laquelle flottait la silhouette ténue d'une âme de bélier démoniaque. Une lame en forme de croissant complète ce trio, émettant un chant métallique et dégageant une aura glaciale.
+Une autre épée accompagnait l'épée céleste. C'était une arme précieuse sur laquelle flottait la silhouette ténue d'une âme de bélier maléfique. Une lame en forme de croissant complète ce trio, émettant un chant métallique et dégageant une aura glaciale.
 
 Derrière ces trois armes se tenait Wang Lin. Il sortit lentement, pas après pas, de la sphère de pus fendue en deux. Ses yeux étaient d'un rouge éclatant, et l'intention de combat et de meurtre qui les habitait s'était muée en une lueur mystérieuse.
 
@@ -80,11 +80,11 @@ C'est alors que Xu Liguo sortit de l'épée céleste pour insulter le vieillard:
 
 À ses yeux, avec son niveau de culture, il n'était pas difficile de capturer une épée à mains nues!
 
-Xu Liguo ricana intérieurement en voyant le vieillard tenter l'approche. Loin de se dérober, il ralentissait même l'épée pour attendre que le vieillard la saisisse.
+Xu Liguo ricana intérieurement en voyant le vieillard tenter l'approche. Loin de se dérober, il ralentissait même l'épée pour attendre que le vieillard la saisisse. À l'instant où la paume du vieillard referma ses doigts sur l'épée céleste, celle-ci trancha soudain: le vieillard poussa un gémissement, ses cinq doigts furent tous tranchés net et le sang ne cessait de couler.
 
 « Ceci... Quel genre d'épée est-ce là?! » Le vieil homme fut stupéfait et battit en retraite précipitamment. Cependant, l'épée céleste le poursuivit. L'arme habitée par l'âme du bélier maléfique décrivit une courbe pour frapper le vieillard dans le dos.
 
-Après l'explosion des plaies terrestres, un épais mur de pus de plus de trente mètres de large apparut, se propageant en ondulations. Le corps de Wang Lin, imprégné d'énergie spirituelle céleste, flottait dans les airs. Il fit un pas vers le vieil homme, lequel était alors engagé dans un combat acharné contre les deux épées.
+Après l'explosion des plaies terrestres, une colonne de pus d'une trentaine de mètres d'épaisseur jaillit vers le ciel, se propageant en ondulations. Le corps de Wang Lin, imprégné d'énergie spirituelle céleste, flottait dans les airs. Il fit un pas vers le vieil homme, lequel était alors engagé dans un combat acharné contre les deux épées.
 
 Le vieil homme poussa un rugissement de rage et invoqua à nouveau le cocon illusoire pour lancer son sort. D'un seul pas, Wang Lin brisa l'espace et apparut au-dessus du vieillard. Ses yeux rouge sang fixèrent le cocon alors qu'il tendait la main droite. Des filaments d'énergie de massacre jaillirent et s'insinuèrent dans l'illusion.
 
@@ -96,7 +96,7 @@ Le cocon explosa en plein vol. Une masse de pus fut projetée et un gémissement
 
 La lame en croissant la suivit de près pour l'empaler. Chanson du Vent agita la main et un poignard d'argent apparut dans sa paume. Le choc des métaux retentit alors que la lame en croissant était repoussée, mais Chanson du Vent fut elle aussi projetée en arrière de quelques pas.
 
-Elle venait d'arriver pour contrer la lame et l'explosion du cocon l'avait contrainte à se dévoiler.
+Elle venait d'arriver pour contrer la lame et l'explosion du cocon l'avait contrainte à se dévoiler. Elle ignorait si Wang Lin l'avait pressenti depuis longtemps ou si ce n'était qu'une coïncidence.
 
 Une fois le cocon détruit, le vieil homme cracha du sang, le visage marqué par l'incrédulité. À cet instant précis, le pouce de Wang Lin pressa de nouveau et le Doigt de la Mort réapparut!
 

@@ -32,7 +32,7 @@ Le Sens Divin de Wang Lin se déploya pour scanner la planète. Il y avait des c
 
 Après une courte réflexion, il décida de ne pas chercher de lieu secret et choisit le plus haut sommet de la planète. Une fois la montagne localisée, il s'y précipita.
 
-Le Pic Feng Yun était le point culminant de la planète Qing Ling. Bien que l'énergie spirituelle y fût mince, il offrait une vue spectaculaire; on pouvait presque percevoir les confins du monde depuis la cime.
+Le Pic Heng Yun était le point culminant de la planète Qing Ling. Bien que l'énergie spirituelle y fût mince, il offrait une vue spectaculaire; on pouvait presque percevoir les confins du monde depuis la cime.
 
 Il était également drapé de brume, lui donnant l'apparence d'une montagne céleste.
 
@@ -40,9 +40,9 @@ De nombreuses familles de culture existaient sur la planète Qing Ling. Leur nom
 
 Ce phénomène étrange était lié au fait que la planète manquait d'énergie spirituelle et ne comptait aucun cultivateur de la Formation de l'Âme.
 
-Le Pic Heng Yun appartenait à la famille Zhang, qui possédait le plus grand nombre de cultivateurs de l'Âme Naissante. Normalement, les membres de la famille Zhang dont la longévité touchait à sa fin venaient ici pour entamer une culture en isolement afin de tenter de comprendre les cieux. Au fil du temps, ce pic autrefois magnifique était devenu aride pour une raison inconnue. Même le vent qui soufflait sur la montagne était devenu glacial.
+Le Pic Heng Yun appartenait à la famille Zhang, qui possédait le plus grand nombre de cultivateurs de l'Âme Naissante. Normalement, les membres de la famille Zhang dont la longévité touchait à sa fin venaient ici pour s'isoler et s'éteindre en position assise. Au fil du temps, ce pic autrefois magnifique était devenu aride pour une raison inconnue. Même le vent qui soufflait sur la montagne était devenu glacial.
 
-Ce jour-là, Zhang Xinhai, le chef de la famille Zhang et celui qui était resté bloqué au stade de l'Âme Naissante le plus longtemps, sortit de la montagne, le corps imprégné d'une aura de mort.
+Ce jour-là, Zhang Xinhai, le chef de la famille Zhang et celui qui était resté bloqué au stade avancé de l'Âme Naissante le plus longtemps, sortit de la montagne, le corps imprégné d'une aura de mort.
 
 Chaque cultivateur dont la fin est proche traverse ce cycle: s'asseoir au sommet du Pic Heng Yun et contempler le ciel tandis que sa vie s'étiole lentement.
 
@@ -72,7 +72,7 @@ Zhang Xinhai laissa échapper un sourire amer et répondit respectueusement: « 
 
 Wang Lin se détourna et sa main droite projeta un rayon d'énergie spirituelle entre les sourcils de Zhang Xinhai. Il dit doucement: « Je ne peux pas changer votre destin, mais brûler votre propre énergie spirituelle pour prolonger votre vie de dix ans est une chose que je peux accomplir. »
 
-En projetant ce rayon, Wang Lin laissa échapper un soupir. Ce sort était une technique qu'il pouvait à peine utiliser depuis qu'il avait atteint la troisième étape. S'il l'avait su plus tôt, Li Muwan ne se serait pas réfugiée dans la perle défiant les cieux.
+En projetant ce rayon, Wang Lin laissa échapper un soupir. Ce sort était une technique qu'il pouvait à peine utiliser depuis qu'il avait entrevu le chemin de la troisième étape. S'il l'avait su plus tôt, Li Muwan ne se serait pas réfugiée dans la perle défiant les cieux.
 
 Lorsque le sort atteignit le front de Zhang Xinhai, son corps trembla et il ressentit instantanément une vitalité jaillissant de l'énergie spirituelle injectée en lui. Son visage devint rouge alors qu'il prenait une profonde inspiration. Il regarda Wang Lin et dit avec respect: « Merci, Senior. Si le Senior a la moindre commande, le Junior fera tout son possible pour s'y conformer! » Quelqu'un ayant dirigé la famille Zhang n'était pas stupide. Personne dans ce monde n'agissait ainsi gratuitement.
 
@@ -80,7 +80,7 @@ Lorsqu'il avait entendu Wang Lin dire que cette montagne était agréable, il l'
 
 Zhang Xinhai devina que cet homme n'était pas originaire de la planète Qing Ling et devait venir d'ailleurs. Pouvoir marcher dans l'espace signifiait qu'il était au moins au stade de la Transformation de l'Âme ou au-delà!
 
-Wang Lin regarda calmement Zhang Xinhai et dit d'un ton posé: « Je vous donne dix ans pour collecter autant de ressentiment que possible du monde mortel. Plus il y en aura, mieux ce sera! Si je suis satisfait de votre résultat, alors tant que cette planète m'appartiendra, votre famille Zhang ne sera jamais anéantie! Partez maintenant! » Wang Lin agita ses larges manches.
+Wang Lin regarda calmement Zhang Xinhai et dit d'un ton posé: « Je vous donne dix ans pour collecter autant de ressentiment que possible du monde mortel. Plus il y en aura, mieux ce sera! Si je suis satisfait de votre résultat, alors tant que je serai sur cette planète, votre famille Zhang ne sera jamais anéantie! Partez maintenant! » Wang Lin agita ses larges manches.
 
 Zhang Xinhai ne sentit qu'une bourrasque de vent. Devant lui, il n'y avait plus que d'épais brouillards et le sifflement du vent dans ses oreilles. Lorsqu'il retrouva la vue, il se trouvait déjà au pied de la montagne.
 
@@ -88,7 +88,7 @@ La scène précédente lui semblait être un rêve. Il toucha l'endroit entre se
 
 « Je dois faire de mon mieux pour accomplir la requête du Senior! » Zhang Xinhai se transforma en un rayon de lumière et fonça vers le domaine de la famille Zhang.
 
-Après avoir renvoyé Zhang Xinhai, Wang Lin réfléchit un instant avant de sortir l'Étendard des âmes d'un milliard. Il planta délicatement l'étendard de trente pieds de haut dans la montagne.
+Après avoir renvoyé Zhang Xinhai, Wang Lin réfléchit un instant avant de sortir l'Étendard des Mille Millions d'Âmes. Il planta délicatement l'étendard de trente pieds de haut dans la montagne.
 
 L'étendard se déploya sous l'effet du vent et les fragments d'âmes s'envolèrent, enveloppant tout le sommet. Les trois âmes primaires surgirent et encerclèrent la zone. La montagne entière fut immédiatement recouverte d'un dense brouillard noir.
 

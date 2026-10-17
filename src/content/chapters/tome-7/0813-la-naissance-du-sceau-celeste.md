@@ -14,7 +14,7 @@ Bien que ce messager n'ait pas accordé une importance capitale à ce trésor, c
 
 En vérité, non seulement lui, mais n'importe quel cultivateur de l'Yin Illusoire ou du Yang Corporel aurait eu le cœur serré en voyant ce que Wang Lin venait de faire. Après tout, si l'on détruit son trésor pour obtenir quelque chose de sans valeur, ou d'une valeur inférieure à l'objet original, on ne fait preuve que de folie.
 
-Si des cultivateurs du premier niveau avaient vu Wang Lin, ils n'auraient pas eu le cœur serré; ils auraient ressenti un choc, un immense choc! Il faut dire que si ce genre de trésor était apparu sur la planète Suzaku il y a huit cents ans, cela aurait déclenché une tempête, et même Zhu Quezi s'en serait emparée.
+Si des cultivateurs du premier niveau avaient vu Wang Lin, ils n'auraient pas eu le cœur serré; ils auraient ressenti un choc, un immense choc! Il faut dire que si ce genre de trésor était apparu sur la planète Suzaku il y a sept ou huit cents ans, cela aurait déclenché une tempête, et même Zhu Quezi s'en serait emparée.
 
 Inconsciemment, après mille ans de culture, Wang Lin avait atteint un tel état d'esprit qu'il était prêt à briser un trésor de cette trempe simplement pour percer le sortilège qui y était scellé.
 
@@ -58,7 +58,7 @@ Si n'importe qui d'autre avait tenté l'expérience, à moins de posséder un so
 
 En fixant ce fragment, l'éclat mystérieux dans le regard de Wang Lin s'intensifia davantage.
 
-« Il s'agissait à l'origine d'un fragment du Royaume Céleste, raffiné par la tribulation divine. Il n'a pas été endommagé lors de l'attaque du Seigneur Céleste Qing Shui, sa robustesse est donc à son apogée. Cependant, ce trésor n'est pas complet; lorsqu'il attaque, il se contente d'utiliser l'énergie spirituelle céleste qu'il possède pour emprisonner une cible. En réalité, il n'est pas très puissant; il ne peut rivaliser avec la force mortelle de la Paire Dao de la Putréfaction, et certainement pas avec le troisième Charriot de Dieu Tueur. »
+« Il s'agissait à l'origine d'un fragment du Royaume Céleste, raffiné par la tribulation divine. Il n'a pas été endommagé lors de l'attaque du Seigneur Céleste Qing Shui, sa robustesse a donc atteint un certain degré. Cependant, ce trésor n'est pas complet; lorsqu'il attaque, il se contente d'utiliser l'énergie spirituelle céleste qu'il possède pour emprisonner une cible. En réalité, il n'est pas très puissant; il ne peut rivaliser avec la force mortelle de la Paire Dao Fanée, et certainement pas avec le troisième Charriot de Guerre Divin. »
 
 Wang Lin sortit à nouveau le pinceau céleste et commença à dessiner. Un instant plus tard, une Rune de Scellement apparut.
 
@@ -94,7 +94,7 @@ Même un cultivateur de bas niveau sentirait son esprit vaciller et une douleur 
 
 Le petit sceau de dix centimètres brillait intensément, chargé d'une riche énergie spirituelle céleste et entouré d'une puissante aura de scellement.
 
-Ce sceau fut le fruit d'un mois entier de raffinage. Wang Lin avait approximativement calculé qu'il contenait pas moins de 600 000 Runes de Scellement!
+Ce sceau fut le fruit de plus d'un mois de raffinage. Wang Lin avait approximativement calculé qu'il contenait pas moins de 600 000 Runes de Scellement!
 
 Plus de 600 000 runes avaient été fusionnées dans ce fragment de 330 mètres, avant d'être condensées en un sceau de dix centimètres. Wang Lin était extrêmement confiant quant à la puissance contenue dans cet objet.
 

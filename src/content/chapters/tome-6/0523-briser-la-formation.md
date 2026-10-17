@@ -36,7 +36,7 @@ Sa vitesse était telle qu'elle brisait le mur du son. Le souffle créé par sa 
 
 À cet instant, la figure verdoyante s'effondra sous la violence du vent.
 
-Pourtant, au moment même de son effondrement, les lueurs vertes cristallines qui brillaient là où se trouvaient ses yeux s'éteignirent soudainement!
+Pourtant, au moment même de son effondrement, les lueurs vertes cristallines qui flottaient alentour comme du duvet de saule s'éteignirent soudainement!
 
 Mais elles retrouvèrent aussitôt leur éclat!
 
@@ -58,7 +58,7 @@ D'innombrables éclairs verts traversaient l'enceinte, et il était impossible d
 
 Dans un éclair et un fracas, la lance se brisa net en deux.
 
-Bien que la lance de restrictions fût détruite, Wang Lin ne parut nullement perturbé; après tout, une telle arme n'était faite que de restrictions. Tant qu'elle n'avait pas brisé la formation, il n'avait aucune surprise. La seule façon pour elle d'y parvenir aurait été que la formation soit exposée et dépourvue de toute défense au moment de l'impact.
+Bien que la lance de restrictions fût détruite, Wang Lin ne parut nullement perturbé; après tout, une telle arme n'était faite que de restrictions. Que la lance ne puisse briser la formation, il s'en doutait déjà plus ou moins. La seule façon pour elle d'y parvenir aurait été que la formation soit exposée et dépourvue de toute défense au moment de l'impact.
 
 La véritable raison pour laquelle Wang Lin avait lancé cette lance était que sa déduction touchait à son terme; il pouvait briser la formation à tout instant.
 
@@ -132,6 +132,6 @@ Le pilier verdoyant s'estompa brusquement et commença à se désagréger. Quant
 
 Tandis qu'il progressait, le pilier de lumière reculait rapidement, continuant de s'effondrer au fur et à mesure de sa retraite.
 
-Lorsque Wang Lin ne fut plus qu'à dix pas de la vallée, le pilier de lumière verte se dissipe complètement. Au même instant, la vallée trembla violemment, comme si sa force protectrice s'évaporait brusquement.
+Lorsque Wang Lin ne fut plus qu'à dix pas de la vallée, le pilier de lumière verte se dissipa complètement. Au même instant, la vallée trembla violemment, comme si sa force protectrice s'évaporait brusquement.
 
 « Céleste, ayez pitié, ayez pitié... Ouyang Hua reconnaît ses torts! » La voix d'Ouyang Hua s'éleva immédiatement de l'intérieur de la vallée.

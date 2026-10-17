@@ -8,7 +8,7 @@ slug: deuxieme-gardien-celeste
 ---
 Non loin de là, la Bête du Tonnerre était toujours allongée sur le sol, son corps secoué de tremblements involontaires. Après avoir vu la silhouette de Wang Lin disparaître dans le vide, elle hésita avant de le suivre.
 
-Dans le néant, les cheveux noirs de Wang Lin flottaient sans qu'aucun vent ne les agitait. Ses yeux étaient dépourvus de joie ou de tristesse; c’était comme s’il avait percé à jour tous les mystères de ce monde.
+Dans le néant, les cheveux noirs de Wang Lin flottaient au gré du vent. Ses yeux étaient dépourvus de joie ou de tristesse; c’était comme s’il avait percé à jour tous les mystères de ce monde.
 
 Wang Ping n'était pas le seul à avoir traversé un cycle de réincarnation; Wang Lin lui-même l'avait fait.
 
@@ -26,7 +26,7 @@ Wang Lin s'élança dans le vide et traversa rapidement l'atmosphère, fonçant 
 
 « Les priorités sont désormais d'obtenir suffisamment de jades célestes, puis de trouver un moyen d'accroître mon énergie originelle. » Les yeux de Wang Lin s'illuminèrent d'un regard résolu.
 
-Parmi les étoiles, il frappa son sac de rangement et la boussole stellaire en sortit immédiatement. Il s'assit sur la lumière argentée et vola à travers le cosmos.
+Parmi les étoiles, il frappa son sac de rangement et la boussole stellaire en sortit immédiatement. Il s'assit en tailleur dessus et, changé en un rayon d'argent, fila à travers le cosmos.
 
 La Bête du Tonnerre derrière lui fut surprise, puis se transforma en un éclair de foudre pour poursuivre rapidement Wang Lin.
 
@@ -42,7 +42,7 @@ Le regard de Wang Lin était glacial. Il devait tuer ce Daoïste du Tonnerre! Ce
 
 Wang Lin frappa son sac de rangement et sept épées précieuses en sortirent, formant la Formation d'Épée aux Sept Étoiles. Ces lames sifflèrent dans les airs vers le Daoïste du Tonnerre.
 
-La marionnette du gardien céleste émit une lueur orange et lança un coup de poing au Daoïste du Tonnerre, le repoussant. La corne de la Bête du Tonnerre derrière lui produisit un grésillement, puis un éclair chargea directement le dos du Daoïste.
+La marionnette du gardien céleste émit une lueur orange et lança un coup de poing au Daoïste du Tonnerre, le repoussant. La corne de la Bête du Tonnerre derrière lui produisit un grésillement, puis un éclair violet, épais comme un bras, fonça directement sur le dos du Daoïste.
 
 L'expression du Daoïste du Tonnerre devint sombre. Tout au long de son trajet, cette bête et cette marionnette l'avaient attaqué sans relâche, rendant toute fuite à pleine vitesse impossible. De plus, bien qu'il puisse voyager dans l'espace sans la Bête du Tonnerre, sa vitesse était manifestement plus lente.
 
@@ -70,7 +70,7 @@ Wang Lin hurla: « Tuez! »
 
 Les trois âmes primaires ultimes s'élancèrent immédiatement pour attaquer la barrière de tonnerre, aux côtés de la marionnette du gardien céleste, de la Bête du Tonnerre et de la formation d'épée aux sept étoiles.
 
-Les pupilles du Daoïste du Tonnerre se contractèrent; son visage pâlit et son désespoir s'intensifia. La marionnette et la bête étaient déjà difficiles à gérer, et maintenant trois âmes puissantes faisaient apparition. Le Daoïste était convaincu qu'il serait tué en quelques respirations dès que la barrière céderait.
+Les pupilles du Daoïste du Tonnerre se contractèrent; son visage pâlit et son désespoir s'intensifia. La marionnette et la bête étaient déjà difficiles à gérer, et maintenant trois âmes puissantes faisaient leur apparition. Le Daoïste était convaincu qu'il serait tué en quelques respirations dès que la barrière céderait.
 
 « Xu Mu!!! Ne me force pas! Tous les messagers du Temple Céleste du Tonnerre possèdent un sort de préservation de la vie. Au pire, je sacrifierai ma propre durée de vie! » Les yeux du Daoïste du Tonnerre étaient injectés de sang alors qu'il fixait Wang Lin.
 
@@ -124,7 +124,7 @@ Wang Lin s'assit en position de lotus et ses mains formèrent une succession de 
 
 Le Daoïste resta silencieux et ferma les yeux, ricanant intérieurement: *J'aimerais bien voir quel genre de restrictions tu peux poser. Attends que ce vieil homme retrouve son énergie originelle, et je briserai tes sceaux sans peine!*
 
-L'expression de Wang Lin trahissait une pointe d'ombre. Il ne se sentirait totalement en sécurité qu'en raffinant ce vieil homme en gardien céleste. À ses yeux, le Daoïste du Tonnerre remplissait tous les critères. De plus, avec la Bête du Tonnerre à l'extérieur, la combinaison des deux augmenterait considérablement ses chances de réussite. Même en cas d'échec, Wang Lin n'y perdrait rien.
+L'expression de Wang Lin trahissait une pointe d'ombre. Il ne se sentirait totalement en sécurité qu'en raffinant cet homme en gardien céleste. À ses yeux, le Daoïste du Tonnerre remplissait tous les critères. De plus, avec la Bête du Tonnerre à l'extérieur, la combinaison des deux augmenterait considérablement ses chances de réussite. Même en cas d'échec, Wang Lin n'y perdrait rien.
 
 Wang Lin cracha une bouffée d'énergie originelle qui se mua en d'innombrables symboles. Chaque symbole tomba sur le corps du Daoïste l'un après l'autre.
 

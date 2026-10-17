@@ -10,25 +10,25 @@ Wang Lin poussa un soupir intérieur et sortit du pavillon. Dehors se tenait Bai
 
 Wang Lin garda une certaine distance et demanda: « Je me demande quel est l'objet de ta visite, Troisième Frère. »
 
-Bai Wei afficha un sourire enchanteur, mordilla sa lèvre inférieure et répondit: « Bien sûr que j'ai une affaire à régler. Septième Frère, tu n'as pas encore reçu ton jeton ni tes vêtements. Je les ai récupérés pour toi et je te les apporte. » Sur ce, il agita la main droite et un sac de stockage vola vers Wang Lin.
+Bai Wei afficha un sourire enchanteur, mordilla sa lèvre inférieure et répondit: « Bien sûr que j'ai une affaire à régler. Septième Frère, tu n'as pas encore reçu ton jeton ni tes vêtements. Je les ai récupérés pour toi et je te les apporte. » Sur ce, il agita la main droite et un sac de rangement vola vers Wang Lin.
 
 Wang Lin attrapa le sac et l'examina avec son Sens Divin. Le sac contenait effectivement deux robes violettes et un jeton violet.
 
 Wang Lin joignit les mains et dit: « Merci infiniment! »
 
-Bai Wei sourit. « Je t'en prie. Tu ne connais pas encore bien la division violette; que dirais-tu que ton frère aîné te fasse visiter les lieux? »
+Bai Wei sourit. « Je t'en prie. Tu ne connais pas encore bien la division pourpre; que dirais-tu que ton frère aîné te fasse visiter les lieux? »
 
 Un éclat étrange passa dans les yeux de Wang Lin, qui refusa catégoriquement: « Je te remercie pour ta bienveillance, frère aîné, mais je suis encore occupé par ma culture. Faisons cela un autre jour. »
 
 En parlant, Wang Lin recula de deux pas. Il ressentait une sensation étrange émanant de Bai Wei, et discuter avec lui le mettait profondément mal à l'aise.
 
-Le regard de Bai Wei s'assombrit et il dit doucement: « Septième Frère, je ne cherche pas à te nuire, mais la division violette est d'une grande complexité. J'ai passé toute la nuit à rassembler ces informations pour toi. Ne veux-tu vraiment pas les entendre? »
+Le regard de Bai Wei s'assombrit et il dit doucement: « Septième Frère, je ne cherche pas à te nuire, mais la division pourpre est d'une grande complexité. J'ai réfléchi toute la nuit avant de me décider à te les dire. Ne veux-tu vraiment pas les entendre? »
 
-Wang Lin réfléchit un instant, puis frappa son sac de stockage. Dans un éclat de lumière blanche, une table et deux chaises apparurent, accompagnées d'un service à thé sur la table.
+Wang Lin réfléchit un instant, puis frappa son sac de rangement. Dans un éclat de lumière blanche, une table et deux chaises apparurent, accompagnées d'un service à thé sur la table.
 
 Le regard de Wang Lin était limpide lorsqu'il s'assit et dit: « Troisième Frère, je t'en prie, assieds-toi! »
 
-Bai Wei esquissa un léger sourire en s'asseyant. Il versa d'abord une tasse pour Wang Lin, puis une pour lui-même. Après avoir reposé la théière, il déclara: « Quand je t'ai rencontré la première fois, je n'aurais jamais imaginé que tu serais le disciple honoraire dont Maître nous avait parlé une fois. »
+Bai Wei esquissa un léger sourire en s'asseyant. Il versa d'abord une tasse pour Wang Lin, puis une pour lui-même. Après avoir reposé la théière, il déclara: « Quand je t'ai rencontré la première fois, je n'aurais jamais imaginé que tu serais le disciple honoraire dont Maître avait parlé fortuitement il y a des années. »
 
 Wang Lin se contenta de sourire sans dire un mot.
 
@@ -36,23 +36,23 @@ Bai Wei prit sa tasse et en but une gorgée, puis ses yeux s'illuminèrent: « W
 
 L'expression de Wang Lin resta sereine. Il leva la tête vers Bai Wei, attendant la suite.
 
-Bai Wei posa sa tasse et reprit lentement: « Ton frère aîné est celui qui suit Maître depuis le plus longtemps au sein de la division violette; il connaît donc des secrets que nous ignorons, comme la raison pour laquelle Maître réside sur cette planète depuis des dizaines de milliers d'années. Parmi ses disciples, hormis une infime minorité, la plupart ne cultivent que depuis un millénaire environ, et très peu dépassent les dix mille ans. Ton frère aîné connaît certainement la vérité derrière tout cela. »
+Bai Wei posa sa tasse et reprit lentement: « Ton frère aîné est celui qui suit Maître depuis le plus longtemps au sein de la division pourpre; il connaît donc des secrets que nous ignorons, comme la raison pour laquelle Maître réside sur cette planète depuis des dizaines de milliers d'années. Parmi ses disciples, hormis une infime minorité, la plupart ne cultivent que depuis un millénaire environ, et très peu dépassent les dix mille ans. Ton frère aîné connaît certainement la vérité derrière tout cela. »
 
 Le regard de Wang Lin devint sérieux. Il avait déjà envisagé cette question, mais faute de connaissances, il n'y avait pas approfondi le sujet. En entendant Bai Wei en parler, ses pensées s'emballèrent.
 
-« Où sont passés tous les anciens disciples de Maître? Pas seulement toi et moi, personne d'autre ne semble le savoir. »
+« Où sont passés tous les anciens disciples de Maître? Pas seulement toi et moi, même Deuxième Frère, Quatrième Sœur et Cinquième Sœur n'ont jamais réussi à le comprendre. »
 
 « La seule autre personne qui aurait pu connaître ce secret, outre ton frère aîné, était le précédent Septième Frère, Sun Yun! Je soupçonne que c'est précisément pour cette raison qu'il a trahi la secte à l'époque! »
 
 Wang Lin réfléchit un instant. Peu après, il dit calmement: « Troisième Frère, en l'absence de preuves concluantes, il vaut mieux ne pas faire de conjectures sauvages. »
 
-Une lueur mystérieuse traversa les yeux de Bai Wei. Il marqua une pause avant de poursuivre: « La division violette est la plus faible de toutes les divisions, mais la compétition y reste féroce; ton frère aîné convoite cette position de véritable disciple depuis très longtemps. »
+Une lueur mystérieuse traversa les yeux de Bai Wei. Il marqua une pause avant de poursuivre: « La division pourpre est la plus faible de toutes les divisions, mais la compétition y reste féroce; ton frère aîné convoite cette position de véritable disciple depuis très longtemps. »
 
-« Ne sous-estime pas ton frère aîné; sa culture n'a pas toujours été ainsi. Autrefois, il avait échoué dans son combat contre Sixième Frère pour le titre de véritable disciple et en était ressorti gravement blessé, ce qui avait fait chuter son niveau de culture. Cependant, il est d'une détermination sans faille; il s'est retiré en culture fermée pendant des centaines d'années pour préparer son rétablissement. »
+« Ne sous-estime pas ton frère aîné; sa culture n'a pas toujours été ainsi. Autrefois, il avait échoué dans son combat contre Sixième Frère pour le titre de véritable disciple et en était ressorti avec des blessures irréparables, ce qui avait fait chuter son niveau de culture. Cependant, il est d'une détermination sans faille; il s'est retiré en culture fermée pendant des centaines d'années pour se préparer à laver son affront. »
 
 « Malheureusement, Sun Yun est apparu, et il a vaincu Sixième Frère ainsi que ton frère aîné pour obtenir la position de véritable disciple de Maître. »
 
-« Lors de la célébration de l'anniversaire de Maître dans trois mois, le nouveau véritable disciple de la division violette sera choisi. Jusqu'au retour de Sixième Frère, tu seras la personne que ton frère aîné devra impérativement éliminer! »
+« Lors de la célébration de l'anniversaire de Maître dans trois mois, le nouveau véritable disciple de la division pourpre sera choisi. À moins que Sixième Frère ne revienne de son entraînement à l'extérieur, tu seras la personne que ton frère aîné devra impérativement éliminer! »
 
 Wang Lin fronça légèrement les sourcils: « Le titre des sept véritables disciples de l'Omniscient n'est qu'un titre. Pourquoi se battre ainsi? »
 
@@ -72,13 +72,13 @@ Les pupilles de Wang Lin se contractèrent!
 
 « Et si le titre ne t'importe pas, si le stade Ascendant ne te préoccupe pas et si le jade céleste ne t'attire pas, sais-tu qu'en devenant l'un des sept véritables disciples, tu recevras la véritable transmission du Dao de Maître?! »
 
-« La transmission de Maître n'est pas un vague concept philosophique, mais de véritables sorts célestes! Sois l'un des sept véritables disciples pendant mille ans et tu recevras un sort céleste de faible qualité; un sort complet et authentique! »
+« La transmission de Maître n'est pas un vague concept philosophique, mais de véritables sorts célestes! Sois l'un des sept véritables disciples pendant mille ans et tu recevras un sort céleste de qualité inférieure; un sort complet et authentique! »
 
-« Être l'un des sept véritables disciples pendant dix mille ans te permet d'obtenir un autre sort céleste de faible qualité. Tu seras également envoyé à l'Alliance de la Culture pour approfondir tes études et devenir véritablement une puissance dans le monde de la culture! »
+« Être l'un des sept véritables disciples pendant dix mille ans te permet d'obtenir un autre sort céleste de qualité inférieure. Mieux encore, tu pourras être envoyé à l'Alliance de la Culture pour approfondir tes études et devenir véritablement une puissance dans le monde de la culture! »
 
 Le regard de Wang Lin devint grave et il demanda, avec précision: « Si je reste un véritable disciple pendant 1 000 ans, je recevrai un sort céleste complet. Est-ce bien vrai? »
 
-Bai Wei acquiesça. « C'est absolument vrai! La véritable disciple de la division verte, Li Shengnan, l'est depuis plus de mille ans. Il y a cent ans, elle a reçu de Maître un sort céleste complet de faible qualité. Elle est toujours en culture fermée pour l'étudier. À sa sortie, sa puissance sera d'un niveau inimaginable! »
+Bai Wei acquiesça. « C'est absolument vrai! La véritable disciple de la division verte, Li Shengnan, l'est depuis plus de mille ans. Il y a cent ans, elle a reçu de Maître un sort céleste complet de qualité inférieure. Elle est toujours en culture fermée pour l'étudier. À sa sortie, sa puissance sera d'un niveau inimaginable! »
 
 Les yeux de Wang Lin reflétèrent une lueur mystérieuse. Après avoir longuement réfléchi en silence, il hocha la tête et se leva. Il joignit les mains devant Bai Wei et dit: « Troisième Frère, je suis fatigué. Nous discuterons un autre jour. Je reviendrai te voir. »
 
@@ -90,7 +90,7 @@ Au moment où il se détourna, le sourire disparut de son visage sans laisser de
 
 Wang Lin retourna au Pavillon de la Forêt Violette, l'esprit en éveil.
 
-Auparavant, Wang Lin ignorait la valeur d'un sort céleste complet de faible qualité, mais après avoir passé un mois aux côtés de Situ Nan et avoir appris les trois sorts de mort, il avait acquis une compréhension profonde des sorts célestes.
+Auparavant, Wang Lin ignorait la valeur d'un sort céleste complet de qualité inférieure, mais après avoir passé un mois aux côtés de Situ Nan et avoir appris les trois sorts de mort, il avait acquis une compréhension profonde des sorts célestes.
 
 Les trois sorts de mort que Situ Nan avait dérivés d'un sort céleste brisé possédaient déjà une telle puissance qu'on ne pouvait qu'imaginer la force d'un sort céleste complet.
 
@@ -104,15 +104,15 @@ Wang Lin possédait de nombreuses techniques des anciens dieux issues des souven
 
 « Les sept véritables disciples de l'Omniscient... Intéressant! » Les yeux de Wang Lin s'illuminèrent. Il enfila ses vêtements de disciple et sortit du pavillon.
 
-Il était midi. Le soleil brûlant trônait au zénith alors que Wang Lin sortait, drapé dans sa longue robe qui flottait au vent, lui conférant un air d'élégance.
+Il était midi. Le soleil brûlant trônait au zénith alors que Wang Lin sortait, vêtu de violet, ses longs cheveux flottant au vent, lui conférant un air d'élégance.
 
-Alors qu'il traversait la division violette, chaque disciple croisé s'arrêtait pour lui faire une révérence respectueuse en l'appelant: « Septième Ancêtre ».
+Alors qu'il traversait la division pourpre, chaque disciple croisé s'arrêtait pour lui faire une révérence respectueuse en l'appelant: « Septième Ancêtre ».
 
-En chemin, Wang Lin réalisa progressivement une chose: cette Secte du Destin Céleste ne ressemblait pas aux sectes de la planète Suzaku où seul le plus fort était respecté. Elle maintenait les traditions ancestrales où l'ancienité dictait le respect, et la position d'un individu dépendait de son ancienneté au sein de la secte.
+En chemin, Wang Lin réalisa progressivement une chose: cette Secte du Destin Céleste ne ressemblait pas aux sectes de la planète Suzaku où seul le plus fort était respecté. Elle maintenait les traditions ancestrales où l'ancienneté dictait le respect, et la position d'un individu dépendait de son ancienneté au sein de la secte.
 
 Par conséquent, à l'exception de quelqu'un comme Wang Lin qui était apparu soudainement, les rangs étaient extrêmement stables de génération en génération. C'est pourquoi même Sun Yun, bien qu'étant devenu l'un des sept véritables disciples, devait encore appeler Zhao Xingsha « frère aîné » lorsqu'ils se rencontraient.
 
-La division violette était immense. Ayant déjà exploré la zone à plusieurs reprises, il n'était pas étranger au chemin. Sa destination cette fois-ci: le pavillon des trésors de la division violette!
+La division pourpre était immense. Ayant déjà exploré la zone à plusieurs reprises, il n'était pas étranger au chemin. Sa destination cette fois-ci: le pavillon des trésors de la division pourpre!
 
 C'est dans ce pavillon que les disciples obtenaient leurs pilules et leurs pierres spirituelles. C'est aussi là que Bai Wei avait récupéré le jeton et les vêtements de Wang Lin. En tant que disciple de l'Omniscient, il bénéficierait de privilèges spéciaux, comme une allocation mensuelle de jade céleste. Il avait décidé de s'y rendre après les explications de Bai Wei.
 

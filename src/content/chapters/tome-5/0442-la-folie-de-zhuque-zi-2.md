@@ -15,7 +15,7 @@ Après une violente détonation, le phénix disparut et le cinquième ancêtre l
 
 Le visage de Zhu Quezi devint livide et une aura de mort émana de lui. Lorsqu'il est activé, le Sceau de Suzaku consume la force vitale de son utilisateur; avec sa durée de vie actuelle, il ne pouvait l'utiliser que deux fois encore. Après cette utilisation, il mourrait.
 
-Une fois qu'une cible a été verrouillée par le sens divin de l'utilisateur, celle du Sceau de Suzaku ne peut plus changer. Il n'avait pas blessé le premier ancêtre, mais il avait tué presque instantanément le cinquième ancêtre. S'il avait visé le premier ancêtre ou Yun Quezi, le Sceau de Suzaku ne les aurait pas tués d'un coup, mais les aurait gravement blessés. C'est pourquoi Zhu Quezi n'avait pas cherché à les atteindre, préférant cibler le relativement faible cinquième ancêtre pour obtenir une élimination inattendue.
+Une fois qu'une cible a été verrouillée par le sens divin de l'utilisateur, celle du Sceau de Suzaku ne peut plus changer et rien en ce monde ne peut l'arrêter. Il n'avait pas blessé le premier ancêtre, mais il avait tué presque instantanément le cinquième ancêtre. S'il avait visé le premier ancêtre ou Yun Quezi, le Sceau de Suzaku ne les aurait pas tués d'un coup, mais les aurait gravement blessés. C'est pourquoi Zhu Quezi n'avait pas cherché à les atteindre, préférant cibler le relativement faible cinquième ancêtre afin de s'imposer d'emblée.
 
 Le premier ancêtre fixa Zhu Quezi et prononça, mot pour mot: « Sceau de Suzaku! »
 
@@ -27,7 +27,7 @@ Une lueur de folie apparut dans les yeux de Zhu Quezi et il éclata de rire. « 
 
 Les yeux d'Yun Quezi restèrent sereins lorsqu'il répondit: « Oh? Expliquez-moi cela. »
 
-Zhu Quezi rit de plus belle. Son regard devint glacial alors qu'il poursuivait: « Le Cristal de la Planète de Culture se trouve dans le Tombeau de Suzaku. Tout cultivateur au stade de la Transformation de l'Âme peut y entrer à sa guise. Si vous ne le trouvez pas à temps, je ferai exploser le Cristal de la Planète de Culture. Soit l'Alliance de Culture anéantira votre Clan de l'Immortel Délaissé lorsqu'ils viendront enquêter, soit tous ceux de votre Clan nés depuis des dizaines de milliers d'années mourront avec le Cristal! »
+Zhu Quezi rit de plus belle. Son regard devint glacial alors qu'il poursuivait: « Le Cristal de la Planète de Culture se trouve dans les tombes des Suzaku successifs. Tout cultivateur au stade de la Transformation de l'Âme peut y entrer à sa guise. Si vous ne le trouvez pas à temps, je ferai exploser le Cristal de la Planète de Culture. Soit l'Alliance de Culture anéantira votre Clan de l'Immortel Délaissé lorsqu'ils viendront enquêter, soit tous ceux de votre Clan nés depuis des dizaines de milliers d'années mourront avec le Cristal! »
 
 Yun Quezi esquissa un léger sourire: « Le Cristal de la Planète de Culture contient les fragments d'âme de chaque cultivateur de la planète. Si vous le détruisez, mon frère, vos propres disciples mourront avec vous! » Sur ces mots, il lança un regard nonchalant vers Qian Feng et Liu Mei.
 
@@ -81,6 +81,6 @@ Tous les cultivateurs de la planète accoururent vers le pays de Suzaku pour pé
 
 Zhou Wutai fut l'un d'entre eux, accompagné de la femme toujours voilée, Zi Xin.
 
-Le quatrième jour, Wang Lin et Situ Nan arrivèrent au Mont Suzaku. Zhu Quezi avait disparu, ne laissant derrière lui que le Cristal de la Planète de Culture qui se brisait lentement. Yun Quezi et sa compagnie n'étaient pas non plus là; nul ne savait où ils s'étaient rendus.
+Le quatrième jour, Wang Lin et Situ Nan arrivèrent au Mont Suzaku. Zhu Quezi avait disparu, ne laissant derrière lui que le Cœur de la Planète de Culture qui se brisait lentement dans les airs. Yun Quezi et sa compagnie n'étaient pas non plus là; nul ne savait où ils s'étaient rendus.
 
 Une multitude de cultivateurs et de membres du Clan de l'Immortel Délaissé étaient assis autour du Mont Suzaku, les yeux rivés sur l'entrée du tombeau. Pour l'heure, aucun d'eux n'était intéressé par le combat. Wang Lin observa le passage au pied du mont et s'en approcha lentement.

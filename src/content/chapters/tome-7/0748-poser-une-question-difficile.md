@@ -62,11 +62,11 @@ Li Yuan réfléchit en silence avant de lever les yeux vers la cime qui s'évano
 
 Wang Lin fronça les sourcils. À cet instant, Li Yuan se retourna pour faire face à lui. L'homme qu'il était maintenant différait totalement de celui qui avait franchi le pied de la montagne; c'était comme s'il était devenu une personne différente. Il dit doucement: « Frère Xu, avec votre niveau de culture, vous ne pourrez pas quitter cette montagne sans ma permission! »
 
-Wang Lin répondit d'un ton calme: « La Restriction des 18 Prunelles... je connais un mot ou deux à son sujet. »
+Wang Lin répondit d'un ton calme: « La Restriction des 18 Pruniers... je connais un mot ou deux à son sujet. »
 
-À ces mots, Li Yuan fut stupéfait. Ce n'était pas une feinte, il était véritablement sous le choc. C'était comme s'il voyait Wang Lin pour la première fois. Li Yuan fronça les sourcils et répliqua: « Bien que peu de gens connaissent la Restriction des 18 Prunelles, elle n'est pas totalement inconnue. Il n'est pas surprenant que le frère Xu en soit instruit. »
+À ces mots, Li Yuan fut stupéfait. Ce n'était pas une feinte, il était véritablement sous le choc. C'était comme s'il voyait Wang Lin pour la première fois. Li Yuan fronça les sourcils et répliqua: « Bien que peu de gens connaissent la Restriction des 18 Pruniers, elle n'est pas totalement inconnue. Il n'est pas surprenant que le frère Xu en soit instruit. »
 
-Wang Lin regarda Li Yuan avec un sourire: « Alors ce que vous avez utilisé était bien la Restriction des 18 Prunelles! » Son ombre vacilla et le garde céleste jaillit.
+Wang Lin regarda Li Yuan avec un sourire: « Alors ce que vous avez utilisé était bien la Restriction des 18 Pruniers! » Son ombre vacilla et le garde céleste jaillit.
 
 Dès l'apparition du garde céleste, son coup de poing percuta le vide derrière eux. Sous l'impact, tout le sommet trembla et un vortex se forma, ouvrant une voie vers l'extérieur!
 

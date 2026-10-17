@@ -14,7 +14,7 @@ L'expression de Wang Lin resta sereine tandis qu'il joignait les mains en signe 
 
 Xu Yunshan sourit et répondit: « Je suis le jeune maître de la Secte Xuan Yuan de la planète Terre. Je suis ici pour remplir mon devoir d'hôte. Frère Wang, je t'en prie, ne refuse pas. »
 
-« Alors je vais devoir importuner le frère Xu! » Wang Lin esquissa un léger sourire. Le niveau de culture de ce Xu Yunshan était identique au sien: le stade moyen de la Transformation de l'Âme. Il avait quitté la Secte du Destin Céleste pour trouver un lieu propice à une culture paisible; la compétition et les luttes incessantes au sein de la Secte du Destin Céleste n'étaient guère adaptées à la cultivation.
+« Alors je vais devoir importuner le frère Xu! » Wang Lin esquissa un léger sourire. Le niveau de culture de ce Xu Yunshan était identique au sien: le stade moyen de la Transformation de l'Âme. Il avait quitté la Secte du Destin Céleste pour trouver un lieu propice à une culture paisible; la compétition et les luttes incessantes au sein de la Secte du Destin Céleste n'étaient guère adaptées à la culture.
 
 Venant d'arriver sur cette planète, il ne pouvait simplement décliner l'hospitalité de son hôte.
 
@@ -58,7 +58,7 @@ Xu Yunshan rit et déclara: « Je prends congé. Si l'occasion se présente à l
 
 Après son départ, Wang Lin fut le seul à flotter dans le ciel.
 
-Il restait en suspension, observant calmement la foule en contrebas. Parmi les cultivateurs présents, dix atteignaient le niveau de culture le plus élevé: le stade tardif de la Transformation de l'Âme. Les autres possédaient des niveaux de culture bien moindres.
+Il restait en suspension, observant calmement la foule en contrebas. Parmi les cultivateurs présents, plus de dix atteignaient le niveau de culture le plus élevé: le grand accomplissement du stade tardif de la Transformation de l'Âme. Les autres possédaient des niveaux de culture bien moindres.
 
 Parmi eux, un homme attira l'attention de Wang Lin. Il avait les cheveux blancs et paraissait très âgé. C'était le plus puissant du groupe; il se trouvait pratiquement à un demi-pas du stade de l'Ascendant.
 
@@ -84,7 +84,7 @@ Ce jade était entièrement gris; c'était celui que l'Omniscient aux robes gris
 
 Le temps s'écoula lentement. En un clin d'œil, un mois s'était écoulé.
 
-Durant ce mois, aucune des sectes de Ling Yue n'avait réussi à cerner l'identité de ce nouveau messager. Normalement, lorsqu'un messager arrivait, il exigeait des pierres spirituelles et des jades célestes; pour éviter tout conflit, on les lui remettait systématiquement.
+Durant ce mois, aucune des sectes de Ling Yue n'avait réussi à cerner l'attitude de ce nouveau messager. Normalement, lorsqu'un messager arrivait, il exigeait des pierres spirituelles et des jades célestes; pour éviter tout conflit, on les lui remettait systématiquement.
 
 C'était devenu une tradition.
 
@@ -126,4 +126,4 @@ Le vieil homme de Ling Yue, qui était entré dans la zone à ce moment-là, ava
 
 Après avoir maîtrisé le chariot de guerre, Wang Lin cultiva silencieusement durant plusieurs jours. Un jour, il ouvrit soudainement les yeux, et son regard brilla d'un éclair de compréhension.
 
-« L'Art du Massacre Céleste doit être compris au cœur même du massacre. Essayer de le comprendre en restant assis ici est insuffisant. Si je veux véritablement cultiver cet art, tout doit commencer par le carnage! » Les yeux de Wang Lin s'illuminèrent; il se leva, fit un pas et sortit directement de la tour.
+« L'Art du Massacre Céleste doit être compris au cœur même du massacre. Le déduire ainsi, à vide, manque de vivacité. Si je veux véritablement cultiver cet art, tout doit commencer par le carnage! » Les yeux de Wang Lin s'illuminèrent; il se leva, fit un pas et sortit directement de la tour.

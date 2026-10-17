@@ -8,9 +8,9 @@ slug: la-famille-xu-de-dong-lin
 ---
 Ce qui suivit la voix fut une flamme démoniaque qui couvrit tout le ciel. Cette flamme noire dégageait une chaleur capable de consumer l'âme originelle et enveloppa instantanément les cieux.
 
-C'était comme si la fine couche de nuages était érodée par cette flamme démoniaque, saturée d'énergie maléfique. Il suffisait d'un souffle pour que l'humidité accumulée déclenche une pluie torrentielle.
+C'était comme si la fine couche de nuages était érodée par cette flamme démoniaque, saturée d'énergie maléfique. Sous un vent violent, il suffisait que ces nuages se rejoignent un peu pour que tombent des gouttes de pluie rendant fou quiconque les touchait.
 
-Portant une trace de pluie, la flamme se propagea avec le vent et se précipita vers le sol. L'énergie démoniaque aux alentours devint monstrueuse en un instant. Si quelqu'un avait observé la scène de loin, il aurait vu que cette énergie avait formé un immense fantôme doté d'une unique corne.
+Cette pluie, d'une chaleur presque bouillante, se précipita vers le sol en sifflant sous le vent violent. L'énergie démoniaque aux alentours devint monstrueuse en un instant. Si quelqu'un avait observé la scène de loin, il aurait vu que cette énergie avait formé un immense fantôme doté d'une unique corne.
 
 Un jeune homme vêtu de robes violettes apparut au sommet du spectre. Ses yeux irradiaient une lueur assoiffée de sang et ses cheveux noirs flottaient derrière lui. Il chevauchait le fantôme, qui s'élança alors vers le sol.
 
@@ -32,7 +32,7 @@ Pourtant, avant qu'il n'ait fini sa phrase, Wang Lin ne recula pas; il avança a
 
 « Il semble que j'aie été trop discret dans le Système Stellaire de Luotian. » Si le jeune homme avait été au stade Corporel Yang, Wang Lin aurait peut-être hésité avant de battre en retraite. Mais il avait déjà tué des cultivateurs du stade Yin Illusoire par le passé; il marcha donc droit vers le fantôme.
 
-« Utiliser des sorts démoniaques devant moi! J'ai même combattu un démon errant! » D'un pas, Wang Lin s'élança dans les airs. Il leva sa main droite et son âme originelle s'anima. Une immense quantité de tonnerre jaillit de son corps pour se rassembler rapidement dans sa paume.
+« Utiliser des sorts démoniaques devant moi! J'ai même combattu le Démon Dispersé! » D'un pas, Wang Lin s'élança dans les airs. Il leva sa main droite et son âme originelle s'anima. Une immense quantité de tonnerre jaillit de son corps pour se rassembler rapidement dans sa paume.
 
 Une sphère de tonnerre bleue apparut soudainement, contenant une puissance électrique phénoménale. Dès son apparition, elle modifia l'environnement immédiat.
 

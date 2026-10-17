@@ -6,7 +6,7 @@ bookTitle: Cultivation Planet Crystal
 en: Chapter 448 - The third encounter with Liu Mei
 slug: la-troisieme-rencontre-avec-liu-mei
 ---
-Cette femme était Liu Mei. Elle portait une robe rose pâle dont les bordures étaient ornées de papillons bleus. Sa robe flottait doucement au gré du vent. Ses cheveux noirs et soyeux retombaient négligemment sur son épaule jusqu'à sa taille, ce qui, associé à sa silhouette gracile, la rendait d'autant plus séduisante.
+Cette femme était Liu Mei. Elle portait une robe rose pâle dont les bordures étaient ornées de papillons bleus. Elle était recouverte d'un léger voile blanc et flottait doucement au gré du vent. Ses cheveux noirs et soyeux retombaient négligemment sur son épaule jusqu'à sa taille, ce qui, associé à sa silhouette gracile, la rendait d'autant plus séduisante.
 
 Liu Mei esquissa un sourire et murmura: « Wang Lin! »
 
@@ -22,7 +22,7 @@ La silhouette de Liu Mei était magnifique. Elle ramena délicatement derrière 
 
 « Wang Lin, tu es un être au cœur si froid... Est-il possible qu'en dehors de Li Muwan, tu ne puisses laisser personne d'autre entrer dans ton cœur... »
 
-Le regard de Wang Lin se glaça. Il fixa Liu Mei avec froideur et effleura sa sacoche de rangement. L'épée céleste apparut dans sa main. Sans la moindre hésitation, il activa son énergie spirituelle céleste et abattit son arme.
+Le regard de Wang Lin se glaça. Il fixa Liu Mei avec froideur et effleura son sac de rangement. L'épée céleste apparut dans sa main. Sans la moindre hésitation, il activa son énergie spirituelle céleste et abattit son arme.
 
 Une entaille capable de briser les cieux!
 
@@ -30,7 +30,7 @@ Le coup porté, imprégné d'énergie spirituelle céleste, traversa la vallée 
 
 L'expression de Liu Mei resta sereine. Elle pointa l'air devant elle et la silhouette d'un paon se matérialisa. À cet instant précis, l'énergie de l'épée atteignit sa cible.
 
-Les yeux du paon s'illuminèrent d'un éclat vert; l'oiseau secoua son corps, et plusieurs plumes s'en détachèrent rapidement pour former un bouclier.
+Les yeux du paon s'illuminèrent d'un éclat vert; l'oiseau secoua son corps, et une dizaine de plumes s'en détachèrent rapidement pour former un bouclier.
 
 Boum!
 
@@ -40,11 +40,11 @@ Les yeux de Liu Mei s'illuminèrent alors qu'elle observait Wang Lin: « Tu es b
 
 Le regard de Wang Lin devint glacial. Il observa l'épée céleste dans sa main et la caressa du bout des doigts. Puis, d'un ton pesant, il déclara: « Liu Mei, je le répéterai une dernière fois: écarte-toi, ou j'attaquerai de toutes mes forces! »
 
-Liu Mei mordit sa lèvre inférieure, secoua la tête et murmura: « Je ne peux pas te laisser passer. Wang Lin, tu n'as aucune chance de survivre ici. Pourquoi ne me donnerais-tu pas ton domaine, et je récupérerais ta parcelle d'âme pour toi? »
+Liu Mei mordit sa lèvre inférieure, secoua la tête et murmura: « Je ne peux pas te laisser passer. Wang Lin, tu n'as aucune chance de survivre ici. Pourquoi ne me donnerais-tu pas ton domaine, et je récupérerais ton fragment d'âme pour toi? »
 
 Wang Lin regarda Liu Mei et éclata de rire. « Le Domaine de la Cruauté des Mille Illusions... Liu Mei, crois-tu vraiment que je n'ai pas encore percé ton jeu? »
 
-Liu Mei resta calme et sourit. « Bien sûr que non. Je pense que ce cultivateur aux grandes oreilles voulait que tu comprennes mon domaine, et c'est pour cela que tu es venu me rencontrer. »
+Liu Mei resta calme et sourit. « Bien sûr que non. À l'époque, ce cultivateur aux grandes oreilles est venu me rencontrer, j'imagine, pour que tu comprennes mon domaine. »
 
 « C'est exact; mon domaine est le Domaine de la Cruauté des Mille Illusions. Ton domaine de la vie et de la mort est l'une des choses les plus impitoyables sous les cieux. Les cieux doivent être impitoyables, sans quoi ils ne pourraient engendrer de Daos. Wang Lin, sur un plan fondamental, nous sommes semblables! »
 
@@ -52,13 +52,13 @@ Liu Mei resta calme et sourit. « Bien sûr que non. Je pense que ce cultivateur
 
 « Toi et moi sommes de la même espèce! »
 
-Tandis que Wang Lin fixait Liu Mei, il frappa sa sacoche de rangement, et le drapeau de restriction apparut.
+Tandis que Wang Lin fixait Liu Mei, il frappa son sac de rangement, et le drapeau de restriction apparut.
 
-Il ne souhaitait pas utiliser le drapeau d'âme immédiatement; celui-ci devait être réservé au moment où il tenterait de récupérer sa parcelle d'âme ou lorsqu'il affronterait le Roi pour celle-ci.
+Il ne souhaitait pas utiliser le drapeau d'âme immédiatement; celui-ci devait être réservé au moment où il tenterait de récupérer son fragment d'âme ou lorsqu'il affronterait le Roi pour celui-ci.
 
 Il agita le drapeau de restriction, libérant les entraves. Des volutes de gaz de restriction se répandirent et enveloppèrent la vallée.
 
-Wang Lin cria: « Liu Mei, Zhu Quezi est sur le point de mourir. Notre combat est inutile! » Liu Mei était, après tout, au stade intermédiaire de la Transformation de l'Âme; il ne pourrait pas l'emporter rapidement sans recourir au drapeau d'âme. S'il s'éternisait ici et échouait à récupérer sa parcelle d'âme, la situation serait désastreuse.
+Wang Lin cria: « Liu Mei, Zhu Quezi est sur le point de mourir. Notre combat est inutile! » Liu Mei était, après tout, au stade intermédiaire de la Transformation de l'Âme; il ne pourrait pas l'emporter rapidement sans recourir au drapeau d'âme. S'il s'éternisait ici et échouait à récupérer son fragment d'âme, la situation serait désastreuse.
 
 Liu Mei sourit et leva les yeux vers le ciel. La douceur de son regard disparut, remplacée par une expression froide et impitoyable.
 
@@ -106,17 +106,17 @@ Alors qu'il rejetait sa lance, Wang Lin recula promptement et tendit la main; so
 
 À l'instant où la bannière se manifesta, la froideur dans le regard de Liu Mei s'intensifia. Elle fixa la bannière d'âme et murmura: « Je ne m'attendais pas à ce que le Senior Du Tian vous remette réellement la Bannière d'Âme du Milliard d'Âmes. Cependant, Wang Lin, je savais déjà que tu la possédais, sans quoi je n'aurais pas choisi de t'attendre sur cet autel. »
 
-« J'ai été la deuxième personne à entrer dans la Tombe de Suzaku, et voici le champ de bataille que j'ai choisi pour nous deux. Si tu décides d'utiliser la bannière d'âme, je détruirai l'autel. Il faudra plusieurs jours pour qu'il se reforme, ce qui te retardera considérablement. »
+« J'ai été la deuxième personne à entrer dans le Tombeau de Suzaku, et voici le champ de bataille que j'ai choisi pour nous deux. Si tu décides d'utiliser la bannière d'âme, je détruirai l'autel. Il faudra plusieurs jours pour qu'il se reforme, ce qui te retardera considérablement. »
 
-Wang Lin la fixa d'un regard glacial. Situ Nan lui avait déjà expliqué la nature de cet autel. Il avait été créé par la première génération de Suzaku dans le but de faciliter les transferts. Une fois que le Cristal de la Planète de Culture s'ouvrirait, l'autel serait enveloppé par le pouvoir mystérieux du cristal et acquerrait des capacités supplémentaires.
+Wang Lin la fixa d'un regard glacial. Situ Nan lui avait déjà expliqué la nature de cet autel. Il avait été créé par la première génération de Suzaku dans le but de téléporter les gens. Une fois que le Cristal de Planète de Culture s'ouvrirait, l'autel serait enveloppé par le pouvoir mystérieux du cristal et acquerrait des capacités supplémentaires.
 
-Même détruit, il ne lui faudrait que quelques jours pour se reconstruire et demeurer ici éternellement. Ses propriétés étaient similaires à celles des êtres vivants composés de fragments d'âmes.
+Même détruit, il ne lui faudrait que quelques jours pour se reconstruire et demeurer ici éternellement. Ses propriétés étaient similaires à celles des êtres vivants composés de fragments d'âme.
 
 Wang Lin demanda d'un ton solennel: « Quel est ton but? »
 
 Liu Mei le regarda et esquissa un sourire fugace. « Je n'ai aucun but; je veux simplement livrer une bataille de domaines avec toi. »
 
-Tandis que Wang Lin la fixait, sa main droite se crispa et la Bannière d'Âme du Milliard d'Âmes disparut. Sa main gauche forma un sceau qu'il plaça entre ses sourcils. Le ciel s'obscurcit et une faille s'ouvrit, comme si deux mains invisibles l'avaient déchiré. Des vagues de gaz gris s'échappèrent de la brèche. À mesure que ce gaz se densifiait, un parchemin gigantesque émergea des nuées grises pour recouvrir le firmament.
+Tandis que Wang Lin la fixait, sa main droite se crispa et la Bannière d'Âme du Milliard d'Âmes disparut. Sa main gauche forma un sceau qu'il plaça entre ses sourcils. Le ciel s'obscurcit et une faille s'ouvrit, comme si une immense main invisible l'avait déchiré. Des vagues de gaz gris s'échappèrent de la brèche. À mesure que ce gaz se densifiait, un parchemin gigantesque émergea des nuées grises pour recouvrir le firmament.
 
 Dès son apparition, le parchemin libéra une puissance mystérieuse qui enveloppa toute la zone.
 
@@ -130,4 +130,4 @@ Le regard de Wang Lin restait de glace alors qu'il levait la main vers le ciel. 
 
 « Je vais te donner la dernière illusion que tu désires, et ce sera une illusion que tu n'oublieras jamais de toute ta vie! »
 
-La voix de Wang Lin était glaciale lorsqu'il pointa le doigt vers Liu Mei.
+La voix de Wang Lin était glaciale lorsqu'il abaissa sa main droite d'un geste vers Liu Mei.

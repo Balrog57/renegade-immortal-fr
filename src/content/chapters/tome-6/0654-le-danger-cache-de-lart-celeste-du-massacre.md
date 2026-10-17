@@ -36,13 +36,13 @@ Wang Lin, fusionné avec les ténèbres, leva la main et la sphère blanche se p
 
 « Le bonheur est différent pour chacun... Mon bonheur est d'accompagner mes parents, d'accompagner Wan Er... » Les yeux de Wang Lin se remplirent d'amertume. Ce bonheur était si extravagant et si difficile à atteindre.
 
-Nul ne savait que, profondément au sein des Terres Spirituelles Démoniaques, dans ce gouffre sans fond, un homme luttait contre le destin et la solitude de son cœur.
+Nul ne savait que, profondément au sein de la Terre des Esprits Démoniaques, dans ce gouffre sans fond, un homme luttait contre le destin et la solitude de son cœur.
 
 Wang Lin était assis dans cette fissure depuis trois ans.
 
 Ce n'était pas qu'il ne souhaitait pas partir, mais durant ces trois années, la force d'aspiration extérieure avait atteint un degré inimaginable.
 
-Il y a plus de deux ans, alors que Wang Lin examinait Richesse, l'aspiration du gouffre s'était soudainement intensifiée violemment. Désormais, plus de la moitié de la fissure était affectée par cette force.
+Il y a plus de deux ans, alors que Wang Lin examinait Richesse, l'aspiration du gouffre s'était soudainement intensifiée violemment. Désormais, la moitié de la fissure était affectée par cette force.
 
 Le sort du gardien céleste lui offrait initialement soixante pour cent de chances de s'échapper, mais avec l'augmentation brutale de l'aspiration, cette probabilité était tombée immédiatement à vingt pour cent...
 
@@ -52,7 +52,7 @@ Après que sa culture eut atteint le stade Ascendant, sa progression avait ralen
 
 Hormis ceux favorisés par les cieux, qui n'avaient pas passé des années d'efforts pour atteindre cet apogée? Le talent de Wang Lin était très ordinaire. Sans sa détermination et ses expériences singulières, il lui aurait été extrêmement difficile d'atteindre ce stade.
 
-Le stade Ascendant intermédiaire, le stade Ascendant avancé et le stade Ascendant au sommet étaient autant d'obstacles qui bloquaient d'innombrables cultivateurs et épuisaient la vie de tant d'êtres. C'étaient trois montagnes se dressant sur le chemin de Wang Lin.
+Le stade Ascendant intermédiaire, le stade Ascendant avancé et la grande perfection de l'Ascendant étaient autant d'obstacles qui bloquaient d'innombrables cultivateurs et épuisaient la vie de tant d'êtres. C'étaient trois montagnes se dressant sur le chemin de Wang Lin.
 
 Au cours de ces deux années, Wang Lin utilisa son calme pour comprendre lentement ce qui résidait dans Richesse. Il n'y avait qu'une seule technique d'épée à l'intérieur de Richesse, une seule!
 
@@ -100,7 +100,7 @@ Wang Lin ferma les yeux et s'immergea dans son Dao.
 
 Son Dao se composait de deux parties: le fleuve des enfers, et la formation de l'âme du fleuve des enfers.
 
-Cependant, cette prétendue « âme » du fleuve des enfers n'était en réalité que des centaines de millions de fragments d'âmes issus du drapeau des âmes, condensés ensemble. Il lui manquait encore l'intention de tuer.
+Cependant, cette prétendue « âme » du fleuve des enfers n'était en réalité que des centaines de millions d'âmes issues du drapeau des âmes, condensées ensemble. Il lui manquait encore l'intention de tuer.
 
 Bien que le fantôme céleste possédât la férocité, elle était insuffisante pour devenir l'âme du fleuve des enfers de Wang Lin. Car il n'était que féroce, mais dépourvu d'intention de tuer!
 
@@ -110,7 +110,7 @@ Bien que le fantôme céleste possédât la férocité, elle était insuffisante
 
 Wang Lin ouvrit les yeux. Il regarda au-delà de la fissure et tendit lentement sa main droite. Le bout de ses doigts s'approcha de la ligne de démarcation à l'intérieur de la faille.
 
-Bien que cette ligne se situât encore dans la grotte, dès que ses doigts la franchirent, il sentit son corps subir une douleur de traction insupportable.
+Bien que cette ligne se situât encore dans la fissure, dès que ses doigts la franchirent, il sentit son corps subir une douleur de traction insupportable.
 
 Des ondulations apparurent sur sa peau et il eut l'impression que ses ongles allaient être arrachés.
 
@@ -140,6 +140,6 @@ D'innombrables bêtes-moustiques occupaient l'espace près de l'entrée du gouff
 
 Parmi cet essaim, une bête-moustique émettait une lumière violette violente. Partout où elle volait, les autres moustiques s'écartaient sur son passage, et un simple cri de sa part suffisait à faire trembler la colonie.
 
-Pourtant, cette bête-moustique violette affichait une expression anxieuse, errant autour de l'entrée du puits depuis trois ans. À plusieurs reprises, elle eut envie de plonger dans le gouffre, mais après avoir jeté un regard à ses congénères, elle s'en est ravisée.
+Pourtant, cette bête-moustique violette affichait une expression anxieuse, errant autour de l'entrée du puits depuis trois ans. À plusieurs reprises, elle eut envie de plonger dans le gouffre, mais après avoir jeté un regard à ses congénères, elle s'en ravisa.
 
 Des cris s'échappaient de sa bouche et résonnaient dans la zone... Comme un être séparé des siens, appelant désespérément les noms de sa famille...

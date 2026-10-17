@@ -6,19 +6,19 @@ bookTitle: Cultivation Planet Crystal
 en: Chapter 432 - Ancestral Tattoo Skull
 slug: crane-au-tatouage-ancestral
 ---
-Après l'arrivée du shaman à six feuilles que Wang Lin suivait en secret, celui-ci reprit sa forme humaine; à cet instant précis, Wang Lin se dissimula.
+Après l'arrivée du chaman à six feuilles que Wang Lin suivait en secret, celui-ci reprit sa forme humaine; à cet instant précis, Wang Lin se dissimula.
 
-Avec son niveau de culture, personne ici ne pouvait le détecter. Seul le shaman à huit feuilles situé sur l'arbre était assez puissant pour percevoir sa présence.
+Avec son niveau de culture, personne ici ne pouvait le détecter. Seul le chaman à huit feuilles situé sur l'arbre était assez puissant pour percevoir sa présence.
 
-Wang Lin comprit d'un seul regard que le shaman à huit feuilles était gravement blessé et extrêmement affaibli.
+Wang Lin comprit d'un seul regard que le chaman à huit feuilles était gravement blessé et extrêmement affaibli.
 
-À ce moment-là, tous les shamans postés autour de l'Arbre de la Réincarnation s'assirent en position du lotus et entamèrent un chant complexe. Bientôt, des tatouages apparurent devant chaque shaman et se mirent à flotter devant eux.
+À ce moment-là, tous les chamans postés autour de l'Arbre de la Réincarnation s'assirent en position du lotus et entamèrent un chant complexe. Bientôt, des tatouages apparurent devant chaque chaman et se mirent à flotter devant eux.
 
-Simultanément, les cultivateurs qui se trouvaient derrière les shamans s'avancèrent au pied de l'Arbre de la Réincarnation pour s'asseoir. Plusieurs centaines de cultivateurs remplissaient l'espace.
+Simultanément, les cultivateurs qui se trouvaient derrière les chamans s'avancèrent au pied de l'Arbre de la Réincarnation pour s'asseoir. Plusieurs centaines de cultivateurs remplissaient l'espace.
 
 Wang Lin savait que tous ces individus possédaient des niveaux de culture similaires; ils étaient tous au stade de la Formation du Noyau.
 
-Dès que ces centaines de cultivateurs furent assis, tous les shamans à six feuilles poussèrent un rugissement. Ces cris, puissants et étranges, projetèrent tous les tatouages vers l'Arbre de la Réincarnation.
+Dès que ces centaines de cultivateurs furent assis, tous les chamans à six feuilles poussèrent un rugissement. Ces cris, puissants et étranges, projetèrent tous les tatouages vers l'Arbre de la Réincarnation.
 
 En un clin d'œil, les tatouages disparurent dans l'arbre. Cependant, l'Arbre de la Réincarnation trembla instantanément, et des branches souples commencèrent à en jaillir. Ces branches se mouvaient comme des serpents en croissant, s'enroulant rapidement autour des cultivateurs.
 
@@ -28,29 +28,29 @@ Cette scène paraissait bien étrange à Wang Lin. D'innombrables branches surgi
 
 « Il est en train de guérir! » Les yeux de Wang Lin s'illuminèrent.
 
-D'innombrables tatouages apparurent et, après un éclat de lumière, les corps de tous les cultivateurs se mirent à trembler. Tous les nutriments de leurs organismes étaient rapidement épuisés.
+D'innombrables tatouages apparurent et, après un éclat de lumière, les corps de tous les cultivateurs se mirent à trembler. L'essence de chair et de sang de leurs corps se flétrissait à vue d'œil.
 
 Simultanément, l'énergie spirituelle jaillissait de leurs corps vers les branches de l'arbre comme des chevaux sauvages déchaînés.
 
-Une fois les nutriments et l'énergie spirituelle absorbés par l'arbre, ils étaient d'une manière ou d'une autre convertis en cette énergie mystérieuse dont le shaman à huit feuilles avait besoin pour sa guérison.
+Une fois l'essence de chair et de sang et l'énergie spirituelle absorbées par l'arbre, ils étaient d'une manière ou d'une autre convertis en cette énergie mystérieuse dont le chaman à huit feuilles avait besoin pour sa guérison.
 
 La blessure sur la poitrine de l'homme se referma lentement et son aura commença également à se rétablir progressivement.
 
-Le regard de Wang Lin devint glacial, puis il s'élança soudainement. À une vitesse qu'aucun des shamans à six feuilles ne put détecter, Wang Lin chargea et apparut aux côtés du shaman à huit feuilles.
+Le regard de Wang Lin devint glacial, puis il s'élança soudainement. À une vitesse qu'aucun des chamans à six feuilles ne put détecter, Wang Lin chargea et apparut aux côtés du chaman à huit feuilles.
 
-Sa vitesse était fulgurante. Dès son apparition, sa paume s'abattit sur la lumière qui entourait le shaman à huit feuilles.
+Sa vitesse était fulgurante. Dès son apparition, sa paume s'abattit sur la lumière qui entourait le chaman à huit feuilles.
 
 La main droite de Wang Lin dégagea une lueur blanc laiteux, signe qu'il utilisait l'énergie spirituelle céleste.
 
 Il n'avait que deux choix: agir ou ne pas agir, et s'il agissait, il ne ferait preuve d'aucune pitié pour achever son ennemi en un seul coup!
 
-À l'intérieur de la lumière blanche, le shaman à huit feuilles ouvrit les yeux, lesquels étaient empreints de terreur.
+À l'intérieur de la lumière blanche, le chaman à huit feuilles ouvrit les yeux, lesquels étaient empreints de terreur.
 
-La paume de Wang Lin percuta la lumière blanche et un bruit assourdissant fit vibrer le quatrième étage. L'impact puissant propagea des ondes de choc qui projetèrent les shamans à six feuilles environnants à plusieurs centaines de mètres. Chacun d'eux cracha du sang, et les tatouages sur leurs corps devinrent instables; le moindre faux pas signifierait leur mort.
+La paume de Wang Lin percuta la lumière blanche et un bruit assourdissant fit vibrer le quatrième étage. L'impact puissant propagea des ondes de choc qui projetèrent les chamans à six feuilles environnants à plusieurs centaines de mètres. Chacun d'eux cracha du sang, et les tatouages sur leurs corps devinrent instables; le moindre faux pas signifierait leur mort.
 
-L'un des shamans à six feuilles hurla, après avoir craché un jet de sang: « Un cultivateur de la Transformation de l'Âme!!! »
+L'un des chamans à six feuilles hurla, après avoir craché un jet de sang: « Un cultivateur de la Transformation de l'Âme!!! »
 
-À l'instant même où cet homme cria, tous les autres shamans à six feuilles tremblèrent de peur avant de prendre la fuite.
+À l'instant même où cet homme cria, tous les autres chamans à six feuilles tremblèrent de peur avant de prendre la fuite.
 
 Si Wang Lin n'avait pas encore atteint le stade de la Transformation de l'Âme, il n'aurait pu déployer une telle puissance destructrice sans utiliser d'artefact. La force de cette paume était comparable au coup de poing de son corps originel, celui d'un Dieu Ancien à trois étoiles.
 
@@ -58,11 +58,11 @@ C'était parce que cette paume contenait de l'énergie spirituelle céleste!
 
 La raison pour laquelle les cultivateurs de la Transformation de l'Âme sont si puissants et respectés sur n'importe quelle planète de culture réside dans l'existence même de l'énergie spirituelle céleste.
 
-La lumière entourant le shaman à huit feuilles vola en éclats, faisant trembler le vieil homme qui cracha du sang. Aussitôt, l'ancien tatouage au-dessus de sa tête descendit rapidement pour intercepter l'énergie spirituelle céleste.
+La lumière entourant le chaman à huit feuilles vola en éclats, faisant trembler le vieil homme qui cracha du sang. Aussitôt, l'ancien tatouage au-dessus de sa tête descendit rapidement pour intercepter l'énergie spirituelle céleste.
 
 Une force puissante jaillit du tatouage, ralentissant la paume de Wang Lin pendant une fraction de seconde.
 
-Profitant de cette brève interruption, le shaman à huit feuilles poussa un rugissement et recula prestement. Il s'élança comme une météorite pour tenter de s'échapper.
+Profitant de cette brève interruption, le chaman à huit feuilles poussa un rugissement et recula prestement. Il s'élança comme une météorite pour tenter de s'échapper.
 
 « Tu ne peux pas t'échapper! »
 
@@ -74,33 +74,33 @@ Les branches qui s'étendaient de l'arbre se brisèrent toutes, et les centaines
 
 À leur chute, leurs yeux retrouvèrent leur clarté et leur confusion disparut.
 
-« Quittez cet endroit! » lança Wang Lin tout en chargeant à la poursuite du shaman à huit feuilles. Il frappa son sac de rangement et la bête moustique apparut. Ce moustique accompagnait Wang Lin depuis longtemps et avait depuis longtemps acquis une intelligence. Sans même qu'un ordre ne soit donné, la créature comprit parfaitement les intentions de son maître.
+« Quittez cet endroit! » lança Wang Lin tout en chargeant à la poursuite du chaman à huit feuilles. Il frappa son sac de rangement et la bête moustique apparut. Ce moustique accompagnait Wang Lin depuis longtemps et avait depuis longtemps acquis une intelligence. Sans même qu'un ordre ne soit donné, la créature comprit parfaitement les intentions de son maître.
 
-Une fois apparue, la bête moustique poussa un rugissement et se transforma en un rayon de lumière noire pour traquer l'un des shamans à six feuilles en fuite. Sa grande trompe s'enfonça alors dans la tête du shaman. Ce dernier poussa un cri déchirant tandis que ses entrailles étaient aspirées, jusqu'à ce qu'il ne soit plus qu'une enveloppe d'os avant de mourir.
+Une fois apparue, la bête moustique poussa un rugissement et se transforma en un rayon de lumière noire pour traquer l'un des chamans à six feuilles en fuite. Sa grande trompe s'enfonça alors dans la tête du chaman. Ce dernier poussa un cri déchirant tandis que ses entrailles étaient aspirées, jusqu'à ce qu'il ne soit plus qu'une enveloppe d'os avant de mourir.
 
 Après avoir tué sa première proie, le moustique délaissa le cadavre desséché et chargea la suivante.
 
-Avec une telle vélocité, peu importait la vitesse de course des shamans à six feuilles, ils ne pouvaient espérer distancer la créature.
+Avec une telle vélocité, peu importait la vitesse de course des chamans à six feuilles, ils ne pouvaient espérer distancer la créature.
 
 Les cultivateurs de la Formation du Noyau qui avaient survécu se relevèrent. L'un d'eux reconnut immédiatement Wang Lin et cria avec enthousiasme: « Fondateur! »
 
-Wang Lin se retourna pour regarder l'individu qui venait de l'appeler ainsi. Cette personne lui était inconnue, mais il ne demanda rien, restant concentré sur sa poursuite du shaman à huit feuilles.
+Wang Lin se retourna pour regarder l'individu qui venait de l'appeler ainsi. Cette personne lui était inconnue, mais il ne demanda rien, restant concentré sur sa poursuite du chaman à huit feuilles.
 
 Bien que tout cela puisse sembler avoir duré longtemps, l'action s'était déroulée en quelques secondes seulement.
 
-Wang Lin volait comme un éclair. Devant lui, le visage du shaman à huit feuilles était livide tandis qu'il serrait les dents pour tenter de fuir.
+Wang Lin volait comme un éclair. Devant lui, le visage du chaman à huit feuilles était livide tandis qu'il serrait les dents pour tenter de fuir.
 
-Il était à l'origine un shaman à huit feuilles au service du cinquième ancêtre. Même au sein du Clan des Immortels Délaissés, il occupait une position très élevée. Durant cette guerre, d'innombrables cultivateurs étaient morts par sa main.
+Il était à l'origine un chaman à huit feuilles au service du cinquième ancêtre. Même au sein du Clan des Immortels Délaissés, il occupait une position très élevée. Durant cette guerre, d'innombrables cultivateurs étaient morts par sa main.
 
-Un mois plus tôt, il avait été gravement blessé par un cultivateur de la fin du stade de la Transformation de l'Âme. Après avoir frôlé la mort, il avait été renvoyé ici pour se rétablir. Cependant, il ne s'attendait pas à ce qu'un autre cultivateur de la Transformation de l'Âme surgisse pendant sa convalescence.
+Un mois plus tôt, il avait été gravement blessé par un cultivateur du pays de Suzaku de la fin du stade de la Transformation de l'Âme. Après avoir frôlé la mort, il avait été renvoyé ici pour se rétablir. Cependant, il ne s'attendait pas à ce qu'un autre cultivateur de la Transformation de l'Âme surgisse pendant sa convalescence.
 
-« Tant que je peux atteindre le onzième étage, je serai sauvé. Le troisième ancêtre a été blessé par Zhu Quezi en protégeant un Esprit Ancestral et il se soigne là-bas. Si j'atteins le onzième étage, le troisième ancêtre me sauvera à coup sûr! » Le shaman à huit feuilles serra les dents et chargea vers l'entrée du cinquième niveau.
+« Tant que je peux atteindre le onzième étage, je serai sauvé. Le troisième ancêtre a été blessé par Zhu Quezi en protégeant l'Arbre d'Esprit Ancestral et il se soigne là-bas. Si j'atteins le onzième étage, le troisième ancêtre me sauvera à coup sûr! » Le chaman à huit feuilles serra les dents et chargea vers l'entrée du cinquième niveau.
 
 Wang Lin le talonnait de près. Ses yeux devinrent froids alors qu'il frappait son sac de rangement pour en extraire l'épée céleste. Il prit une profonde inspiration, puis injecta de l'énergie spirituelle céleste dans la lame.
 
 Wang Lin murmura: « Accepte ta mort! » Puis il leva sa main droite; l'épée céleste se mit à briller d'un blanc éclatant et il asséna un coup. Une lueur fulgurante sembla illuminer tout le quatrième étage alors que l'énergie de l'épée jaillissait.
 
-L'expression du shaman à huit feuilles changea radicalement. Sans même regarder en arrière, il sentit l'aura puissante qui le talonnait, lui faisant dresser les cheveux sur la tête. S'il n'avait pas été blessé, il aurait pu faire face, mais actuellement, ses forces étaient épuisées par ses blessures.
+L'expression du chaman à huit feuilles changea radicalement. Sans même regarder en arrière, il sentit l'aura puissante qui le talonnait, lui faisant dresser les cheveux sur la tête. S'il n'avait pas été blessé, il aurait pu faire face, mais actuellement, ses forces étaient épuisées par ses blessures.
 
 Le vieil homme poussa un rugissement amer et se retourna brusquement, le regard empreint de folie. Voyant l'énergie de l'épée approcher, il frappa son front de la paume en criant: « Tatouage Ancestral! »
 
@@ -112,7 +112,7 @@ Boum!
 
 Une explosion retentissante créa une onde de choc de dix mètres de haut qui se propagea rapidement, creusant le sol sur un mètre de profondeur.
 
-Des craquements sinistres émanèrent du tatouage avant qu'il ne se brise. Les yeux du shaman à huit feuilles s'éteignirent lentement et sa force vitale se dissipa rapidement.
+Des craquements sinistres émanèrent du tatouage avant qu'il ne se brise. Les yeux du chaman à huit feuilles s'éteignirent lentement et sa force vitale se dissipa rapidement.
 
 Une quantité massive de sang jaillit de la blessure sur la poitrine du vieillard. Bien que son regard s'affaiblissait, il fixa Wang Lin d'un air venimeux et demanda: « Qui es-tu?! »
 

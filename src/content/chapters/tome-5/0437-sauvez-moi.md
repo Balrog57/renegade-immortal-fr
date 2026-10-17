@@ -72,7 +72,7 @@ Quant aux plantes pourpres et verdâtres, leurs racines ressemblaient à des aig
 
 Ce n'était pas la première fois que Wang Lin assistait à une telle scène, mais il en restait tout de même frappé.
 
-Le corps de cet ancêtre du Clan des Démons Géants, bien qu'il ne fût pas aussi robuste que celui d'un ancien dieu, était plusieurs fois plus puissant que le corps d'ancien dieu à trois étoiles actuel de Wang Lin; il était comparable à un corps d'ancien dieu de cinq ou six étoiles.
+Le corps de cet ancêtre du Clan des Démons Géants, bien qu'il ne fût pas aussi robuste que celui d'un ancien dieu, était plusieurs fois plus grand que le corps d'ancien dieu à trois étoiles actuel de Wang Lin; il était comparable à un corps d'ancien dieu de cinq ou six étoiles.
 
 « Le niveau de culture de l'ancêtre fondateur du Clan des Démons Géants est véritablement prodigieux! » Les yeux de Wang Lin brillèrent d'intérêt.
 
@@ -92,7 +92,7 @@ Un bruit de friction métallique retentit et des étincelles jaillirent au point
 
 Cette force renvoya l'épée céleste en arrière de quelques centimètres, provoquant une exclamation de surprise chez Wang Lin. Voyant la facilité avec laquelle les plantes perçaient la peau du géant, il s'était imaginé qu'une entaille serait aisée.
 
-Les yeux de Wang Lin s'illuminèrent tandis qu'il inspectait les plantes environnantes. Il se retira rapidement de là, l'épée céleste à la main.
+Les yeux de Wang Lin s'illuminèrent tandis qu'il inspectait les plantes environnantes. Il s'élança aussitôt, l'épée céleste à la main.
 
 Les plantes environnantes émettaient des sifflements, puis des éclairs pourpres jaillirent d'elles pour attaquer Wang Lin.
 
@@ -100,13 +100,13 @@ D'un revers de l'épée céleste, il força les plantes à reculer. Il tendit la
 
 En examinant la moitié de la plante, il vit un liquide vert à l'odeur putride s'écouler de la tige.
 
-Après avoir saisi une poignée de ces plantes, Wang Lin les pressa contre le corps du géant. Il entendit alors un craquement semblable à celui du bois qui brûle. Un gaz noir s'éleva immédiatement là où les racines touchaient la peau, avant qu'elles ne pénètrent aisément dans le corps du colosse.
+Après un regard, Wang Lin s'accroupit et pressa l'extrémité de la tige contre le corps du géant. Il entendit alors un craquement semblable à celui du bois qui brûle. Un gaz noir s'éleva immédiatement là où la tige touchait la peau, avant qu'elle ne pénètre aisément dans le corps du colosse.
 
-À cet instant précis, une force puissante émana des plantes. Elles se libérèrent de l'étreinte de Wang Lin et disparurent dans la chair du géant.
+À cet instant précis, une force puissante émana de la tige. Elle se libéra de la main gauche de Wang Lin et disparut dans la chair du géant.
 
 Le regard de Wang Lin s'illumina. Il observa les plantes alentour qui n'osaient plus approcher et ricana.
 
-« Ces tentacules sont intéressantes! » Il toucha son sac de rangement et en sortit une fiole de jade. Il l'avait obtenue par hasard lors de son voyage dans le Royaume Céleste. Cette fiole n'avait rien d'exceptionnel, si ce n'est sa capacité à contenir d'énormes quantités de liquide, fonctionnant de manière similaire à un sac de rangement.
+« Ces vignes sont intéressantes! » Il toucha son sac de rangement et en sortit une fiole de jade. Il l'avait obtenue par hasard lors de son voyage dans le Royaume Céleste. Cette fiole n'avait rien d'exceptionnel, si ce n'est sa capacité à contenir d'énormes quantités de liquide, fonctionnant de manière similaire à un sac de rangement.
 
 Tenant la fiole d'une main, Wang Lin pressa l'autre sur une plaie du corps du géant. En exerçant une pression, il fit jaillir le sang dans la fiole de jade.
 

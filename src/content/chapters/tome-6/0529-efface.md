@@ -10,7 +10,7 @@ Alors que la silhouette fantomatique se précipitait, le visage de Wang Lin s'as
 
 La silhouette fantomatique fut surprise et ses yeux spectraux s'illuminèrent. Au lieu de foncer sur Wang Lin, elle changea de cible pour viser les âmes primaires en pleine Transformation de l'Âme.
 
-Les yeux de Wang Lin brillèrent et il s'élança. Il dépassa la silhouette fantomatique, lança le piège à bêtes et pressa son index contre l'homme en robe noire!
+Les yeux de Wang Lin brillèrent et il s'élança. Il dépassa la silhouette fantomatique, lança le piège à bêtes et pointa son index vers l'homme en robe noire!
 
 Le visage de l'homme en robe noire se renfrogna; sa main gauche s'étira vers la silhouette fantomatique et il hurla: « Retourne! »
 
@@ -62,7 +62,7 @@ Le rugissement tonitruant à l'intérieur de la petite sphère s'intensifia. L'�
 
 Quant à l'homme en robe noire, il maudissait intérieurement. Il devait insuffler toute l'énergie spirituelle démoniaque accumulée jusqu'ici dans la sphère, car s'il perdait le contrôle de celle-ci, il subirait un terrible contrecoup.
 
-Le visage de l'homme était féroce. Sans ouvrir la bouche, il envoya un message par sens divin: « Je ne crois pas qu'un cultivateur au stade intermédiaire de la Transformation de l'Âme comme toi possède plus d'énergie spirituelle céleste que moi, qui suis au stade avancé de la Transformation de l'Âme. Puisque tu veux te mesurer à moi, voyons qui vivra et qui mourra! »
+Le visage de l'homme était féroce. Sans ouvrir la bouche, il envoya un message par sens divin: « Je ne crois pas qu'un cultivateur au stade intermédiaire de la Transformation de l'Âme comme toi possède plus d'énergie spirituelle céleste que moi, qui suis au sommet du stade avancé de la Transformation de l'Âme. Puisque tu veux te mesurer à moi, voyons qui vivra et qui mourra! »
 
 Les yeux de Wang Lin brillaient comme des torches lorsqu'il répondit: « Tu as ce fantôme qui absorbe ton énergie spirituelle céleste; comment pourrais-tu être mon égal? »
 
@@ -70,7 +70,7 @@ L'homme en robe noire laissa échapper un reniflement glacial et fixa Wang Lin. 
 
 La main de l'homme hésita un instant, puis il la leva davantage. En faisant cela, un filament noir et visqueux reliait ses doigts à sa poitrine.
 
-Au moment où il leva la main, le fantôme poussa un cri de rage chargé de ressentiment. Son corps disparut progressivement, mais juste avant de s'évanouir totalement, ses yeux spectraux s'illuminèrent. Il observa la situation de l'homme en robe noire, puis celle de Wang Lin. Semblant prendre une décision, il émit des vagues de lumière noire avant de disparaître.
+Au moment où il leva la main, le fantôme poussa un cri de rage chargé de ressentiment. Son corps disparut progressivement, mais juste avant de s'évanouir totalement, ses yeux spectraux s'illuminèrent. Il observa la situation de l'homme en robe noire, puis celle de Wang Lin. Semblant prendre une décision, avant même que son corps ne se dissipe, des vagues de lumière noire jaillirent de lui.
 
 L'expression de l'homme en robe noire changea et, à cet instant, la lumière noire brilla intensément. Sous cette lueur, le fantôme cessa de s'effacer. Dès que la lumière jaillit, le spectre se retourna brusquement, chargea à travers l'onde d'énergie spirituelle démoniaque et disparut à l'horizon.
 

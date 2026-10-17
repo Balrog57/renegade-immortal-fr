@@ -18,7 +18,7 @@ Plus de 900 ans de culture avaient permis à Wang Lin d'atteindre le stade avanc
 
 Si Zhu Quezi n'était pas mort, quel sentiment éprouverait-il en voyant cela? Ce petit cultivateur qu'il ne considérait que comme un pion avait atteint des sommets aussi élevés!
 
-Les cultivateurs au stade avancé de l'Ascendant étaient considérés comme des existences suprêmes sur certaines petites planètes de culture. Personne n'oserait les provoquer là-bas.
+Les cultivateurs au stade avancé de l'Ascendant étaient considérés comme des existences suprêmes sur certaines petites planètes de culture. Personne n'oserait les provoquer là-bas: à moins de posséder un trésor défiant le ciel, affronter un cultivateur de l'Ascendant avancé mène à une défaite certaine.
 
 Après avoir passé l'année écoulée à absorber l'énergie spirituelle céleste, Wang Lin avait enfin atteint ce sommet. Il ne lui manquait plus qu'un pas pour que sa culture et son domaine atteignent la perfection. Après cela, il pourrait franchir le seuil de la deuxième étape!
 
@@ -26,11 +26,11 @@ Peu de gens pouvaient atteindre la deuxième étape de la culture; c'était une 
 
 Bien que Wang Lin n'ait pas encore atteint cette étape, ses quelques combats contre des cultivateurs de l'Yin Illusoire lui avaient fait réaliser la puissance phénoménale des cultivateurs de la deuxième étape.
 
-« La première étape de la culture était déjà extrêmement difficile. En repensant à ces 900 ans de culture, le danger se trouvait à chaque coin de rue. Le moindre instant d'inattention aurait pu détruire mon âme. Si ce n'était pour Senior Zhou Yi, je serais déjà mort en tentant de percer le stade Ascendant.
+« La première étape de la culture était déjà extrêmement difficile. En repensant à ces 900 ans de culture, le danger se trouvait à chaque coin de rue. Le moindre instant d'inattention aurait pu détruire mon corps et mon âme. Ceux qui entendent le Dao naissent le matin et meurent le soir. Si ce n'était pour Senior Zhou Yi, je serais déjà mort en tentant de percer le stade Ascendant.
 
 « Si la première étape est déjà ainsi, alors la deuxième doit être encore plus ardue. La deuxième étape doit également posséder sa propre épreuve de vie et de mort... Je me demande si je pourrai la réussir... Cependant, celui qui suit la volonté des cieux est semblable à un mortel, tandis que celui qui s'oppose aux cieux est immortel. Tant que mon cœur dao demeure, je peux surmonter tous les dangers! » Les yeux de Wang Lin brillèrent intensément.
 
-« Il existe aussi la troisième étape de la culture. Même des êtres comme l'Omniscient ne l'ont pas atteinte et s'efforcent de la poursuivre. Quel est donc le niveau de cette troisième étape... Comment se comparera-t-elle à un dieu ancestral... » Une pointe d'anticipation traversa son regard.
+« Il existe aussi la troisième étape de la culture. Même des êtres comme l'Omniscient ne l'ont pas atteinte et s'efforcent de la poursuivre. Quel est donc le niveau de cette troisième étape... Comment se comparera-t-elle à un Dieu Ancien... » Une pointe d'anticipation traversa son regard.
 
 Cependant, il savait que la troisième étape était encore bien trop lointaine; il se pourrait même qu'il ne puisse en saisir l'essence avant la fin de sa vie.
 
@@ -44,11 +44,11 @@ La Bête du Tonnerre emmena Wang Lin vers la planète Mille Illusions. La planè
 
 « Il est temps d'explorer ce Serpent aux yeux de lune sur la planète Yun Xia. J'ai besoin d'une grande quantité de Fruits d'Ascension Céleste, la famille Huan est donc le meilleur choix! » Wang Lin chevaucha la Bête du Tonnerre en avant. Bien que sa progression fût plus lente que celle de la boussole stellaire, elle restait très rapide.
 
-« Le corps original a absorbé l'énergie spirituelle d'une petite planète et sa force est de quatre étoiles. Cependant, il lui manque encore l'aura d'un dieu ancestral adulte. Je me demande si je peux en trouver dans le Système Stellaire de Luotian... » Les yeux de Wang Lin s'illuminèrent comme s'il venait d'avoir une révélation.
+« Le corps original a absorbé l'énergie spirituelle d'une petite planète et sa force rivalise presque avec quatre étoiles. Cependant, il lui manque encore l'aura d'un Dieu Ancien adulte. Je me demande si je peux en trouver dans le Système Stellaire de Luotian... » Les yeux de Wang Lin s'illuminèrent comme s'il venait d'avoir une révélation.
 
-« Le Serpent aux yeux de lune est un parasite qui vit à l'intérieur du corps d'un dieu ancestral. Je me demande s'il reste là-bas des traces de l'aura d'un dieu ancestral... » Wang Lin se remémora un souvenir passé.
+« Le Serpent aux yeux de lune est un parasite qui vit à l'intérieur du corps d'un Dieu Ancien. Je me demande s'il reste là-bas des traces de l'aura d'un Dieu Ancien... » Wang Lin se remémora un souvenir passé.
 
-« À l'époque, sur la planète Tian Yun, un messager de l'Alliance de la Culture était arrivé avec une Bête Sable Stellaire. Cette créature est extrêmement sensible à l'aura d'un dieu ancestral. Si cette bête était ici, elle m'aiderait grandement dans ma recherche... »
+« À l'époque, sur la planète Tian Yun, un messager de l'Alliance de la Culture était arrivé avec une Zibeline Marquée d'Étoiles. Cette créature est extrêmement sensible à l'aura d'un Dieu Ancien. Si cette bête était ici, elle m'aiderait grandement dans ma recherche... »
 
 La Bête du Tonnerre poussa un rugissement en traversant l'espace. Une demi-lune plus tard, la planète Mille Illusions apparut aux yeux de Wang Lin. Son regard restait calme tandis que la Bête du Tonnerre fonçait vers la planète.
 
@@ -72,11 +72,11 @@ Lorsqu'ils distinguèrent clairement Wang Lin assis sur la Bête du Tonnerre, ce
 
 Les membres de la famille Huan n'auraient jamais pu oublier Wang Lin.
 
-Perché sur la tête de la Bête du Tonnerre, les yeux de Wang Lin étincelant de lueurs électriques, il déclara calmement: « Chef de la famille Huan, avancez! »
+Assis sur la Bête du Tonnerre, les yeux de Wang Lin étincelant de lueurs électriques, il déclara calmement: « Chef de la famille Huan, avancez! »
 
 Huan Fengshen prit une profonde inspiration. Il s'avança et dit respectueusement: « Huan Fengshen, chef de la famille Huan, salue le messager du Temple Céleste du Tonnerre. Je n'avais pas reconnu Seigneur Messager auparavant; j'espère que cela ne vous offusque pas. »
 
-Wang Lin ne s'expliqua naturellement pas et répondit: « Il est inutile de parler du passé. Je veux savoir si vous avez un moyen d'obtenir une grande quantité de Fruits d'Ascension Céleste! »
+Wang Lin ne s'expliqua naturellement pas et répondit: « Il est inutile de parler du passé. Je veux savoir si vous avez un moyen d'obtenir en peu de temps une grande quantité de Fruits d'Ascension Céleste! »
 
 « Des Fruits d'Ascension Céleste? » Huan Fengshen fut surpris et répondit immédiatement avec amertume: « Seigneur Messager, cela... »
 

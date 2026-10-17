@@ -32,13 +32,13 @@ Une onde de choc se propagea alors à partir d'eux. Cependant, cette onde ne par
 
 Les deux adversaires devaient maîtriser leur force avec une précision extrême pour s'assurer que l'onde de choc soit la plus réduite possible.
 
-Le corps de l'homme maléfique fut projeté en arrière alors que son cheval poussait un gémissement de douleur, ses quatre membres étant brisés. Le corps de la monture explosa ensuite, forçant l'homme à reculer de trois pas, chacun d'eux faisant trembler le sol!
+Le corps de l'homme maléfique vacilla alors que son cheval poussait un gémissement de douleur, ses quatre membres étant brisés. Le corps de la monture explosa ensuite, forçant l'homme à reculer de trois pas, chacun d'eux faisant trembler le sol!
 
 L'homme fixa Mo Lihai et s'exclama: « Intention du Poing des Dix Effondrements! »
 
 Le corps de Mo Lihai trembla également, et il commença lui aussi à reculer sur sa monture. Les yeux de Wang Lin s'illuminèrent; il leva la main droite et pointa vers Mo Lihai. L'utilisation de la puissance par Wang Lin était si subtile qu'il parvint à annuler une grande partie de l'impact pour son compagnon.
 
-Mo Lihai prit une profonde inspiration pour stabiliser son corps. Il descendit de sa monture sans une égratignure, le duel entre les deux étant déjà tranché!
+Mo Lihai prit une profonde inspiration pour stabiliser son corps. Sa monture était indemne, le duel entre les deux étant déjà tranché!
 
 Mo Lihai sourit: « L'Épée Démoniaque aux Six Doigts n'est donc pas si redoutable! »
 
@@ -72,7 +72,7 @@ Sun Tao rangea les pilules, réfléchit un instant et répondit: « Si je n'éta
 
 Sun Tao songea un instant. Peu après, il ajouta: « Si je parviens à obtenir les matériaux nécessaires, je pourrai raffiner une Pilule de l'Origine Céleste, ce qui pourrait restaurer ma culture au stade initial de l'Ascendant pour une courte période! »
 
-L'homme maléfique hocha la tête: « Ne t'inquiète pas pour les matériaux, j'ai déjà envoyé des hommes pour les rassembler! » Puis il changea de sujet: « Comment va ton frère cadet? »
+L'homme maléfique hocha la tête: « Ne t'inquiète pas pour les matériaux, j'ai déjà envoyé des hommes pour les rassembler! » Puis il changea de sujet: « Et ton frère cadet, comment est-il? »
 
 Sun Tao afficha un regard complexe avant de soupirer: « Puissant! Très puissant! Même lorsque sa culture n'était qu'au stade médian de la Transformation de l'Âme, il valait mieux ne pas le provoquer! »
 
@@ -102,9 +102,9 @@ Mo Lihai revint au crépuscule, le regard empreint de joie. Il discuta avec Wang
 
 Le temps s'écoula rapidement et, en un clin d'œil, Wang Lin avait passé quatre jours au Manoir Mo. Il consacrait la quasi-totalité de son temps à convertir l'énergie spirituelle démoniaque en énergie spirituelle céleste afin de stabiliser davantage ses fondations.
 
-Wang Lin ne demanda pas quand débuterait la bataille entre les généraux démons. Il savait que Mo Lihai ferait appel à lui le moment venu. N'étant pas pressé, il consacrait son temps, outre sa culture, à une profonde méditation sur l'Art du Massacre Céleste. Après le carnage de la Cité du Démon Antique, sa compréhension de cet art s'était considérablement approfondie.
+Wang Lin ne demanda pas quand débuterait la bataille entre les généraux démons. Il savait que Mo Lihai ferait appel à lui le moment venu. N'étant pas pressé, il consacrait son temps, outre sa culture, à une profonde méditation sur l'Art du Massacre Céleste. Après le carnage de la Grande Muraille Antique, sa compréhension de cet art s'était considérablement approfondie.
 
-Wang Lin passa ainsi ses trois mois au sein de la Tribu du Affinement de l'Âme. Lorsqu'il ne cultivait pas, il méditait sur l'Art du Massacre Céleste. Pour lui, un changement de lieu n'altérait en rien sa détermination.
+Wang Lin avait passé de la même façon les trois mois dans la Tribu du Affinement de l'Âme. Lorsqu'il ne cultivait pas, il méditait sur l'Art du Massacre Céleste. Pour lui, un changement de lieu n'altérait en rien sa détermination.
 
 Le calme imperturbable de Wang Lin attira l'attention des deux sergents qui lui étaient assignés, et ils finirent par éprouver une véritable admiration pour lui. À leurs yeux, un homme de son niveau qui s'appliquait avec une telle rigueur deviendrait sans aucun doute un général démon à l'avenir.
 
@@ -120,6 +120,6 @@ Au début, les deux sergents observaient Wang Lin de loin, avec calme. Mais bien
 
 Juste au moment où cette soif de sang atteignait son paroxysme et que les deux hommes étaient sur le point d'exploser, Wang Lin ouvrit soudainement les yeux, dont la clarté était absolue.
 
-En croisant le regard de Wang Lin, c'est comme si de l'eau glacée avait été déversée sur leurs têtes; ils retrouvèrent instantanément leur lucidité. Bien qu'ils fussent redevenus sains d'esprit, une grande partie de leur culture s'était dissipée. Terrifiés, les deux hommes n'osèrent plus jamais regarder Wang Lin cultiver.
+En croisant le regard de Wang Lin, c'est comme si de l'eau glacée avait été déversée sur leurs têtes; ils retrouvèrent instantanément leur lucidité. Bien qu'ils fussent redevenus sains d'esprit, une grande partie de leur énergie démoniaque s'était dissipée. Terrifiés, les deux hommes n'osèrent plus jamais regarder Wang Lin cultiver.
 
-« L'Art du Massacre Céleste emprunte la voie de la destruction pour créer des sceaux de vie. La quantité de vies que j'ai fauchées n'est pas négligeable, et pourtant, je ne possède pas une telle abondance d'aura de massacre... Il doit y avoir une raison! » songea Wang Lin, tout en se remémorant soigneusement chaque fois qu'il avait utilisé l'Art du Massacre Céleste avec succès.
+« L'Art du Massacre Céleste fusionne le massacre et la transformation de la force vitale pour former des sceaux. La quantité de vies que j'ai fauchées n'est pas négligeable, et pourtant, je ne possède pas une telle abondance d'aura de massacre... Il doit y avoir une raison! » songea Wang Lin, tout en se remémorant soigneusement chaque fois qu'il avait utilisé l'Art du Massacre Céleste avec succès.

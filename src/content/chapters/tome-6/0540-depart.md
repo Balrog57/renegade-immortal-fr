@@ -98,20 +98,20 @@ Pour faciliter les communications, il passa un demi-mois à fabriquer deux jades
 
 Cette fois, Wang Lin ne partirait pas seul. Deux jeunes l'accompagneraient, et l'un d'eux était Treize!
 
-L'autre s'appelait Huo Pao. Originaire d'une petite tribu, il avait déjà éveillé son énergie spirituelle démoniaque. Il possédait deux étoiles de cette énergie lorsqu'il rejoignit la tribu, étant alors le premier expert de son clan d'origine.
+L'autre s'appelait Hu Pao. Originaire d'une petite tribu, il avait déjà éveillé son énergie spirituelle démoniaque. Il possédait deux étoiles de cette énergie lorsqu'il rejoignit la tribu, étant alors le premier expert de son clan d'origine.
 
 Ouyang Hua l'avait personnellement capturé et contraint à boire une soupe effaçant les souvenirs, faisant de lui un membre de la Tribu du Affinement de l'Âme. Ce jeune homme était doté d'un talent exceptionnel pour la culture. Avec son point de départ de deux étoiles, il avait rapidement surpassé tout le monde, talonnant même Ouyang Hua.
 
 À l'heure actuelle, il avait déjà atteint le cinquième stade et possédait 93 drapeaux d'âme ainsi que 31 âmes primaires. Sa force actuelle n'était guère différente de celle d'un cultivateur de la Formation du Noyau.
 
-Wang Lin voyait en lui un génie. Bien que le sort de affinement de l'âme fût facile à apprendre, atteindre le stade de la Formation du Noyau en seulement quatre ans dépassait toutes les espérances de Wang Lin. L'une des raisons majeures était son bagage initial de deux étoiles d'énergie spirituelle démoniaque, couplé à la richesse de cette énergie dans ces terres, mais c'était la première fois que Wang Lin croisait un talent tel que celui de Huo Pao!
+Wang Lin voyait en lui un génie. Bien que le sort de affinement de l'âme fût facile à apprendre, atteindre le stade de la Formation du Noyau en seulement quatre ans dépassait toutes les espérances de Wang Lin. L'une des raisons majeures était son bagage initial de deux étoiles d'énergie spirituelle démoniaque, couplé à la richesse de cette énergie dans ces terres, mais c'était la première fois que Wang Lin croisait un talent tel que celui de Hu Pao!
 
 S'il atteignait le stade de la Formation de l'Âme en cent ans, il rattraperait Papillon Rouge en termes de talent! En réalité, il serait même supérieur à ce dernier!
 
 Wang Lin accordant une immense importance au talent, il décida de le garder auprès de lui pour mieux le contrôler plutôt que de le laisser dans la tribu.
 
-Le respect que Huo Pao vouait à Wang Lin n'était pas moindre que celui de Treize. Lorsqu'il apprit que l'Ancêtre allait l'emmener en expédition, il fut transporté par l'excitation.
+Le respect que Hu Pao vouait à Wang Lin n'était pas moindre que celui de Treize. Lorsqu'il apprit que l'Ancêtre allait l'emmener en expédition, il fut transporté par l'excitation.
 
-Quant à Treize, la robustesse de son corps avait atteint un degré stupéfiant. Même face à Huo Pao, il ne serait pas désavantagé. Cela tenait en grande partie à sa détermination et à ses efforts acharnés. Depuis qu'il avait obtenu la méthode de raffinement corporel, il avait passé de nombreux jours et nuits à cultiver. En matière de sérieux envers la culture, il était le premier de la tribu.
+Quant à Treize, la robustesse de son corps avait atteint un degré stupéfiant. Même face à Hu Pao, il ne serait pas désavantagé. Cela tenait en grande partie à sa détermination et à ses efforts acharnés. Depuis qu'il avait obtenu la méthode de raffinement corporel, il avait passé de nombreux jours et nuits à cultiver. En matière de sérieux envers la culture, il était le premier de la tribu.
 
-Ce matin-là, au moment où le soleil s'élevait dans le ciel, Wang Lin sortit de la Tribu du Affinement de l'Âme, suivi par Huo Pao et Treize tels des gardes d'élite.
+Ce matin-là, au moment où le soleil s'élevait dans le ciel, Wang Lin sortit de la Tribu du Affinement de l'Âme, suivi par Hu Pao et Treize tels des gardes d'élite.

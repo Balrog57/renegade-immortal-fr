@@ -56,7 +56,7 @@ Qian Feng était lui aussi dans un état lamentable. Heureusement, tant que l'on
 
 Le visage de Qian Feng était féroce lorsqu'il rugit: « Ceng Niu!!! Je jure que je te déchirerai en morceaux! Si je viole ce serment, je mourrai une mort atroce! »
 
-Liu Mei fixait silencieusement la mer, l'expression sombre. Voyant que Qian Feng continuait de maudire et de rugir, elle fronça les sourcils: « Tais-toi! Si tu n'avais pas eu ces intentions malveillantes et si nous n'avions pas vraiment travaillé ensemble, nous serions déjà à l'intérieur du palais au lieu d'être ici. »
+Liu Mei fixait silencieusement la mer, l'expression sombre. Voyant que Qian Feng continuait de maudire et de rugir, elle fronça les sourcils: « Tais-toi! Si tu n'avais pas eu ces intentions malveillantes et si nous avions vraiment travaillé ensemble tous les trois, nous serions déjà à l'intérieur du palais au lieu d'être ici. »
 
 Qian Feng eut un regard féroce. Il lança un regard de rage à Liu Mei et dit: « Crois-tu que je n'ai pas remarqué comment vous deux flirtiez en vous lançant des regards? Jeune sœur apprentie, n'oublie pas ce que tu m'as promis! »
 
@@ -100,13 +100,13 @@ Dans le couloir, le visage de Wang Lin était pâle et ses yeux étaient emprein
 
 « Le premier Suzaku, Ye Wuyou! » Il put immédiatement deviner l'identité de l'homme d'âge moyen.
 
-Quant à la sphère de lumière violette, il s'agissait du Cristal de Planète de Cultivation.
+Quant à la sphère de lumière violette, il s'agissait du Cristal de la Planète de Culture.
 
 Pourtant, Wang Lin sentait que quelque chose clochait. Bien qu'elle ressemble exactement à ce que Situ Nan avait décrit, il ne ressentit aucun lien avec son fragment d'âme lorsque son Sens Divin la toucha.
 
 « Puisque tu es arrivé, entre. » La voix de Yun Quezi résonna depuis le fond du couloir.
 
-Les yeux de Wang Lin s'illuminèrent. En projetant son Sens Divin dans la pièce, il vit le premier Suzaku et le Cristal de Planète de Cultivation, mais il ne vit ni Yun Quezi ni le vieil homme, bien que tous deux fussent déjà présents.
+Les yeux de Wang Lin s'illuminèrent. En projetant son Sens Divin dans la pièce, il vit le premier Suzaku et le Cristal de la Planète de Culture, mais il ne vit ni Yun Quezi ni le vieil homme, bien que tous deux fussent déjà présents.
 
 Wang Lin réfléchit un instant avant d'avancer. Peu après, il atteignit l'extrémité du couloir et pénétra dans la vaste esplanade.
 
@@ -120,11 +120,11 @@ Il paraissait bien plus affaibli qu'à l'accoutumée. Il regarda Wang Lin et dit
 
 Wang Lin, empreint de prudence, demanda: « Et lui? »
 
-L'expression de Yun Quezi se durcit: « J'ai utilisé une formation pour le piéger. Il devrait toujours être prisonnier. Wang Lin, je suis gravement blessé, alors va chercher le Cristal de Planète de Cultivation pour moi. Que ce soit pour mon Clan Immortel Abandonné ou pour les cultivateurs, je ne peux pas laisser le Cristal s'effondrer. »
+L'expression de Yun Quezi se durcit: « J'ai utilisé une formation pour le piéger. Il devrait toujours être prisonnier. Wang Lin, je suis gravement blessé, alors va chercher le Cristal de la Planète de Culture pour moi. Que ce soit pour mon Clan des Immortels Délaissés ou pour les cultivateurs, je ne peux pas laisser le Cristal s'effondrer. »
 
-« Oh? » Wang Lin regarda calmement Yun Quezi et demanda: « Tu veux que j'aille chercher le Cristal de Planète de Cultivation? »
+« Oh? » Wang Lin regarda calmement Yun Quezi et demanda: « Tu veux que j'aille chercher le Cristal de la Planète de Culture? »
 
-Yun Quezi prit une profonde inspiration et soupira: « Je sais que tu es très prudent. Tu peux vérifier mon état avec ton Sens Divin; tu verras que je suis presque totalement épuisé. Ce vieil homme n'est pas originaire de la planète Suzaku. Ses techniques sont très étranges et je ne pourrai pas le maintenir piégé longtemps. Une fois libéré, il volera le Cristal de Planète de Cultivation, et à ce moment-là, tous les habitants de la planète Suzaku feront face à une crise sans précédent. »
+Yun Quezi prit une profonde inspiration et soupira: « Je sais que tu es très prudent. Tu peux vérifier mon état avec ton Sens Divin; tu verras que je suis presque totalement épuisé. Ce vieil homme n'est pas originaire de la planète Suzaku. Ses techniques sont très étranges et je ne pourrai pas le maintenir piégé longtemps. Une fois libéré, il volera le Cristal de la Planète de Culture, et à ce moment-là, tous les habitants de la planète Suzaku feront face à une crise sans précédent. »
 
 Les yeux de Wang Lin brillèrent. Il leva la tête vers la sphère de lumière violette devant le premier Suzaku. Sans hésiter, il recula.
 

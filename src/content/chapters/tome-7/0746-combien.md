@@ -6,11 +6,11 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 746 - How Much
 slug: combien
 ---
-L'expression de Wang Lin devint sombre et ses pupilles se rétractèrent lorsqu'il vit la chaîne de tonnerre entre les mains du vieil homme. Son cœur fut envahi par la terreur. Même Wang Lin, avec son âme d'origine du tonnerre et son corps de tonnerre, ne pouvait manipuler une telle chaîne avec autant de désinvolture.
+L'expression de Wang Lin devint sombre et ses pupilles se rétractèrent lorsqu'il vit la chaîne de tonnerre entre les mains du vieil homme. Son cœur fut envahi par la terreur. Même Wang Lin, avec son âme originelle du tonnerre et son corps de tonnerre, ne pouvait manipuler une telle chaîne avec autant de désinvolture.
 
 Même le simple tonnerre qui s'en échappait contenait une trace de tonnerre céleste; à plus forte raison la chaîne entière.
 
-Il ne percevait aucune indication du niveau de culture du vieil homme, mais il pouvait imaginer qu'il était extrêmement élevé. De plus, il ressentait vaguement émaner de cet homme un sentiment de retour à l'origine.
+Il ne percevait aucune indication du niveau de culture du vieil homme, mais il pouvait imaginer qu'il était extrêmement élevé. De plus, il ressentait vaguement émaner de cet homme une trace d'aura originelle.
 
 Inconsciemment, Wang Lin recula de quelques pas. Il ne connaissait absolument pas ce vieil homme; par conséquent, la personne prédestinée n'était probablement pas lui. Son regard se détourna et se posa sur Li Yuan.
 
@@ -32,7 +32,7 @@ Le vieil homme esquissa un sourire malicieux et tendit la main. En un instant, u
 
 Une seule pression fit pâlir Wang Lin; il constata qu'il était totalement incapable de bouger. C'était comme si un sort d'immobilisation avait été lancé sur lui. Il ne pouvait que regarder la main du vieil homme s'approcher.
 
-Ses yeux brillèrent intensément et, alors que la main de l'ancien se refermait sur lui, il se mordit la langue. Plutôt que de recracher le sang, il avala l'essence sanguine et activa le sort d'évasion qu'il avait appris du vieil homme dans la Terre des Esprits Démoniaques. Le sang avait déjà formé un cycle interne au sein de son corps.
+Ses yeux brillèrent intensément et, alors que la main de l'ancien se refermait sur lui, il se mordit la langue. Plutôt que de recracher le sang, il avala l'essence sanguine et activa le sort d'évasion qu'il avait appris jadis d'un expert en fuite dans la Terre des Esprits Démoniaques. Le sang avait déjà formé un cycle interne au sein de son corps.
 
 Sous l'impulsion de ce cycle, son corps se détendit et disparut en un éclair. Il réapparut à une certaine distance et s'échappa sans même regarder en arrière.
 
@@ -58,9 +58,9 @@ La Bête de Tonnerre finit par reprendre ses esprits et tremblait de terreur. C'
 
 Voyant que le vieil homme s'apprêtait à partir, Wang Lin serra les dents et s'écria: « Avec la culture de Senior, comment peut-il ainsi s'emparer des possessions d'un junior? »
 
-Le vieil homme s'arrêta et se retourna vers Wang Lin. Il sourit, ses yeux brillant d'admiration: « Tu veux une compensation? Intéressant, mais je ne peux pas utiliser ta Bête de Tonnerre pour rien! » Il regarda Wang Lin et ajouta: « Ta culture est un désordre sans nom. Une âme d'origine du tonnerre et un corps de tonnerre, qu'est-ce que c'est que ça? Laisse ce vieux te donner un coup de main! »
+Le vieil homme s'arrêta et se retourna vers Wang Lin. Il sourit, ses yeux brillant d'admiration: « Tu veux une compensation? Intéressant, mais je ne peux pas utiliser ta Bête de Tonnerre pour rien! » Il regarda Wang Lin et ajouta: « Ta culture est un désordre sans nom. Une âme originelle du tonnerre et un corps de tonnerre, qu'est-ce que c'est que ça? Laisse ce vieux te donner un coup de main! »
 
-La main droite de l'ancien s'avança et une grande quantité de poussière se rassembla dans sa paume pour former une sphère de lumière. Il cracha ensuite une bouffée d'énergie dans la sphère et la projeta sans même regarder. La boule de lumière fila droit sur Wang Lin.
+La main droite de l'ancien s'avança et une grande quantité de poussière se rassembla dans sa paume pour former une sphère de lumière de la taille d'un poing. Il souffla ensuite une bouffée d'air dans la sphère et la projeta sans même regarder. La boule de lumière fila droit sur Wang Lin.
 
 La sphère était trop rapide pour que Wang Lin puisse l'esquiver, et elle pénétra directement dans sa poitrine.
 
@@ -70,7 +70,7 @@ Après cela, le vieil homme agita ses manches en riant: « Vous ne pouvez pas fr
 
 La Bête de Tonnerre observait attentivement l'homme. Son cœur battait la chamade, mais elle n'osait émettre le moindre son.
 
-Le corps du vieil homme vacilla puis il disparut avec la bête. Cependant, presque aussitôt après sa réapparition, il regarda l'endroit où Wang Lin avait disparu et marmonna: « Au fait, quelle quantité d'énergie ai-je injectée? Euh... il semble que j'en aie mis un peu trop... Ce petit gars devrait s'en sortir... Quoi qu'il en soit, s'il ne meurt pas, alors il est véritablement lié à ce vieux. »
+Le corps du vieil homme vacilla puis il disparut avec la bête. Cependant, presque aussitôt après sa réapparition, il regarda l'endroit où Wang Lin avait disparu et marmonna: « Au fait, à combien de dixièmes de ma force ai-je soufflé? Euh... il semble que j'en aie mis un peu trop... Ce petit gars devrait s'en sortir... Quoi qu'il en soit, s'il ne meurt pas, alors il est véritablement lié à ce vieux. »
 
 L'ancien fit un pas en avant et disparut sans laisser de trace.
 

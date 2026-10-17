@@ -28,7 +28,7 @@ Li Qingping était l'actuel maître de la Secte des Cadavres à Zhao. Il avait d
 
 Son apparence physique lui donnait l'air d'un homme d'environ quarante ans. Bien que quelques mèches de ses cheveux aient blanchi, il restait très beau; il devait être un grand séducteur dans sa jeunesse.
 
-Il dirigeait la Secte des Cadavres à Zhao depuis deux cents ans et s'était toujours montré extrêmement prudent. Il interagissait rarement avec le monde extérieur, ce qui renforçait le mystère entourant la secte en terre de Zhao.
+Il dirigeait la Secte des Cadavres à Zhao depuis plus de deux cents ans et s'était toujours montré extrêmement prudent. Il interagissait rarement avec le monde extérieur, ce qui renforçait le mystère entourant la secte en terre de Zhao.
 
 Il passait tout son temps en culture méditative isolée, dans l'espoir d'atteindre le stade de la Formation de l'Âme avant que l'âme logée dans sa marionnette cadavérique ne finisse par le prendre possession. Une fois ce stade atteint, le quartier général de la Secte des Cadavres sur la planète Suzaku lui aurait préparé un corps de choix. Il pourrait alors devenir un disciple central et, si ses performances étaient à la hauteur, il pourrait même être transféré au siège principal.
 
@@ -46,7 +46,7 @@ La silhouette noire dit rapidement d'une voix tremblante: « Veuillez avoir piti
 
 Il savait qu'avec le niveau de culture de cet aîné, même s'il possédait un corps, celui-ci pourrait l'éliminer sans le moindre effort. Il devinait que cet individu était un vieux monstre du stade de la Transformation de l'Âme.
 
-« Oh? De quel secte viens-tu? » lança Wang Lin par message de Sens Divin.
+« Oh? De quelle secte viens-tu? » lança Wang Lin par message de Sens Divin.
 
 « Aîné, je ne suis pas originaire de la planète Suzaku, mais un disciple de la Secte Mile sur la planète Tian Yun. Le disciple a perdu son corps et a dépensé d'immenses ressources pour en acheter un auprès de la Secte des Cadavres », répondit promptement le brouillard noir, n'osant mentir sur quoi que ce soit.
 
@@ -58,7 +58,7 @@ Wang Lin demanda: « Quel est ton nom? »
 
 Le brouillard noir répondit aussitôt: « Le nom du disciple est Cao Yidou. » Cette réponse prudente rappela à Wang Lin Xu Liguo.
 
-« Cao Yidou... » Les yeux de Wang Lin s'illuminèrent et son Sens Divin prit la forme d'une tête gigantesque qui s'élança vers le brouillard noir.
+« Cao Yidou... » Les yeux de Wang Lin s'illuminèrent et son Sens Divin prit la forme d'une main invisible et gigantesque qui s'élança vers le brouillard noir.
 
 Terrifié, Cao Yidou quitta immédiatement le corps de Li Qingping. Il tenta d'esquiver la main géante en criant: « Tout ce que dit le disciple est vrai, c'est la vérité! »
 

@@ -9,7 +9,7 @@ slug: sechapper-vivant
 
 Tous les cheveux de Cupidité se hérissèrent. Il ne s'était jamais senti aussi proche de la mort, même lorsqu'il avait été capturé par le couple céleste Wang Wei et Hu Juan.
 
-Ce doigt illusoire semblait être issu du Dao céleste; il était comme une extension des cieux eux-mêmes.
+Ce doigt illusoire semblait être issu du Dao céleste; il donnait l'impression d'avoir supplanté le ciel et la terre pour former un Dao à part entière.
 
 Ce n'était pas un simple Dao qu'un cultivateur pouvait appréhender. En réalité, il était infiniment plus puissant que tout ce qu'un individu pouvait concevoir!
 
@@ -29,7 +29,7 @@ Des bruits de craquements résonnèrent et d'innombrables fissures apparurent su
 
 Le doigt de l'ancien dieu ne s'arrêta pas et s'abattit sur Cupidité.
 
-Les yeux de Wang Lin s'illuminèrent alors qu'il fixait l'Écran Montagne et Rivière qui, bien que fissuré, conservait toute sa puissance. Un éclat étrange traversa son regard. En voyant le doigt se diriger vers Cupidité, Wang Lin serra les dents. Il abandonna l'os avec la garde céleste et chargea comme s'il se téléportait.
+Les yeux de Wang Lin s'illuminèrent alors qu'il fixait l'Écran Montagne et Rivière qui, bien que fissuré, conservait toute sa puissance. Un éclat étrange traversa son regard. En voyant le doigt se diriger vers Cupidité, Wang Lin serra les dents. Il confia l'os à la garde céleste et chargea comme s'il se téléportait.
 
 Sa vitesse était prodigieuse; il arriva aux côtés de l'écran en un clin d'œil.
 
@@ -117,7 +117,7 @@ Autrement, selon ses calculs initiaux, il ne se serait pas retrouvé dans un ét
 
 Il avait trop perdu lors de ce périple: la formation d'épée des sept étoiles était détruite, la bannière de restriction s'était effondrée, un rayon de l'énergie d'épée de Ling Tianhou avait été consommé, et son propre corps avait été réduit en poussière, ne laissant que son âme originelle.
 
-Cependant, sa récolte était aussi immense. Son âme originelle était enfin libre, il possédait la moitié de l'os du Serpent aux yeux de lune, la montagne céleste, l'Écran Montagne et Rivière, et enfin cette couronne!
+Cependant, sa récolte était aussi immense. Son âme originelle était enfin libre, il possédait la moitié de l'os du Serpent aux yeux de lune, la pierre de montagne, l'Écran Montagne et Rivière, et enfin cette couronne!
 
 Il ne savait s'il avait gagné ou perdu; il ne put qu'émettre un soupir avant d'accélérer encore davantage. Le Serpent aux yeux de lune approchait lentement, couvrant des distances phénoménales à chaque mouvement.
 

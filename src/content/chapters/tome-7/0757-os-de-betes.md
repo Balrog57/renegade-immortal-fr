@@ -18,13 +18,13 @@ En y songeant, le cœur de Li Yuan s'emballa. L'excitation provoquée par la ten
 
 « Frère Xu, nous... nous essayons en fait de tuer un dieu! »
 
-Comme l'avait dit Li Yuan, cela revenait presque à tenter d'assassiner une divinité. Bien que l'Ancêtre Sanguin ne fût peut-être pas comparable à un seigneur céleste, il aurait tout de même été considéré comme une puissance majeure du Royaume Céleste avant sa destruction.
+Comme l'avait dit Li Yuan, cela revenait presque à tenter d'assassiner une divinité. Même à l'époque où le Royaume Céleste du Tonnerre n'avait pas encore été détruit, bien que l'Ancêtre Sanguin n'eût pu égaler un Seigneur Céleste, il aurait assurément pu régner en maître sur toute une région.
 
-Aucun cultivateur de rang inférieur n'aurait osé se dresser contre lui!
+Aucun cultivateur des royaumes inférieurs n'aurait osé se dresser contre lui!
 
 Wang Lin se lécha les lèvres et dit: « J'aurai toujours besoin de l'aide du frère Li pour cette affaire. Une fois l'événement terminé, je ne manquerai pas de te récompenser, frère Li. »
 
-Li Yuan réfléchit un instant. L'excitation précédente lui avait asséché la gorge. Il regarda alors Wang Lin et répondit: « Le frère Li n'a pas besoin de me remercier. Ce que tu as sauvé, ce n'est pas seulement moi, mais des générations entières de la famille Li. N'est-ce que tuer un dieu? Comment pourrais-je ne pas participer à une entreprise aussi exaltante?! »
+Li Yuan réfléchit un instant. L'excitation précédente lui avait asséché la gorge. Il regarda alors Wang Lin et répondit: « Frère Xu n'a pas besoin de me remercier. Ce que tu as sauvé, ce n'est pas seulement moi, mais des générations entières de la famille Li. N'est-ce que tuer un dieu? Comment pourrais-je ne pas participer à une entreprise aussi exaltante?! »
 
 Le regard de Wang Lin se fit glacial et il déclara d'une voix lente: « Cet Ancêtre Sanguin n'est pas si facile à abattre; cela exigera une planification minutieuse. Avant que nous ne passions à l'action, le frère Li peut partir le premier. »
 
@@ -114,7 +114,7 @@ Wang Lin n'avait pu atteindre cette distance qu'en empruntant la force du garde 
 
 Son corps flamboya de rouge sang, sa célérité augmentant encore. Il brilla une seconde fois, devenant plus rapide encore. En un clin d'œil, son corps émit neuf éclats de lumière rouge, atteignant une vitesse comparable à la téléportation.
 
-Ce sort d'évasion utilisant la lueur sanguine était le plus rapide qu'il ait appris de l'ancien du Territoire de l'Esprit Démoniaque. Cependant, il ne pouvait être utilisé que si sa culture atteignait le sommet du stade tardif de l'Ascendant, sous peine de voir son corps exploser.
+Ce sort d'évasion utilisant la lueur sanguine était le plus rapide qu'il ait appris de l'ancien du Territoire de l'Esprit Démoniaque. Cependant, il ne pouvait être utilisé que si sa culture atteignait la Grande Perfection de l'Ascendant, sous peine de voir son corps exploser.
 
 En un instant, la silhouette de Wang Lin apparut à l'entrée de la seconde vallée. Le visage pâle, il faillit s'effondrer. D'un geste de la main droite, il fit revenir l'Écran des Montagnes et des Rivières.
 

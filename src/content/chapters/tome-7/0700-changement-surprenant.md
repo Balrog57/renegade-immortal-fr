@@ -62,7 +62,7 @@ Les familles Ran et Zhao sortirent également, bien qu'elles ne fussent pas auss
 
 Il ne jeta qu'un bref coup d'œil avant de baisser la tête pour boire une gorgée de vin.
 
-Une bête gigantesque couverte d'éclairs fendait le ciel. Deux courants d'air chaud s'échappaient de ses narines, lui conférant un aspect extrêmement féroce, et un homme d'âge moyen siégeait sur son dos. C'était le Daoïste du Tonnerre du Temple Céleste du Tonnerre!
+Une bête gigantesque couverte d'éclairs fendait le ciel. Deux dragons d'éclairs serpentaient devant ses narines, lui conférant un aspect extrêmement féroce, et un homme d'âge moyen siégeait sur son dos. C'était le Daoïste du Tonnerre du Temple Céleste du Tonnerre!
 
 Ses yeux, semblables à des éclairs, fixaient froidement la terre. Son Sens Divin balaya instantanément la planète sans aucune retenue, incluant la Ville des Vastes Eaux.
 
@@ -80,7 +80,7 @@ Une fois son Sens Divin retiré, la neige recommença à tomber et le vent repri
 
 « Cela fait trop longtemps; il est peut-être déjà parti. Cet homme est vraiment chanceux! » Le Daoïste du Tonnerre se détourna pour partir, mais ses yeux se contractèrent soudainement. Son Sens Divin jaillit comme la foudre et se verrouilla sur un petit village de montagne de la planète Ran Yun.
 
-Lorsque le Sens Divin balaya les lieux, Qing Yi pâlit instantanément et son corps fut pris de tremblements. L'énergie spirituelle en elle s'effondra, et il lui fallut un long moment pour reprendre quelque peu ses esprits.
+Lorsque le Sens Divin balaya les lieux, Qing Yi pâlit instantanément et son corps fut pris de tremblements. L'énergie spirituelle en elle faillit s'effondrer, et il lui fallut un long moment pour reprendre quelque peu ses esprits.
 
 Wang Ping, surpris, leva la tête vers elle et demanda doucement: « Qing Yi, qu'as-tu? »
 
@@ -92,7 +92,7 @@ Cette puissance était telle qu'elle fit trembler la terre entière. L'épaisse 
 
 C'était comme si le vent et la neige avaient été écrasés autour de son foyer.
 
-L'Âme Naissante nouvellement formée de Qing Yi lutta immédiatement pour libérer de l'énergie spirituelle. Cela lui permit de faire un pas face à cette puissance divine et de se tenir devant Wang Ping.
+L'Âme Originelle nouvellement formée de Qing Yi lutta immédiatement pour libérer de l'énergie spirituelle. Cela lui permit de faire un pas face à cette puissance divine et de se tenir devant Wang Ping.
 
 Bien que son apparence fût celle d'une vieille femme, ses yeux témoignaient d'une lutte inébranlable.
 
@@ -114,22 +114,22 @@ C'était parce qu'il s'agissait d'une Bête du Tonnerre! La bête sacrée de l'a
 
 Bien que sa lignée ne fût plus pure et qu'un fossé immense la séparât de ses ancêtres, sa fierté était inscrite dans ses os.
 
-Wang Ping posa sa sculpture et se tint aux côtés de Qing Yi. Il fixa l'homme d'âge moyen et demanda calmement: « Qui êtes-vous? »
+Wang Ping posa sa sculpture et vint se tenir devant Qing Yi. Il fixa l'homme d'âge moyen et demanda calmement: « Qui êtes-vous? »
 
 L'actuel Wang Ping n'avait plus rien d'un mortel. Le calme dans son regard était authentique; il était véritablement serein. Il se tenait devant Qing Yi comme un homme capable de soutenir le monde sur ses épaules.
 
 Tout cela était l'héritage de son père, Wang Lin. Dix-neuf ans de vie ordinaire, huit ans de voyage et plus de trente ans en tant que souverain suprême parmi les mortels lui avaient forgé un cœur qui ne craint pas les cieux. Il ne craignait pas l'effondrement des cieux, et encore moins ce cultivateur!
 
-Qing Yi fixa les yeux de Wang Ping. À cet instant, sa silhouette fut gravée à jamais dans son esprit, et la tendresse dans son regard s'intensifia. Elle mobilisa sa culture, se tint aux côtés de son mari et affronta calmement l'homme d'âge moyen.
+Qing Yi fixa les yeux de Wang Ping. À cet instant, sa silhouette fut gravée à jamais dans son esprit, et la tendresse dans son regard s'intensifia. Elle dissipa sa culture sans hésiter et, derrière son mari, affronta calmement l'homme d'âge moyen.
 
-L'homme la regarda avec un air significatif, ses yeux brillant d'une lumière étrange qui semblait vouloir percer l'âme de Wang Ping.
+L'homme regarda Wang Ping avec un air significatif, ses yeux brillant d'une lumière étrange qui semblait vouloir percer l'âme de Wang Ping.
 
 La raison pour laquelle son Sens Divin s'était arrêté ici était que tous les mortels s'étaient évanouis lors de son passage. Sa culture était si puissante et imprégnée de tonnerre que son Sens Divin avait frappé les mortels comme la foudre des cieux.
 
 Cependant, ce seul mortel ne s'était pas effondré, et il semblait même ne pas avoir remarqué le passage du Sens Divin. C'est ce qui avait piqué sa curiosité et l'avait poussé à verrouiller cet endroit!
 
-Il dit lentement: « Intéressant! Pas étonnant que tu ne sois pas tombée dans les pommes. C'était donc cela... »
+Il dit lentement: « Intéressant! Pas étonnant que tu ne sois pas tombé dans les pommes. C'était donc cela... »
 
 Au moment précis où l'homme d'âge moyen franchissait le seuil de la pièce, dans la lointaine Ville des Vastes Eaux, Wang Lin, qui était assis avec sa cruche de vin, se leva brusquement. La cruche dans sa main droite vola en éclats et le vin qu'elle contenait se désintégra totalement.
 
-Lorsque Wang Lin leva la tête, ses yeux, qui n'avaient montré aucune émotion depuis soixante-dix ans, affichèrent une froideur inédite. C'était une présence plus terrifiante encore que lors de l'incident au restaurant.[1. Fait référence à la menace subie par Wang Ping dans le restaurant, lors de leur arrivée dans la ville.] La différence était celle entre le ciel et la terre; elle était tout simplement incomparable!
+Lorsque Wang Lin leva la tête, ses yeux, qui n'avaient montré aucune émotion depuis plus de soixante-dix ans, affichèrent une froideur inédite. C'était une présence plus terrifiante encore que lors de l'incident au restaurant.[1. Fait référence à la menace subie par Wang Ping dans le restaurant, lors de leur arrivée dans la ville.] La différence était celle entre le ciel et la terre; elle était tout simplement incomparable!

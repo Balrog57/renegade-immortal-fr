@@ -31,7 +31,7 @@ Après plusieurs jours de vol, une petite planète apparut au loin. Ce n'était 
 
 Alors que la boussole s'approchait de la lune, le corps original, enfoui dans ses profondeurs, lança un coup de poing. Des fissures semblables à des dragons terrifiants se propagèrent des entrailles du sol jusqu'à la surface. Une série de craquements retentit, suivie d'un fracas assourdissant provenant d'un bassin lunaire. Simultanément, une silhouette noire s'en extirpa.
 
-Cette silhouette arborait une chevelure rouge qui ondulait sans aucun vent et un visage aux traits acérés dégageant une aura de rudesse. Trois étoiles tournaient lentement sur son front, et ses yeux froids, noirs comme la nuit éternelle, projetaient un frisson glacial. D'innombrables crevasses marquaient son corps de bronze, rendant sa peau très rugueuse; mais c'était cette texture même qui conférait à son être une aura désolée. À cet instant, le corps original ressemblait à une bête primordiale dégageant une aura monstrueuse.
+Cette silhouette arborait une chevelure rouge qui ondulait sans aucun vent et un visage aux traits acérés dégageant une aura de rudesse. Trois étoiles tournaient lentement sur son front, et ses yeux, d'une lueur glaciale comme un bloc de glace éternelle, projetaient un froid immense. D'innombrables crevasses marquaient son corps de bronze, rendant sa peau très rugueuse; mais c'était cette texture même qui conférait à son être une aura désolée. À cet instant, le corps original ressemblait à une bête primordiale dégageant une aura monstrueuse.
 
 « Ehh!!! » Situ Nan fut stupéfait. Bien qu'il eût été informé de l'existence du corps original par Wang Lin, il ne put s'empêcher de sentir son cœur vaciller, malgré sa vaste expérience de cultivateur.
 
@@ -39,7 +39,7 @@ Cette silhouette arborait une chevelure rouge qui ondulait sans aucun vent et un
 
 Le regard glacial du corps original se fit un peu plus chaleureux en apercevant Situ Nan. Ce dernier hocha la tête et atterrit sur la boussole stellaire.
 
-Situ Nan observa le corps original, puis Wang Lin. Il acquiesça et dit: « Impressionnant. Même avec ma culture, il est difficile de percevoir que vous deux ne formez qu'un seul être. Je parie qu'une fois votre fusion accomplie, votre niveau de culture augmentera d'un cran! »
+Situ Nan observa le corps original, puis Wang Lin. Il acquiesça et dit: « Impressionnant. Même avec ma culture, il est difficile de percevoir que vous deux ne formez qu'un seul être; me voilà rassuré. Une fois votre fusion accomplie, votre niveau de culture augmentera sans doute d'un cran! »
 
 Wang Lin sourit discrètement: « Après avoir fusionné avec mon corps original, ma culture atteindra le sommet du stade intermédiaire de la Transformation de l'Âme! »
 
@@ -75,13 +75,13 @@ Le continent au loin se rapprocha jusqu'à ce qu'il puisse enfin atterrir. Grâc
 
 La ville de Ming Mei était l'une des plus vastes de la planète. Aucun mortel n'y résidait; elle n'abritait que des cultivateurs. D'innombrables boutiques couvraient toute la cité. Sur le côté ouest, une immense place en plein air permettait aux cultivateurs d'autres planètes de louer un étal à l'aide de pierres spirituelles pour vendre des trésors, commercer ou échanger leurs biens contre des pierres spirituelles et du jade céleste. Une foule compacte de cultivateurs circulait entre les enseignes, rendant la place extrêmement bondée.
 
-Le secteur nord était moins fréquenté, mais c'était là que se trouvaient les boutiques les plus prestigieuses. On n'y dénombrait que neuf magasins, chacun ressemblant à un pavillon du Royaume Céleste, et tous leurs propriétaires possédaient des niveaux de culture élevés. C'était particulièrement vrai pour la neuvième boutique, réputée comme l'établissement numéro un de la ville de Ming Mei.
+Le secteur nord était moins fréquenté, mais c'était là que se trouvaient les boutiques les plus prestigieuses. On n'y dénombrait que neuf magasins, chacun ressemblant à un pavillon sculpté du Royaume Céleste, et tous leurs employés possédaient des niveaux de culture élevés. C'était particulièrement vrai pour la neuvième boutique, réputée comme l'établissement numéro un de la ville de Ming Mei.
 
 À cet instant, un jeune homme vêtu d'une robe verte entra par la porte est. Il se tenait droit, ses longs cheveux flottant derrière lui, lui conférant une élégance certaine. Cet homme n'était autre que Wang Lin. Après avoir payé des pierres spirituelles pour entrer, son regard balaya les boutiques les unes après les autres.
 
 L'objectif de Wang Lin était limpide: il lui fallait deux matériaux pour réparer la boussole stellaire. Ces composants étaient extrêmement rares et ne se trouvaient point dans les commerces ordinaires. Tandis qu'il progressait, il inspectait chaque boutique, marquant parfois une pause avant de reprendre sa marche.
 
-Lorsqu'il atteignit la septième boutique, Wang Lin se retourna et aperçut un jeune homme non loin de lui. Ce dernier le suivait discrètement depuis son entrée dans la cité. Voyant que Wang Lin l'avait remarqué, le jeune homme ne paniqua point; il sourit au contraire, s'approcha rapidement et joignit les mains en signe de respect: « Je présume que c'est la première fois que Senior vient à Ming Mei. »
+Lorsqu'il atteignit la septième boutique, Wang Lin se retourna et aperçut un jeune homme de petite taille non loin de lui. Ce dernier le suivait discrètement depuis son entrée dans la cité. Voyant que Wang Lin l'avait remarqué, le jeune homme ne paniqua point; il sourit au contraire, s'approcha rapidement et joignit les mains en signe de respect: « Je présume que c'est la première fois que Senior vient à Ming Mei. »
 
 La culture de cet individu était au stade avancé de l'Âme Naissante, n'ayant pas encore atteint le stade de la Formation de l'Âme.
 

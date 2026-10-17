@@ -6,7 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 567 - Question Yao Xixue The Second Time
 slug: questionner-yao-xixue-une-seconde-fois
 ---
-À l'intérieur de la vallée intérieure du Clan des Affineurs d'Âmes, Wang Lin toucha son sac de rangement et une sphère de restrictions s'en échappa soudainement. Il apposa un sceau sur la sphère qui s'agrandit brusquement pour s'ouvrir telle une fleur en pleine éclosion.
+Dans la vallée de la Tribu du Affinement de l'Âme, Wang Lin toucha son sac de rangement et une sphère de restrictions s'en échappa soudainement. Il apposa un sceau sur la sphère qui s'agrandit brusquement pour s'ouvrir telle une fleur en pleine éclosion.
 
 À l'intérieur, Yao Xixue était assise en position du lotus, le visage d'une pâleur mortelle.
 
@@ -44,7 +44,7 @@ Le visage de Yao Xixue était d'une pâleur extrême. Elle voulut lutter, mais s
 
 Wang Lin afficha un sourire qui n'en était pas un en insérant deux doigts dans la bouche de la jeune femme. Lorsqu'il retira sa main, une aiguille rouge était coincée entre ses doigts.
 
-« Vous avez utilisé des traces infimes d'essence corporelle pour former cette aiguille. Avec assez de temps, vous pourriez réellement l'utiliser pour bloquer le sceau de vie et mourir dans cette restriction! » Sur ce, Wang Lin écrasa l'aiguille, la faisant se dissiper en un nuage de brume rouge.
+« Vous avez utilisé la dernière trace d'essence de votre âme originelle pour former cette aiguille. Avec assez de temps, vous pourriez réellement l'utiliser pour bloquer le sceau de vie et mourir dans cette restriction! » Sur ce, Wang Lin écrasa l'aiguille, la faisant se dissiper en un nuage de brume rouge.
 
 Le corps de Yao Xixue trembla. Son regard envers Wang Lin ne pouvait plus être qualifié de venimeux...
 
@@ -76,13 +76,13 @@ Le temps passa et plus de deux mois s'écoulèrent rapidement. Il ne restait que
 
 Wang Lin ordonna lentement: « Après mon départ, dépêchez des centaines de personnes vers les tribus environnantes, quelle que soit leur taille. Utilisez tous les moyens nécessaires pour vous infiltrer parmi elles! »
 
-« Utilisez les fragments d'âme pour résister aux diverses potions d'effacement de la mémoire employées par ces tribus. Une fois infiltrés, commencez à leur enseigner le sort d'affineur d'âmes afin que davantage de personnes puissent l'apprendre. Quant aux détails, je vous laisse les organiser! »
+« Utilisez les fragments d'âme pour résister aux diverses potions d'effacement de la mémoire employées par ces tribus. Une fois infiltrés, commencez à leur enseigner le sort d'affinement de l'âme afin que davantage de personnes puissent l'apprendre. Quant aux détails, je vous laisse les organiser! »
 
 Ouyang Hua acquiesça doucement.
 
-Après une courte réflexion, Wang Lin sortit un morceau de jade. Il le remit à Ouyang Hua en disant: « Le sort d'affineur d'âmes comporte en réalité deux parties. La première est l'affinage de l'âme, la seconde est l'extraction de l'âme. Cela ne doit être enseigné à aucun disciple qui n'est pas un disciple principal. Retiens bien cela! »
+Après une courte réflexion, Wang Lin sortit un morceau de jade. Il le remit à Ouyang Hua en disant: « Le sort d'affinement de l'âme comporte en réalité deux parties. La première est l'affinement de l'âme, la seconde est l'extraction d'âmes. Cela ne doit être enseigné à aucun disciple qui n'est pas un disciple principal. Retiens bien cela! »
 
-Ouyang Hua prit une profonde inspiration en acceptant le jade avec précaution. Après l'avoir lu, il le broya et déclara d'un ton solennel: « Ancêtre, je l'ai mémorisé et je n'oublierai pas vos paroles. Ce sort ne sera enseigné qu'aux disciples principaux de la Tribu des Affineurs d'Âmes! »
+Ouyang Hua prit une profonde inspiration en acceptant le jade avec précaution. Après l'avoir lu, il le broya et déclara d'un ton solennel: « Ancêtre, je l'ai mémorisé et je n'oublierai pas vos paroles. Ce sort ne sera enseigné qu'aux disciples principaux de la Tribu du Affinement de l'Âme! »
 
 Wang Lin hocha la tête et leva la main vers le ciel. Toute la brume noire recouvrant la tribu se rassembla instantanément dans sa paume, formant un drapeau de 9,9 mètres de long. Il l'avala ensuite rapidement avec son âme originelle.
 
@@ -94,13 +94,13 @@ Une fois cela fait, Wang Lin fit un pas en avant et disparut aussitôt. Une voix
 
 Ouyang s'agenouilla au sol et répondit d'une voix grave: « Je ne décevrai pas l'Ancêtre! » Bien que ces mots fussent destinés à Wang Lin, qui était déjà loin, ils étaient avant tout un engagement envers lui-même.
 
-Wang Lin fendit le ciel, telle une traînée de lumière, et chargea directement vers la Cité Démon Ancienne.
+Wang Lin fendit le ciel, telle une traînée de lumière, et chargea directement vers la Cité du Démon Antique.
 
-« Je me demande quels types de dragons et de tigres se cachent dans la capitale du Pays des Démons Célestes. Il y aura aussi plus de personnes de la planète Tian Yun. Je me demande si j'en croiserai lors de ce voyage... »
+« Je me demande quels types de dragons et de tigres se cachent dans la capitale du Pays des Démons Célestes. Outre moi, plusieurs autres personnes de la Secte Tian Yun sont venues dans cette Terre des Esprits Démoniaques. Je me demande si j'en croiserai dans la capitale... »
 
-« Il y a également ces une dizaine de personnes de la Secte de l'Épée Da Lou. Si je rencontre l'un d'eux, je devrai en capturer un pour l'interroger sur la localisation de Zhou Yi! » Wang Lin réfléchissait, mais sa vitesse ne faiblissait pas et il disparut par-delà l'horizon.
+« Il y a également cette dizaine de personnes de la Secte de l'Épée Da Luo. Si j'en rencontre dans la capitale, je devrai en capturer un pour l'interroger sur l'endroit où Zhou Yi est scellé! » Wang Lin réfléchissait, mais sa vitesse ne faiblissait pas et il disparut par-delà l'horizon.
 
-Le général démon Mo Lihai, vêtu d'une chemise verte, se tenait au sommet de la porte est de la Cité Démon Ancienne. Derrière lui se trouvaient le commandant en chef et les autres officiers.
+Le général démon Mo Lihai, vêtu d'une chemise verte, se tenait au sommet de la porte est de la Cité du Démon Antique. Derrière lui se trouvaient le commandant en chef et les autres officiers.
 
 Mo Lihai regarda au loin sans dire un mot. Après un long moment, il détourna son regard et se retourna pour observer attentivement la ville. En un instant, il aperçut les décombres qui gisaient au centre de la cité.
 
@@ -118,4 +118,4 @@ Wang Lin apparut dans le ciel au-dessus de la porte est. Son regard parcourut le
 
 Wang Lin rit: « Très bien! »
 
-« Il faudra traverser trois matrices de transfert pour atteindre la capitale. Alors, frère Wang, allons-y! » Deux éclairs de lumière rouge traversèrent la Cité Démon Ancienne pour s'élancer vers le lointain, ne laissant derrière eux que des échos tonitruants.
+« Il faudra traverser trois matrices de transfert pour atteindre la capitale. Alors, frère Wang, allons-y! » Deux longs arcs de lumière traversèrent la Cité du Démon Antique pour s'élancer vers le lointain, ne laissant derrière eux que des échos tonitruants.

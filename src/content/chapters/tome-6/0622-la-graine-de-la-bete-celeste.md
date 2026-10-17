@@ -24,7 +24,7 @@ Sans parler du fait que l'Ancêtre disposait encore de huit autres gardiens cél
 
 Après avoir entendu les paroles du vieil homme, Wang Lin continua de marcher vers le château. Il secoua la tête et dit: « Deux gardiens célestes ne sont que deux morceaux de jade brisés. Comment cela pourrait-il effacer votre crime de m'avoir offensé? »
 
-L'expression du petit homme à l'intérieur du château changea radicalement. Ses yeux projetèrent un rayon de lumière dorée et il déclara d'un ton sombre: « Quel être arrogant. Tu n'es qu'un cultivateur au début du stade Ascendant; penses-tu vraiment que je sois incapable de te tuer? Les huit gardiens célestes restants, invoquez l'Empereur Céleste et tuez cet homme! »
+L'expression du petit homme à l'intérieur du château changea radicalement. Ses yeux projetèrent un éclat acéré et il déclara d'un ton sombre: « Quel être arrogant. Tu n'es qu'un cultivateur au début du stade Ascendant; penses-tu vraiment que je sois incapable de te tuer? Les huit gardiens célestes restants, invoquez l'Empereur Céleste et tuez cet homme! »
 
 À peine eut-il prononcé ces mots que huit silhouettes s'élancèrent soudainement du château. Parmi elles se trouvaient des hommes et des femmes. Leurs mouvements étaient aussi rapides que la foudre, dégageant la pression et l'aura de cultivateurs Ascendants.
 
@@ -74,7 +74,7 @@ Huit éclats de jade brisés volèrent et furent capturés par Wang Lin, qui les
 
 La rivière des enfers entourant Wang Lin s'éleva soudainement pour former un pilier capable de soutenir les cieux. Wang Lin se trouvait à l'intérieur de la rivière lorsque le filament d'énergie céleste y pénétra et disparut.
 
-Depuis l'intérieur de la rivière, Wang Lin murmura doucement: « Active! »
+Depuis l'intérieur de la rivière, Wang Lin murmura doucement: « Ouvre! »
 
 La rivière des enfers se dispersa brusquement pour former un vortex. Elle balaya les environs, provoquant l'effondrement soudain du château blanc. Des grondements telluriques résonnèrent à travers la terre.
 
@@ -96,7 +96,7 @@ En contemplant ces innombrables filaments, les yeux de Wang Lin s'illuminèrent 
 
 Bien que les cultivateurs alentour n'eussent aucune idée de ce qu'il entendait par là, le visage du vieil homme changea une fois de plus. Il s'exclama: « Tu le sais! »
 
-Wang Lin avait eu l'impression d'avoir déjà vu cela lorsqu'il avait aperçu ces fils bleus à l'intérieur de Sun Yunshan. En y réfléchissant, il s'agissait clairement de la nourriture pour bêtes célestes qu'il avait rencontrée dans le Royaume Céleste lors de sa coopération avec un disciple de la Secte de l'Épée Da Lou! Il n'en avait pas parlé à Sun Yunshan.
+Wang Lin avait eu l'impression d'avoir déjà vu cela lorsqu'il avait aperçu ces fils bleus à l'intérieur de Sun Yunshan. En y réfléchissant, il s'agissait clairement de la nourriture pour bêtes célestes qu'il avait rencontrée dans le Royaume Céleste lorsqu'il était entré dans cette grotte avec un disciple de la Secte de l'Épée Da Luo! Il n'en avait pas parlé à Sun Yunshan.
 
 Le vieil homme ne se souciait guère de savoir comment Wang Lin pouvait reconnaître cela. Même après avoir obtenu cette nourriture, il n'avait pas réussi à la contrôler totalement. En la déchaînant ainsi, il agissait par pur désespoir. Normalement, avec sa culture au milieu du stade Ascendant, il n'aurait pas dû en arriver là. Cependant, il traversait des difficultés dont il ne pouvait parler, ce qui justifiait son comportement.
 
@@ -104,10 +104,10 @@ Le vieil homme ne se souciait guère de savoir comment Wang Lin pouvait reconna�
 
 Des centaines de fils bleus se précipitèrent vers Wang Lin.
 
-Wang Lin n'était pas étranger à cette scène. Autrefois, il avait affronté une armée de nourriture pour bêtes célestes des centaines de fois plus vaste. Ici, il n'y en avait pas même un millier, il n'avait donc aucune nervosité.
+Wang Lin n'était pas étranger à cette scène. Autrefois, il avait affronté une armée de nourriture pour bêtes célestes des centaines, voire des milliers de fois plus vaste. Ici, il n'y en avait pas même un millier, il n'avait donc aucune nervosité.
 
-Il frappa son sac de stockage et un drapeau d'âme apparut dans sa main. Ayant déjà des doutes avant de venir, il était préparé. Il agita le drapeau et le qilin qu'il avait obtenu à la Secte du Affinement de l'Âme apparut!
+Il frappa son sac de stockage et un drapeau d'âme apparut dans sa main. Ayant déjà des doutes avant de venir, il était préparé. Il agita le drapeau et le qilin qu'il avait obtenu à la Secte de l'Affinement de l'Âme apparut!
 
 Bien que cette bête ne soit que l'âme d'un qilin, elle possédait encore une part de son héritage. En apparaissant, elle poussa un rugissement. Son corps trembla et sa tête massive se fixa instantanément sur la nourriture pour bêtes célestes qui fonçait sur lui.
 
-Les yeux du qilin libérèrent soudainement une explosion de lumière dorée. Son regard était celui d'un démon affamé depuis des dizaines de milliers d'années qui venait enfin de trouver sa proie!
+Les yeux du qilin libérèrent soudainement une étrange lueur. Son regard était celui d'un démon affamé depuis des dizaines de milliers d'années qui venait enfin de trouver sa proie!

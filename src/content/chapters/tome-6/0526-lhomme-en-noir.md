@@ -15,7 +15,7 @@ La force démoniaque que le cristal avait laissée dans son corps lui procurait 
 
 Les yeux de Wang Lin se plissèrent et les flammes démoniaques qui les habitaient disparurent; l'aura démoniaque qui l'entourait s'évanouit également, comme si rien d'anormal ne s'était produit.
 
-« Cette énergie spirituelle céleste imprégnée d'énergie démoniaque est trop étrange. Après avoir absorbé cette puissance, elle a formé son propre domaine. Je sens faiblement que cette aura pourrait être combinée à l'énergie spirituelle céleste pour accroître la culture de l'individu. Cependant, pour l'instant, cette énergie démoniaque est trop faible et impossible à tester. » Wang Lin réfléchit un instant avant de toucher son sac de rangement. Plus d'une douzaine de flacons s'envolèrent pour atterrir aux pieds d'Ouyang Hua.
+« Cette aura démoniaque semblable à l'énergie spirituelle céleste est trop étrange. Une fois inhalée, elle forme sa propre lignée. Je sens faiblement que cette aura pourrait être fusionnée avec l'énergie spirituelle céleste pour accroître la culture. Cependant, pour l'instant, cette énergie démoniaque est trop faible et impossible à tester. » Wang Lin réfléchit un instant avant de toucher son sac de rangement. Plus d'une douzaine de flacons s'envolèrent pour atterrir aux pieds d'Ouyang Hua.
 
 Ouyang Hua trembla, puis vérifia chaque flacon avant de les ranger. Il était transporté par l'excitation.
 

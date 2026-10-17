@@ -26,11 +26,11 @@ La bête de foudre ouvrit la gueule et poussa un rugissement. Les neuf sphères 
 
 Les yeux de la seconde âme originelle de Cupidité s'illuminèrent. Il fit un mouvement et tout l'éclair noir qui l'entourait se mit à pleuvoir sur Wang Lin et la bête de foudre.
 
-Au même moment, la seconde âme originelle frappa son propre front. Un marteau recouvert d'éclairs apparut instantanément; il s'en saisit et le abattit violemment.
+Au même moment, la seconde âme originelle frappa l'espace entre ses sourcils. Un marteau recouvert d'éclairs apparut instantanément; il s'en saisit et l'abattit violemment.
 
-*Rumble rumble rumble!*
+*Boum, boum, boum!*
 
-Un grondement tonnerre explosa alors que des éclairs jaillissaient du marteau. La foudre se déplaçait comme un dragon griffant l'air pour atteindre Wang Lin.
+Un grondement de tonnerre explosa alors que des éclairs jaillissaient du marteau. La foudre se déplaçait comme un dragon griffant l'air pour atteindre Wang Lin.
 
 Les yeux de Wang Lin s'illuminèrent et il frappa son sac de rangement pour en sortir le pinceau céleste. Il prit une profonde inspiration et traça immédiatement un symbole devant lui. Un glyphe à cinq traits apparut soudainement, et il y insuffla cinq portions de son âme originelle.
 
@@ -72,7 +72,7 @@ Les éclairs rouges autour de Wang Lin percèrent immédiatement son bouclier de
 
 Le visage de Wang Lin s'assombrit davantage. Il frappa son sac de rangement et les trois épées apparurent. Après y avoir infusé l'énergie de l'épée de Ling Tianhou, il pointa la seconde âme originelle de Cupidité et les lames chargèrent.
 
-« Puisque tu veux te battre, alors battons-nous! » Wang Lin ne chercha plus à fuir. Bien qu'ils fussent proches de l'abîme, la résistance ici était si immense que le passage serait difficile. La férocité de cette seconde âme originelle finit par l'irriter au plus haut point.
+« Puisque tu veux te battre, alors battons-nous! » Wang Lin ne chercha plus à fuir. Bien qu'ils ne fussent plus loin du couloir en contrebas, la résistance ici était si immense que le passage serait difficile. La férocité de cette seconde âme originelle finit par l'irriter au plus haut point.
 
 Les trois épées formèrent une formation et chargèrent. Les esprits maléfiques du rat, du cochon et de l'agneau émergèrent, fusionnant avec l'énergie de l'épée de Ling Tianhou. Ils transpercèrent le filet de foudre, dégageant une épaisse énergie de lame tandis qu'ils fondaient sur la seconde âme originelle de Cupidité.
 
@@ -84,11 +84,11 @@ Si l'énergie de Ling Tianhou n'avait pas été présente, la seconde âme origi
 
 Une marque apparut progressivement entre les sourcils de la seconde âme originelle alors qu'il agitait son marteau tonnerre. Cette marque était profonde et scintillait lentement.
 
-Enveloppé par sa lumière sanguine, Wang Lin sentait la puissance de la résistance sans l'aide de Ling Tianhou. Il vola vers le haut en utilisant la force de poussée du Gouffre des Marées pour s'élancer. Sa vitesse devint plusieurs fois supérieure à celle d'avant; il traversa le filet de foudre et chargea droit sur la seconde âme originelle!
+Enveloppé par sa lumière sanguine, Wang Lin sentait la puissance de la résistance sans l'aide de Ling Tianhou. Il vola vers le haut en utilisant la force de poussée de l'Abîme des Marées pour s'élancer. Sa vitesse devint plusieurs fois supérieure à celle d'avant; il traversa le filet de foudre et chargea droit sur la seconde âme originelle!
 
 La majeure partie de sa lumière sanguine s'était déjà dissipée, l'obligeant à écraser sans cesse des jades sanguins pour maintenir sa protection. Sans ce bouclier, il ferait face à une épreuve mortelle au sein de ce filet de foudre, même avec un million de sceaux de vie.
 
-« Autrefois, le Voyant aux Robes Grises disait que la défense des sceaux de vie était extrêmement puissante, et c'est vrai face à des sorts ordinaires. Mais face à quelqu'un de plus fort que moi, ce n'est tout simplement pas suffisant! Soit l'Art du Meurtre Céleste est imparfait, soit le Voyant aux Robes Grises m'a trompé! »
+« Autrefois, le Voyant aux Robes Grises disait que la défense des sceaux de vie était extrêmement puissante, et c'est vrai face à des sorts ordinaires. Mais face à quelqu'un de plus fort que moi, ce n'est tout simplement pas suffisant! Soit l'Art du Massacre Céleste est imparfait, soit le Voyant aux Robes Grises m'a trompé! »
 
 Il aperçut immédiatement la marque entre les sourcils de la seconde âme originelle de Cupidité!
 
@@ -112,7 +112,7 @@ L'énergie de l'épée de Ling Tianhou chargea sans hésitation dans la seconde 
 
 Le corps de la seconde âme originelle trembla violemment, et le sceau entre ses sourcils se mit à clignoter frénétiquement. Le sceau s'étendit sur tout son corps, tentant de résister à cette force destructrice.
 
-À cet instant, le filet de foudre qui se contractait vers Wang Lin s'effondra brusquement. Wang Lin s'en échappa et frappa son sac de rangement; l'armure démoniaque apparut aussitôt sur son corps. L'énergie démoniaque se propagea et il leva soudainement le doigt. Le Doigt Démonique fut lancé, transformant l'énergie spirituelle céleste à l'intérieur de son corps.
+À cet instant, le filet de foudre qui se contractait vers Wang Lin s'effondra brusquement. Wang Lin s'en échappa et frappa son sac de rangement; l'armure démoniaque apparut aussitôt sur son corps. L'énergie démoniaque se propagea et il leva soudainement le doigt. Le Doigt Démonique fut lancé, l'énergie démoniaque se condensant avant de s'élancer en sifflant.
 
 Simultanément, Wang Lin pointa à nouveau le doigt, utilisant le Doigt des Enfers. À l'instant où ce dernier apparut, la rivière des enfers surgit également et chargea avec lui.
 
@@ -120,13 +120,13 @@ Wang Lin progressa grâce à ces deux sorts. Sa vitesse fut décuplée par la fo
 
 Les yeux de Wang Lin étaient injectés de sang lorsqu'il hurla: « Explose! »
 
-Le sceau entre les sourcils de la seconde âme originelle de Cupidité flascha violemment, tentant de retrouver sa forme initiale. Cependant, les deux sorts de Wang Lin portèrent un second coup fatal et le sceau s'effondra!
+Le sceau entre les sourcils de la seconde âme originelle de Cupidité clignota violemment, tentant de retrouver sa forme initiale. Cependant, les deux sorts de Wang Lin portèrent un second coup fatal et le sceau s'effondra!
 
 Avec le sceau, le corps de la seconde âme originelle commença lui aussi à se désagréger. D'innombrables fissures apparurent sur son corps de cristal.
 
 Cependant, au même moment, l'expression de Wang Lin changea. Il rappela les trois épées et se retira précipitamment.
 
-Une aura désolée jaillit follement des fissures de la seconde âme originelle; une présence inimaginable s'en échappait. C'était l'aura d'une bête!
+Une aura primordiale jaillit follement des fissures de la seconde âme originelle; une présence inimaginable s'en échappait. C'était l'aura d'une bête!
 
 Les trois esprits maléfiques sur les épées tremblèrent de terreur!
 
@@ -134,27 +134,27 @@ Les trois esprits maléfiques sur les épées tremblèrent de terreur!
 
 « Ceci est... »
 
-La seconde âme originelle de Cupidité explosa dans un fracas retentissant, mais au moment de son effondrement, une lumière verte jaillit entre ses sourcils. Une aura épaisse et désolée s'en dégagea.
+La seconde âme originelle de Cupidité explosa dans un fracas retentissant, mais au moment de son effondrement, une lumière verte jaillit entre ses sourcils. Une aura primordiale épaisse s'en dégagea.
 
 Dès que la lumière apparut, elle se transforma en un dragon vert!
 
-Des éclairs circulaient sur tout le corps du dragon; il était terrifiant! C'était un ancien dragon de la foudre, une créature légendaire. Autrefois, alors que Cupidité n'était qu'au stade de l'Établissement des Fondations, il était tombé d'une falaise et avait trouvé un dragon de la foudre nouveau-né. Il l'avait caché avec soin, et en cas de danger, l'aura du dragon protégeait son maître.
+Des éclairs circulaient sur tout le corps du dragon; il était terrifiant! C'était un ancien dragon de la foudre, une créature légendaire. Autrefois, alors que Cupidité n'était qu'au stade de l'Établissement des Fondations, il était tombé d'une falaise et avait trouvé, dans une grotte souterraine, le corps spirituel inconscient d'un jeune dragon de la foudre. Il l'avait caché avec soin, et en cas de danger, l'aura du dragon protégeait son maître.
 
-Plus tard, Cupidité avait rapporté un trésor magique délaissé dans une ville ordinaire. Mais après recherches, il s'avéra que ce trésor n'était pas inutile, mais un ancien artefact démoniaque. Cupidité l'avait utilisé pour marquer et sceller le dragon de la foudre afin qu'il ne puisse jamais s'éveiller et reste sous son contrôle.
+Plus tard, Cupidité avait acheté un trésor magique délaissé dans un marché ordinaire. Mais après recherches, il s'avéra que ce trésor n'était pas inutile, mais un ancien artefact démoniaque. Cupidité l'avait utilisé pour marquer et sceller le dragon de la foudre afin qu'il ne puisse jamais s'éveiller et reste sous son contrôle.
 
 Ce n'est qu'une fois parvenu au stade d'Ascendant qu'il l'avait raffiné en sa seconde âme originelle. Cependant, il n'osait pas trop le stimuler de peur qu'il ne s'éveille et ne s'échappe de son emprise.
 
 Le dragon vert ouvrit les yeux et poussa un véritable rugissement draconique!
 
-À cet instant, le ciel changea de couleur et les nuages s'amoncelèrent. Même la résistance du Gouffre des Marées fut repoussée.
+À cet instant, le ciel changea de couleur et les nuages s'amoncelèrent. Même la résistance de l'Abîme des Marées fut repoussée.
 
 Wang Lin esquissa un sourire amer. Sans hésiter, il utilisa la force de résistance pour se propulser vers le haut et s'éloigna au maximum de ce dragon vert!
 
-« Cupidité... Cupidité... Cet homme regorge vraiment de trésors, même sa seconde âme originelle est un dragon! Le fourneau que Tu Si a raffiné autrefois est aussi tombé entre ses mains... Son niveau de culture est si élevé qu'on pourrait dire qu'il possède la chance des cieux! » Wang Lin souriait amèrement. Il ignorait que lorsque Cupidité n'avait que huit ans et n'avait même pas commencé sa culture, il avait trouvé un Sceau de Salomon vieux de cinq cents ans en jouant. Il l'avait ramené chez lui et l'avait fait rôtir avant de l'avaler. Non seulement l'énergie ne l'avait pas tué, mais elle avait posé les fondations de sa culture.
+« Cupidité... Cupidité... Cet homme regorge vraiment de trésors, même sa seconde âme originelle est un dragon! Le fourneau que le Dieu Ancien Tu Si a raffiné autrefois est aussi tombé entre ses mains... Son niveau de culture est si élevé qu'on pourrait dire qu'il possède la chance des cieux! » Wang Lin souriait amèrement. Il ignorait que lorsque Cupidité n'avait que huit ans et n'avait même pas commencé sa culture, il avait trouvé un Sceau de Salomon vieux de cinq cents ans en jouant. Il l'avait ramené chez lui et l'avait fait rôtir avant de l'avaler. Non seulement l'énergie ne l'avait pas tué, mais elle avait posé les fondations de sa culture.
 
 Alors que le dragon vert rugissait, ses yeux froids balayèrent la zone et se fixèrent sur Wang Lin. La haine passée était toujours là. Bien qu'il vienne de s'éveiller, il se souvenait de ce qui lui était arrivé. Son corps se transforma en un rayon de lumière verte et chargea directement vers Wang Lin.
 
-Après avoir plongé au fond du Gouffre des Marées, Wang Lin vit le gouffre sans fond qui trônait au centre. Une force d'aspiration émanait du trou, lequel était noyé dans la brume.
+Après avoir plongé au fond de l'Abîme des Marées, Wang Lin vit le gouffre sans fond qui trônait au centre. Une force d'aspiration émanait du trou, lequel était noyé dans la brume.
 
 Le rugissement du dragon et l'odeur fétide de sa gueule approchaient par derrière. Wang Lin eut un sourire amer en fixant le gouffre sans fond. Il serra les dents et sauta soudainement dans le précipice.
 

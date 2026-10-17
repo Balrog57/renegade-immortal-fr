@@ -6,11 +6,11 @@ bookTitle: Cultivation Planet Crystal
 en: Chapter 428 - Little Northern Flame Land
 slug: la-petite-terre-des-flammes-du-nord
 ---
-La Petite Terre des Flammes du Nord se situe à l'extrême nord de la planète. C'est là que Xue Yue était autrefois établi.
+La Petite Terre des Flammes du Nord se situe au nord de la planète Suzaku. C'est là que Xue Yue était autrefois établi.
 
 Ici, la glace n'a jamais fondu depuis l'arrivée des cultivateurs sur cette planète. Le vent glacial hurle sans relâche et la terre est recouverte de glace. De loin, on peut apercevoir un nuage de brume bleu foncé qui flotte dans la région. Partout où cette brume passe, tout ce qui possède la vie meurt.
 
-Cette brume glaciale est appelée la Brume de Jiuli. Cette mystérieuse puissance naturelle n'apparaît que dans les lieux extrêmement froids.
+Cette brume glaciale est appelée la Brume de Jiuli. Cette mystérieuse puissance naturelle n'apparaît que dans les lieux d'extrême chaleur et d'extrême froid.
 
 Outre sa capacité à tout détruire, la Brume de Jiuli a un autre effet: elle aspire ce qu'elle ne peut pas absorber pour le raffiner lentement.
 
@@ -26,11 +26,11 @@ Il existe dans cette terre des restrictions anciennes qui perdurent depuis fort 
 
 En plus de cela, il existe une glace capable d'absorber le Sens Divin. Cette glace affaiblit constamment le Sens Divin dès que les deux entrent en contact.
 
-À cet instant, dans les profondeurs de la Petite Terre des Flammes du Nord, reposait le corps d'un garçon enveloppé par la Brume de Jiuli.
+À cet instant, dans les profondeurs de la Petite Terre des Flammes du Nord, se trouvait un garçon, le corps entièrement enveloppé de glace de flammes rouge, au milieu de la Brume de Jiuli.
 
 Le garçon était très beau, mais son visage exprimait une lutte constante. Il ouvrait occasionnellement la bouche pour expulser un filet de gaz noir qui repoussait la Brume de Jiuli.
 
-Cependant, dès que la brume était repoussée, elle revenait et affinait lentement le garçon.
+Cependant, dès que la brume était repoussée, elle revenait aussitôt envelopper la glace de flammes et la raffiner lentement.
 
 Ce garçon était l'enfant démoniaque que le Grand Ancien Sun Tai de la Secte des Cadavres avait libéré contre l'ancêtre du Clan Démon Géant.
 
@@ -44,7 +44,7 @@ Pour parler de l'origine de cet enfant démoniaque, il faut d'abord évoquer la 
 
 La Secte des Cadavres est une secte immense; aucune autre secte sur la planète Suzaku ne peut lui être comparée. En réalité, la Secte des Cadavres possède des branches sur de nombreuses planètes.
 
-C'est une organisation tentaculaire dont les racines s'étendent sur de multiples planètes de culture. Ils sont impliqués dans le commerce de corps et la collecte d'objots d'origines mystérieuses.
+C'est une organisation tentaculaire dont les racines s'étendent sur de multiples planètes de culture. Ils sont impliqués dans le commerce de corps et la collecte d'objets d'origines mystérieuses.
 
 Très peu de gens savent où se situe le siège de la Secte des Cadavres, car c'est un secret bien gardé!
 
@@ -60,7 +60,7 @@ Quoi qu'il en soit, il est inutile de remettre en question la puissance de la Se
 
 Dans chaque branche de la Secte des Cadavres, on trouve un maître de secte et un Grand Ancien. Le maître de secte est responsable de la gestion des affaires de la secte, tandis que le Grand Ancien veille sur l'ensemble de l'organisation.
 
-Au sein de la Secte des Cadavres existe une gemme contenant les informations sur plus de 3 000 types de corps différents. Lorsqu'un de ces corps est trouvé, il peut être échangé contre des trésors célestes.
+Au sein de la Secte des Cadavres existe un précieux registre contenant les informations sur plus de 3 000 types de corps différents. Lorsqu'un de ces corps est trouvé, il peut être échangé contre des trésors célestes.
 
 L'enfant démoniaque était un être que Sun Tai avait obtenu sur une planète désolée.
 
@@ -72,7 +72,7 @@ C'est pourquoi, lorsque Sun Tai se rendit au Royaume Céleste, il n'emporta pas 
 
 Mais c'est à ce moment précis que Wang Lin l'appela, raison pour laquelle il avait utilisé l'enfant démoniaque contre l'ancêtre du Clan Démon Géant.
 
-Ce jour-là, dans la Petite Terre des Flammes du Nord, deux rayons de lumière voyageant plus vite que le son traversèrent le ciel; deux individus menaient la course et un troisième suivait. L'un des meneurs portait une robe blanche et, sous ses longs cheveux fluides, on devinait le visage d'un jeune homme.
+Ce jour-là, à l'extérieur de la Petite Terre des Flammes du Nord, trois arcs-en-ciel, deux devant et un derrière, fendirent le ciel. L'un des meneurs portait une robe blanche et, sous ses longs cheveux fluides, on devinait le visage d'un jeune homme.
 
 À ses côtés se trouvait un homme d'âge moyen, de forte carrure, dégageant une aura extrêmement arrogante. Si l'on regardait de plus près, on verrait que son corps n'était pas solide mais quelque peu transparent.
 
@@ -80,11 +80,11 @@ Le dernier personnage était un vieil homme aux cheveux blancs, les dents serré
 
 Wang Lin faisait partie de ce trio.
 
-Situ Nan se retourna vers le quatrième ancêtre du Clan Immortel Abandonné et cria: « Tu es trop lent, petit morveux! Ce vieux a dû t'attendre tant de fois. Si tu ne voles pas plus vite, je ne t'attendrai plus! »
+Situ Nan se retourna vers le quatrième ancêtre du Clan des Immortels Délaissés et cria: « Tu es trop lent, petit morveux! Ce vieux a dû t'attendre tant de fois. Si tu ne voles pas plus vite, je ne t'attendrai plus! »
 
 Le quatrième ancêtre était furieux. Il avait voulu abandonner la poursuite à plusieurs reprises, mais chaque fois qu'il s'en approchait, l'homme d'âge moyen s'arrêtait pour le taquiner.
 
-Le quatrième ancêtre trouvait cela très étrange, mais il refusait de renoncer. Il possédait une technique secrète lui permettant de récupérer son Esprit Ancestral, à la condition que celui-ci n'ait pas encore été raffiné.
+Le quatrième ancêtre trouvait cela très étrange, mais il refusait de renoncer. Il possédait une technique secrète qui, une fois qu'il aurait rattrapé celui qui avait avalé l'arbre ancestral, lui permettrait de récupérer de force son Esprit Ancestral, à la condition que celui-ci n'ait pas encore été raffiné.
 
 C'est la raison pour laquelle il continuait sa course.
 
@@ -100,7 +100,7 @@ Situ Nan rit en saisissant Wang Lin, puis il se déplaça à 330 mètres de là 
 
 Au moment où le quatrième ancêtre arriva, tout le ciel fut recouvert d'une lumière blanche. Cette lueur, très brillante, portait une puissance mystérieuse qui frappa le corps du quatrième ancêtre. Une lumière rouge apparut aussitôt sous sa peau.
 
-Le quatrième ancêtre ricana: « La Lumière de la Flamme Sanguine! » Son Clan Immortel Abandonné étant originaire de cette planète, il possédait une excellente connaissance des lieux. Il reconnut immédiatement la nature de cette lumière blanche.
+Le quatrième ancêtre ricana: « La Lumière de la Flamme Sanguine! » Son Clan des Immortels Délaissés étant originaire de cette planète, il possédait une excellente connaissance des lieux. Il reconnut immédiatement la nature de cette lumière blanche.
 
 Il agita sa main droite et un tatouage géant apparut devant lui. Le tatouage brilla intensément, repoussant toutes les lueurs blanches loin du corps du quatrième ancêtre.
 
@@ -130,6 +130,6 @@ Wang Lin réfléchit un instant. Il regarda l'enfant au sein de la brume et dema
 
 « Cultivateurs étrangers, attendez seulement! Une fois que ce vieux aura recouvré sa culture, je viendrai sans faute vous retrouver pour ma vengeance! »
 
-Wang Lin leva la tête vers l'horizon et dit calmement: « Tu ne m'as toujours pas dit ce qu'est le Cristal de Planète de Culture. »
+Wang Lin leva la tête vers l'horizon et dit calmement: « Tu ne m'as toujours pas dit ce qu'est le Cristal de la Planète de Culture. »
 
-« Le Cristal de Planète de Culture... Avant de devenir le souverain d'une planète de culture, je pensais aussi que c'était un trésor surpuissant. Cependant, après être devenu le second Suzaku, j'ai découvert que cet objet était tout simplement trop vicieux! »
+« Le Cristal de la Planète de Culture... Avant de devenir le souverain d'une planète de culture, je pensais aussi que c'était un trésor surpuissant. Cependant, après être devenu le second Suzaku, j'ai découvert que cet objet était tout simplement trop vicieux! »

@@ -54,7 +54,7 @@ Wang Lin recula de plusieurs pas et frappa son sac de rangement, faisant appara�
 
 La main droite de Wang Lin continuait de bouger, formant les symboles un par un.
 
-En réalité, il n'y avait pas tant d'insectes que cela, seulement quelques centaines. Cependant, comme chacun avait la taille d'un ongle et une apparence illusoire, ils semblaient être des milliers. Les insectes s'agglutinèrent autour de plus de dix symboles pour les dévorer.
+En réalité, il n'y avait pas tant d'insectes que cela, seulement quelques centaines. Cependant, comme chacun avait la taille d'un doigt et une apparence illusoire, ils semblaient être des milliers. Les insectes s'agglutinèrent autour de plus de dix symboles pour les dévorer.
 
 Cette scène stupéfia tout le monde, particulièrement les deux femmes. Pour la première fois, elles affichèrent la même expression: le choc!
 
@@ -102,7 +102,7 @@ Wang Lin concentra l'énergie de l'épée de Ling Tianhou dans ses doigts et tou
 
 Une pointe de choc passa dans les yeux de Wang Lin. Il ne lui restait qu'un unique rayon d'énergie de l'épée de Ling Tianhou; utiliser moins de 1 % de cette puissance était déjà sa limite absolue.
 
-Les quatre continuèrent leur descente dans le ravin. Pour les zones dangereuses que Wang Lin avait repérées grâce au cristal de Bei Lou, ils réussirent à les franchir avec l'aide de Murong Zhuo, bien que la progression fût lente.
+Les quatre continuèrent leur descente dans le ravin. Pour les zones dangereuses que Wang Lin avait repérées grâce au cristal de Bei Luo, ils réussirent à les franchir avec l'aide de Murong Zhuo, bien que la progression fût lente.
 
 Durant ce temps, Zhao Yixuan et Xu Fei aidèrent également beaucoup, particulièrement Zhao Yixuan. Les sorts de cette femme étaient très mystérieux: il semblait souvent que rien ne se passait, pour que la véritable puissance du sort se manifeste silencieusement par la suite.
 
@@ -120,9 +120,9 @@ Si les sorts d'évasion de Murong Zhuo étaient aussi prodigieux que ceux du pet
 
 « L'âme originelle de ce petit vieillard est scellée dans le drapeau de l'âme. Après avoir sauvé Zhou Yi et réglé les affaires de l'Abîme des Marées, je devrai consacrer du temps à la culture de ces sorts! »
 
-Ce jour-là, avec l'aide de Murong Zhuo, ils travaillèrent de concert et atteignirent enfin la partie médiane inférieure de l'Abîme des Marées. Le cœur de Wang Lin trembla, mais il réprima aussitôt ce sentiment. Même le cristal de Bei Lou ne pouvait voir au-delà de cette profondeur.
+Ce jour-là, avec l'aide de Murong Zhuo, ils travaillèrent de concert et atteignirent enfin la partie médiane inférieure de l'Abîme des Marées. Le cœur de Wang Lin trembla, mais il réprima aussitôt ce sentiment. Même le cristal de Bei Luo ne pouvait voir au-delà de cette profondeur.
 
-Cependant, la cible de Wang Lin était très proche. Selon l'Ancien Démon Bei Lou, il sentait Zhou Yi dans les parages. Pourtant, même avec le pouvoir de Bei Lou, il ne pouvait localiser précisément sa position.
+Cependant, la cible de Wang Lin était très proche. Selon l'Ancien Démon Bei Luo, il sentait Zhou Yi dans les parages. Pourtant, même avec le pouvoir de Bei Luo, il ne pouvait localiser précisément sa position.
 
 Wang Lin joignit les mains. « Frère Murong, j'ai d'autres impératifs, je ne vous suivrai pas plus bas. » Il réfléchit un instant avant de regarder le visage serein de Murong Zhuo et ajouta: « Je suis heureux d'avoir croisé votre chemin lors de cette descente dans l'Abîme des Marées. Si vous avez besoin de moi à l'avenir, n'hésitez pas! »
 

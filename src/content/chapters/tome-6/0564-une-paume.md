@@ -28,7 +28,7 @@ La mer entière poussa un rugissement sous l'impact de la paume du général dé
 
 Le corps de Wang Lin recula tandis qu'il sentait immédiatement le changement de l'énergie spirituelle démoniaque environnante. Normalement immatérielle, cette énergie semblait s'être transformée en un véritable océan par ce sort. La paume fit déferler la mer qui s'abattit sur lui.
 
-Comparée aux dix effondrements, cette Mer Démoniaque aux Cent Vagues était encore plus puissante. L'intention qu'elle contenait surpassait même l'intention du poing du dixième effondrement!
+Comparée à l'intention de poing des Dix Effondrements, cette Mer Démoniaque aux Cent Vagues était encore plus puissante, et le sort qu'elle contenait surpassait même vaguement l'intention de poing!
 
 Face à cette mer d'énergie spirituelle démoniaque, une idée traversa soudainement l'esprit de Wang Lin!
 

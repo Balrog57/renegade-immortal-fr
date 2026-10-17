@@ -10,7 +10,7 @@ Tard dans la nuit, la lune brillait intensément dans le ciel. Une silhouette im
 
 Cette figure était une bête féroce, un insecte semblable à un moustique mais dont la taille dépassait de loin celle d'un spécimen ordinaire.
 
-Sur le dos de la créature se tenait un homme. Ses longs cheveux flottaient avec élégance dans l'air. Les mains jointes derrière le dos, il se tenait droit sur le dos du moustique, ses vêtements lui conférant l'allure d'un homme d'une grande dignité.
+Sur le dos de la créature se tenait un homme. Ses longs cheveux flottaient avec élégance dans l'air. Les mains jointes derrière le dos, il se tenait droit sur le dos du moustique, sa robe verte accentuant sa prestance.
 
 Cet homme n'était autre que Wang Lin.
 
@@ -18,7 +18,7 @@ Le moustique s'approchait lentement d'une ville en contrebas: la capitale mortel
 
 La cité était parsemée de bâtiments imposants et une rivière la traversait de part en part, du nord au sud. De nombreux bateaux naviguaient sur le cours d'eau; bien qu'il fût près de minuit, des lueurs émanaient des embarcations et les éclats de rire des femmes s'en échappaient, conférant à l'endroit une atmosphère encore plus luxueuse.
 
-Wang Lin observa ces bateaux et ordonna au moustique de descendre. La bête plana silencieusement au-dessus de la rivière, telle une divinité passant en revue ses domaines.
+Wang Lin observa ces bateaux et ordonna au moustique de descendre. La bête glissa silencieusement au-dessus de la rivière, tel un fantôme, comme un immortel venu d'ailleurs.
 
 Sur l'un des bateaux, un riche ivrogne sortit la tête pour prendre un peu l'air lorsqu'il aperçut l'ombre de la bête. En un instant, l'alcool qui coulait dans ses veines s'évapora sous le coup de la stupeur. Il lui fallut un long moment pour reprendre ses esprits, persuadé qu'il avait trop bu et qu'il était en proie à des hallucinations.
 
@@ -26,7 +26,7 @@ Sur l'un des bateaux, un riche ivrogne sortit la tête pour prendre un peu l'air
 
 Aussitôt, tout bruit cessa. Les chants s'éteignirent au palais; c'était comme si le temps s'était figé pour tous les habitants.
 
-Un jeune garçon vêtu d'une robe violette apparut. Un air de regret étanchait sur son visage tandis qu'il soupirait: « Ce vieil homme n'a pas encore assez profité de la vie. Cultiver, cultiver... à quoi bon cultiver, quelle foutaise! Ma vie de roi est bien préférable; je peux faire ce que je veux et nul n'ose m'offenser! »
+Un jeune garçon vêtu d'une robe violette apparut. Un air de regret se lisait sur son visage tandis qu'il soupirait: « Ce vieil homme n'a pas encore assez profité de la vie. Cultiver, cultiver... à quoi bon cultiver, quelle foutaise! Ma vie de roi est bien préférable; je peux faire ce que je veux et nul n'ose m'offenser! »
 
 Wang Lin leva les yeux vers la lune et dit d'une voix lente: « Nous devons partir. »
 
@@ -36,23 +36,23 @@ Un quart d'heure plus tard, la silhouette de Situ Nan réapparut soudainement au
 
 Il sauta sur le dos du moustique. La bête, déjà terrifiée par lui, poussa un cri et s'élança vers les cieux avant de disparaître à l'horizon.
 
-Le moustique vola de plus en plus vite jusqu'à atteindre la limite de la première couche de l'atmosphère planétaire. Une fois cette barrière franchie, on pouvait quitter la planète Suzaku!
+Le moustique vola de plus en plus vite jusqu'à atteindre la zone des vents violents aux confins du ciel. Une fois cette zone franchie, on pouvait quitter la planète Suzaku!
 
-Lorsqu'ils atteignirent une certaine altitude, Wang Lin rangea le moustique. Il se transforma alors en une étoile filante fendant l'atmosphère. Situ Nan, étant plus rapide encore, prit même de l'avance sur lui.
+Au moment où le moustique s'engouffra dans les vents violents, Wang Lin le rangea d'un éclair. Il se transforma alors en une étoile filante fonçant dans les vents violents. Situ Nan, étant plus rapide encore, prit même de l'avance sur lui.
 
-La pression atmosphérique s'abattit sur eux, créant une force de résistance colossale, comme si une montagne gigantesque pesait sur leurs épaules. Situ Nan éclata de rire et hurla: « Écartez-vous pour ce vieil homme! »
+Les vents violents du ciel s'abattirent sur eux, créant une force de résistance colossale, comme si une montagne gigantesque pesait sur leurs épaules. Situ Nan éclata de rire et hurla: « Écartez-vous pour ce vieil homme! »
 
-Dans un rugissement, l'atmosphère sembla être déchirée par une paire de mains géantes. Les strates gazeuses furent repoussées, ouvrant un tunnel de passage.
+Dans un rugissement, les vents violents semblèrent être déchirés par d'invisibles mains géantes. Couche après couche, ils reculèrent, ouvrant un passage.
 
-L'atmosphère est normalement invisible et ne se ressent que par le contact physique; pourtant, à cet instant, une ondulation se propageait dans les airs, faisant le tour de la planète entière.
+Les vents violents du ciel sont normalement invisibles et ne se ressentent que par le corps; pourtant, à cet instant, ils roulaient en nuées et soulevaient d'innombrables ondulations qui se propageaient, faisant le tour de la planète entière.
 
 À ce moment précis, qu'ils fussent mortels ou cultivateurs, tous levèrent les yeux vers le ciel.
 
 De leur point de vue, le firmament s'embrasa soudainement de couleurs, baignant le monde d'une lumière arc-en-ciel.
 
-Au sommet du mont Suzaku, Zhou Wutai contemplait le spectacle avec un air de regret.
+Au sommet du mont Suzaku, Zhou Wutai contemplait le spectacle, le regard plein d'émotion.
 
-Derrière lui se tenaient plusieurs individus: les messagers nouvellement nommés du mont Suzaku, chargés d'exécuter chacun de ses ordres.
+Derrière lui se tenaient plusieurs individus: les intendants nouvellement choisis du mont Suzaku, chargés d'exécuter chacun de ses ordres.
 
 Zhou Wutai murmura pour lui-même: « Frère Wang, que ton voyage soit sans encombre! » Des souvenirs de son temps passé avec Wang Lin traversèrent son esprit: leur rencontre due à un petit prince du monde mortel, la destruction de l'Alliance des Quatre Sectes, et enfin le moment où Wang Lin avait refusé le titre de Suzaku pour le lui céder.
 
@@ -60,7 +60,7 @@ En se remémorant tout cela, Zhou Wutai entra dans un état de rêverie. Le temp
 
 Dans le pays de Zhao, tous les membres de la famille Wang levèrent la tête vers le ciel. Wang Zhuo soupira en observant l'horizon.
 
-À ses côtés se tenait un beau adolescent d'environ quatorze ou quinze ans. Il se tourna vers Wang Zhuo et demanda: « Grand-père ancêtre, est-ce l'autre grand-père ancêtre que l'on voit là-haut? »
+À ses côtés se tenait un bel adolescent d'environ quatorze ou quinze ans. Il se tourna vers Wang Zhuo et demanda: « Grand-père ancêtre, est-ce l'autre grand-père ancêtre que l'on voit là-haut? »
 
 Wang Zhuo lui caressa la tête et répondit: « Oui, c'est l'homme que je respecte le plus au monde: mon frère cadet. »
 
@@ -92,7 +92,7 @@ Dans les terres du Clan Immortel Délaissé, à plus de dix mille kilomètres de
 
 « Frère Wang, je quitte également la planète Suzaku. J'espère que nous aurons l'occasion de nous revoir un jour! »
 
-À cet instant, tous les cultivateurs de la planète Suzaku ressentirent une fluctuation céleste. Sous leurs yeux ébahis, Wang Lin et Situ Nan percèrent l'atmosphère pour s'élancer dans le vide spatial.
+À cet instant, tous les cultivateurs de la planète Suzaku ressentirent une fluctuation céleste. Sous leurs yeux ébahis, Wang Lin et Situ Nan traversèrent les vents violents pour s'élancer dans le vide spatial.
 
 Sur la planète Suzaku, l'ancêtre du Clan des Démons Géants, prisonnier de la Secte des Cadavres, continuait d'appeler à l'aide.
 

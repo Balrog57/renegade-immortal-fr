@@ -18,11 +18,11 @@ Cet homme était le descendant du précédent Suzaku.
 
 Qian Feng fut tel une lune éclatante lors de la bataille contre le Clan des Immortels Délaissés. Finalement, il conclut un accord avec le jeune maître du clan ennemi: le pays de Suzaku céda tous les pays de culture de rang 3 afin que le Clan des Immortels Délaissés suspende son offensive.
 
-Les yeux de Du Tian s'illuminèrent alors qu'il fixait l'immense nuage noir approchant au loin, et il déclara d'une voix grave: « Le Clan des Immortels Délaissés a lancé sa seconde attaque. Ceng Niu, je sens qu'un chaman aussi puissant qu'un cultivateur de la Transformation de l'Âme au stade intermédiaire se cache dans ce nuage noir. Quant à savoir s'il y a un Ascendant, je l'ignore. Sortez l'étendard et chargeons! »
+Les yeux de Du Tian s'illuminèrent alors qu'il fixait l'immense nuage noir approchant au loin, et il déclara d'une voix grave: « Le Clan des Immortels Délaissés a lancé sa seconde attaque. Ceng Niu, je sens qu'un chaman aussi puissant qu'un cultivateur de la Transformation de l'Âme au stade intermédiaire se cache dans ce nuage noir. Quant à savoir s'il y a un Ascendant, je l'ignore. Sors l'étendard et chargeons! »
 
-L'expression de Wang Lin resta sereine tandis qu'il observait le nuage sombre. Il tendit la main, faisant apparaître l'étendard des mille milliards d'âmes. Dès qu'il s'en saisit, une brume noire en jaillit pour l'envelopper.
+L'expression de Wang Lin resta sereine tandis qu'il observait le nuage sombre. Il tendit la main, faisant apparaître le drapeau d'âmes d'un milliard. Dès qu'il s'en saisit, une brume noire en jaillit pour l'envelopper.
 
-Du Tian sortit également l'étendard des mille milliards d'âmes. D'un revers de manche, il s'enveloppa lui aussi de brume noire et chargea vers le nuage noir aux côtés de Wang Lin. Dans leur course, ils étaient entourés par des déflagrations soniques et les lamentations déchirantes de fragments d'âmes.
+Du Tian sortit également le drapeau d'âmes d'un milliard. D'un revers de manche, il s'enveloppa lui aussi de brume noire et chargea vers le nuage noir aux côtés de Wang Lin. Dans leur course, ils étaient entourés par des déflagrations soniques et les lamentations déchirantes de fragments d'âmes.
 
 Des rugissements soudains jaillirent du nuage noir alors qu'une multitude de membres du Clan des Immortels Délaissés surgissaient pour les intercepter. À cet instant précis, Du Tian et Wang Lin s'engouffrèrent directement au cœur de la masse obscure.
 
@@ -34,9 +34,9 @@ Wang Lin reconnut immédiatement ce vieillard: c'était l'homme qui l'avait pour
 
 Leur vendetta était profonde; si cet homme reconnaissait Wang Lin, il ne lâcherait pas sa proie avant de mourir. Cependant, Wang Lin portait son chapeau de paille et était enveloppé par l'étendard des âmes, ce qui le rendit méconnaissable.
 
-« Secte de l'Affinement des Âmes! » murmura l'homme d'âge moyen, les yeux brillants. Il fit un pas en avant pour barrer la route à Du Tian et Wang Lin.
+« Secte de l'Affinement de l'Âme! » murmura l'homme d'âge moyen, les yeux brillants. Il fit un pas en avant pour barrer la route à Du Tian et Wang Lin.
 
-« Vous deux, membres de la Secte de l'Affinement des Âmes, restez là! » L'homme sourit et agita la main.
+« Vous deux, membres de la Secte de l'Affinement de l'Âme, restez là! » L'homme sourit et agita la main.
 
 Boum!
 
@@ -52,17 +52,17 @@ Du Tian hurla: « Chargez! »
 
 Les fragments d'âmes devinrent soudainement frénétiques, s'élançant dans toutes les directions. Les treize fragments de la Transformation de l'Âme étaient particulièrement redoutables: tous les membres du Clan des Immortels Délaissés dont la puissance était inférieure au stade de la Transformation de l'Âme périrent d'un seul contact avec eux.
 
-L'homme d'âge moyen fronça les sourcils. Il n'avait atteint le stade des neuf feuilles qu'après près de mille ans, ce qui l'équivalait à un cultivateur Ascendant du stade précoce. Cependant, il n'avait jamais vu la puissance terrifiante de l'Étendard des Mille Milliards d'Âmes; il n'en avait lu que des récits dans les chroniques de guerres vieilles de dizaines de milliers d'années, sachant qu'il s'agissait de l'arme la plus crainte par le Clan des Immortels Délaissés.
+L'homme d'âge moyen fronça les sourcils. Il n'avait atteint le stade des neuf feuilles qu'après près de mille ans, ce qui l'équivalait à un cultivateur Ascendant du stade précoce. Cependant, il n'avait jamais vu la puissance terrifiante du drapeau d'âmes d'un milliard; il n'en avait lu que des récits dans les chroniques de guerres vieilles de dizaines de milliers d'années, sachant qu'il s'agissait de l'arme la plus crainte par le Clan des Immortels Délaissés.
 
 En la voyant de ses propres yeux, son visage s'assombrit. Il agita la main pour faire reculer le nuage noir, ordonnant aux membres du clan à l'intérieur de créer une brèche au centre.
 
 Du Tian rit en entraînant Wang Lin pour charger hors du nuage et s'enfoncer dans les terres.
 
-« Mu Ye, emmène les membres du clan rejoindre le jeune maître. Je vais tester la puissance de l'Étendard des Mille Milliards d'Âmes! » ordonna l'homme d'âge moyen avant de poursuivre Du Tian.
+« Mu Ye, emmène les membres du clan rejoindre le jeune maître. Je vais tester la puissance du drapeau d'âmes d'un milliard! » ordonna l'homme d'âge moyen avant de poursuivre Du Tian.
 
 Le vieillard voûté acquiesça et guida ses partisans pour reformer le nuage noir, avant de reprendre leur progression.
 
-Du Tian s'éloigna puis marqua un arrêt soudain. « Le chaman à neuf feuilles nous suit. Ceng Niu, observe attentivement pour comprendre pourquoi les Ascendants craignent l'Étendard des Mille Milliards d'Âmes. »
+Du Tian s'éloigna puis marqua un arrêt soudain. « Le chaman à neuf feuilles nous suit. Ceng Niu, observe attentivement pour comprendre pourquoi les Ascendants craignent le drapeau d'âmes d'un milliard. »
 
 Tandis qu'il parlait, Du Tian se retourna pour faire face au membre du Clan des Immortels Délaissés. Un arc-en-ciel traversa le ciel et atterrit devant lui: c'était l'homme d'âge moyen.
 
@@ -98,7 +98,7 @@ L'homme d'âge moyen tendit le bras et cinq lueurs de couleurs différentes conv
 
 Puis il murmura: « Affiner! » Les cinq grands creusets tremblèrent, parcourus d'étranges tatouages qui scintillaient en tournant autour d'eux.
 
-Ces creusets engendrèrent cinq vortex massifs au sein de la formation. Une aura ancestrale envahit le champ de bataille, et certains fragments d'âmes furent aspirés dans ces tourbillons.
+Ces creusets engendrèrent cinq vortex massifs au sein de la formation. Une aura ancestrale envahit le champ de bataille, et certains fragments d'âmes furent aspirés dans ces tourbillons et broyés.
 
 L'expression de Du Tian resta imperturbable: « Tu es bel et bien un chaman à neuf feuilles, et tu as du talent. Treize âmes primaires, rassemblez-vous! »
 
@@ -116,19 +116,19 @@ Cinq cents millions de fragments et treize âmes primaires avaient été affiné
 
 « Un Ascendant... » L'homme d'âge moyen prit une inspiration saccadée.
 
-Toutes les âmes primaires de l'Étendard des Mille Milliards d'Âmes étaient des ancêtres de la Transformation de l'Âme de la Secte de l'Affinement des Âmes. Leur seul regret était de n'avoir pu atteindre le stade Ascendant; ce désir, resté inassouvi de leur vivant, s'était intensifié dans la mort.
+Toutes les âmes primaires du drapeau d'âmes d'un milliard étaient des ancêtres de la Transformation de l'Âme de la Secte de l'Affinement de l'Âme. Leur seul regret était de n'avoir pu atteindre le stade Ascendant; ce désir, resté inassouvi de leur vivant, s'était intensifié dans la mort.
 
 En fin de compte, la volonté commune de tous ces fragments leur permit de fusionner pour engendrer une puissance équivalente à celle d'un cultivateur Ascendant.
 
-Et ce n'était là que la puissance partielle de l'Étendard des Mille Milliards d'Âmes.
+Et ce n'était là que la puissance partielle du drapeau d'âmes d'un milliard.
 
 Cette force suffisait à combattre un Ascendant du stade précoce, mais ne pouvait rivaliser avec un Ascendant du stade avancé comme le Suzaku actuel. Ce qui terrifiait véritablement le Suzaku, c'était la puissance de l'ensemble des trente-six âmes primaires, et tout particulièrement la quatrième.
 
-Du Tian fixa l'homme d'âge moyen et lâcha froidement: « Dégage. Je ne te tuerai pas aujourd'hui. Ma Secte de l'Affinement des Âmes ne prendra pas part à la guerre entre vous et le pays de Suzaku! »
+Du Tian fixa l'homme d'âge moyen et lâcha froidement: « Dégage. Je ne te tuerai pas aujourd'hui. Ma Secte de l'Affinement de l'Âme ne prendra pas part à la guerre entre vous et le pays de Suzaku! »
 
 Le visage de l'homme s'assombrit, la colère bouillonnant en lui. Avec son niveau de culture, si Du Tian n'avait pas possédé cet étendard, il l'aurait déjà éliminé sans difficulté.
 
-Il fixa Du Tian, plongé dans ses pensées. Après un instant, il reprit: « Une telle puissance ne suffit pas à me menacer. L'Étendard des Mille Milliards d'Âmes n'est-il donc capable que de cela? »
+Il fixa Du Tian, plongé dans ses pensées. Après un instant, il reprit: « Une telle puissance ne suffit pas à me menacer. Le drapeau d'âmes d'un milliard n'est-il donc capable que de cela? »
 
 Du Tian eut un rire éclatant et ses yeux brillèrent: « Dix âmes primaires, apparaissez! »
 
@@ -136,10 +136,10 @@ Il agita l'étendard et dix autres âmes primaires de la Transformation de l'Âm
 
 Cette fois, l'homme d'âge moyen esquissa un sourire amer. Il comprenait enfin pourquoi son clan redoutait tant cet artefact.
 
-« Puisque la Secte de l'Affinement des Âmes refuse de participer à cette guerre, alors je parlerai au nom du Clan des Immortels Délaissés et je promets que nous ne mettrons pas un pied dans votre Secte! »
+« Puisque la Secte de l'Affinement de l'Âme refuse de participer à cette guerre, alors je parlerai au nom du Clan des Immortels Délaissés et je promets que nous ne mettrons pas un pied dans votre Secte! »
 
 Sur ces mots, il salua Du Tian d'un geste respectueux avant de se retirer prudemment.
 
 Du Tian agita l'étendard pour récupérer tous les fragments d'âmes et partit rapidement avec Wang Lin.
 
-« L'Étendard des Mille Milliards d'Âmes... » Après avoir été témoin de ce prodige, les yeux de Wang Lin étaient empreints d'une passion ardente. Le monde était vaste, et avec un tel étendard, il pourrait conquérir n'importe quel horizon!
+« Le drapeau d'âmes d'un milliard... » Après avoir été témoin de ce prodige, les yeux de Wang Lin étaient empreints d'une passion ardente. Le monde était vaste, et avec un tel étendard, il pourrait conquérir n'importe quel horizon!

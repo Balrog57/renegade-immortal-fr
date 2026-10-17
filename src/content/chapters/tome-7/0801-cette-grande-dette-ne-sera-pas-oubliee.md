@@ -32,7 +32,7 @@ Reculer! Reculer! Reculer! Reculer!
 
 Les six continuèrent leur retraite. Ils devaient reculer, ils ne pouvaient pas faire autrement, ils étaient contraints de reculer! Un élan irrésistible se dressait devant eux. Bien que chacun d'eux fût capable de massacrer la majorité de ces cultivateurs, après ce qui venait de se passer, leurs cœurs étaient devenus timides!
 
-Ils avaient cultivé pendant de nombreuses années, mais ils n'avaient jamais vu un cultivateur Ascendant tenter encore de les mordre même après l'effondrement de son corps et de son âme originelle.
+Ils avaient cultivé pendant de nombreuses années, mais ils n'avaient jamais vu un cultivateur Ascendant tenter encore de les mordre même après l'effondrement de son corps et la projection de sa tête.
 
 Bien qu'ils aient déjà vu des gens choisir l'autodestruction pour blesser l'ennemi après avoir été gravement atteints, ils n'avaient jamais vu autant de personnes choisir la même voie.
 
@@ -54,17 +54,17 @@ Une lueur de froideur passa dans les yeux de Wang Lin; il fit un pas et chargea 
 
 Pendant que trois personnes activaient le transfert, les trois restants serrèrent les dents et chargèrent en avant. L'un d'eux forma un sceau et cracha une bouchée de sang essentiel. Un cadenas doré apparut à l'intérieur et grandit instantanément.
 
-« Verrouiller l'origine et sceller l'âme! » Il afficha une expression féroce alors que les chaînes dorées se brisaient soudainement en d'innombrables poussières d'or qui chargèrent Wang Lin et les cultivateurs derrière lui.
+« Verrouiller l'origine et sceller l'âme! » Il afficha une expression féroce alors que le cadenas doré se brisait soudainement en d'innombrables rayons d'or qui fondirent sur Wang Lin et les cultivateurs derrière lui.
 
 La main droite de Wang Lin forma un sceau et pointa vers le ciel. Un vent noir se rassembla soudainement dans sa paume pour bientôt emplir le monde. Ce vent noir prit la forme d'un dragon noir qui laissa échapper un rugissement immédiat.
 
-Un vent glacial jaillit de la gueule du dragon tandis qu'il rugissait. Ce souffle balaya les innombrables poussières dorées avant qu'elles ne puissent affecter quoi que ce soit, puis elles disparurent une à une sous les yeux des cultivateurs.
+Un vent glacial jaillit de la gueule du dragon tandis qu'il rugissait. Ce souffle balaya les innombrables rayons dorés avant qu'ils ne puissent affecter quoi que ce soit, puis ils disparurent une à une sous les yeux des cultivateurs.
 
 Simultanément, la main de Wang Lin s'étira et le dragon noir descendit du ciel. Il se rassembla rapidement dans la paume de Wang Lin jusqu'à se transformer en un cadenas doré.
 
 « Ce trésor est excellent! » Les yeux de Wang Lin étaient glacials lorsqu'il avala le cadenas doré. Le tonnerre au sein de son âme originelle apparut aussitôt et commença à le raffiner.
 
-Le visage du cultivateur qui avait libéré le cadenas pâlit et il recula. Cependant, Wang Lin fut plus rapide. Il fit un pas en avant et sa main droite, chargée de puissance, s'abattit sur le messager.
+Le visage du cultivateur qui avait libéré le cadenas pâlit et il recula. Cependant, Wang Lin fut plus rapide. Il fit un pas en avant et, les deux doigts de sa main droite formant une épée chargée d'une aura tranchante, les pressa vers le messager.
 
 Alors que l'homme reculait, il forma un sceau et frappa son sac de stockage. Trois petits drapeaux apparurent autour de lui. Un gaz violet s'échappa des drapeaux et forma des vortex.
 
@@ -84,7 +84,7 @@ Un bruit de craquement retentit aussitôt, puis le corps du messager se fragment
 
 C'est à cet instant qu'un éclat argenté jaillit et que du sang jaillit de la poitrine de l'un des messagers. Ses yeux s'éteignirent et son âme originelle s'échappa pour fuir.
 
-Avant que Wang Lin n'ait pu agir, plus d'une douzaine de cultivateurs Ascendants attaquèrent avec des yeux injectés de sang, accompagnant le rayon argenté qui poursuivait l'âme. Un instant plus tard, ce messager était mort!
+Avant que Wang Lin n'ait pu agir, des dizaines de cultivateurs Ascendants attaquèrent avec des yeux injectés de sang, accompagnant le rayon argenté qui poursuivait l'âme. Un instant plus tard, ce messager était mort!
 
 À cet instant, les trois messagers avaient fini d'activer la formation. Puis, sans aucune hésitation, ils entrelacèrent leurs bras et murmurèrent un chant complexe. Immédiatement, la formation de transfert commença à s'effondrer sur ses bords!
 
@@ -110,7 +110,7 @@ Alors que davantage de cultivateurs s'engouffraient dans la lumière, celle-ci d
 
 L'effondrement des bords de la formation se propageait rapidement et, en un clin d'œil, avait presque atteint le cœur lumineux. Au prix de la destruction de la structure, ce transfert était sur le point de dépasser ses limites.
 
-Wang Lin entra dans le faisceau d'un pas décidé. Dans son cœur, il pensa: « Il est temps de partir... L'effondrement de la formation est une bonne chose. Même si elle ne s'était pas effondrée, je l'aurais détruite pour disperser la destination. De cette façon, j'aurais pu éviter d'être transféré au Temple Céleste du Tonnerre! »
+Wang Lin entra dans le faisceau d'un pas décidé. Dans son cœur, il pensa: « Il est temps de partir... L'effondrement de la formation est une bonne chose. Même si elle ne s'était pas effondrée, je comptais la détruire au moment du transfert. De cette façon, un incident se serait forcément produit à l'arrivée, et j'aurais pu éviter d'apparaître au Temple Céleste du Tonnerre! »
 
 Lorsque le faisceau de lumière s'élança vers le ciel, une force puissante apparut. Alors que la lumière était sur le point de se dissiper, le cultivateur Yang Corporel qui s'était transformé en rayon argenté cria: « Aîné, dites-nous votre nom! Cette grande dette ne sera jamais oubliée! »
 

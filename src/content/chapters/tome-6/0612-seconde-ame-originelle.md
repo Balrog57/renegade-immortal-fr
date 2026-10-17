@@ -18,7 +18,7 @@ Au sein de cette grotte trônait une statue. Entièrement noire, elle ressemblai
 
 Sous la statue se trouvait un autre étang. Il ne contenait que peu de liquide, mais celui-ci était devenu extrêmement visqueux. Wang Lin était assis en position du lotus au milieu de cette substance. Il portait toujours son armure, mais ses yeux étaient clos.
 
-L'homme imposant qui ressemblait à Ling Tianhou était assis face à lui. Complètement enfermé dans un cristal pourpre, l'érosion qui marquait son corps guérissait lentement.
+L'homme imposant qui ressemblait à Ling Tianhou se trouvait devant lui. Complètement enfermé dans un cristal pourpre, l'érosion qui marquait son corps guérissait lentement.
 
 Des filaments de lumière démoniaque s'échappaient de la statue pour pénétrer le corps de Wang Lin. À chaque fois que cette lumière pénétrait en lui, il en était secoué par des tremblements.
 
@@ -40,9 +40,9 @@ La seconde âme originelle est un sort unique que les cultivateurs ne peuvent ut
 
 La force de cet embryon détermine le taux de réussite. Si un cultivateur échoue à créer sa seconde âme originelle, il subit un terrible contrecoup!
 
-De plus, la création d'une seconde âme originelle inflige des pertes considérables au cultivateur, c'est pourquoi la plupart des Ascendants choisissent de s'en abstenir. Aucun des Ascendants que Wang Lin avait rencontrés jusqu'ici n'en possédait une, et Wang Lin n'avait jamais vu personne au-delà de ce stade en posséder une.
+De plus, la création d'une seconde âme originelle inflige des pertes considérables au cultivateur, c'est pourquoi la plupart des Ascendants choisissent de s'en abstenir. Presque aucun des Ascendants que Wang Lin avait rencontrés jusqu'ici n'en possédait une, et Wang Lin n'avait jamais vu personne au-delà de ce stade en posséder une.
 
-Wang Lin songea: « C'est l'un des fragments démons d'un démon ancien. Il n'existe pratiquement aucun autre embryon plus apte à la création d'une seconde âme originelle. Je suis absolument certain de pouvoir réussir avec lui! »
+Wang Lin songea: « C'est l'un des démons dispersés sous les ordres de l'Ancien Diable. Il n'existe pratiquement aucun autre embryon plus apte à la création d'une seconde âme originelle. Je suis absolument certain de pouvoir réussir avec lui! »
 
 « À présent, mon âme originelle et mon corps ont fusionné, consolidant ma culture Ascendant. Le danger étant écarté, certaines choses doivent être faites sans tarder! Je dois récupérer les fragments restants de l'énergie d'épée que Ling Tianhou a forgés. C'est un pur gaspillage qu'ils soient entre les mains de ses disciples médiocres! » Les yeux de Wang Lin s'illuminèrent et il se redressa dans l'étang.
 
@@ -50,13 +50,13 @@ Son armure lui donnait l'allure d'un général démon, et ses longs cheveux noir
 
 En effleurant l'armure, une pointe d'excitation passa dans le regard de Wang Lin. Cette panoplie était incroyablement puissante! Une épaisse couche d'énergie démoniaque s'en dégageait, mais il était regrettable que Wang Lin ne puisse pas encore l'absorber.
 
-« Même si c'est ainsi, si j'utilise le Doigt Démon avec cette armure, je crains qu'elle ne soit encore plus redoutable que mon Fleuve des Enfers! Mon niveau de culture n'est pas assez élevé pour que l'armure me reconnaisse comme son maître, je ne peux donc utiliser qu'une partie de ses capacités. Cependant, une fois que j'aurai raffiné le démon dispersé en ma seconde âme originelle, je pourrai libérer toute sa puissance! » Wang Lin toucha l'armure avant de sortir un bracelet de son sac de rangement.
+« Même si c'est ainsi, si j'utilise le Doigt Démon avec cette armure, je crains qu'elle ne soit encore plus redoutable que ma rivière des enfers! Mon niveau de culture n'est pas assez élevé pour que l'armure me reconnaisse comme son maître, je ne peux donc utiliser qu'une partie de ses capacités. Cependant, une fois que j'aurai raffiné le démon dispersé en ma seconde âme originelle, je pourrai libérer toute sa puissance! » Wang Lin toucha l'armure avant de sortir un bracelet de son sac de rangement.
 
 Dès l'instant où le bracelet apparut, il se mua en un rayon de lumière noire qui enroula le bras de Wang Lin avant de prendre forme.
 
 « Comptez-vous partir…? » La voix de l'Ancien Démon résonna depuis la statue.
 
-Wang Lin se retourna. Il joignit les mains en signe de respect envers la statue et dit: « L'Ancien Démon m'a aidé à trois reprises. Je ne l'oublierai jamais! Cette fois, je compte honorer mon accord. Toutefois, avant cela, j'ai quelques affaires à régler et je sollicite à nouveau votre aide. »
+Wang Lin se retourna. Il joignit les mains en signe de respect envers la statue et dit: « Senior Ancien Démon, vous m'avez aidé à trois reprises. Je n'oublierai jamais ce bienfait! Cette fois, je compte honorer mon accord. Toutefois, avant cela, j'ai quelques affaires à régler et je sollicite à nouveau votre aide. »
 
 L'Ancien Démon réfléchit un instant avant de demander lentement: « Quelles sont ces affaires? »
 
@@ -64,7 +64,7 @@ Wang Lin marqua une pause, puis tapota son sac de rangement pour en sortir la pa
 
 « Je souhaite trouver un esprit d'épée. Cette tour contient son sens divin. Je demande l'aide de l'Ancien Démon pour le localiser. »
 
-L'Ancien Démon déploya son sens divin et déclara: « Aucune présence de cet esprit d'épée n'est perceptible dans mon Pays du Démon Céleste. Quant au reste, je l'ignore. Le Domaine des Esprits Démoniaques est bien trop vaste pour que je puisse le fouiller entièrement. Si vous parvenez à m'aider à capturer l'un des Anciens Démons, je serai en mesure de lancer un sort de recherche à grande échelle après l'avoir absorbé. Pour l'instant, ma force actuelle ne me le permet pas. Si vous possédez une tour démoniaque ancienne, vous pouvez également déployer votre sens divin. »
+L'Ancien Démon déploya son sens divin et déclara: « Aucune présence de cet esprit d'épée n'est perceptible dans mon Pays du Démon Céleste. Quant au reste, je l'ignore. La Terre des Esprits Démoniaques est bien trop vaste pour que je puisse le fouiller entièrement. Si vous parvenez à m'aider à capturer l'un des Anciens Démons, je serai en mesure de lancer un sort de recherche à grande échelle après l'avoir absorbé. Pour l'instant, ma force actuelle ne me le permet pas. Si vous possédez la tour de l'Ancien Diable, vous pouvez également déployer votre sens divin. »
 
 Wang Lin rétracta la pagode et hocha la tête. Puis, pointant l'homme encerclé de cristal pourpre, il dit: « Je veux cet homme! »
 
@@ -86,11 +86,11 @@ Ces deux demandes étaient réellement des choses qu'il souhaitait obtenir, et n
 
 Wang Lin surgit du vide à 5 000 kilomètres de la Cité du Démon Céleste. Il observa le cristal dans sa main avant de le ranger dans son sac.
 
-« Cet homme doit avoir un lien avec le Saint de l'Épée Ling Tianhou. Il pourrait s'avérer utile à l'avenir! » Un air pensif traversa le regard de Wang Lin. Il fit un nouveau pas et utilisa le sort de téléportation supérieur.
+« Cet homme doit avoir un lien avec le Saint de l'Épée Ling Tianhou. Il pourrait s'avérer utile à l'avenir! » Un air pensif traversa le regard de Wang Lin. Il fit un nouveau pas et utilisa le sort de grande téléportation.
 
 Wang Lin continua ses sauts spatiaux, visant l'endroit où Zi Shu avait péri. Il refusait d'abandonner si facilement et devait vérifier par lui-même; après tout, l'énergie d'épée de Ling Tianhou était un trésor inestimable!
 
-Le sort de téléportation supérieur était une technique puissante. Après plusieurs utilisations, Wang Lin pénétra dans le Pays du Démon de Feu.
+Le sort de grande téléportation était un grand pouvoir divin. Après plusieurs utilisations, Wang Lin pénétra dans le Pays du Démon de Feu.
 
 Zi Shu était mort dans une jungle où la plupart des plantes avaient dépéri. Des débris et des cadavres en décomposition jonchaient le sol. Après tout, plusieurs mois s'étaient écoulés.
 
@@ -98,7 +98,7 @@ Pourtant, le corps de Zi Shu était toujours là!
 
 Une faible lueur dorée émanait de sa dépouille, attirant d'innombrables animaux et oiseaux. Au début, ils étaient venus pour se repaître de la chair, mais dès qu'ils approchaient du corps de Zi Shu, ils mouraient instantanément.
 
-Ce jour-là, un rayon de lumière bleue apparut au loin. C'était un homme d'âge moyen vêtu d'une robe taoïste. Après avoir déployé son sens divin, il localisa le corps de Zi Shu au sol. Il descendit aussitôt pour atterrir à une trentaine de mètres du cadavre.
+Ce jour-là, un rayon de lumière bleue apparut au loin. C'était un homme d'âge moyen vêtu d'une robe daoïste. Après avoir déployé son sens divin, il localisa le corps de Zi Shu au sol. Il descendit aussitôt pour atterrir à une trentaine de mètres du cadavre.
 
 « C'est bien ici. Comme je m'y attendais, cet homme doit porter un trésor sur lui, sans quoi une telle énergie d'épée ne pourrait s'en échapper! » Les yeux de l'homme brillaient de joie en contemplant le corps de Zi Shu.
 
@@ -122,4 +122,4 @@ L'expression de l'homme changea radicalement et il recula de plusieurs pas. Il j
 
 « Votre jeune frère d'apprentissage? » L'homme en armure n'était autre que Wang Lin. Après sa téléportation, il avait vu cet homme s'extasier devant le corps de Zi Shu.
 
-« Bien sûr qu'il est mon frère d'apprentissage. Nous sommes des disciples de la Secte He Yun. Cet homme s'appelait Zhou Qu, et moi je suis Teng Yun. Nous étions venus ensemble dans le Domaine des Esprits Démoniaques. Il y a un mois, nous nous sommes séparés. Je n'aurais jamais cru qu'il serait tué! Si ce n'était pas pour l'objet de suivi de la secte qu'il portait et qui émet cette lueur dorée, je ne l'aurais jamais retrouvé aujourd'hui. » Teng Yun affichait une expression empreinte d'une profonde tristesse.
+« Bien sûr qu'il est mon frère d'apprentissage. Nous sommes des disciples de la Secte He Yun. Cet homme s'appelait Zhou Qu, et moi je suis Teng Yun. Nous étions venus ensemble dans la Terre des Esprits Démoniaques. Il y a un mois, nous nous sommes séparés. Je n'aurais jamais cru qu'il serait tué! Si ce n'était pas pour l'objet de suivi de la secte qu'il portait et qui émet cette lueur dorée, je ne l'aurais jamais retrouvé aujourd'hui. » Teng Yun affichait une expression empreinte d'une profonde tristesse.

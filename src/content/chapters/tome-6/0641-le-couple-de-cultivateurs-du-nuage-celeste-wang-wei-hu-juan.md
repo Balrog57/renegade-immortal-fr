@@ -46,7 +46,7 @@ Un éclair de lumière d'épée fendit la brume devant Wang Lin, puis l'épée c
 
 Wang Lin ne perdit pas de temps et monta sur l'épée céleste. Une vague d'énergie spirituelle céleste jaillit de la lame, pénétra les pieds de Wang Lin et se propagea dans tout son corps.
 
-« Stabilise ton énergie, concentre ton esprit et ne laisse pas l'énergie spirituelle céleste s'échapper! » Les paroles de Zhou Yi résonnèrent dans l'esprit de Wang Lin. Il exécuta immédiatement les instructions, et l'énergie spirituelle céleste à l'intérieur de son corps se mit soudainement à vibrer. Elle quitta ses méridiens pour former un écran scintillant d'énergie spirituelle céleste!
+« Stabilise ton énergie, concentre ton esprit, ouvre et referme le palais de ton cœur, et retiens l'énergie spirituelle céleste sans la rejeter! » Les paroles de Zhou Yi résonnèrent dans l'esprit de Wang Lin. Il exécuta immédiatement les instructions, et l'énergie spirituelle céleste à l'intérieur de son corps se mit soudainement à vibrer. Elle quitta ses méridiens pour former un écran scintillant d'énergie spirituelle céleste!
 
 Cet écran de lumière ne contenait pas seulement de l'énergie spirituelle céleste, mais aussi de l'énergie d'épée. En s'étendant, il repoussa brusquement la brume. Un tunnel se creusa dans la brume violette, comme si une paire de mains gigantesques avait ouvert un passage.
 
@@ -56,7 +56,7 @@ L'épée céleste était si rapide que Wang Lin sentit le vent violent fouetter 
 
 Après un long moment, l'épée céleste amorça soudain un virage, s'inclina vers le haut et entama une trajectoire en spirale. Wang Lin fit circuler l'énergie spirituelle céleste dans son corps pour se stabiliser afin de ne pas être éjecté de la lame.
 
-« L'aura de l'esprit d'épée de la dernière génération, l'Épée Céleste de la Pluie, est juste devant. Wang Lin, stabilise-toi; je vais passer à pleine vitesse! » Une fois ses paroles prononcées, Zhou Yi laissa quelques secondes à Wang Lin pour se préparer, puis l'épée céleste accéléra subitement.
+« L'aura de l'esprit d'épée de la génération précédente des Épées Célestes de la Pluie est juste devant. Wang Lin, stabilise-toi; je vais passer à pleine vitesse! » Une fois ses paroles prononcées, Zhou Yi laissa quelques secondes à Wang Lin pour se préparer, puis l'épée céleste accéléra subitement.
 
 La vitesse était telle qu'elle commença à créer des images rémanentes, comme si elle pratiquait la téléportation. Debout sur l'épée, Wang Lin eut l'impression que cent mille montagnes venaient de défiler devant lui. Il ne pouvait plus respirer et retenait une bouffée d'énergie spirituelle céleste.
 
@@ -84,37 +84,37 @@ Au fur et à mesure de leur ascension, l'or recouvrant l'épée s'effrita, rév�
 
 Zhou Yi poussa un rugissement, décuplant la puissance de l'épée céleste, et la grande épée fut hissée d'une dizaine de mètres supplémentaires. Wang Lin utilisa davantage d'énergie spirituelle céleste pour faire tournoyer le Fleuve des Enfers encore plus vite, affaiblissant ainsi la force d'aspiration. Finalement, Zhou Yi jaillit du gouffre avec Wang Lin!
 
-Au moment où ils s'échappèrent, Wang Lin poussa un cri de victoire. La grande épée fut arrachée à l'abîme et atterrit dans ses mains! Un mot, gravé superficiellement sur la lame, apparut: « Richesse! »
+Au moment où ils s'échappèrent, Wang Lin poussa un grand cri. La grande épée fut arrachée à l'abîme et atterrit dans ses mains! Un mot, gravé superficiellement sur la lame, apparut: « Richesse! »
 
 En tenant "Richesse", de nombreux souvenirs passés traversèrent l'esprit de Wang Lin. Il prit une profonde inspiration, mais avant qu'il ne puisse l'examiner, Zhou Yi le tira rapidement dans un couloir voisin.
 
-Zhou Yi se déplaçait à une vitesse fulgurante. Wang Lin envoya un message par sens divin pour guider Zhou Yi vers la seule issue du Gouffre des Marées: la sortie menant au Pays des Démons de Feu!
+Zhou Yi se déplaçait à une vitesse fulgurante. Wang Lin envoya un message par sens divin pour guider Zhou Yi vers la seule issue de l'Abîme des Marées: la sortie menant au Pays des Démons de Feu!
 
-Wang Lin observa attentivement "Richesse" avant de la ranger dans son sac de rangement. Ce bref examen lui avait permis de déceler des indices sur l'épée. Si sa culture n'avait pas été suffisante, il n'aurait rien vu, mais avec le stade Ascendant, ses perceptions étaient tout autres. Toutefois, ce n'était pas le moment d'étudier; il prévoyait de s'y consacrer pleinement après avoir quitté le Gouffre des Marées.
+Wang Lin observa attentivement "Richesse" avant de la ranger dans son sac de rangement. Ce bref examen lui avait permis de déceler des indices sur l'épée. Si sa culture n'avait pas été suffisante, il n'aurait rien vu, mais avec le stade Ascendant, ses perceptions étaient tout autres. Toutefois, ce n'était pas le moment d'étudier; il prévoyait de s'y consacrer pleinement après avoir quitté l'Abîme des Marées.
 
-« Le voyage au Gouffre des Marées est terminé. Hélas, je n'ai toujours aucune piste sur l'emplacement du mystérieux jeton... » commença à méditer Wang Lin.
+« Le voyage à l'Abîme des Marées est terminé. Hélas, je n'ai toujours aucune piste sur l'emplacement du mystérieux jeton... » commença à méditer Wang Lin.
 
 Dans son sac de rangement, la bête moustique ouvrit les yeux avec un air dubitatif. Normalement, à l'intérieur d'un sac, à moins d'utiliser un sort prodigieux, elle ne devrait rien ressentir de l'extérieur. Pourtant, à cet instant, elle percevait de nombreuses auras lui procurant une sensation très familière. Après avoir hésité, la moustique ne parvint pas à identifier la source. Elle regarda le crapaud tonnerre qui dormait toujours, se coucha sur son dos et ferma les yeux.
 
 Grâce à la vitesse de Zhou Yi, ils se rapprochèrent de l'entrée du Pays des Démons de Feu... Tout en approchant de la brume et de l'immense nuée de moustiques entourant Cupidité et son groupe...
 
-Dans les Terres des Esprits Démoniaques, un nuage fonçait depuis le sud. Ce nuage était imprégné d'énergie spirituelle céleste, comme s'il provenait du Royaume Céleste. Il émettait des éclats de lumière qui coloraient le ciel lors de son passage.
+Dans la Terre des Esprits Démoniaques, un nuage fonçait depuis le sud. Ce nuage était imprégné d'énergie spirituelle céleste, comme s'il provenait du Royaume Céleste. Il émettait des éclats de lumière qui coloraient le ciel lors de son passage.
 
 Deux personnes se tenaient sur ce nuage providentiel: un homme et une femme. L'homme se tenait droit, vêtu d'une robe bleue brodée de nuages azur qui semblaient même onduler. Ses longs cheveux flottaient derrière lui, révélant un visage beau. Il faisait face au vent, une flûte en jade vert à la main; avec le flottement de ses vêtements, il ressemblait à un véritable être céleste.
 
-Derrière lui, la femme portait une robe lavande ornée de petites fleurs roses. Ses cheveux étaient négligemment attachés en un chignon maintenu par une épingle lavande. Malgré cette simplicité, elle n'en perdait pas l'élégance. Son maquillage était léger et ses lèvres étaient naturellement rouges, sans aucun cinabre. On pourrait dire que sa grâce était douce et son aura parfumée!
+À ses côtés, la femme portait une robe lavande ornée de petites fleurs roses. Ses cheveux étaient négligemment attachés en un chignon maintenu par une épingle lavande. Malgré cette simplicité, elle n'en perdait pas l'élégance. Son maquillage était léger et ses lèvres étaient naturellement rouges, sans aucun cinabre. On pourrait dire que sa grâce était douce et son aura parfumée!
 
 Les yeux de la femme se posaient occasionnellement sur l'homme avec tendresse. Il était évident qu'ils formaient un couple de cultivateurs.
 
 Bien que les cultivateurs ordinaires puissent chevaucher des nuages, il ne s'agissait que de simples vapeurs d'eau blanches. Ces sorts étaient considérés comme de basse qualité: peu rapides et sans éclat, ils n'étaient utilisés que par ceux qui voulaient simuler une nature céleste pour tromper les mortels.
 
-Cependant, ce couple était différent. Ce nuage avait été raffiné à partir du Nuage du 9ème Ciel. Même avant l'effondrement du Royaume Céleste, il était extrêmement rare! La puissance de ce nuage résidait dans le fait qu'il contenait naturellement des éclairs célestes; sa force ne devait donc pas être sous-estimée.
+Cependant, ce couple était différent. Ce nuage avait été raffiné à partir du Nuage du 9ème Ciel. Même à l'époque, dans le Royaume Céleste, il était extrêmement rare! La puissance de ce nuage résidait dans le fait qu'il contenait naturellement des éclairs célestes; sa force ne devait donc pas être sous-estimée.
 
 Les cultivateurs de la vieille génération reconnaîtraient immédiatement les deux individus en voyant ce nuage. Seules des personnes du même rang que l'Ancêtre Sanguin, Ling Tianhou et l'Omniscient pouvaient chevaucher un tel prodige!
 
 Le Couple de Cultivateurs du Nuage Céleste!
 
-Ce couple qui était venu dans les Terres des Esprits Démoniaques aux côtés de Ling Tianhou et de l'Omniscient. Ils occupaient l'une des grottes et n'en étaient pas sortis depuis des dizaines de milliers d'années!
+Ce couple qui était venu dans la Terre des Esprits Démoniaques aux côtés de Ling Tianhou et de l'Omniscient. Ils occupaient l'une des grottes et n'en étaient pas sortis depuis des dizaines de milliers d'années!
 
 Wang Wei, Hu Juan!
 
@@ -122,9 +122,9 @@ Leur culture pouvait rivaliser avec celle de l'Omniscient et de ses compagnons. 
 
 Heureusement, ils avaient une nature paisible et ne cherchaient pas le pouvoir. Tant qu'on ne les provoquait pas, la paix était maintenue. Si le vieil homme court les voyait, il grincerait des dents de rage: c'étaient eux qui lui avaient volé un sac de rangement autrefois.
 
-Le couple chevauchant leur nuage, ils volèrent directement vers le Pays des Démons de Feu. Au moment où le nuage pénétra dans le territoire, Bei Lou, qui se trouvait sous la capitale du Pays des Démons Célestes, ouvrit soudainement les yeux. Ses yeux émettaient une lumière dorée éclatante qui disparut rapidement.
+Le couple chevauchant leur nuage, ils volèrent directement vers le Pays des Démons de Feu. Au moment où le nuage pénétra dans le territoire, Bei Luo, qui se trouvait sous la capitale du Pays des Démons Célestes, ouvrit soudainement les yeux. Ses yeux émettaient une lumière extrêmement éclatante qui disparut aussitôt.
 
-« Ils sont donc sortis de la grotte... Il semble que je doive accélérer l'absorption des autres âmes démoniaques anciennes... » Une pointe de crainte, bien dissimulée, brillait dans le regard de Bei Lou.
+« Ils sont donc sortis de la grotte... Il semble que je doive accélérer l'absorption des autres âmes démoniaques anciennes... » Une pointe de crainte, bien dissimulée, brillait dans le regard de Bei Luo.
 
 Alors que le nuage céleste traversait le Pays des Démons de Feu, tous les autres nuages furent contraints de s'écarter. Même les généraux et soldats démons dans les cités en furent ébranlés; ils n'osèrent même pas sortir pour vérifier.
 

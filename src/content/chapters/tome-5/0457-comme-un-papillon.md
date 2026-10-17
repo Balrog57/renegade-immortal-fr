@@ -22,7 +22,7 @@ Zhou Wutai répondit promptement et s'engouffra dans le nuage rouge.
 
 Zhou Wutai se tint respectueusement aux côtés du vieil homme.
 
-« Zhou Wutai salue l'Aîné. »
+« Zhou Wutai salue le Senior. »
 
 Le vieil homme hocha la tête en fixant le lointain. Son regard semblait capable de percer les distances pour contempler la bataille entre Wang Lin et Papillon Rouge, à 5 000 kilomètres de là. Après une courte réflexion, il demanda calmement: « Où est Zi Xin? »
 
@@ -32,9 +32,9 @@ Le vieil homme soupira: « Peu importe. Laissons-la. Suis-moi jusqu'à la montag
 
 Ce vieil homme était Yun Quezi.
 
-Le Clan des Immortels Délaissés utilisait le crâne de l'Ancêtre. Grâce au pouvoir de tatouage d'un shaman à douze feuilles, ils avaient réussi à briser le sceau du Cristal de la Planète de Culture pour y envoyer Yun Quezi.
+Le Clan des Immortels Délaissés utilisait le crâne de l'Ancêtre. Grâce aux runes de ce crâne et à son niveau de culture de douze feuilles, ils avaient réussi à lever provisoirement les restrictions du Tombeau de Suzaku pour y envoyer Yun Quezi.
 
-Cependant, si l'Ancêtre avait été encore en vie, il aurait peut-être pu lever totalement les restrictions sur le Cristal. Comme ils ne disposaient que du pouvoir issu de son crâne, la situation n'était pas idéale. Bien qu'ils aient pu introduire Yun Quezi, il y avait une limite de temps; une fois ce délai expiré, Yun Quezi serait tué par la puissance mystérieuse du Cristal.
+Cependant, si l'Ancêtre avait été encore en vie, il aurait peut-être pu lever totalement les restrictions sur le Cristal. Comme ils ne disposaient que de la puissance des runes de son crâne, la situation n'était pas idéale. Bien qu'ils aient pu introduire Yun Quezi, il y avait une limite de temps; une fois ce délai expiré, Yun Quezi serait tué par la puissance mystérieuse du Cristal.
 
 C'est pourquoi, dès son entrée, il ne perdit pas un instant et se précipita droit vers la montagne spirituelle située au centre.
 
@@ -42,7 +42,7 @@ C'est pourquoi, dès son entrée, il ne perdit pas un instant et se précipita d
 
 À ce moment précis, un vieil homme se tenait déjà sur la montagne spirituelle. Bien qu'il paraisse ordinaire, ses yeux dégageaient une lueur rouge sang. Un petit singe était perché sur son épaule, et le reflet écarlate dans les yeux du singe était encore plus intense.
 
-Le vieil homme se tenait au sommet de la montagne spirituelle. Dans le vide surplombant la cime, une porte émettait une lumière dorée aveuglante. Cette porte mesurait plus de 300 mètres de haut et présentait une fissure béante, semblable à une cicatrice, descendant en son centre.
+Le vieil homme se tenait au sommet de la montagne spirituelle. Dans le vide surplombant la cime, une porte émettait une lumière dorée aveuglante. Cette porte mesurait plus de 300 mètres de haut et montait jusqu'au ciel; une fissure, semblable à une cicatrice, venait d'y apparaître.
 
 La rougeur dans les yeux du vieil homme s'intensifia alors qu'il contemplait la porte. Il esquissa un sourire sinistre, s'assit et commença à cultiver. Sur son épaule, le singe scrutait les environs d'un regard belliqueux.
 
@@ -92,13 +92,13 @@ La rose rouge devant elle libéra une lumière aveuglante tandis que ses pétale
 
 La rose n'était plus qu'une tige privée de ses pétales. Lorsque la hache la percuta, elle s'effondra et disparut totalement. Une marque rouge apparut entre les sourcils de la jeune femme alors que le sang jaillissait, un spectacle terrifiant.
 
-« Papillon Rouge, tu affronteras une épreuve dans ta vie! Ce sera une épreuve de vie ou de mort. Si tu la surmontes, le reste de ton existence sera paisible. Si tu échoues, tout sera perdu. Ta Maîtresse a utilisé sa propre vie pour t'aider à le prévoir, alors sois prudente... »
+« Papillon Rouge, tu affronteras une épreuve dans ta vie! Ce sera une épreuve de vie ou de mort. Si tu la surmontes, le reste de ton existence sera paisible. Si tu échoues, tout sera perdu. Ta Maîtresse a consacré l'effort de toute sa vie à prédire ce présage pour toi, alors sois prudente... »
 
 « Papillon Rouge, je crains que ton épreuve ne soit liée à Ceng Niu. Il ne peut pas être laissé en vie! »
 
 Papillon Rouge était couverte de sang et sa vision devint écarlate.
 
-« Maîtresse, tu as prédit l'épreuve de Papillon Rouge, mais malheureusement, tu n'as vu que la personne prise entre deux feux, et non Qian Feng, qui était ma véritable épreuve... »
+« Maîtresse, tu as prédit l'épreuve de Papillon Rouge, mais malheureusement, tu n'as vu que celui qui mettrait fin à ma vie, et non Qian Feng, qui m'a infligé cette épreuve... »
 
 La hache transperça le corps de Papillon Rouge avant de s'enfoncer dans le sol. Elle creusa un trou profond d'où s'échappait lentement une fumée noire. Des fissures apparurent sur l'armure de Papillon Rouge, se propageant jusqu'à la recouvrir entièrement.
 
@@ -108,7 +108,7 @@ La fille bénie des cieux, Papillon Rouge, était morte...
 
 « Wang Lin... aide-moi... tue Qian Feng... je t'en prie... »
 
-Wang Lin flottait dans les airs, plongé dans une profonde réflexion. Il leva la tête, semblant avoir entendu le dernier message de Papillon Rouge.
+Wang Lin flottait dans les airs, silencieux. Il leva la tête, semblant avoir entendu le dernier message de Papillon Rouge.
 
 Aussi captivante qu'un papillon... bien que brève, la beauté du papillon restait gravée dans le cœur des hommes, rendant son souvenir inoubliable...
 

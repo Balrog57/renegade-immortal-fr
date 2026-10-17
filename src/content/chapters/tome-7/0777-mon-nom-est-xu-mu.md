@@ -12,7 +12,7 @@ Son niveau de culture n'était pas assez élevé pour apporter une aide directe,
 
 Ainsi, il parvint à ouvrir une voie de retraite pour Wang Lin.
 
-Le regard que Wang Lin porta sur l'homme n'était pas celui qu'il avait adressé à Shengong Hu lorsqu'il avait perçu une infime trace du troisième niveau. Cependant, son regard débordait d'une confiance absolue, nourrie par son niveau de culture, le scellement de l'Ancêtre de Sang et l'exécution de deux cultivateurs de l'Yin Illusoire. C'était un regard qui semblait contenir l'univers tout entier.
+Le regard que Wang Lin porta sur l'homme n'était pas celui qu'il avait adressé jadis à Shengong Hu, lorsqu'il avait entrevu pour la première fois le troisième niveau. Mais à présent, son niveau de culture supérieur à celui de l'adversaire, le scellement de l'Ancêtre Sanguin et la mort de deux cultivateurs Yin Illusoire lui donnaient une confiance absolue en sa culture et une claire compréhension de son propre Dao. C'était un regard qui semblait contenir toute chose.
 
 L'homme d'âge moyen ricana. Lorsque Wang Lin tourna les yeux vers lui, ce dernier ne s'arrêta pas; au contraire, il fit un pas de plus. Ce pas franchit une centaine de mètres et il se dirigea droit sur Wang Lin.
 
@@ -46,7 +46,7 @@ L'expression de Wang Lin demeurait sereine. Après son premier pas, il leva le p
 
 Sa retraite échappait presque à son contrôle; il reculait sans cesse, de manière instinctive.
 
-Il sentait même ses battements de cœur devenir plus rapides et plus violents à chaque fois que le pied de Wang Lin touchait le sol. Il avait l'impression que son cœur était déjà parcouru de fissures.
+Il sentait même ses battements de cœur devenir plus rapides et plus violents à chaque fois que le pied de Wang Lin touchait le sol. À la fin, ses battements se fondaient presque en un seul.
 
 Après dix pas, Wang Lin s'interrompit, leva le pied et se stabilisa en fixant froidement l'homme d'âge moyen. Lorsque ce pas final retomba, l'homme cracha une immense quantité de sang et recula avec frénésie, comme s'il avait perdu la raison.
 
@@ -68,7 +68,7 @@ C'était comme si cette zone était un véritable territoire de la mort!
 
 Le regard de Wang Lin se détourna de l'homme mort pour se poser sur le jeune homme qui avait pénétré dans la zone interdite juste après lui.
 
-Le visage du jeune homme devint livide. Il était encore plus faible que l'homme d'âge moyen; il venait à peine d'atteindre le stade de l'Yin Illusoire et sa culture n'était pas encore stabilisée. En croisant le regard de Wang Lin, il recula sans hésiter hors de la zone interdite et s'exclama: « Aîné, je vous en prie, ne me blâmez pas! Ce junior reconnaît ses torts. Désormais, ce junior ne posera même pas un demi-pas dans cette zone. Si je romps ma promesse, punissez-moi comme l'homme précédent! »
+Le visage du jeune homme devint livide. Il était encore plus faible que l'homme d'âge moyen; il venait à peine d'atteindre le stade de l'Yin Illusoire et sa culture n'était pas encore stabilisée. En croisant le regard de Wang Lin, il recula sans hésiter hors de la zone interdite et s'exclama: « Senior, je vous en prie, ne me blâmez pas! Ce junior reconnaît ses torts. Désormais, ce junior ne posera même pas un demi-pas dans cette zone. Si je romps ma promesse, que mon sort soit celui de ce doigt! »
 
 Tout en parlant, il leva la main gauche et activa son énergie originelle. Son petit doigt explosa instantanément en une brume de sang.
 

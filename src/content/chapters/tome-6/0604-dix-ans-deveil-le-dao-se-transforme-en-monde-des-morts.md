@@ -24,9 +24,9 @@ Les généraux démons à ses côtés s'élancèrent tous vers Wang Lin.
 
 Wang Lin remarqua immédiatement plus de dix intentions meurtrières foncer sur lui. Il bougea rapidement et pointa son petit doigt droit vers l'avant.
 
-Doigt du Monde des Morts!
+Doigt des Enfers!
 
-Ce Doigt du Monde des Morts était utilisé avec une culture de niveau Ascendant. Un seul doigt pour invoquer les enfers. Après la fusion de son domaine et de son âme originelle, ce doigt représentait les fluctuations entre la vie et la mort. À l'instant où le doigt apparut, d'innombrables éclairs déchirèrent le ciel et une vaste rivière surgit soudainement dans les airs.
+Ce Doigt des Enfers était utilisé avec une culture de niveau Ascendant. Un seul doigt pour invoquer les enfers. Après la fusion de son domaine et de son âme originelle, ce doigt représentait les fluctuations entre la vie et la mort. À l'instant où le doigt apparut, d'innombrables éclairs déchirèrent le ciel et une vaste rivière surgit soudainement dans les airs.
 
 Cette rivière était trouble, parcourue par d'innombrables restes et membres qui y dérivaient. Des fantômes s'y débattaient sans fin, et l'on pouvait distinguer de multiples visages humains dans l'eau!
 
@@ -34,7 +34,7 @@ D'un mouvement du petit doigt de Wang Lin, de grandes vagues furent créées au 
 
 Alors que les eaux du monde des morts tombaient du ciel, l'azur devint nuageux et le domaine de la vie et de la mort fut activé!
 
-Cette rivière des enfers était une entité qu'il avait comprise durant les dix années nécessaires à la fusion de son âme originelle et de son domaine. Cette rivière n'appartenait pas aux cieux; elle avait été formée par Wang Lin, et lui seul en avait le contrôle. Il avait saisi le cycle de la réincarnation céleste et, au cours de ces dix années d'éveil, il avait utilisé le Doigt du Monde des Morts pour créer cette rivière éternelle!
+Cette rivière des enfers était une entité qu'il avait comprise durant les dix années nécessaires à la fusion de son âme originelle et de son domaine. Cette rivière n'appartenait pas aux cieux; elle avait été formée par Wang Lin, et lui seul en avait le contrôle. Il avait saisi le cycle de la réincarnation céleste et, au cours de ces dix années d'éveil, il avait utilisé le Doigt des Enfers pour créer cette rivière éternelle!
 
 Dès que les généraux démons s'élancèrent, ils furent balayés par la rivière des enfers qui descendait du ciel et se retrouvèrent prisonniers.
 
@@ -52,9 +52,9 @@ Créer son propre cycle de réincarnation grâce à une rivière des enfers form
 
 Pourtant, stimulé par le Fruit de l'Ascension Céleste, son esprit atteignait un nouveau sommet. Conjugués à l'énergie spirituelle céleste qui bouillonnait en lui, ces deux facteurs allaient permettre de parfaire ce concept vague et de le transformer en réalité!
 
-C'était l'étape la plus cruciale de sa vie de cultivateur jusqu'à présent! Une fois ce pas franchi, il posséderait véritablement son propre Dao! À partir de cet instant, il ne cultiverait plus les cieux, la terre, les immortels ou les dieux. Il deviendrait un taoïste! Un être qui cultive le Dao lui-même!
+C'était l'étape la plus cruciale de sa vie de cultivateur jusqu'à présent! Une fois ce pas franchi, il posséderait véritablement son propre Dao! À partir de cet instant, il ne cultiverait plus les cieux, la terre, les immortels ou les dieux. Il deviendrait un Daoïste! Un être qui cultive le Dao lui-même!
 
-La rivière des enfers balaya le groupe et emporta avec elle plus de dix soldats démons! Les généraux démons piégés au sein du courant se débattirent avec acharnement. Leur lutte combinée fut si puissante qu'elle fit vaciller la structure même de la nouvelle rivière!
+La rivière des enfers balaya le groupe et emporta avec elle plus de dix généraux démons! Les généraux démons piégés au sein du courant se débattirent avec acharnement. Leur lutte combinée fut si puissante qu'elle fit vaciller la structure même de la nouvelle rivière!
 
 Les yeux de Wang Lin devinrent rouges alors qu'il se changea en ombre pour pénétrer dans la rivière des enfers. Une fois à l'intérieur, celle-ci devint aussi stable que le Mont Tai!
 
@@ -102,7 +102,7 @@ Dans la tour noire du champ de bataille antique, une lueur fantomatique scintill
 
 Cet homme était vêtu de noir; c'était celui qui avait sauvé Hu Pao!
 
-« Je te donnerai trois pièces de l'armure démoniaque. Arrête-le; il ne doit pas poser le pied sur ce champ de bataille antique! » Tandis que le message par Sens Divin résonnait dans la tour, un protège-poignet, une plastron et une épaulière s'échappèrent de l'armure!
+« Je te donnerai trois pièces de l'armure démoniaque. Arrête-le; il ne doit pas poser le pied sur ce champ de bataille antique! » Tandis que le message par Sens Divin résonnait dans la tour, un protège-poignet, un plastron et une épaulière s'échappèrent de l'armure!
 
 Dès qu'ils furent libérés, les trois pièces se transformèrent en fils noirs qui s'infiltrèrent dans les vêtements du vieil homme. Ces fils traversèrent sa peau pour recouvrir rapidement tout son corps. Ils bougèrent sans cesse et, lorsqu'ils finirent par se stabiliser, une armure noire apparut sur lui!
 

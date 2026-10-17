@@ -54,7 +54,7 @@ C'était un jeton de cristal de la taille d'un doigt, qui flottait dans les airs
 
 Wang Lin prit une profonde inspiration, saisit le petit jeton et observa le pavillon. Chaque table et chaque chaise étaient protégées par des restrictions et ne pouvaient être touchées sans précaution.
 
-Cependant, comparées à la restriction couvrant les 30 mètres entourant le pavillon, celles-ci étaient bien plus faibles.
+Cependant, comparées à la restriction couvrant les 33 mètres entourant le pavillon, celles-ci étaient bien plus faibles.
 
 Wang Lin ne prêta aucune attention aux meubles; ses yeux se fixèrent sur la cruche de vin posée sur la table ronde.
 
@@ -120,6 +120,6 @@ Après l'excitation vint une pointe d'appréhension.
 
 Un pan de clôture était visible à l'intérieur du bosquet. Bien que la majeure partie fût dissimulée par les bambous, Wang Lin parvint à en déceler des indices après un examen attentif.
 
-« Je ne l'avais pas remarqué plus tôt, mais il y a une autre structure ici. Cela ressemble au pavillon d'un temple mortel! »
+« Je ne l'avais pas remarqué plus tôt, mais il y a une autre structure ici. Cela ressemble à un temple ancestral dans la cour d'un mortel! »
 
 Après réflexion, Wang Lin ne se rendit pas au temple. Il sortit le jeton de cristal et y projeta son Sens Divin. Des ondes de lumière s'élancèrent et sa silhouette disparut de la grotte.

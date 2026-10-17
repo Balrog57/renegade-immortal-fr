@@ -70,7 +70,7 @@ En s'échappant, l'homme en robe noire fronça durement les sourcils. Son corps 
 
 L'homme laissa échapper un reniflement glacial alors que son corps reprenait sa forme normale. Il déploya son Sens Divin et constata que Wang Lin le talonnait toujours.
 
-« Sale bâtard ingrat! Ce Wang Lin me colle à la peau comme la moelle à l'os. C'est une véritable nuisance, surtout cette lame en demi-lune; elle est d'une rapidité inouïe. Si je n'étais pas venu préparé, je subirois sans aucun doute les conséquences! S'il n'avait pas ce trésor pour le protéger, je l'aurais tué, peu importe sa secte, pour absorber son cristal d'esprit démoniaque! » L'expression de l'homme était sombre. Ses mains commencèrent à former des sceaux et la vague d'énergie spirituelle démoniaque commença à s'écarter, comme si elle n'osait s'approcher de lui.
+« Sale bâtard ingrat! Ce Wang Lin me colle à la peau comme la moelle à l'os. C'est une véritable nuisance, surtout cette lame en demi-lune; elle est d'une rapidité inouïe. Si je n'étais pas venu préparé, je subirais sans aucun doute les conséquences! S'il n'avait pas ce trésor pour le protéger, je l'aurais tué, peu importe sa secte, pour absorber son cristal d'esprit démoniaque! » L'expression de l'homme était sombre. Ses mains commencèrent à former des sceaux et la vague d'énergie spirituelle démoniaque commença à s'écarter, comme si elle n'osait s'approcher de lui.
 
 Des volutes de fumée noire s'échappèrent de ses mains pour s'enrouler autour de ses poignets. Il prit une profonde inspiration et pressa soudainement ses mains contre sa poitrine. Dès le contact établi, les filaments de fumée noire pénétrèrent rapidement dans son corps.
 

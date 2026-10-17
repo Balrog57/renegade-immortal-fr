@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 790 - Fire, Blaze, Flame
 slug: feu-brasier-flamme
 ---
-Les sphères de lumière et l'arc entrèrent en collision. Ils se dissipèrent instantanément sans faire le moindre bruit, mais d'innombrables fissures commencèrent à se propager depuis le centre de l'impact. La fracture se propagea avec une rapidité telle qu'elle affecta même quelques cultivateurs qui ne purent esquiver assez vite. Dès que les fissures touchèrent leurs corps, ces derniers furent parcourus de tremblements avant de disparaître sans laisser de trace.
+La sphère de lumière et l'arc entrèrent en collision. Ils se dissipèrent instantanément sans faire le moindre bruit, mais d'innombrables fissures commencèrent à se propager depuis le centre de l'impact. La fracture se propagea avec une rapidité telle qu'elle affecta même quelques cultivateurs qui ne purent esquiver assez vite. Dès que les fissures touchèrent leurs corps, ces derniers furent parcourus de tremblements avant de disparaître sans laisser de trace.
 
 Les pupilles de Wang Lin se rétractèrent imperceptiblement alors qu'il avançait, fusionnant directement avec le monde sans la moindre résistance. Cependant, il ne disparut pas; au contraire, il pointa le ciel d'un sceau formé de sa main droite et hurla: « Flamme Céleste Brûlante! »
 
@@ -50,7 +50,7 @@ Heureusement, grâce à l'aide de Wang Lin, l'âme originelle du vieil homme eut
 
 Tout cela parut extrêmement lent à Wang Lin, mais en réalité, la scène s'était déroulée en un éclair. Aucun des cultivateurs environnants n'en avait perçu les détails.
 
-« Dangereux! Cela est bien digne du Seigneur Céleste Qing Shui. Le Royaume Ji est effectivement époustouflant, et ce vieil homme n'a pas tout planifié pour rien. Hélas, je n'ai pu intervenir dans mon propre corps et j'ai failli voir mes plans échouer. Je ne pensais pas que le Seigneur Céleste Qing Shui posséderait encore une telle force après avoir été scellé durant tant d'années! » La voix fatiguée du vieil homme résonna dans l'esprit de Wang Lin.
+« Dangereux! Cela est bien digne du Seigneur Céleste Qing Shui. Le Royaume Ji est effectivement époustouflant, et ce vieil homme n'a pas tout planifié pour rien. Hélas, mon corps véritable ne peut venir en ce moment et j'ai failli voir mes plans échouer. Je ne pensais pas que le Seigneur Céleste Qing Shui posséderait encore une telle force après avoir été scellé durant tant d'années! » La voix fatiguée du vieil homme résonna dans l'esprit de Wang Lin.
 
 À cet instant, la boule de feu se contracta rapidement jusqu'à n'atteindre plus que 3,3 mètres de large avant de s'effondrer. Cela provoqua une explosion de toute la puissance condensée, décuplant sa force.
 
@@ -62,7 +62,7 @@ L'excitation dans les yeux de Shengong Hu atteignit son paroxysme. Il regarda la
 
 Zhan Konglie se tenait dans le vide. Bien que les flammes fussent loin, il pouvait encore en ressentir la chaleur. Il était tout aussi exalté en contemplant le brasier. La même pensée que celle de Shengong Hu lui revint à l'esprit.
 
-« La culture de mon Aîné est insondable. Il est évident qu'il réprimait sa culture au stade Corporel Yang auparavant, et qu'elle a maintenant augmenté de façon incalculable. De plus, sa force actuelle ne doit pas être sa limite! »
+« La culture de Senior est insondable. Il est évident qu'il réprimait sa culture au stade Corporel Yang auparavant, et qu'elle a maintenant augmenté de façon incalculable. De plus, sa force actuelle ne doit pas être sa limite! »
 
 Quant à Tang Yanfeng, son expression n'était plus sombre, mais d'une pâleur mortelle. En voyant la bataille entre Wang Lin et l'homme aux cheveux blancs, il avait été extrêmement choqué. Il ne s'attendait pas à ce que Wang Lin puisse maîtriser autant de sorts, mais malgré son choc, il parvint tant bien que mal à accepter cette réalité.
 

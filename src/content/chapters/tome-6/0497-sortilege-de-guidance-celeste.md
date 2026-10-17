@@ -8,7 +8,7 @@ slug: sortilege-de-guidance-celeste
 ---
 Le rugissement perça à travers le drapeau et résonna dans l'âme originelle de Wang Lin. Bien que le son ne fût pas émis par son propre corps, le Qilin qui bondissait devant l'Omniscient trembla soudainement et s'immobilisa. Sa large tête tourna brusquement, ses yeux devinrent d'une brillance inimaginable et il commença à scanner la foule.
 
-Cependant, au moment où le Qilin à l'intérieur du drapeau spirituel avait poussé ce rugissement, Wang Lin avait déjà activé le drapeau pour masquer toute trace de la créature; le Qilin de Ling Tianhou ne put donc rien déceler.
+Cependant, au moment où l'âme résiduelle du Qilin à l'intérieur du drapeau des âmes avait poussé ce rugissement, Wang Lin avait déjà activé le drapeau pour masquer toute trace de la créature; le Qilin de Ling Tianhou ne put donc rien déceler.
 
 Le Saint de l'Épée, Ling Tianhou, fronça les sourcils.
 
@@ -24,7 +24,7 @@ Flottant dans les airs, elle regarda vers le bas, et son regard se posa sur les 
 
 Cette scène provoqua la stupeur de tous les cultivateurs environnants venus pour la célébration. Les plus puissants d'entre eux affichèrent des expressions de choc.
 
-« Le Royaume Céleste est déjà détruit, alors pourquoi le Sortilège de Guidance Céleste invoque-t-il encore un général céleste comme guide? Si ces gens sont réellement emmenés, où iront-ils? Seront-ils transportés vers le Royaume Céleste en ruines? Ou vers un lieu où aucun cultivateur n'est jamais allé auparavant? »
+« Le Royaume Céleste est déjà détruit, alors pourquoi le Sortilège de Guidance Céleste invoque-t-il encore un seigneur céleste de guidage? Si ces gens sont réellement emmenés, où iront-ils? Seront-ils transportés vers le Royaume Céleste en ruines? Ou vers un lieu où aucun cultivateur n'est jamais allé auparavant? »
 
 D'innombrables questions surgirent dans l'esprit des cultivateurs alentour.
 

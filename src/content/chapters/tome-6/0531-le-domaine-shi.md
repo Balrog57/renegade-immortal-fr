@@ -22,7 +22,7 @@ Chaque pays ne possède qu'un seul ancien esprit démoniaque. Ces esprits ne son
 
 Le rang de l'ancien esprit démoniaque de chaque pays diffère également. Par exemple, l'ancien démon du Pays du Démon Céleste est né il y a un million d'années et possède le rang le plus bas.
 
-L'ancien démon du Pays de la Destruction Nulle n'a jamais été fusionné depuis sa naissance, sa force a donc atteint un degré inimaginable.
+L'ancien démon du Pays des Neuf Extinctions n'a jamais été fusionné depuis sa naissance, sa force a donc atteint un degré inimaginable.
 
 Seuls ceux qui possèdent de grands accomplissements ont la chance de prier devant un ancien esprit démoniaque. Seuls ceux qui ont tué d'innombrables personnes ont la possibilité d'en devenir le maître.
 
@@ -46,7 +46,7 @@ Lou Yun avait appris de son ancêtre que pour trouver rapidement ses racines ici
 
 C'est le seul moyen d'obtenir des exploits militaires, mais plus important encore, une fois ces exploits acquis, on n'est plus seul. On aura des soldats et des commandants démoniaques à son commandement. C'est la meilleure façon de prendre l'avantage dès le départ!
 
-Le pays le plus proche est le Pays du Démon Céleste. Lou Yun s'était rendu plus tôt dans la cité de l'ancien démon et avait obtenu un jeton d'entrée du général démoniaque de l'aile gauche, mais il devait acquérir trois rangs d'énergie spirituelle démoniaque pour y pénétrer!
+Le pays le plus proche est le Pays du Démon Céleste. Lou Yun s'était rendu plus tôt à la Grande Muraille Antique et avait obtenu un jeton d'entrée du général démoniaque de l'aile gauche, mais il devait acquérir trois rangs d'énergie spirituelle démoniaque pour y pénétrer!
 
 Cet endroit utilise des rangs pour mesurer l'énergie spirituelle démoniaque. Trois rangs d'énergie spirituelle démoniaque équivalent à la quantité dont un cultivateur de l'Établissement des Fondations a besoin! »
 
@@ -96,11 +96,11 @@ Cette faille mesurait environ 330 mètres de long. Elle semblait avoir été cr�
 
 L'herbe sauvage recouvrait toute la zone; à moins de regarder très attentivement, il était difficile de distinguer cette fissure dans le sol.
 
-Wang Lin ouvrit la bouche et aspira. Les âmes primaires autour de lui se transformèrent en fumée noire et furent aspirées dans son corps, pour ensuite pénétrer dans l'étendard d'un milliard d'âmes situé à l'intérieur de son âme d'origine.
+Wang Lin ouvrit la bouche et aspira. Les âmes primaires autour de lui se transformèrent en fumée noire et furent aspirées dans son corps, pour ensuite pénétrer dans l'étendard d'un milliard d'âmes situé à l'intérieur de son âme originelle.
 
 Après avoir rangé les âmes primaires, Wang Lin atterrit près de la fissure et la dévisagea froidement.
 
-« Selon les souvenirs de Lou Yun, le fantôme céleste est un avatar unique que seule la Secte du Fantôme Céleste possède. Ces êtres naissent du vide et n'ont normalement pas de forme, mais les membres de la Secte du Fantôme Céleste utilisent le sang de femmes enceintes mortelles comme appât, le sang d'hommes puissants comme guide, et ajoutent l'âme originelle d'un cultivateur comme médium. Il faut 49 ans pour invoquer un fantôme céleste, puis ils utilisent un sort secret pour en faire leur fantôme céleste lié à la vie.
+« Selon les souvenirs de Lou Yun, le fantôme céleste est une entité surnaturelle unique que seule la Secte du Fantôme Céleste possède. Ces êtres naissent du vide et n'ont normalement pas de forme, mais les membres de la Secte du Fantôme Céleste utilisent le sang de femmes enceintes mortelles comme appât, le sang chaud d'hommes vigoureux comme guide, et ajoutent l'âme originelle d'un cultivateur comme médium. Il faut 49 ans pour invoquer un fantôme céleste, puis ils utilisent un sort secret pour en faire leur fantôme céleste lié à la vie.
 
 Lou Yun occupait un rang très élevé au sein de la Secte du Fantôme Céleste. Avant de venir ici, son maître lui avait donné le plus faible de ses neuf fantômes célestes liés à la vie pour le protéger. Lou Yun n'avait pas eu beaucoup de temps pour l'affiner, et c'est pourquoi le fantôme céleste l'a trahi. »
 

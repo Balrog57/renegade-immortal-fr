@@ -12,7 +12,7 @@ Il y avait un homme au sein de la Secte Heng Yue nommé Huang Long, et il était
 
 « Cependant, avoir le même nom et le même visage est bien trop étrange, bien trop démoniaque. Pas étonnant que cet endroit s'appelle la Mer des Esprits Démoniaques de l'Est; le mot "démon" convient parfaitement à ces lieux. » Le regard de Wang Lin se posa sur le nuage noir au coin de la peinture.
 
-Ouyang Hua, debout sur le côté, dit respectueusement: « Le nuage noir dans la peinture représente la nuit des esprits démoniaques. Ce n'est qu'en restant à l'intérieur de la formation que vous pourrez être en sécurité. »
+Ouyang Hua, debout sur le côté, dit respectueusement: « Le nuage noir dans la peinture représente la nuit des esprits démoniaques. À chaque nuit de pleine lune, ce n'est qu'en restant à l'intérieur de la formation que vous pourrez être en sécurité. »
 
 « Quel est le rapport entre la pleine lune et les esprits démoniaques? » Les yeux de Wang Lin se plissèrent.
 
@@ -22,11 +22,11 @@ Ouyang Hua, debout sur le côté, dit respectueusement: « Le nuage noir dans la
 
 L'expression de Wang Lin resta imperturbable. Après avoir médité un instant, il demanda lentement: « De quoi parliez-vous? Cette chose dont j'ai besoin et que je devrais trouver dans la Grande Muraille Antique? »
 
-À ces mots, Ouyang Hua hésita, mais il serra immédiatement les dents et déclara: « Puisque le Céleste Suprême le demande, je ne perdrai pas de temps. La terre des esprits démoniaques est bien trop vaste, et la rumeur veut qu'elle soit composée de neuf pays au total. Le pays où nous nous trouvons est le Pays des Démons Célestes. »
+À ces mots, Ouyang Hua hésita, mais il serra immédiatement les dents et déclara: « Puisque le Céleste Suprême le demande, je ne perdrai pas de temps. La terre des esprits démoniaques est bien trop vaste, et la rumeur veut qu'elle soit composée de neuf pays au total. Le pays où nous nous trouvons est le Pays des Démons Célestes. Le lieu le plus lointain où ce vieil homme soit allé de sa vie est la Grande Muraille Antique, qui est l'une des cités de notre Pays des Démons Célestes! »
 
 « Pour être plus précis, cet endroit fait partie du Pays des Démons Célestes, mais c'est une terre désolée. Après que ce vieil homme eut réveillé son pouvoir dans la Grande Muraille Antique, je n'ai pu atteindre qu'une seule étoile. Je n'étais pas qualifié pour y rester, alors je suis retourné auprès de ma tribu en tant qu'Ancien pour éduquer mes semblables. »
 
-« Dans le Pays des Démons Célestes règne le Roi Démon Kun Xu. Sous lui se trouvent les huit grands Généraux Démons, dix millions de soldats démons et plus de cent cités. Voilà la puissance d'un seul pays! »
+« Dans le Pays des Démons Célestes règne l'Empereur Démon Kun Xu. Sous lui se trouvent les huit grands Généraux Démons, dix millions de soldats démons et plus de cent cités. Voilà la puissance d'un seul pays! »
 
 Ouyang Hua reprit respectueusement: « Quant à la chose dont ce vieil homme a parlé, ô Céleste Suprême, c'est une longue histoire. Presque tout le monde ici sait que des étrangers apparaissent tous les cinq mille ans. »
 
@@ -76,13 +76,13 @@ Ouyang Hua guida rapidement Wang Lin vers les profondeurs de la vallée, une zon
 
 Ouyang Hua s'arrêta au pied de cette formation naturelle. Les arbres se faisaient rares et de nombreuses plantes étranges poussaient sur le sol, lequel produisait un bruissement léger et une sensation très souple sous les pas.
 
-« Céleste Suprême, regardez! » Ouyang Hua s'arrêta et pointa l'horizon.
+« Céleste Suprême, regardez! » Ouyang Hua s'arrêta et pointa devant lui.
 
 Le Sens Divin de Wang Lin se déploya, et il afficha aussitôt un air de compréhension. Son regard se porta sur une falaise nichée au creux de la vallée.
 
 Cette paroi était entièrement cyan, ce qui la distinguait nettement des autres falaises environnantes. Pourtant, ce n'était pas cela qui captivait Wang Lin; c'était l'objet blanc, semblable à du cristal, situé au centre de la paroi. Ce cristal, de forme diamantaire, semblait suspendu à la falaise.
 
-Une lueur de réflexion brilla dans les yeux de Wang Lin. Plus tôt, lorsqu'il avait balayé la zone avec son Sens Divin, il n'avait rien détecté. Mais de près, il pouvait enfin percevoir sa nature. Des fluctuations d'énergie spirituelle céleste émanaient du cristal blanc, mais après un examen plus attentif, une autre idée étrange lui vint à l'esprit.
+Une lueur de réflexion brilla dans les yeux de Wang Lin. Plus tôt, lorsqu'il avait balayé la zone avec son Sens Divin, il n'y avait pas prêté grande attention. Mais de près, à l'œil nu, il put enfin en percevoir la nature. Des fluctuations d'énergie spirituelle céleste émanaient du cristal blanc, mais après un examen plus attentif, une autre idée étrange lui vint à l'esprit.
 
 « Ceci... ceci n'est pas de l'énergie spirituelle céleste! » Les yeux de Wang Lin brillèrent d'une lueur mystérieuse alors qu'il s'avançait pour tenter de ressentir le cristal à distance.
 

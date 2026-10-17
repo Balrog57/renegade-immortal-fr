@@ -10,7 +10,7 @@ La famille Sun avait des racines très profondes dans la ville des Vastes Eaux e
 
 À cet instant, un guide conduisit rapidement Sun Qiming sur les lieux.
 
-« Chef de famille, cet homme est bien trop arrogant, osant dire une chose pareille comme "juste pour cette fois". Penser que quelqu'un oserait s'adresser ainsi à la famille Sun... » L'Ancien en robe verte commença à parler, mais Sun Qiming fronça les sourcils et tonna: « Silence! »
+« Chef de famille, cet homme est bien trop arrogant, osant dire une chose pareille comme "juste une fois, et pas de prochaine fois". Penser que quelqu'un oserait s'adresser ainsi à la famille Sun... » L'Ancien en robe verte commença à parler, mais Sun Qiming fronça les sourcils et tonna: « Silence! »
 
 L'Ancien en vert trembla et se tut immédiatement.
 
@@ -22,7 +22,7 @@ Sun Qiming reprit d'un ton solennel: « La famille Sun est puissante et occupe l
 
 Les yeux de Sun Qiming se posèrent sur le jeune homme et il dit calmement: « Jeune homme de la famille Yun, cette affaire a commencé à cause de vous. Préparez-vous, car elle pourrait ne pas être aussi facile à régler! »
 
-Ce jeune homme en robe violette s'appelait Yun Wufeng. Il était un membre de la famille Yun de la planète Mer des Nuages. La planète Mer des Nuages était l'une des planètes principales de la partie nord du système stellaire Luotian. Son talent était trop médiocre pour cultiver, il était donc considéré comme un membre externe de la famille. Il était venu ici avec la caravane de la famille Yun, mais à cause de Qing Yi, il n'était pas reparti avec elle et était resté sur place. Pour les familles de culture ordinaires, avant que le niveau d'un individu n'atteigne le stade de la Transformation de l'Âme, il est impossible de quitter sa planète. Cependant, pour une grande lignée comme la famille Yun, il existait des moyens d'extraire les membres dont la culture était inférieure au stade de la Transformation de l'Âme.
+Ce jeune homme en robe violette s'appelait Yun Wufeng. Il était un membre de la famille Yun de la planète Mer des Nuages. La planète Mer des Nuages était l'une des cinq planètes principales de la partie nord du système stellaire Luotian. Son talent était trop médiocre pour cultiver, il était donc considéré comme un membre externe de la famille. Il était venu ici avec la caravane de la famille Yun, mais à cause de Qing Yi, il n'était pas reparti avec elle et était resté sur place. Pour les familles de culture ordinaires, avant que le niveau d'un individu n'atteigne le stade de la Transformation de l'Âme, il est impossible de quitter sa planète. Cependant, pour une grande lignée comme la famille Yun, il existait des moyens d'extraire les membres dont la culture était inférieure au stade de la Transformation de l'Âme.
 
 En raison de son talent défaillant, il n'était pas choyé par la famille Yun. Pourtant, ici sur la planète Ran Yun, sa simple identité suffisait à ce que toutes les familles de culture lui témoignent un respect extrême.
 
@@ -66,11 +66,11 @@ Sun Qiming fixa le vieillard et hocha la tête.
 
 À cet instant, tous les membres de la famille Sun devinrent mortellement pâles.
 
-« Juste pour cette fois! » Cette phrase résonna dans leurs esprits.
+« Juste une fois, et pas de prochaine fois! » Cette phrase résonna dans leurs esprits.
 
 Même le jeune homme en robe violette sembla comprendre quelque chose. Il réfléchit un instant, puis son expression devint extrêmement laide. Il se souvenait clairement que lorsqu'il avait informé l'Ancien responsable de la caravane de son intention de rester, celui-ci l'avait prévenu qu'il ne devait jamais provoquer une seule personne sur la planète Ran Yun. Cette personne était Xu Mu, celui qui avait balayé la famille Huan et fait en sorte que les familles Qian et Xu n'osent plus intervenir!
 
-Le nom de « Xu Mu » s'était propagé dans toute la région nord du système stellaire Luotian au cours des trente dernières années. Après tout, la bataille contre la famille Huan avait été si terrifiante que d'innombrables cultivateurs en avaient encore le vertige.
+Le nom de « Xu Mu » s'était propagé dans toute la région nord du système stellaire Luotian au cours de ces presque trente dernières années. Après tout, la bataille contre la famille Huan avait été si terrifiante que d'innombrables cultivateurs en avaient encore le vertige.
 
 Accablé par un sentiment de malaise, Yun Wufeng retourna dans sa chambre à la demeure de la famille Sun. Qing Yi était assise là, le visage pâle. Sa culture étant scellée, elle n'était plus qu'une mortelle. Après avoir été chassée de la famille Sun, elle avait été capturée et emmenée ici.
 
@@ -88,7 +88,7 @@ Yun Wufeng sursauta. Au moment où il tentait de se retourner, sa vision s'obscu
 
 Qing Yi se redressa précipitamment et dit respectueusement: « Senior... »
 
-Wang Lin sortit de l'ombre et s'assit. Il tenait une cruche de vin, en prit une gorgée, puis dit lentement: « Ton talent est plutôt bon. Passe une vie entière aux côtés de Wang Ping, et je t'offrirai une culture au stade de l'Âme Naissante. »
+Wang Lin sortit de l'ombre et s'assit. Il tenait une cruche de vin, en prit une gorgée, puis dit lentement: « Ton talent est plutôt bon. Accompagne mon fils pendant soixante ans, et je t'offrirai une culture au stade de l'Âme Naissante. »
 
 Qing Yi trembla à la pensée de Wang Ping. Son visage s'empourpra et elle hocha légèrement la tête.
 
@@ -126,7 +126,7 @@ Le serveur de l'auberge s'était depuis longtemps habitué à ce vieil homme. Ap
 
 « Mon voisin, Zhang Er, en est membre. Ils distribuent même des grains chaque mois. »
 
-« Les trois grands empires sont Da Qin, Di Shan et Chen Yun. On dit que dans l'empire du Nord, Di Shen, presque tous les citoyens ont adopté les enseignements de l'École du Ciel. »
+« Les trois grands empires sont Da Qin, Di Shan et Chen Yun. On dit que dans l'empire du Nord, Di Shan, presque tous les citoyens ont adopté les enseignements de l'École du Ciel. »
 
 « Vu la vitesse à laquelle l'École du Ciel se développe, il ne faudra pas longtemps avant que les trois grands empires n'agissent pour la détruire. »
 

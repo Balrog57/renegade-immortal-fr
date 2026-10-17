@@ -50,11 +50,11 @@ Xu Mu!
 
 Parmi les dizaines de familles de survivants, il y avait des clans de toutes tailles. Cependant, une fois unis, ils formèrent une force qu'on ne pouvait sous-estimer.
 
-Grâce à cette puissance, le Temple Céleste du Tonnerre n'osa plus évoquer l'incident du réseau de transfert; c'était comme si cela n'avait jamais existé. En réalité, ces dizaines de familles avaient largement médiatisé l'événement pour faire de Xu Mu un héros!
+Grâce à cette puissance, le Temple Céleste du Tonnerre ne mentionna, fait rare, absolument rien de l'incident du réseau de transfert; c'était comme si cela n'avait jamais existé. En réalité, ces dizaines de familles avaient largement médiatisé l'événement pour faire de Xu Mu un héros!
 
 Après tout, certains membres de ces familles avaient pénétré dans la zone interdite du Temple Céleste du Tonnerre, ce qui aurait pu causer le désastre de tout leur clan. Cela ne pouvait être passé sous silence et le Temple devait déjà être au courant.
 
-Plutôt que d'attendre que le Temple Céleste du Tonnerre ne vienne les exterminer, ils décidèrent de s'unir pour négocier avec raison! De cette façon, une chance de survie subsistait. Autrement, ils auraient été livrés sur un plateau aux autorités.
+Plutôt que d'attendre que le Temple Céleste du Tonnerre ne vienne les exterminer, ils décidèrent de s'unir pour négocier avec raison! De cette façon, une chance de survie subsistait. Autrement, ils n'auraient eu d'autre choix que de mettre eux-mêmes fin à la vie des leurs qui s'étaient échappés du Royaume Céleste du Tonnerre.
 
 Pourtant, les personnes capables d'entrer dans le Royaume Céleste du Tonnerre étaient des descendants directs, les futurs piliers de leurs lignées; comment pouvait-on les laisser mourir?!
 
@@ -70,11 +70,11 @@ Le nom de « Xu Mu » devint une tempête dans le Système Stellaire de Luotian.
 
 Système Stellaire de Luotian, domaine occidental.
 
-C'était un vaste domaine dominé par une immense nébuleuse émettant des lueurs éblouissantes. La formation des étoiles y était étrange et souvent hypnotique.
+C'était une vaste étendue d'espace stellaire où d'immenses nébuleuses émettaient des lueurs éblouissantes et prenaient toutes sortes de formes étranges, au point d'hypnotiser souvent ceux qui les contemplaient.
 
 Parmi les quatre domaines, le domaine occidental abritait les bêtes les plus féroces. Comparé aux trois autres, il comptait moins de cultivateurs.
 
-On pourrait même dire que près de 70 % du domaine occidental consistait en des zones interdites aux cultivateurs. C'était parce que l'espace y était extrêmement dangereux et regorgeait de bêtes féroces dont les cultivateurs ignoraient jusqu'à l'existence.
+On pourrait même dire que près de 70 % du domaine occidental consistait en des zones interdites aux cultivateurs. C'était parce que l'espace y était extrêmement dangereux et regorgeait de bêtes féroces dépassant de loin la compréhension des cultivateurs.
 
 Cet endroit portait le nom de Domaine Étrange.
 
@@ -120,7 +120,7 @@ Après un moment de silence, le regard de Wang Lin devint glacial et il retrouva
 
 Wang Lin garda les yeux sereins tout en tentant de fusionner avec le monde. Il fit un second pas, et cette fois, davantage d'ondulations apparurent sous ses pieds. Il parvint alors à ressentir la sensation de fusion avec l'univers.
 
-Ce fut sans doute la fusion la plus rapide qu'il ait accomplie jusqu'à présent. Tout cela était grâce au Maître Étincelle. L'âme originelle et le corps de Wang Lin étaient devenus bien plus en harmonie avec le monde après sa dernière expérience.
+Ce fut sans doute la fusion la plus rapide qu'il ait accomplie jusqu'à présent. Tout cela était grâce au Maître Yan Leizi. L'âme originelle et le corps de Wang Lin étaient devenus bien plus en harmonie avec le monde après sa dernière expérience.
 
 Lors du troisième pas, quand son pied toucha le sol, il disparut soudainement, ne laissant derrière lui qu'une ondulation. Un instant plus tard, le brouillard environnant engloutit aussitôt la zone, ne laissant aucune lumière.
 
@@ -152,6 +152,6 @@ Au moment où il émergea, un cri parvint à ses oreilles. Les yeux de Wang Lin 
 
 Cet endroit n'était pas sombre; des étoiles étaient parsemées dans le ciel, illuminant les lieux. Devant lui flottait un continent. Ce dernier était immense, sans fin apparente.
 
-Au loin, un homme vêtu de haillons se tenait là. Son apparence était très ordinaire, mais son visage était marqué de tatouages qui serpentaient comme des lianes. Il tenait un étrange instrument à la main; cela ressemblait à l'ouverture d'une bouilloire, mais en bien plus grand, atteignant presque la taille d'un demi-homme.
+Au loin, un homme vêtu de haillons se tenait là. Son apparence était très ordinaire, mais son visage était marqué de runes qui se tordaient comme des branches. Il tenait un étrange artefact à la main; cela ressemblait à une bouilloire à long bec, mais en bien plus grand, atteignant plus de la moitié de la taille d'un homme.
 
 C'était cet homme qui avait poussé ce cri. Il regarda Wang Lin avec terreur et recula précipitamment, comme si le cultivateur n'était à ses yeux qu'une bête féroce.

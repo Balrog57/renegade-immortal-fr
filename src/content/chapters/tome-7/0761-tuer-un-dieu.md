@@ -20,7 +20,7 @@ Du sang coula davantage du coin de la bouche de Wang Lin; de nombreux os de son 
 
 Ce sourire était d'une noirceur extrême.
 
-« Je pensais que l'Ancêtre Sanguin allait vraiment laisser ce doigt frapper, sans se soucier de la mort de Yao Xixue, et tout détruire! » Wang Lin n'avait aucune crainte. Bien que l'Ancêtre Sanguin fût puissant, il n'était pas aussi invincible que les Cieux. Wang Lin était un cultivateur défiant les cieux; si lui osait défier le destin, qu'était donc un simple Ancêtre Sanguin?
+« Je pensais que l'Ancêtre Sanguin allait vraiment laisser ce doigt frapper, sans se soucier de la mort de Yao Xixue, et tout détruire! » Wang Lin n'avait aucune crainte. Bien que l'Ancêtre Sanguin fût puissant, il n'était pas aussi invincible que les Cieux. Wang Lin était un cultivateur défiant les cieux; si lui osait se rebeller contre les cieux, qu'était donc un simple Ancêtre Sanguin?
 
 Si le doigt de l'Ancêtre Sanguin avait porté son coup, Wang Lin était certain que la garde céleste mourrait sans aucun doute et que son sens divin à l'intérieur s'effondrerait instantanément.
 
@@ -54,7 +54,7 @@ L'Ancêtre Sanguin observa la matrice de transfert. En y projetant son sens divi
 
 Il fit un pas en avant et se tint devant la matrice. Il tendit la main, et celle-ci s'effondra en d'innombrables éclats de lumière. Ces derniers se condensèrent aussitôt pour reformer un cristal dans sa paume droite.
 
-Soudain, il se retourna et lança un regard sombre à Wang Lin qui s'éloignait rapidement. Il grommela: « Comment pourrais-je te laisser partir après seulement quelques mots, alors que tu as emprisonné ma fille pendant des centaines d'années?! Je ne crois même pas au Dao; comment pourrais-je m'empêcher de te tuer?! » L'intention meurtrière qu'il contenait jusqu'ici explosa. Il fit un bond et se lança à la poursuite de Wang Lin.
+Soudain, il se retourna et lança un regard sombre à Wang Lin qui s'éloignait rapidement. Il grommela: « Comment pourrais-je te laisser partir après seulement quelques mots, alors que tu as emprisonné ma fille pendant des centaines d'années?! Je ne crois même pas au Dao; comment pourrais-je m'empêcher de te tuer?! » L'intention meurtrière qu'il avait accumulée pendant des centaines d'années explosa. Il fit un bond et se lança à la poursuite de Wang Lin.
 
 Alors que Wang Lin s'échappait le long de la chaîne de tonnerre dans le vide, il sentit l'écrasante intention meurtrière qui lui talonnait. Il soupira et son regard se glaça.
 
@@ -74,13 +74,13 @@ Mais ce n'était pas fini. Un rayon de lumière sanguine jaillit et disparut dan
 
 La haine de l'Ancêtre Sanguin avait atteint son paroxysme. Il voulait affiner le clone de Wang Lin ainsi que le sens divin qu'il contenait. Par son sortilège, il pouvait même tenter d'affiner jusqu'à la mort le corps originel caché quelque part.
 
-Le fragment où se tapissait l'âme originelle de Wang Lin fut immédiatement baigné de rouge. Le sol, tel une mer de sang, commença à converger lentement vers lui. La lumière rouge pénétra la terre et se condensa en une aiguille écarlate qui fonça sur Wang Lin.
+Le fragment où se cachait le corps originel de Wang Lin fut immédiatement baigné de rouge. Le sol, tel une mer de sang, se mit à converger vers lui. La lumière rouge pénétra la terre et se condensa en une aiguille écarlate qui fonça sur Wang Lin.
 
 Si cette aiguille l'atteignait, l'âme originelle de Wang Lin s'effondrerait et il mourrait sur le coup.
 
 Caché sous terre, Wang Lin ouvrit soudainement les yeux. Il sortit la sphère de restriction que Li Yuan lui avait donnée et, sans hésiter, utilisa son énergie spirituelle céleste pour provoquer l'effondrement de la moitié des restrictions de l'espace de stockage! Au même instant, il jaillit de sous terre tandis que l'aiguille le poursuivait de près.
 
-« Ancêtre Sanguin, j'ignore si l'âme originelle de votre fille pourra rester en sécurité quand cet espace s'effondrera! » L'âme originelle de Wang Lin laissa échapper un gémissement étouffé, prononçant ces derniers mots avant de se briser.
+« Ancêtre Sanguin, j'ignore si l'âme originelle de votre fille pourra rester en sécurité quand cet espace s'effondrera! » L'âme originelle de Wang Lin, dans la marionnette du garde céleste, laissa échapper un gémissement étouffé, prononçant ces derniers mots avant de se briser.
 
 L'expression de l'Ancêtre Sanguin changea radicalement lorsqu'il ressentit presque aussitôt les fluctuations de l'espace qui s'effondrait provenant du cristal. Il n'eut pas le temps de s'occuper de Wang Lin ou de la marionnette à moitié raffinée. Il lâcha le cristal et posa un sceau pour tenter de le stabiliser.
 
@@ -108,7 +108,7 @@ Il n'eut même pas le temps de lever la restriction qu'il rangea précipitamment
 
 À cet instant, Wang Lin, qui était poursuivi par le sortilège de l'aiguille rouge de l'Ancêtre Sanguin, afficha un visage féroce. Il avait activé toutes les restrictions de l'espace de stockage pour provoquer son effondrement total!
 
-« Tu veux me tuer? Alors je te tuerai ici d'abord! » Les doigts de Wang Lin pointèrent neuf points de son corps tandis qu'il accélérait encore davantage. L'aiguille rouge derrière lui le talonnait de près.
+« Tu veux me tuer? Alors je tuerai un dieu, et c'est toi qui mourras! » Les doigts de Wang Lin pointèrent neuf points de son corps tandis qu'il accélérait encore davantage. L'aiguille rouge derrière lui le talonnait de près.
 
 Tenant la sphère de restriction de Yao Xixue, l'Ancêtre Sanguin se déplaçait comme un possédé. Le calme qui l'habitait avait totalement disparu; il ressemblait désormais à un fou enveloppé d'une lueur rouge. Il chargea frénétiquement vers la matrice de transfert qu'il avait solidifiée par son sens divin.
 

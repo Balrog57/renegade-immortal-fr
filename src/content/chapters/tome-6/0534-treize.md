@@ -6,9 +6,9 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 534 - Thirteen
 slug: treize
 ---
-Wang Lin avait déjà enseigné à Ouyang Hua la méthode de fabrication des drapeaux d'âmes. Cependant, le Territoire des Esprits Démoniaques manquait de matériaux, ce qui rendrait la confection de ces drapeaux difficile.
+Wang Lin avait déjà enseigné à Ouyang Hua la méthode de fabrication des drapeaux d'âmes. Cependant, la Terre des Esprits Démoniaques manquait de matériaux, ce qui rendrait la confection de ces drapeaux difficile.
 
-Lorsqu'il en réalisa l'enjeu, Wang Lin prit le temps de réfléchir soigneusement à une solution. Il parvint à utiliser certains arbres d'acier, des peaux de bêtes et quelques sceaux pour créer un objet capable d'imiter l'effet recherché.
+Lorsqu'il en réalisa l'enjeu, Wang Lin prit le temps de réfléchir soigneusement à une solution. Il parvint à utiliser certains arbres d'acier, des peaux de bêtes, l'énergie démoniaque locale condensée et quelques sceaux de la main pour créer un objet capable d'imiter l'effet recherché.
 
 Ce drapeau substitut ne pouvait retenir les âmes que pendant moins de dix jours; c'était donc un drapeau de dix jours.
 
@@ -26,7 +26,7 @@ Treize se tint rapidement devant Wang Lin. Il ne ressentait que respect et admir
 
 Plus il pratiquait le sort d'affinement des âmes, plus l'émerveillement grandissait en son cœur. Durant les trois mois passés à étudier ce sort, il en était venu à la conclusion que s'il parvenait à le maîtriser pleinement, sa puissance dépasserait l'imagination.
 
-Drapeau de dix jours; drapeau d'âmes à 100 âmes; drapeau d'âmes à 1 000 âmes; drapeau d'âmes à 10 000 âmes...
+Drapeau de dix jours; drapeau d'âmes à 100 âmes; drapeau d'âmes à 1 000 âmes; drapeau d'âmes à 10 000 âmes; drapeau d'âmes à 100 000 âmes...
 
 Treize prit une profonde inspiration, une lueur d'excitation brillant dans ses yeux.
 
@@ -100,7 +100,7 @@ Pourtant, le fragment d'âme du lion ne présenta aucune égratignure.
 
 Des exclamations de surprise jaillirent de la foule, et les regards admiratifs rendirent Treize extrêmement fier.
 
-Il avait accidentellement découvert ce lion volant en entrant dans la forêt cette fois-ci. La bête était mortelle et venait de succomber à ses blessures. Treize avait serré les dents, risquant d'utiliser le sort d'affinement des âmes. Après de multiples tentatives, il avait réussi à raffiner l'âme et à la sceller dans le drapeau.
+Il avait accidentellement découvert ce lion volant en entrant dans la forêt cette fois-ci. La bête, grièvement blessée, venait de rendre son dernier souffle. Treize avait serré les dents, risquant d'utiliser le sort d'affinement des âmes. Après de multiples tentatives, il avait réussi à raffiner l'âme et à la sceller dans le drapeau.
 
 Treize prit une profonde inspiration, agita la main et ordonna: « Retour! »
 

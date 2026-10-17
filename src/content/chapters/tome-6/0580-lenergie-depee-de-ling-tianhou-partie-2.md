@@ -8,9 +8,9 @@ slug: lenergie-depee-de-ling-tianhou-partie-2
 ---
 Mo Yang fut stupéfait.
 
-« Je n'ai aucune rancune contre la Secte de l'Épée Da Lou. Si vous ne m'aviez pas poussé à bout à plusieurs reprises, je n'aurais pas attaqué. Envoyez un message aux Douze Épéistes: je ne souhaite pas faire de vous mes ennemis dans la Terre des Esprits Démoniaques! » Tandis que Wang Lin parlait, il lança l'épée qu'il tenait à la figure de Mo Yang. Il passa ensuite devant lui et continua sa route vers sa chambre.
+« Je n'ai aucune rancune contre la Secte de l'Épée Da Luo. Si vous ne m'aviez pas poussé à bout à plusieurs reprises, je n'aurais pas attaqué. Envoyez un message aux Douze Épées: je ne souhaite pas faire de vous mes ennemis dans la Terre des Esprits Démoniaques! » Tandis que Wang Lin parlait, il lança l'épée qu'il tenait à la figure de Mo Yang. Il passa ensuite devant lui et continua sa route vers sa chambre.
 
-Le départ précipité de sa silhouette laissa Mo Yang totalement interdit. À l'instant d'avant, il avait été contraint d'utiliser son trésor de sauvetage, mais les paroles de Wang Lin le plongèrent dans l'incrédulité.
+Le départ précipité de sa silhouette laissa Mo Yang totalement interdit. À l'instant d'avant, il avait failli être contraint d'utiliser son trésor de sauvetage, mais les paroles de Wang Lin le plongèrent dans l'incrédulité.
 
 Il prit une profonde inspiration, ramassa la lame géante et, après l'avoir inspectée avec son Sens Divin pour s'assurer qu'elle était intacte, il regarda Wang Lin s'éloigner avec perplexité.
 
@@ -32,11 +32,11 @@ La vélocité du gaz gris était trop grande et la proximité trop immédiate. �
 
 Son âme originelle ne put s'échapper. Dès que le gaz gris pénétra son corps, il forma un sceau qui la coupa de sa chair. Simultanément, le gaz gris absorba avec voracité sa chair, son sang et son énergie spirituelle céleste, renforçant ainsi son emprisonnement.
 
-Lorsqu'il toucha terre, les yeux de Mo Yang s'ouvrirent sur un corps transformé en momie. Sa dernière pensée fut pour la grande épée. Il l'avait pourtant vérifiée; comment pouvait-il y avoir du gaz gris caché en son sein?
+Lorsqu'il toucha terre, les yeux de Mo Yang s'ouvrirent sur un corps transformé en momie. Sa dernière pensée fut pour la grande épée. Il l'avait pourtant vérifiée, et son esprit y était lié; comment pouvait-il y avoir du gaz gris caché en son sein?
 
 L'espace se distordit devant le cadavre et Wang Lin en émergea. Il pointa plusieurs points sur le corps de Mo Yang avant de s'en saisir, fit un pas et disparut.
 
-Wang Lin réapparut par une brèche spatiale dans sa résidence du Manoir Mo. Il relâcha sa main droite, laissant tomber le corps de Mo Yang au sol. Le regard grave, Wang Lin frappa son sac de rangement; aussitôt, le drapeau de restriction s'envola, se mua en une brume noire et enveloppa la pièce. D'innombrables restrictions scintillèrent au sein de cette obscurité.
+Wang Lin réapparut du vide dans sa résidence du Manoir Mo. Il relâcha sa main droite, laissant tomber le corps de Mo Yang au sol. Le regard grave, Wang Lin frappa son sac de rangement; aussitôt, le drapeau de restriction s'envola, se mua en une brume noire et enveloppa la pièce. D'innombrables restrictions scintillèrent au sein de cette obscurité.
 
 Après avoir accompli cela, il prit une profonde inspiration et s'assit en position de lotus. Il cultiva un instant avant d'ouvrir brusquement les yeux, son regard se fixant sur le corps de Mo Yang. Après un examen attentif, ses yeux se posèrent sur le front du défunt.
 
@@ -48,7 +48,7 @@ La flamme fantomatique flotta vers le cadavre et se propagea instantanément pou
 
 Son enveloppe n'était déjà plus qu'une momie, son essence ayant été vidée par le gaz gris. Sous l'effet de la combustion, une odeur fétide emplit la pièce, mais Wang Lin n'y prêta aucune attention, les yeux rivés sur le corps.
 
-Lors du combat, quand Mo Yang avait effleuré son front, Wang Lin avait ressenti un péril imminent!
+Lors du combat, quand Mo Yang avait touché son propre front, Wang Lin avait ressenti un péril imminent!
 
 Il n'avait presque jamais éprouvé une telle menace depuis qu'il maîtrisait l'énergie de massacre. Même un cultivateur Ascendant au stade intermédiaire n'aurait pu dégager une telle aura sans même être présent. Cette chose avait percé plus de trois mille couches de sceaux vitaux et avait fait trembler son âme originelle.
 
@@ -64,7 +64,7 @@ En y regardant de plus près, cette fine ligne était manifestement une épée, 
 
 « Ling Tianhou! » Wang Lin prit une profonde inspiration, le regard empreint d'un sérieux absolu.
 
-« À l'époque, devant la porte, Ling Tianhou avait projeté des rayons d'énergie d'épée qu'il qualifiait de trésors salvateurs pour les douze d'entre eux! »
+« À l'époque, devant la porte des Esprits Démoniaques de la mer de l'Est, avant l'entrée des disciples de la Secte de l'Épée Da Luo, Ling Tianhou avait projeté des rayons d'énergie d'épée qu'il qualifiait de trésors salvateurs pour les douze d'entre eux! »
 
 « Cette ligne bleue est cette énergie d'épée! Il n'est pas étonnant qu'elle m'ait donné l'impression d'être face à la mort et qu'elle ait percé mes sceaux vitaux... » Les yeux de Wang Lin s'illuminèrent d'une détermination sans faille.
 

@@ -16,7 +16,7 @@ Dans ce système, les plus communes étaient les familles établies sur les plan
 
 Au-dessus de ces familles se trouvaient les quatre grandes familles détenant des héritages du Royaume Céleste. Elles constituaient la force la plus puissante en surface dans le Système Stellaire de Luotian. En remontant à leurs racines, les ancêtres de ces quatre grandes familles étaient tous des êtres célestes au sein du Royaume Céleste du Tonnerre avant son effondrement; leur statut était donc tout sauf ordinaire.
 
-De la même manière, deux autres familles surpassaient ces quatre grandes lignées. Bien qu'elles fussent restées très discrètes, elles incarnaient les véritables puissances de Luotian. Leurs héritages étaient encore plus anciens que ceux des quatre autres familles. Ces clans existaient dès l'Antiquité, avant même la chute du Royaume Céleste, et avaient survécu à ce cataclysme. Ils possédaient des héritages provenant de l'ancien monde de la culture, et six familles de ce type subsistaient dans le Système Stellaire de Luotian.
+De la même manière, deux autres types de familles surpassaient ces quatre grandes lignées. Bien qu'elles fussent restées très discrètes, elles incarnaient les véritables puissances de Luotian. Leurs héritages étaient encore plus anciens que ceux des quatre autres familles. Ces clans existaient dès l'Antiquité, avant même la chute du Royaume Céleste, et avaient survécu à ce cataclysme. Ils possédaient des héritages provenant de l'ancien monde de la culture, et six familles de ce type subsistaient dans le Système Stellaire de Luotian.
 
 La mystérieuse famille Xiang de la planète Dong Lin et la famille de Li Yuan faisaient partie de ces six. Cependant, au fil des millénaires, nombre de ces lignées antiques avaient décliné. La famille Li en était un exemple, tout comme trois autres; aujourd'hui, il n'en restait plus que deux!
 
@@ -26,7 +26,7 @@ Avoir subsisté des temps primordiaux jusqu'à nos jours témoignait d'un pouvoi
 
 À l'exception des planètes de rang 8 et 9 du Système de l'Alliance, Wang Lin connaissait déjà tous ces détails. Lors de son voyage, Li Yuan lui avait exposé l'histoire complète des familles cultivatrices. C'est pourquoi Wang Lin restait si calme face aux quatre grandes familles héritières du Royaume Céleste.
 
-Les deux vieillards qui soutenaient le sceau fragmentaire au-dessus du pavillon réfléchirent silencieusement un instant. L'un d'eux esquissa un sourire narquois et dit: « Puisque ce Compagnon Cultivateur possède des sorts et des trésors aussi puissants, vous ne pouvez être un simple inconnu. Veuillez nous révéler votre nom! »
+Les deux vieillards qui soutenaient le sceau fragmentaire au-dessus du pavillon réfléchirent silencieusement un instant. L'un d'eux esquissa un sourire amer et dit: « Puisque ce Compagnon Cultivateur possède des sorts et des trésors aussi puissants, vous ne pouvez être un simple inconnu. Veuillez nous révéler votre nom! »
 
 Wang Lin répondit avec calme: « Xu Mu! »
 
@@ -44,9 +44,9 @@ Le cultivateur privé de corps laissa échapper un soupir, l'esprit tourmenté. 
 
 Ce qui suivit fut simple: les trois hommes coopérèrent pour ouvrir le pavillon. Les quatre coins tremblèrent lentement tandis que les quatre cornes se rejoignirent progressivement. Un rayon de lumière douce jaillit soudainement, et une porte ovale de pure lumière apparut à la jonction des cornes.
 
-« Compagnon Cultivateur Xu, ma famille Chen est entrée dans le Pavillon des Collections plus d'une centaine de fois. Bien que l'obtention d'un sort céleste dépende de la chance et de la perception de chacun, ce n'est pas totalement aléatoire. Plus vous resterez longtemps, plus le sort céleste que vous obtiendrez à la fin sera précieux. »
+« Compagnon Cultivateur Xu, ma famille Chen est entrée dans le Pavillon des Collections plus d'une centaine de fois. Bien que l'obtention d'un sort céleste dépende de la chance et de la perception de chacun, ce n'est pas totalement aléatoire. Plus vous resterez longtemps, plus le sort céleste que vous obtiendrez à la fin sera précieux. Je vous souhaite de faire une riche récolte! » Celui qui avait invité Wang Lin à devenir Ancien non familial joignit les poings, d'une voix fort sincère.
 
-Wang Lin hocha légèrement la tête. D'après les souvenirs du membre de la famille Yao, il savait que les quatre grandes familles n'avaient pas le pouvoir de tendre des pièges à l'intérieur même du pavillon. De plus, tout ce qui se déroulait était conforme aux souvenirs de Yao. Wang Lin n'hésita plus. Il retira ses trésors magiques, s'avança devant la porte, prit une profonde inspiration et franchit le seuil.
+Wang Lin hocha légèrement la tête. D'après les souvenirs du vieillard de la famille Yao, il savait que les quatre grandes familles n'avaient pas le pouvoir de tendre des pièges à l'intérieur même du pavillon. De plus, tout ce qui se déroulait était conforme aux souvenirs de Yao. Wang Lin n'hésita plus. Il retira ses trésors magiques, s'avança devant la porte, prit une profonde inspiration et franchit le seuil.
 
 Une fois Wang Lin entré, le vieillard sans corps soupira: « Si nous avions su qu'il était aussi puissant, nous ne l'aurions pas attaqué et l'aurions laissé entrer sans cérémonie. Avec sa culture, il ne pourra monter au plus haut que jusqu'au quatrième étage, comme nous. »
 
@@ -70,13 +70,13 @@ Instantanément, une force mystérieuse pénétra son corps. Elle le parcourut u
 
 « Grand Céleste de rang 8! Vous pouvez accéder au quatrième étage du Pavillon des Collections pour tester votre chance et tenter d'obtenir un sort céleste! »
 
-En retirant sa main, les yeux de Wang Lin s'illuminèrent et il murmura: « Grand Céleste de rang 8... Je me demande comment la culture est hiérarchisée parmi les êtres célestes. Je n'ai pas encore atteint le sommet du stade Yang Corporel; je me demande quel rang céleste je posséderai une fois ce stade atteint... »
+En retirant sa main, les yeux de Wang Lin s'illuminèrent et il murmura: « Grand Céleste de rang 8... Je me demande comment la culture est hiérarchisée parmi les êtres célestes. Je n'ai pas encore atteint le sommet du stade Corporel Yang; je me demande quel rang céleste je posséderai une fois ce stade atteint... »
 
 À cet instant, l'être de brume commença à se dissiper lentement. Wang Lin savait qu'une fois la dissipation totale achevée, il serait téléporté au quatrième étage et que tout le reste dépendrait de sa chance. Cependant, quelle que soit sa fortune, il ne pourrait obtenir qu'un sort céleste de ce niveau. Bien qu'il ignorât le nombre d'étages du pavillon, il était évident que plus l'étage était élevé, meilleure serait la qualité des sorts! Au plus haut étage, même le sort le plus commun surpasserait les trésors des étages inférieurs.
 
 Néanmoins, le test de culture ne pouvait être falsifié. Tout reposait sur la force propre de l'individu, ce qui constituait en soi une forme de destin. Seuls ceux dotés d'une culture puissante pouvaient espérer des sorts célestes précieux; pour les autres, il était inutile d'espérer davantage.
 
-Voyant que l'être de brume allait disparaître, Wang Lin eut soudain une idée audacieuse. À l'instant où cette pensée germa, son cœur se mit à battre la chamade et sa gorge devint sèche. Après une brève hésitation, il serra les dents et une pagode apparut dans sa main. Ses yeux projetèrent une lueur mystérieuse tandis qu'il frappait la pagode de sa main gauche. La femme en robe blanche apparut immédiatement devant lui.
+Voyant que l'être de brume allait disparaître, Wang Lin eut soudain une idée audacieuse. À l'instant où cette pensée germa, son cœur se mit à battre la chamade et sa gorge devint sèche. Après une brève hésitation, il serra les dents et une pagode apparut dans sa main. Ses yeux projetèrent une lueur mystérieuse tandis qu'il frappait la pagode de sa main gauche. Le cadavre de la femme en robe blanche apparut immédiatement devant lui.
 
 Wang Lin recula de quelques pas et confectionna un sceau manuel. Il utilisa son énergie originelle pour commander à la femme de lever la main droite et de la presser contre la paume de l'homme de brume qui se dissipait.
 

@@ -26,21 +26,21 @@ Wang Lin prit une profonde inspiration pour rassembler ses pensées. Ses yeux s'
 
 Au bout d'un court instant, Wang Lin fronça les sourcils. Il avait inspecté toutes les fissures alentour, mais n'avait trouvé aucune trace de Zhou Yi.
 
-L'expression de Wang Lin devint sombre. Il frappa son sac de rangement et en sortit le cristal que Bei Lou lui avait donné. Son Sens Divin pénétra dans le cristal. Peu après, ses sourcils se contractèrent davantage et il retira son Sens Divin.
+L'expression de Wang Lin devint sombre. Il frappa son sac de rangement et en sortit le cristal que Bei Luo lui avait donné. Son Sens Divin pénétra dans le cristal. Peu après, ses sourcils se contractèrent davantage et il retira son Sens Divin.
 
-« Si Bei Lou n'a pas menti, alors c'est ici qu'il a trouvé Zhou Yi! » commença à méditer Wang Lin. « Bei Lou n'aurait aucune raison de mentir sur ce point, car cela ne le concerne absolument pas. Il n'a aucun intérêt à entreprendre une action aussi futile... S'il avait voulu agir contre moi, il n'aurait pas eu besoin d'utiliser une méthode aussi sournoise; il aurait pu m'attaquer de front. Pour l'instant, sa priorité absolue est de dévorer les autres démons anciens... »
+« Si Bei Luo n'a pas menti, alors c'est ici qu'il a trouvé Zhou Yi! » commença à méditer Wang Lin. « Bei Luo n'aurait aucune raison de mentir sur ce point, car cela ne le concerne absolument pas. Il n'a aucun intérêt à entreprendre une action aussi futile... S'il avait voulu agir contre moi, il n'aurait pas eu besoin d'utiliser une méthode aussi sournoise; il aurait pu m'attaquer de front. Pour l'instant, sa priorité absolue est de dévorer les autres démons anciens... »
 
 « À moins que... à moins qu'il ne m'ait trompé pour m'attirer ici afin de me tuer par procuration! » Le regard de Wang Lin se glaça. Son Sens Divin balaya à nouveau la zone, avant qu'il ne secoue la tête. « S'il avait prétendu que Zhou Yi se trouvait au fond de l'Abîme des Marées, il serait possible qu'il cherche à me tuer par procuration. Cependant, cet endroit semble tout à fait ordinaire... »
 
 Tout en réfléchissant, il déploya son Sens Divin. Cette fois, il fut encore plus méticuleux en explorant chaque fissure, mais le résultat resta identique.
 
-Wang Lin marqua une pause. Après quelques respirations, il frappa son sac de rangement et la bannière des âmes apparut. D'un geste, il libéra mille puissants fragments d'âmes qu'il dirigea vers chaque fissure.
+Wang Lin marqua une pause. Après quelques respirations, il frappa son sac de rangement et le drapeau de l'âme apparut. D'un geste, il libéra mille puissants fragments d'âmes qu'il dirigea vers chaque fissure.
 
 Les yeux clos, Wang Lin projeta son Sens Divin dans chaque fragment d'âme. De cette manière, c'était comme s'il se trouvait lui-même à l'intérieur des failles, lui permettant de les inspecter minutieusement. Il fut d'une rigueur absolue, ne laissant passer aucune trace.
 
 Trente minutes passèrent avant que tous les fragments d'âmes ne reviennent vers lui. Wang Lin ouvrit les yeux, le visage extrêmement disgracieux.
 
-« J'ai scrupuleusement vérifié toutes les fissures environnantes, et pourtant la présence de Zhou Yi m'échappe! Cet Ancien Démon Bei Lou m'a-t-il vraiment trompé? » Wang Lin agita ses manches, le regard froid, avant que ses yeux ne se plissent soudainement.
+« J'ai scrupuleusement vérifié toutes les fissures environnantes, et pourtant la présence de Zhou Yi m'échappe! Cet Ancien Démon Bei Luo m'a-t-il vraiment trompé? » Wang Lin agita ses manches, le regard froid, avant que ses yeux ne se plissent soudainement.
 
 « Erreur! Si j'avais été Ling Tianhou, je ne scellerais pas quelqu'un dans un endroit aussi évident. Si j'étais Ling Tianhou... » Wang Lin se mit à réfléchir. Le brin d'énergie de l'épée de Ling Tianhou qu'il avait conservé parcourut son corps, lui permettant d'emprunter un fragment du domaine de Ling Tianhou.
 
@@ -50,7 +50,7 @@ Le domaine de Ling Tianhou était celui de la tyrannie: utiliser sa propre natur
 
 « Si je voulais sceller un esprit d'épée qui me hante... je ne me contenterais pas de le sceller, je le forcerais à céder à ma tyrannie. S'il refusait, je le scellerais pour mille ans. S'il résistait encore, je le scellerais pour dix mille ans. Et s'il persistait, je détruirais son esprit pour le raffiner en un trésor afin de lui faire entendre raison! »
 
-« Je ne choisirais pas ces fissures manifestes. Si j'avais choisi cet endroit, c'est qu'il y avait une raison... Si je devais sceller quelque chose, je choisirais... » Son regard tyrannique était si puissant qu'il semblait dominer le monde. Il balaya chaque fissure du regard.
+« Je ne choisirais pas ces fissures manifestes. Si j'avais choisi cet endroit, c'est qu'il y avait une raison... Si je devais sceller quelque chose, je choisirais... » Son regard tyrannique était si puissant qu'il semblait dominer le monde. Son regard balaya un à un les espaces vides entre les fissures.
 
 Progressivement, cette aura impérieuse disparut de ses yeux et de grosses gouttes de sueur s'écoulèrent sur son front. Le regard tyrannique s'évanouit totalement du corps de Wang Lin, laissant son visage livide.
 
@@ -86,6 +86,6 @@ Wang Lin prit une profonde inspiration et pressa son front. Cent mille brins d'�
 
 Il frappa son sac de rangement et l'armure démoniaque apparut, tournoyant autour de lui sous forme de gaz noir. Elle se solidifia lentement en une armure, enveloppée d'une aura maléfique. Plus de dix symboles dorés, entourés d'insectes, flottaient autour de lui, offrant une couche de protection supplémentaire.
 
-Après ces préparatifs, Wang Lin sortit la bannière des cent millions d'âmes. Il l'agita et elle s'enroula autour de lui, tandis que plus de cent millions de fragments d'âmes rugissaient à l'intérieur.
+Après ces préparatifs, Wang Lin sortit le drapeau de l'âme. Il l'agita et le drapeau s'enroula autour de lui, tandis que plus de cent millions de fragments d'âmes rugissaient à l'intérieur.
 
 Le regard de Wang Lin devint résolu alors qu'il fit un pas en avant et chargea vers la fissure!

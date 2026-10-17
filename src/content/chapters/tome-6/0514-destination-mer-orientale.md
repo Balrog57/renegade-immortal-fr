@@ -36,7 +36,7 @@ Le vieil homme n'osa pas tarder et répondit: « La Mer des Esprits Démoniaques
 
 « C'est exact. Cet héritage peut élever la culture d'un cultivateur d'un niveau entier. Si l'on le reçoit durant le stade de la Recherche du Dao, cela réduira les risques et augmentera considérablement les chances d'atteindre le stade Ascendant! Bien sûr, si l'on est déjà au stade Ascendant, cela aidera tout de même à accroître son niveau de culture. Si l'on est au stade avancé de l'Ascendant, cela pourrait même aider à franchir les étapes de l'Incorporel Yin et du Corporel Yang pour obtenir un corps capable de durer des dizaines de milliers d'années! »
 
-« C'est pourquoi c'est un événement si majeur pour la planète Tian Yun. Beaucoup sont cupides, mais la Mer des Esprits Démoniaques de l'Est est très périlleuse. Si vous voulez les bénéfices, vous devez être prêt à payer le prix. Quiconque est autorisé à y entrer fait partie des plus exceptionnels de sa génération! Il existe même une rumeur selon laquelle une seule personne pourrait en ressortir. Si... quelqu'un parvient à cet exploit, il obtiendra une récompense sans précédent... un sort céleste de basse qualité! »
+« C'est pourquoi c'est un événement si majeur pour la planète Tian Yun. Beaucoup sont cupides, mais la Mer des Esprits Démoniaques de l'Est est très périlleuse. Si vous voulez les bénéfices, vous devez être prêt à payer le prix. Quiconque est autorisé à y entrer fait partie des plus exceptionnels de sa génération! Il existe même une rumeur selon laquelle une seule personne pourrait en ressortir. Si... quelqu'un parvient à cet exploit, il obtiendra une récompense sans précédent... un sort céleste complet de basse qualité! »
 
 Wang Lin réfléchit un instant, puis ses yeux brillèrent. D'une simple pensée, Xu Liguo sembla le percevoir, et la lame en croissant s'illumina immédiatement. En un instant, elle transperça la tête du vieil homme.
 
@@ -56,7 +56,7 @@ L'expression du vieil homme changea radicalement et, sans hésiter, il cria: « 
 
 D'un seul mot, une multitude d'ondulations apparurent autour de son corps pour bloquer les deux filaments de gaz gris. Simultanément, le vieil homme recula d'un pas. La moitié de son corps s'enfonça dans le vide et il était sur le point de se téléporter, mais il était trop tard.
 
-Les deux filaments de gaz gris ignorèrent totalement les ondulations et passèrent à travers elles. Tels deux chaînons sauvages, ils chargèrent directement le corps du vieil homme.
+Les deux filaments de gaz gris ignorèrent totalement les ondulations et passèrent à travers elles. Telles deux chaînes sauvagement agitées, ils chargèrent directement le corps du vieil homme.
 
 Le visage de l'homme pâlit et il laissa échapper un sourire pitoyable. Il sentait les deux filaments de gaz gris circuler frénétiquement en lui; à chaque cycle, il perdait une partie de sa force vitale.
 
@@ -72,7 +72,7 @@ Wang Lin se déplaça comme l'éclair et, en plein vol, se transforma en un giga
 
 « Le Maître Omniscient se soucie du destin céleste et n'agirait pas sans raison. S'il veut que j'y aille, c'est qu'il a ses motifs. Si je refuse, je m'opposerai au destin, ce qui rendra difficile mon implantation sur la planète Tian Yun. C'est la troisième raison! »
 
-« Je ne sais seulement pas si j'aurai la chance de trouver de quoi augmenter l'élément métallique de la Perle Défiant le Ciel. Si elle est complète, elle apportera sans doute de grands bénéfices à Wan Er et pourrait même l'éveiller... » Wang Lin toucha son front, affichant un regard empreint de douce nostalgie.
+« Seulement, je ne sais pas si j'aurai la chance de trouver de quoi augmenter l'élément métallique de la Perle Défiant le Ciel. Si elle est complète, elle apportera sans doute de grands bénéfices à Wan Er et pourrait même l'éveiller... » Wang Lin toucha son front, affichant un regard empreint de douce nostalgie.
 
 En pensant à Li Muwan, Wang Lin ressentit une pointe de chaleur dans son cœur froid. Elle était la seule à avoir pénétré son âme et à l'avoir accompagné sur la planète Tian Yun.
 
@@ -84,7 +84,7 @@ Au cours des dix derniers jours, les Terres Démoniaques du Nord avaient été e
 
 Dix jours plus tard, alors qu'il ne restait que six jours avant l'ouverture de la Mer des Esprits Démoniaques de l'Est, Wang Lin quitta cette zone!
 
-Contrairement à son état d'il y a dix jours, une intention meurtrière très bien dissimulée et une pointe de gaz gris animaient désormais ses yeux. Le plus remarquable était les cinq filaments de gaz gris dansant entre ses doigts, émettant le son d'un vent hurlant. Ce bruit semblait empreint d'un pouvoir mystérieux, capable de captiver l'attention de quiconque l'entendrait.
+Contrairement à son état d'il y a plusieurs jours, une intention meurtrière très bien dissimulée et une pointe de gaz gris animaient désormais ses yeux. Le plus remarquable était les cinq filaments de gaz gris dansant entre ses doigts, émettant le son d'un vent hurlant. Ce bruit semblait empreint d'un pouvoir mystérieux, capable de captiver l'attention de quiconque l'entendrait.
 
 « L'Art du Massacre Céleste peut être considéré comme étant au stade de la petite perfection! » L'expression de Wang Lin était calme alors qu'il sortait des Terres Démoniaques du Nord pour lever les yeux vers le ciel. « Transformer la force vitale en sceaux est une tâche ardue. Lors de ce voyage, je n'ai pu créer que trois sceaux. »
 

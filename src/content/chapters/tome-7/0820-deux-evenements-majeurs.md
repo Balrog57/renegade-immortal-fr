@@ -66,13 +66,13 @@ Le message ne contenait qu'une seule ligne:
 
 « Les 108 personnes recevant les titres célestes pourront entrer dans le Bassin Céleste pour transformer leur énergie d'origine en origine céleste et devenir de véritables êtres célestes! »
 
-La différence entre les êtres célestes et les cultivateurs actuels résidait dans le fait que ces derniers ne possédaient pas seulement de l'énergie d'origine. Ils possédaient une énergie fusionnant l'énergie spirituelle céleste et l'énergie d'origine: l'énergie d'origine céleste!
+La différence entre les êtres célestes et les cultivateurs actuels résidait dans le fait que les premiers ne possédaient pas seulement de l'énergie d'origine. Ils possédaient une énergie fusionnant l'énergie spirituelle céleste et l'énergie d'origine: l'énergie d'origine céleste!
 
 Peu importe la puissance d'un sort céleste, il existait une limite lorsqu'il était utilisé avec de l'énergie d'origine. Mais si l'on utilisait l'énergie d'origine céleste, sa véritable puissance pouvait être déployée! Il en allait de même pour les trésors célestes!
 
 La tempête s'était levée, la flamme de la guerre était allumée, et tous attendaient l'ouverture du passage!
 
-Alors que la tempête des préparatifs et les flammes de la guerre se propageaient à travers le Système Stellaire Luotian, une autre nouvelle choc se répandit dans le système!
+Alors que la tempête des préparatifs et les flammes de la guerre se propageaient à travers le Système Stellaire Luotian, une autre nouvelle choquante se répandit dans le système!
 
 La famille Yao, qui se situait juste en dessous des deux familles de culture antiques, venait d'émettre un Ordre Céleste!
 
@@ -136,7 +136,7 @@ Ce jour-là, la brume devant eux se dissipa et Wang Lin s'élança. Les membres 
 
 Domaine Ouest du Système Stellaire Luotian!
 
-En contemplant les étoiles, Wang Lin entra en transe. Juste après les événements du Temple Céleste du Tonnerre, il avait été transféré dans la Bête des Limbes. Revoir les étoiles après tout cela donnait l'impression que ce qui s'était passé n'était qu'un rêve.
+En contemplant les étoiles, Wang Lin entra en transe. Juste après les événements du Royaume Céleste du Tonnerre, il avait été transféré dans la Bête des Limbes. Revoir les étoiles après tout cela donnait l'impression que ce qui s'était passé n'était qu'un rêve.
 
 « Système Stellaire Luotian, je suis de retour! Ma priorité est maintenant de déterminer dans quel domaine je me trouve. Je dois trouver une planète de culture! » murmura Wang Lin en sortant un jade. C'était la carte que Shengong Hu lui avait donnée. Après l'avoir consultée un instant, il la rangea dans son sac.
 
@@ -168,4 +168,4 @@ Plus important encore, les expressions de ces personnes dégageaient une aura gl
 
 Cependant, les deux autres trouvèrent étrange la présence de femmes et d'enfants parmi eux, ce qui rendait difficile toute supposition sur leur origine.
 
-À cet instant précis, l'homme d'âge moyen finit de parler et observa attentivement Wang Lin. Il eut le choc d'être frappé par la foudre: l'apparence de Wang Lin ressemblait étrangement à celle de l'Ordre Céleste émis par la famille Yao.
+À cet instant précis, l'homme d'âge moyen finit de parler et observa attentivement Wang Lin. Il eut le choc d'être frappé par la foudre: l'apparence de Wang Lin ressemblait étrangement à celle du portrait figurant sur l'Ordre Céleste émis par la famille Yao.

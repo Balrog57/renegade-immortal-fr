@@ -20,21 +20,21 @@ Quant au jeune homme maléfique, ses yeux s'illuminèrent: « Affiner un Royaume
 
 Dans le ciel, le Maître Yan Leizi rit: « Qui a dit qu'il n'y aurait pas d'âme de trésor? Âme de trésor, apparais! » En parlant, il cracha un rayon de lumière grise.
 
-À l'intérieur de cette lumière se trouvait un miroir ancien de la taille d'une paume. Il grandit instantanément pour atteindre la taille d'un homme. La surface du miroir se tordit et une âme originelle s'en échappa. Dès son apparition, une énergie originelle dense se propagea.
+À l'intérieur de cette lumière se trouvait un miroir ancien de la taille d'une paume. Il grandit instantanément pour devenir un grand miroir ovale haut de plus d'une demi-taille d'homme. La surface du miroir se tordit et une âme originelle s'en échappa. Dès son apparition, une énergie originelle dense se propagea.
 
 « L'âme originelle d'un cultivateur de l'Yin Illusoire! » Les yeux de Wang Lin se rétrécirent.
 
 Le jeune homme maléfique observa l'âme originelle et dit lentement: « Rang 4 Céleste Supérieur. » Il ne se pressait pas, voulant voir comment ce soi-disant Maître Yan Leizi allait affiner le Royaume Céleste du Tonnerre. De plus, grâce à sa culture, il pouvait déceler que l'être dans le ciel n'était pas le corps originel du Maître Yan Leizi, mais un avatar.
 
-L'âme originelle du cultivateur de l'Yin Illusoire semblait confuse. Dès qu'elle apparut, le Maître Yan Leizi cria: « Quarantième-neuvième âme, va! »
+L'âme originelle du cultivateur de l'Yin Illusoire semblait confuse. Dès qu'elle apparut, le Maître Yan Leizi cria: « Quarante-neuvième âme, va! »
 
 À ces mots, les yeux de l'âme originelle brillèrent intensément, comme si elle s'était enflammée elle-même. Elle joignit les mains devant le Maître Yan Leizi avant de disparaître en un clin d'œil. Par un procédé inconnu de Wang Lin, elle atteignit le quarante-neuvième fragment à la lisière du vortex et fusionna avec lui.
 
-Le quarantième-neuvième fragment sembla soudainement prendre vie, animé d'un esprit.
+Le quarante-neuvième fragment sembla soudainement prendre vie, animé d'un esprit.
 
 Ce ne fut que le début. Sous les yeux de Wang Lin, des ondulations se succédèrent sur le miroir ancien. Tandis que le Maître Yan Leizi lançait ses appels, ces âmes originelles de cultivateurs de l'Yin Illusoire disparurent dans les divers fragments. Bientôt, vingt-huit des quarante-neuf fragments en rotation rapide contenaient une âme de trésor.
 
-« Âme de trésor, apparais encore une fois! » Les yeux du Maître Yan Leizi étaient empreints d'excitation alors que la surface du miroir se tordait violemment pour libérer une autre âme originelle. L'énergie émanant de celle-ci était manifestement plus puissante que les vingt-huit précédentes. Wang Lin eut un haut-le-cœur en reconnaissant l'âme originelle d'un cultivateur du Corporel Yang.
+« Âme de trésor, apparais encore une fois! » Les yeux du Maître Yan Leizi étaient empreints d'excitation alors que la surface du miroir se tordait violemment pour libérer une autre âme originelle. L'énergie émanant de celle-ci était manifestement plus puissante que les vingt-huit précédentes. Wang Lin inspira brusquement en reconnaissant l'âme originelle d'un cultivateur du Corporel Yang.
 
 L'expression du jeune homme maléfique resta neutre: « Rang 9 Céleste Supérieur, pas mal! »
 
@@ -42,9 +42,9 @@ L'expression du jeune homme maléfique resta neutre: « Rang 9 Céleste Supérie
 
 « Encore une fois! » Le Maître Yan Leizi riait comme un fou. Il s'était préparé pendant des dizaines de milliers d'années pour ce jour précis!
 
-Le miroir ancien trembla de nouveau et, après plus de dix respirations, une âme originelle apparut. Cette âme était très ancienne et semblait désincarnée, mais dès son apparition, une énergie originelle plus dense que celle des quarante-deux précédentes se répandit.
+Le miroir ancien trembla de nouveau et, après plus de dix respirations, une âme originelle apparut. Cette âme était très âgée et semblait abattue, mais dès son apparition, une énergie originelle plus dense que celle des quarante-deux précédentes se répandit.
 
-« C'est... » Les pupilles de Wang Lin se contractèrent. L'énergie originelle était terrifiante, d'une puissance rivalisant avec l'ancêtre de la famille Hua. « Il doit s'agir de l'âme originelle d'un cultivateur Scruteur du Nirvana! »
+« C'est... » Les pupilles de Wang Lin se contractèrent. L'énergie originelle était terrifiante, d'une puissance rivalisant avec l'ancêtre de la famille Huan. « Il doit s'agir de l'âme originelle d'un cultivateur Scruteur du Nirvana! »
 
 Le jeune homme maléfique plissa les yeux et lécha ses lèvres: « Rang 3 Céleste du Firmament! »
 
@@ -108,13 +108,13 @@ Le Maître Yan Leizi le fixa et déclara: « Seigneur Céleste Qing Shui, je veu
 
 Le jeune homme fronça les sourcils et répondit simplement: « Je ne suis pas Qing Shui. »
 
-« Ce vieil homme a visité le Royaume Céleste des centaines de fois et a percé tous ses secrets. Dans le Royaume Céleste du Tonnerre, il existait un être nommé Qing Shui. Sa culture était prodigieuse et il possédait le légendaire Royaume Ji! Il était également l'héritier du pays de Qing Shui. Après son ascension, il devint un Seigneur Céleste dans le Royaume du Tonnerre. Cependant, lors des premiers jours de l'effondrement du royaume, il subit un changement soudain et inexplicable. Il n'était plus le même; il était devenu un démon qui massacrait tout sur son passage! »
+« Ce vieil homme a parcouru le Royaume Céleste des centaines de fois et a consulté tous les traités secrets accessibles. Dans le Royaume Céleste du Tonnerre, il existait un être nommé Qing Shui. Sa culture était prodigieuse et il possédait le légendaire Royaume Ji! Il était également l'héritier du pays de Qing Shui. Après son ascension, il devint un Seigneur Céleste dans le Royaume du Tonnerre. Cependant, lors des premiers jours de l'effondrement du royaume, il subit un changement soudain et inexplicable. Il n'était plus le même; il était devenu un démon qui massacrait tout sur son passage! »
 
 « Un groupe de célestes l'attaqua, mais grâce à son Royaume Ji, il provoqua un massacre sans précédent. Finalement, l'Empereur Céleste Bai Fan intervint et remporta la victoire, bien qu'il ne puisse se résoudre à le tuer. Dans ce dilemme, Qing Shui sembla soudain retrouver la raison, comme si tout ce qui s'était passé n'avait été qu'un rêve. Lorsqu'il reprit ses esprits, il réalisa l'ampleur de son crime: il avait massacré d'innombrables célestes, dont ses amis, ses disciples, ses descendants et, par-dessus tout, son partenaire de Dao qui l'avait accompagné pendant des dizaines de milliers d'années! »
 
-« Cette douleur et cette indignation furent immenses. Le fait d'avoir personnellement tué ses proches lui fit retrouver sa lucidité. Au moment où il allait perdre la raison, il lutta pour lever son épée afin de détruire son âme originelle et son corps. Pour empêcher le Royaume Ji de le ressusciter, il utilisa son trésor magique, le Vortex de Scellement, pour diviser son âme et son corps en neuf parties. L'Empereur Céleste Bai Fan, accablé de tristesse, plaça une formation de guérison sur ces sceaux, espérant qu'il retrouverait un jour la raison! La raison pour laquelle il fit cela est que ce Qing Shui était son seul disciple et l'homme le plus apte à devenir le prochain Empereur Céleste du Royaume Céleste du Tonnerre! »
+« Cette douleur et cette indignation furent immenses. Lui qui avait massacré de ses propres mains ses proches et son partenaire de Dao, causant un carnage sans bornes, vit aussitôt ses pensées démoniaques renaître. Au moment où il allait perdre la raison, il lutta pour lever son épée afin de détruire son âme originelle et son corps. Pour empêcher le Royaume Ji de le ressusciter, il utilisa son trésor magique, le Vortex de Scellement, pour diviser son âme et son corps en neuf parties. L'Empereur Céleste Bai Fan, accablé de tristesse, plaça une formation de guérison sur ces sceaux, espérant qu'il retrouverait un jour la raison! La raison pour laquelle il fit cela est que ce Qing Shui était son seul disciple et l'homme le plus apte à devenir le prochain Empereur Céleste du Royaume Céleste du Tonnerre! »
 
-Après avoir fini son récit, le Maître Yan Leizi frappa sa sacoche et une pierre de jade céleste apparut. Ce jade était extrêmement ancien.
+Après avoir fini son récit, le Maître Yan Leizi frappa son sac de rangement et une pierre de jade céleste apparut. Ce jade était extrêmement ancien.
 
 « Voici le jade céleste que l'Empereur Bai Fan a laissé concernant son disciple, le Seigneur Céleste Qing Shui. Vous comprendrez en le voyant! » Il lança le jade vers le jeune homme maléfique.
 

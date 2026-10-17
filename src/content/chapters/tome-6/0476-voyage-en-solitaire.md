@@ -10,7 +10,7 @@ Après avoir quitté la boutique, Wang Lin remit dix pierres spirituelles de hau
 
 La boutique du clan Shang possédait effectivement de l'encre de neige, mais son prix était tout simplement exorbitant. Wang Lin calcula qu'avec toutes les pierres spirituelles dont il disposait, il ne pourrait en obtenir que trois liang.
 
-Un tel prix dépassait les attentes de Wang Lin. Il n'avait pas imaginé que l'encre de neige soit une matière d'une telle qualité dans le monde de la culture.
+Un tel prix dépassait les attentes de Wang Lin. Il n'avait pas imaginé que l'encre de neige compte parmi les matériaux de premier ordre du monde de la culture.
 
 Les anciens dieux pouvaient voyager d'une planète à l'autre pour en chercher sans difficulté. Mais pour les cultivateurs, l'encre de neige était d'une rareté absolue. D'après ce qu'il avait entendu dire de cette femme, l'encre de neige était excellente pour nourrir l'âme. Si l'on en possédait quelques gouttes lors de la possession d'un corps, la vitesse de cette possession serait multipliée par plusieurs.
 
@@ -28,7 +28,7 @@ Il y avait au total neuf villes sur cette planète commerciale. En l'espace de t
 
 Même le manoir du seigneur de la ville avait été pillé!
 
-Si cela n'était arrivé que dans une seule cité, l'affaire aurait été gérable, mais au cours des trois jours suivants, les neuf villes, y compris Ming Mei, furent toutes victimes de ce mystérieux individu.
+Si cela n'était arrivé que dans une seule cité, l'affaire aurait été gérable, mais durant le reste du temps, jusqu'à la nuit du troisième jour, les neuf villes, y compris Ming Mei, furent toutes victimes de ce mystérieux individu.
 
 La culture de cet homme était extrêmement puissante; même lorsqu'il était attaqué par de multiples cultivateurs, il n'y voyait aucun inconvénient. Finalement, cinq cultivateurs Ascendants des neuf villes se réunirent pour tenter de l'éliminer. Ce combat choqua tout le monde. Cependant, les cinq Ascendants furent contraints de battre en retraite.
 
@@ -44,11 +44,11 @@ Situ Nan rit avec arrogance: « Haha, espèce de gamins, pourquoi me poursuivez-
 
 Au moment où Situ Nan dépassa la falaise où se trouvait Wang Lin, il tendit la main. Une force puissante saisit Wang Lin, qui se déplaça comme une météorite aux côtés de Situ Nan.
 
-Situ Nan toucha son sac de rangement et rit: « La récolte de ce vieux fou est excellente. Allons-nous! » Sur ces mots, il s'envola rapidement avec Wang Lin.
+Situ Nan toucha son sac de rangement et rit: « La récolte de ce vieux fou est excellente. Allons-y! » Sur ces mots, il s'envola rapidement avec Wang Lin.
 
 « Arrête-toi, espèce de voleur fou! » Des rugissements de colère déferlèrent derrière Situ Nan.
 
-« À moins que le cerveau de ce vieux fou ne soit endommagé, pourquoi obéirais-je à vos ordres? Cependant, je vais essayer de vous apprendre une leçon, alors ne me poursuivez plus, petits garnements! » Situ Nan éclata de rire tout en filant comme l'éclair avec Wang Lin. Ils percèrent l'atmosphère et devinrent deux rayons de lumière dans l'obscurité de l'espace.
+« À moins que le cerveau de ce vieux fou ne soit endommagé, pourquoi obéirais-je à vos ordres? Cependant, pour une fois, je vais vous imiter: écoutez bien, petits garnements, ne me poursuivez pas! » Situ Nan éclata de rire tout en filant comme l'éclair avec Wang Lin. Ils percèrent l'atmosphère et devinrent deux rayons de lumière dans l'obscurité de l'espace.
 
 « Les boutiques de cette planète commerciale ont des antécédents très profonds. S'ils envoient des experts, même ce vieux fou aura du mal à s'en sortir. J'ai donc pillé rapidement pour qu'ils n'aient pas le temps de demander de l'aide. Ye Wuyou et moi faisions souvent ce genre de choses autrefois! » Situ Nan se sentait très fier. Une fois entrés dans l'espace, Wang Lin sortit la boussole stellaire et les deux s'éloignèrent prestement.
 
@@ -100,13 +100,13 @@ Situ Nan jeta un dernier regard vers la direction prise par Wang Lin et murmura:
 
 L'espace était si vaste que sans carte stellaire, on risquait de s'y perdre pour toujours. L'Omniscient avait laissé une carte très détaillée à Wang Lin, indiquant le chemin de la planète Suzaku vers la planète Tian Yun.
 
-Wang Lin, assis en position du lotus sur la boussole stellaire, voyagea rapidement vers la planète Tian Yun. Durant ce trajet, il ne resta pas inactif; il utilisa la pierre de bois vide et l'encre de neige pour raffiner à nouveau la boussole stellaire en utilisant la technique secrète de l'ancien dieu. Le processus fut lent et dura tout le voyage.
+Wang Lin, assis en position du lotus sur la boussole stellaire, voyagea rapidement vers la planète Tian Yun. Durant ce trajet, il ne resta pas inactif; il utilisa la pierre de bois du vide et l'encre de neige pour raffiner à nouveau la boussole stellaire en utilisant la technique secrète de l'ancien dieu. Le processus fut lent et dura tout le voyage.
 
-La boussole stellaire était désormais enveloppée d'une lumière verte. À l'intérieur de cette lueur, on pouvait voir d'innombrables branches s'agiter et se tordre autour de l'objet. C'était la substance mystérieuse raffinée à partir de la pierre de bois vide.
+La boussole stellaire était désormais enveloppée d'une lumière verte. À l'intérieur de cette lueur, on pouvait voir d'innombrables branches s'agiter et se tordre autour de l'objet. C'était la substance mystérieuse raffinée à partir de la pierre de bois du vide.
 
 Ce processus dura trois mois!
 
-Trois mois ne suffirent qu'à amener la fusion entre la pierre de bois vide et la boussole stellaire au stade de la petite complétion. Les anciens dieux ne se souciaient guère du temps; lorsqu'ils raffinaient un trésor, le processus durait généralement au moins cent ans. Un ancien dieu à neuf étoiles mettrait mille ans pour affiner un trésor, et ces mille années passeraient aussi vite qu'un battement de cils.
+Trois mois ne suffirent qu'à amener la fusion entre la pierre de bois du vide et la boussole stellaire au stade de la petite complétion. Les anciens dieux ne se souciaient guère du temps; lorsqu'ils raffinaient un trésor, le processus durait généralement au moins cent ans. Un ancien dieu à neuf étoiles mettrait mille ans pour affiner un trésor, et ces mille années passeraient aussi vite qu'un battement de cils.
 
 Wang Lin calcula que, si cela continuait ainsi, l'intégration ne serait pas terminée à son arrivée sur la planète Tian Yun. Après réflexion, il décida d'abandonner une intégration plus poussée pour utiliser l'encre de neige et entamer le processus de raffinage final dès ce stade de petite complétion.
 

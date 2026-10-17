@@ -18,7 +18,7 @@ Wang Lin se déplaçait à une vitesse fulgurante, franchissant bassin après ba
 
 L'épée céleste étant déjà rangée, il pouvait voler de toutes ses forces.
 
-Les épées du trésor issues des bassins devant lui jaillirent toutes et convergèrent vers lui, l'encerclant totalement. Les yeux de Wang Lin brillèrent alors que sa main droite s'étendait pour faire apparaître le drapeau des milliards d'âmes. Le drapeau se mua en une brume noire qui enveloppa Wang Lin, multipliant sa vitesse par plusieurs facteurs.
+Les épées du trésor issues des bassins devant lui jaillirent toutes et convergèrent vers lui en tenaille, par le nord et par le sud. Les yeux de Wang Lin brillèrent alors que sa main droite s'étendait pour faire apparaître le drapeau des milliards d'âmes. Le drapeau se mua en une brume noire qui enveloppa Wang Lin, multipliant sa vitesse par plusieurs facteurs.
 
 Les épées du trésor qui fonçaient sur lui manquèrent leur cible, mais elles firent rapidement demi-tour pour le poursuivre. À cet instant, une mer infinie d'épées du trésor se déversait derrière Wang Lin. Elles généraient une intention d'épée capable de déchirer les cieux. L'aura glaciale qu'elles dégageaient faisait chuter la température au point que la gelée commençait à se former.
 
@@ -116,7 +116,7 @@ Le cri de Xu Liguo parvint de loin:
 
 Les yeux de Wang Lin brillèrent tandis qu'il tenait l'épée céleste. Étant lié à Xu Liguo, il pouvait ressentir sa position. De plus, l'esprit de la lame ne devrait pas blesser Xu Liguo, car elle avait d'autres intentions.
 
-Et comme Xu Liguo était un démon, il n'était pas facile à détruire. Pour l'instant, Wang Lin était pressé et n'avait pas le temps de s'occuper de la lame. Avec Xu Liguo comme appât, il aurait tout le loisir de s'en emparer par la suite.
+Et comme Xu Liguo était un démon, il n'était pas facile à détruire. Pour l'instant, Wang Lin était pressé et n'avait pas le temps de s'occuper de la lame. Avec Xu Liguo comme fil conducteur, il pourrait le retrouver plus tard et aurait tout le loisir de s'en emparer par la suite.
 
 Après avoir rangé l'épée céleste, il regarda la montagne arc-en-ciel au loin et s'apprêta à s'y diriger. Cependant, à cet instant précis, son expression changea et il se retourna vers une montagne voisine. Là, il aperçut une silhouette rouge. Cette figure était empreinte de vide et de solitude.
 

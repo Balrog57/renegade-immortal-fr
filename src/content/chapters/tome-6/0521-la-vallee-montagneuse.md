@@ -8,7 +8,7 @@ slug: la-vallee-montagneuse
 ---
 « Cependant, rien de tout cela ne peut être comparé au jeton que j'ai aperçu. Qu'est-ce donc que ce jeton pour provoquer de telles réactions chez des êtres comme l'Omniscient ou Ling Tianhou... Ah, la planète Tian Yun recèle trop de secrets; sans aucune connaissance préalable, je ne peux même pas commencer à les deviner... » Wang Lin laissa échapper un soupir et resta silencieux.
 
-« Peu importe. Je dois avancer étape par étape; rien ne sert de se précipiter. Maintenant que mon corps original est bien caché sur cette planète désolée, il ne se révélera pas. De plus, dans la Tombe de Suzaku, Tuo Sen ne s'est concentré que sur moi et ignore encore l'existence de mon corps originel. Je devrai passer les cinq cents prochaines années à le renforcer pour préparer l'avenir! »
+« Peu importe. Je dois avancer étape par étape; rien ne sert de se précipiter. Maintenant que mon corps original est bien caché dans cette planète dissimulée, il ne sera pas découvert à la légère. De plus, dans la Tombe de Suzaku, Tuo Sen ne s'est concentré que sur moi et ignore encore l'existence de mon corps originel. Je devrai passer les cinq cents prochaines années à le renforcer pour préparer l'avenir! »
 
 Wang Lin calma son esprit. Tandis qu'il était plongé dans ses pensées, il avait parcouru inconsciemment d'innombrables kilomètres. Il déploya son sens divin, mais ne trouva toujours rien.
 
@@ -24,7 +24,7 @@ Le temps passa lentement. Dix jours plus tard, alors que Wang Lin volait, son ex
 
 Il restait là, parfaitement immobile; sa respiration était si faible qu'elle semblait s'interrompre par instants. Bientôt, il devint si calme qu'il paraissait avoir totalement disparu. Pour une personne ordinaire, il aurait été presque impossible de le remarquer.
 
-Peu de temps après, un bruit de course retentit dans la forêt. Soudain, une bête de la taille d'un veau, arborant une gueule féroce, surgit en chargeant.
+Peu de temps après, un bruit de course retentit dans la forêt. Soudain, une bête de la taille d'un veau, dont la gueule portait des pointes acérées, surgit en chargeant.
 
 Ce fauve sauvage ressemblait à un sanglier, mais il dégageait une férocité révélant sa dangerosité. Aucune trace d'énergie spirituelle ne résidait en cette créature.
 
@@ -50,7 +50,7 @@ Wang Lin fronça les sourcils en observant l'individu. Il fut très surpris que,
 
 D'une simple pensée, Wang Lin apparut lentement dans les airs et fixa l'homme d'un regard froid.
 
-L'homme maculé de liquide vert fut stupéfait de voir soudainement Wang Lin apparaître, et ses yeux brillèrent d'une lueur mystérieuse. Une seconde plus tard, il bondit devant la bête et leva son couteau. Il fixa Wang Lin et déclara d'une voix rauque: « La bête est à moi! »
+L'homme maculé de liquide vert fut stupéfait de voir soudainement Wang Lin apparaître, et ses yeux brillèrent d'une lueur mystérieuse. Une seconde plus tard, il bondit sur le cadavre de la bête et leva son couteau. Il fixa Wang Lin et déclara d'une voix rauque: « La bête est à moi! »
 
 Les yeux de Wang Lin se plissèrent et il répondit: « Je ne suis pas venu pour te voler quoi que ce soit! »
 

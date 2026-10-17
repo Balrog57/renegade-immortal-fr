@@ -57,7 +57,7 @@ En réalité, Wang Lin avait conçu ce plan avant même que Zhou Wutai ne lui tr
 
 Après avoir pris connaissance des détails fournis par Zhou Wutai, il fut d'autant plus convaincu que ce domaine était idéal pour traiter avec elle.
 
-Pour briser un domaine impitoyable fondé sur l'absence de sentiments, il fallait utiliser la luxure pour engendrer une émotion.
+Pour briser la voie de l'impitoyabilité, il fallait le domaine le plus yin et le plus lubrique du monde: utiliser la luxure pour éveiller le désir et ainsi briser l'absence de sentiments.
 
 Simultanément, un rire malicieux s'éleva du parchemin.
 

@@ -66,7 +66,7 @@ Il médita longuement, mais ce sentiment persistait. Il se leva et marcha vers l
 
 En regardant vers l'extérieur, une illumination traversa l'esprit de Wang Lin; il comprit soudainement l'origine de son malaise!
 
-« Pourquoi cette barrière est-elle apparue lorsque mon âme originelle a tenté de regagner mon corps? » L'expression de Wang Lin devint extrêmement sombre. Le démon dispersé était toujours scellé dans son âme originelle, une possession était donc impossible. Et son âme ne semblait pas non plus avoir été dérobée.
+« Pourquoi cette barrière est-elle apparue lorsque mon âme originelle a tenté de regagner mon corps? » L'expression de Wang Lin devint extrêmement sombre. Le démon dispersé était toujours scellé dans son âme originelle, une possession était donc impossible. Et son corps ne donnait pas non plus l'impression d'avoir été possédé.
 
 « Le problème vient de mon âme originelle! » Wang Lin tenta de faire sortir à nouveau son âme de son corps, mais son visage se décomposa aussitôt.
 

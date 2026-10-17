@@ -7,9 +7,9 @@ en: Chapter 535 - Raising Soul Fragments
 slug: elevage-de-fragments-dame
 ---
 
-Les yeux de Wang Lin étaient froids lorsqu'il pointa l'air du doigt. La silhouette du lion trembla, puis se transforma en un filet de gaz noir qui s'engouffra dans le drapeau spirituel de Treize avant de disparaître.
+Les yeux de Wang Lin étaient froids lorsqu'il pointa l'air du doigt. La silhouette du lion trembla, puis se transforma en un filet de gaz noir qui s'engouffra dans le drapeau d'âmes de Treize avant de disparaître.
 
-« Cette bête est acceptable comme âme primaire pour votre drapeau d'âmes de dix jours. Cependant, souvenez-vous qu’il n’y a aucune ruse possible avec le sort d'affinage de l'âme. Vous avez réussi à la sceller, mais elle a été capable de vous repousser. Que cela vous serve de leçon! » Après avoir prononcé ces mots, Wang Lin se détourna et retourna dans les profondeurs de la vallée.
+« Cette bête est acceptable comme âme primaire pour votre drapeau d'âmes de dix jours. Cependant, souvenez-vous qu’il n’y a aucune ruse possible avec le sort d'affinement des âmes. Vous avez réussi à la sceller, mais elle a été capable de vous repousser. Que cela vous serve de leçon! » Après avoir prononcé ces mots, Wang Lin se détourna et retourna dans les profondeurs de la vallée.
 
 Le visage de Treize était empreint de honte; il regarda le drapeau qu'il tenait en main et commença à réfléchir.
 
@@ -19,13 +19,13 @@ Wang Lin ne les suivit pas et n'utilisa même pas son sens divin. C'était une �
 
 Cinq jours plus tard, alors que Wang Lin cultivait dans les profondeurs de la vallée, il ouvrit les yeux. Bientôt, des bruits assourdissants parvinrent de loin: une longue file de personnes se précipitait vers la vallée en suivant le sentier sinueux.
 
-Cette longue colonne était composée d'individus étrangers au village, et leurs visages étaient pétrifiés par la peur. Hommes et femmes s'y succédaient, tous dans la fleur de l'âge. Leurs mains étaient liées par des cordes, formant des groupes de sept. Chaque ligne portait une poutre à laquelle les prisonniers étaient attachés, progressant avec lenteur.
+Cette longue colonne était composée d'individus étrangers au village, et leurs visages étaient pétrifiés par la peur. Hommes et femmes s'y succédaient, tous dans la fleur de l'âge. Leurs mains étaient liées par des cordes, formant des groupes de sept. Chaque groupe portait sur l'épaule une bûche épaisse comme un seau, à laquelle leurs mains étaient attachées, et progressait avec lenteur.
 
 Ouyang Hua marchait en tête, le corps maculé de traces de sang. Bien qu'il paraisse épuisé, une lueur d'excitation brillait sur son visage. Les villageois accompagnaient la file sur les côtés; si un prisonnier ralentissait trop, un villageois s'approchait pour l'apostropher violemment.
 
 Treize marchait à la fin de la colonne. Son aura était devenue radicalement différente: il n'était plus aussi orgueilleux et semblait beaucoup plus calme, le regard empreint de détermination. Il avançait derrière les prisonniers, entouré de plusieurs hommes qui, pourtant, gardaient leurs distances avec un profond respect.
 
-On peut dire que Treize s'était illustré lors de cette bataille. En collaborant avec Ouyang Hua, ils avaient réussi à contourner la formation ennemie et à prendre l'adversaire au dépourvu. L'Ancien ennemi avait été dévoré par le lion invoqué par Treize dès le début du combat. Ce dernier avait ensuite utilisé le sort d'affinage de l'âme, sous les yeux mêmes de l'ennemi, pour raffiner l'âme de l'Ancien et la sceller dans son drapeau spirituel. Parallèlement, Ouyang Hua n'était pas en reste; il avait rapidement raffiné et scellé les âmes des combattants tombés au combat.
+On peut dire que Treize s'était illustré lors de cette bataille. En collaborant avec Ouyang Hua, ils avaient réussi à contourner la formation ennemie et à prendre l'adversaire au dépourvu. L'Ancien ennemi avait été dévoré par le lion invoqué par Treize dès le début du combat. Ce dernier avait ensuite utilisé le sort d'affinement des âmes, sous les yeux mêmes de l'ennemi, pour raffiner l'âme de l'Ancien et la sceller dans son drapeau d'âmes. Parallèlement, Ouyang Hua n'était pas en reste; il avait rapidement raffiné et scellé les âmes des ennemis morts lors de ce combat.
 
 Cette scène avait été un choc immense pour les ennemis!
 
@@ -51,15 +51,15 @@ Wang Lin regarda Ouyang Hua, puis tapa sur son sac de rangement pour en sortir u
 
 Ouyang Hua réprima l'excitation qui bouillonnait en son cœur. Après avoir accepté le jade, il s'éclipsa rapidement.
 
-Une fois seul, les yeux de Wang Lin brillèrent alors qu'il murmurait pour lui-même: « Il semble que ce soit la bonne approche. À mesure que le village grandira et absorbera les tribus environnantes, la quantité de cristaux démoniaques que je pourrai obtenir augmentera également. De plus, plus la tribu sera nombreuse, plus il y aura de personnes pour pratiquer le sort d'affinage de l'âme. Cela signifie que je pourrai restaurer la pleine puissance du drapeau à un milliard d'âmes plus tôt! »
+Une fois seul, les yeux de Wang Lin brillèrent alors qu'il murmurait pour lui-même: « Il semble que ce soit la bonne approche. À mesure que le village grandira et absorbera les tribus environnantes, la quantité de cristaux démoniaques que je pourrai obtenir augmentera également. De plus, plus la tribu sera nombreuse, plus il y aura de personnes pour pratiquer le sort d'affinement des âmes. Cela signifie que je pourrai restaurer la pleine puissance du drapeau à un milliard d'âmes plus tôt! »
 
 En ce moment même, Wang Lin élevait des fragments d'âme! Tous les fragments d'âme raffinés par ceux qui pratiquaient le sort pourraient devenir les siens par une simple pensée. Un jour viendrait où le moment serait venu pour lui de collecter toutes les âmes, et le drapeau à un milliard d'âmes redeviendrait entier!
 
 La population du village avait soudainement été multipliée par plusieurs. Le nombre d'hommes dépassait désormais la cinquantaine. Les femmes étaient réparties parmi les villageois, et quelques-unes des plus belles furent offertes à Wang Lin par Ouyang Hua, qui était avide de mérites. Cependant, il reçut un refus catégorique cette fois-ci.
 
-Tous ces nouveaux membres de la tribu commencèrent à pratiquer le sort d'affinage de l'âme. Une atmosphère de culture régnait désormais dans la vallée. Hormis ceux qui partaient chasser quotidiennement, tout le monde se concentrait sur sa culture. Même certaines femmes s'y mirent. Au début, Ouyang Hua s'y opposa, mais après avoir été réprimandé par Wang Lin via une transmission de message, il changea rapidement d'attitude et soutint ouvertement la culture féminine.
+Tous ces nouveaux membres de la tribu commencèrent à pratiquer le sort d'affinement des âmes. Une atmosphère de culture régnait désormais dans la vallée. Hormis ceux qui partaient chasser quotidiennement, tout le monde se concentrait sur sa culture. Même certaines femmes s'y mirent. Au début, Ouyang Hua s'y opposa, mais après avoir été réprimandé par Wang Lin via une transmission de message, il changea rapidement d'attitude et soutint ouvertement la culture féminine.
 
-En conséquence, tous les habitants de la vallée, à l'exception des enfants, qu'ils soient hommes ou femmes, se mirent à cultiver avec acharnement. Apprendre le sort d'affinage était aisé et, grâce à la puissance de Treize et d'Ouyang Hua, ces deux-là devinrent rapidement les modèles à suivre.
+En conséquence, tous les habitants de la vallée, à l'exception des enfants, qu'ils soient hommes ou femmes, se mirent à cultiver avec acharnement. Apprendre le sort d'affinement des âmes était aisé et, grâce à la puissance de Treize et d'Ouyang Hua, ces deux-là devinrent rapidement les modèles à suivre.
 
 Le temps passa silencieusement et, en un clin d'œil, six mois s'écoulèrent. Durant cette période, les villageois sortirent fréquemment, seuls ou en groupes, soit pour fabriquer leurs propres drapeaux spirituels, soit pour tuer des bêtes afin de raffiner leurs âmes. Outre Treize, quatre autres personnes atteignirent le troisième stade au cours de ces six mois et durent fabriquer leurs drapeaux.
 

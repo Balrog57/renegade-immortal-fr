@@ -16,7 +16,7 @@ Ce que l'homme vit fit se rétracter ses pupilles de manière imperceptible, et 
 
 Au moment où cet individu apparut, l'expression de Shengong Hu devint sombre. La Bête de Tonnerre à ses côtés se redressa et poussa un grognement, le regard empreint d'hostilité.
 
-Quant à la Bête de Tonnerre aux cornes argentées, elle détourna les yeux de Wang Lin pour jeter un coup d'œil à l'homme au visage féminin. Ses yeux étaient remplis de dédain alors qu'il restait là, commençant à jouer avec le tonnerre qui l'entourait.
+Quant à la Bête de Tonnerre aux cornes argentées, elle détourna les yeux de Wang Lin pour jeter un coup d'œil à l'homme au visage féminin. Ses yeux étaient remplis de dédain; elle se coucha à l'écart et se mit à jouer avec le tonnerre qui l'entourait.
 
 Ces filaments de tonnerre étaient extrêmement obéissants sous son contrôle. Ils se mouvaient autour de son corps comme de petites mains venant gratter une démangeaison.
 

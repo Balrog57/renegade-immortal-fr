@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 726 - Condensing Thunder Origin
 slug: condensation-de-lorigine-du-tonnerre
 ---
-Wang Lin affichait une expression neutre tout en ressentant l'âme dao de Shengong Hu. Le domaine de cet homme était similaire à celui de Ling Tianhou, bien qu'il présentât des nuances. Cependant, comme Wang Lin ignorait tout des expériences de vie de Shengong Hu, il ne pouvait en saisir la pleine essence.
+Wang Lin affichait une expression neutre tout en ressentant l'âme Dao de Shengong Hu. Le domaine de cet homme était similaire à celui de Ling Tianhou, bien qu'il présentât des nuances. Cependant, comme Wang Lin ignorait tout des expériences de vie de Shengong Hu, il ne pouvait en saisir la pleine essence.
 
 « Combien de temps avant l'ouverture du Royaume Céleste du Tonnerre? » demanda calmement Wang Lin, ses yeux se fermant légèrement.
 
@@ -22,7 +22,7 @@ Le regard de Wang Lin resta serein lorsqu'il déclara d'un ton calme: « Ce viei
 
 Les pensées confuses qui agitaient l'esprit de Shengong Hu s'évanouirent instantanément. Au moment même où Wang Lin parlait, il était parvenu à la même conclusion. Dans son esprit, seule une telle origine pouvait correspondre au statut de Wang Lin.
 
-« Senior, le Royaume Céleste du Tonnerre de mon Système Stellaire de Luotian n'est pas trop gravement endommagé. La limite de culture est le stade avancé de l'Ascendant. Cependant, le Palais Céleste du Tonnerre dispose d'une méthode permettant aux cultivateurs de la deuxième étape d'y entrer. La condition préalable est qu'ils n'utilisent pas une force dépassant le début du stade Scruteur du Nirvana. »
+« Senior, le Royaume Céleste du Tonnerre de mon Système Stellaire de Luotian n'est pas trop gravement endommagé. La limite de culture est le stade avancé de l'Ascendant. Cependant, le Temple Céleste du Tonnerre dispose d'une méthode permettant aux cultivateurs de la deuxième étape d'y entrer. La condition préalable est qu'ils n'utilisent pas une force dépassant le début du stade Scruteur du Nirvana. »
 
 Wang Lin hocha la tête et demanda quelques précisions supplémentaires. Ce Royaume Céleste du Tonnerre ressemblait à celui de la Pluie; après tout, il y avait des éons, les Royaumes Célestes de la Pluie et du Tonnerre étaient tous deux des passages vers l'ancien Royaume Céleste.
 
@@ -38,7 +38,7 @@ Au début, Shengong Hu ne remarqua rien, mais il finit par soupirer. C'était be
 
 Pourtant, en suivant Wang Lin du regard, il le vit marcher cent pas dans le lac de tonnerre avant de s'asseoir.
 
-Shengong Hu prit une profonde inspiration, les yeux empreints de révérence. En raison de ses blessures, il ne pouvait faire que dix pas avant d'être incapable de progresser. Il s'assit alors précipitamment pour commencer à cultiver le sortilège de l'origine du tonnerre.
+Shengong Hu prit une profonde inspiration, les yeux empreints de révérence. En raison de ses blessures, il ne pouvait faire que dix pas avant d'être incapable de progresser. Il s'assit alors précipitamment pour commencer à cultiver le sort d'origine du tonnerre.
 
 Sa Bête du Tonnerre s'avança également avec prudence. Sa tête massive se tournait par intermittence vers Wang Lin, et son œil se remplissait de terreur. En tant que bête spirituelle, ses instincts la poussaient à craindre d'autant plus le regard de Wang Lin; ce dernier avait presque fait perdre l'esprit à la créature.
 
@@ -54,17 +54,17 @@ Au loin, le garde céleste était assis sur un astéroïde. Ses yeux brillaient 
 
 Cent pas représentaient la limite de Wang Lin, et cela n'était dû qu'au fait qu'il avait entrevu la troisième étape, ce qui avait provoqué l'évolution de son âme. En observant le tonnerre, il pouvait vaguement percevoir des changements étranges, semblables à ceux qu'il ressentait lorsqu'il utilisait le Coup Céleste.
 
-Ayant remarqué ce changement, Wang Lin parvint à faire cent pas avant d'être immobilisé. Il s'assit et commença à absorber le tonnerre dans son corps. Le sortilège de l'origine du tonnerre extrayait les éclairs pour en raffiner continuellement l'énergie d'origine.
+Ayant remarqué ce changement, Wang Lin parvint à faire cent pas avant d'être immobilisé. Il s'assit et commença à absorber le tonnerre dans son corps. Le sort d'origine du tonnerre extrayait les éclairs pour en raffiner continuellement l'énergie originelle.
 
-Au fil du temps, d'immenses quantités de tonnerre convergèrent de toutes les directions pour être absorbées par son corps. Tandis que le sortilège opérait, il extrayait lentement l'énergie d'origine du tonnerre pour nourrir son âme d'origine.
+Au fil du temps, d'immenses quantités de tonnerre convergèrent de toutes les directions pour être absorbées par son corps. Tandis que le sortilège opérait, il extrayait lentement l'énergie originelle du tonnerre pour nourrir son âme originelle.
 
 Une sensation de bien-être profond émana peu à peu du corps de Wang Lin.
 
-Lorsqu'il avait atteint le stade d'Ascendant grâce au cristal d'Ascendant de Zhou Yi, Wang Lin possédait plus d'énergie d'origine que la plupart des cultivateurs. Cela rendait sa progression très fluide, mais l'usage du Coup Céleste et son combat contre le Daoïste du Tonnerre avaient épuisé ses réserves. En conséquence, il se trouvait à la limite d'une chute de son niveau de culture.
+Lorsqu'il avait atteint le stade d'Ascendant grâce au cristal d'Ascendant de Zhou Yi, Wang Lin possédait plus d'énergie originelle que la plupart des cultivateurs. Cela rendait sa progression très fluide, mais l'usage du Coup Céleste et son combat contre le Daoïste du Tonnerre avaient épuisé ses réserves. En conséquence, il se trouvait à la limite d'une chute de son niveau de culture.
 
-L'énergie d'origine est une ressource extrêmement difficile à récupérer pour les cultivateurs de la première étape. Si Wang Lin n'avait pas possédé une âme d'origine du tonnerre, il l'aurait regretté toute sa vie.
+L'énergie originelle est une ressource extrêmement difficile à récupérer pour les cultivateurs de la première étape. Si Wang Lin n'avait pas possédé une âme originelle du tonnerre, il l'aurait regretté toute sa vie.
 
-À mesure que l'énergie d'origine pénétrait Wang Lin et nourrissait son âme d'origine, cette dernière se rétablissait lentement.
+À mesure que l'énergie originelle pénétrait Wang Lin et nourrissait son âme originelle, cette dernière se rétablissait lentement.
 
 Le processus était très lent. La main de Wang Lin traça un sceau qui se mit ensuite à trembler. Une immense onde de tonnerre se propagea instantanément, et une quantité de foudre dix fois supérieure convergea vers lui.
 
@@ -72,13 +72,13 @@ Même lui ne put s'empêcher de ressentir un certain engourdissement. Wang Lin p
 
 L'action de Wang Lin provoqua une série d'explosions qui tirèrent Shengong Hu de sa torpeur. Il prit une grande inspiration et ouvrit les yeux, mais en voyant Wang Lin, ses pupilles se rétractèrent brusquement.
 
-« Il est digne de son rang de Senior. Il a osé attirer autant de tonnerre dans son corps à cent pas de profondeur. Si j'avais été à sa place, ma chair n'aurait pu le supporter et même mon âme d'origine en aurait été endommagée. » Les yeux de Shengong Hu s'illuminèrent d'excitation.
+« Il est digne de son rang de Senior. Il a osé attirer autant de tonnerre dans son corps à cent pas de profondeur. Si j'avais été à sa place, ma chair n'aurait pu le supporter et même mon âme originelle en aurait été endommagée. » Les yeux de Shengong Hu s'illuminèrent d'excitation.
 
 « Il semble que je doive redoubler d'efforts! » Ses yeux brillèrent, puis il attira davantage de tonnerre dans son corps. Son torse trembla tandis qu'il commençait aussitôt l'absorption.
 
-Wang Lin activa le sortilège de l'origine du tonnerre, et une quantité de foudre dix fois supérieure à la précédente pénétra son corps. Sous cette intensité accrue, l'énergie d'origine au sein de son âme commença progressivement à se régénérer plus vite. Cependant, elle était encore loin d'être totalement restaurée.
+Wang Lin activa le sort d'origine du tonnerre, et dix fois la quantité normale de foudre pénétra son corps. Sous cette intensité accrue, l'énergie originelle au sein de son âme commença progressivement à se régénérer plus vite. Cependant, elle était encore loin d'être totalement restaurée.
 
-Après tout, seule une infime fraction d'énergie d'origine pouvait être extraite de chaque filament de tonnerre et, après raffinage, il en restait encore moins pour la consommation.
+Après tout, seule une infime fraction d'énergie originelle pouvait être extraite de chaque filament de tonnerre et, après raffinage, il en restait encore moins pour la consommation.
 
 Le temps s'écoula lentement et, en un clin d'œil, deux années passèrent.
 
@@ -86,9 +86,9 @@ Durant ces deux ans, Wang Lin resta presque immobile, mais au lieu de dix fois l
 
 Quant à Shengong Hu, il travailla encore plus dur durant cette période et ses blessures se guérirent progressivement.
 
-Au cours de ces deux années, Wang Lin avait observé Shengong Hu. Cet homme cultivait également le sortilège de l'origine du tonnerre. Cependant, Wang Lin ne parvenait à absorber qu'une trace de chaque filament de tonnerre, tandis que Shengong Hu en absorbait dix fois plus.
+Au cours de ces deux années, Wang Lin avait observé Shengong Hu. Cet homme cultivait également le sort d'origine du tonnerre. Cependant, Wang Lin ne parvenait à absorber qu'une trace de chaque filament de tonnerre, tandis que Shengong Hu en absorbait dix fois plus.
 
-En observant et en découvrant peu à peu certains indices, il comprit que cela dépendait grandement de la quantité d'énergie d'origine dont on disposait. Plus l'énergie d'origine était abondante, plus la capacité d'absorption augmentait.
+En observant et en découvrant peu à peu certains indices, il comprit que cela dépendait grandement de la quantité d'énergie originelle dont on disposait. Plus l'énergie originelle était abondante, plus la capacité d'absorption augmentait.
 
 C'était cette caractéristique qui créait un tel écart entre les différents niveaux de la deuxième étape.
 
@@ -98,9 +98,9 @@ Ce changement attira l'attention de Shengong Hu. Il ouvrit les yeux pour fixer W
 
 Wang Lin ne prêta aucune attention à Shengong Hu et fixa le centre du lac. Cette étendue était immense. Bien qu'elle eût été réduite de moitié par la Perle Défiant le Ciel, elle demeurait impressionnante.
 
-À cet instant, Wang Lin n'était qu'au bord et se trouvait encore très loin du centre. Le tonnerre dans le lac devenait naturellement plus puissant à mesure que l'on approchait du centre, là où la concentration d'énergie d'origine était la plus élevée.
+À cet instant, Wang Lin n'était qu'au bord et se trouvait encore très loin du centre. Le tonnerre dans le lac devenait naturellement plus puissant à mesure que l'on approchait du centre, là où la concentration d'énergie originelle était la plus élevée.
 
-On pourrait même dire que l'énergie d'origine contenue dans cent filaments de tonnerre en bordure ne pouvait rivaliser avec celle d'un seul filament au centre.
+On pourrait même dire que l'énergie originelle contenue dans cent filaments de tonnerre en bordure ne pouvait rivaliser avec celle d'un seul filament au centre.
 
 Après avoir réfléchi un moment, Wang Lin fit un pas en avant.
 

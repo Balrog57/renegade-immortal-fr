@@ -10,7 +10,7 @@ La cinquième couche était plus vaste que la quatrième et bien moins aride. On
 
 Les feuilles de ces plantes s'agitaient selon un motif mystérieux. Si l'on les observait trop longtemps, le corps finissait par suivre le mouvement des feuilles.
 
-Sur la cinquième couche, Wang Lin remarqua trois Arbres de Réincarnation, au sommet de chacun desquels siégeait un shaman à huit feuilles. Leurs blessures étaient graves et ils étaient sur le point de mourir.
+Sur la cinquième couche, Wang Lin remarqua trois Arbres de Réincarnation, au sommet de chacun desquels siégeait un chaman à huit feuilles. Leurs blessures étaient graves et ils étaient sur le point de mourir.
 
 Le regard de Wang Lin se glaça, puis il se téléporta vers l'un d'eux.
 
@@ -48,9 +48,9 @@ Les yeux du cultivateur Ascendant du stade initial s'illuminèrent et il agita l
 
 Sans marquer de pause, Wang Lin chargea vers l'Arbre de Réincarnation et le pointa du doigt. Tous les fragments d'âmes autour de lui s'élancèrent pour dévorer l'Arbre.
 
-L'Arbre de Réincarnation s'effondra instantanément, et le shaman à huit feuilles qui trônait au sommet cracha une bouchée de sang avant de mourir.
+L'Arbre de Réincarnation s'effondra instantanément, et le chaman à huit feuilles qui trônait au sommet cracha une bouchée de sang avant de mourir.
 
-Ce processus se poursuivit tandis que Wang Lin guidait l'âme Ascendante et l'Étendard de l'Âme au Milliard d'Âmes à travers la cinquième couche, balayant tout sur son passage. Les deux autres shamans à huit feuilles qui tentaient de guérir furent également exécutés; il raffina leurs corps et rangea leurs crânes.
+Ce processus se poursuivit tandis que Wang Lin guidait l'âme Ascendante et l'Étendard de l'Âme au Milliard d'Âmes à travers la cinquième couche, balayant tout sur son passage. Les deux autres chamans à huit feuilles qui tentaient de guérir furent également exécutés; il raffina leurs corps et rangea leurs crânes.
 
 Wang Lin n'éprouvait aucune pitié pour le Clan des Immortels Délaissés. Il vola rapidement vers la sixième couche, tel un démon massacrant chaque membre du clan qu'il croisait sur sa route.
 
@@ -64,9 +64,9 @@ Arrivé à la dixième couche, l'âme Ascendante s'effondra en de faibles fragme
 
 Wang Lin rangea l'Étendard de l'Âme au Milliard d'Âmes. En chemin, il avait pu étudier l'artefact. Bien que l'âme Ascendante fût puissante, sa durée était trop courte et une différence de puissance subsistait par rapport à un véritable cultivateur Ascendant.
 
-De plus, chaque utilisation endommageait considérablement les fragments d'âmes. C'était la raison pour laquelle Du Tian ne s'en servait que pour intimider ses adversaires plutôt que pour combattre.
+De plus, chaque utilisation endommageait considérablement les fragments d'âmes, qui avaient besoin de beaucoup de temps pour se rétablir. C'était la raison pour laquelle Du Tian ne s'en servait que pour intimider ses adversaires plutôt que pour combattre.
 
-Au total, en comptant celui qu'il avait tué précédemment, Wang Lin avait éliminé 19 shamans à huit feuilles. Tous étaient déjà gravement blessés et périrent sans même comprendre ce qui leur arrivait. Toutes les couches suivantes possédaient des plantes mystérieuses agissant comme gardiennes, tout comme la sixième couche.
+Au total, en comptant celui qu'il avait tué précédemment, Wang Lin avait éliminé 19 chamans à huit feuilles. Tous étaient déjà gravement blessés et périrent sans même comprendre ce qui leur arrivait. Toutes les couches suivantes possédaient des plantes mystérieuses agissant comme gardiennes, tout comme la sixième couche.
 
 Sans cette âme Ascendante, Wang Lin aurait été stoppé à la sixième couche.
 
@@ -82,15 +82,15 @@ Logiquement, ces pierres étaient inutiles pour eux. Leur pouvoir de tatouage pr
 
 Bien que les pierres spirituelles ne captivent plus vraiment l'attention de Wang Lin, elles demeuraient une monnaie d'échange entre cultivateurs; plus il en avait, mieux c'était. En chemin, il en collecta une quantité colossale. Même pour une secte d'un pays de culture de rang 4, cette réserve suffirait à la faire subsister pendant mille ans.
 
-Mais comparés à ces pierres, les crânes des shamans à huit feuilles suscitaient un intérêt bien plus vif. Chaque crâne portait un tatouage unique et l'aura qui s'en dégageait correspondait à celle d'un cultivateur de la Transformation de l'Âme.
+Mais comparés à ces pierres, les crânes des chamans à huit feuilles suscitaient un intérêt bien plus vif. Chaque crâne portait un tatouage unique et l'aura qui s'en dégageait correspondait à celle d'un cultivateur de la Transformation de l'Âme.
 
 Wang Lin pressentait que ces crânes n'étaient pas ordinaires et valaient bien plus que les pierres spirituelles.
 
 Son intuition était juste. Sur la planète Tian Yun, les essences de ceux utilisant des pouvoirs différents de la culture traditionnelle possédaient une valeur immense. L'essence des membres du Clan des Immortels Délaissés résidait dans leurs crânes. En utilisant une technique secrète, on pouvait extraire le tatouage du crâne pour en acquérir le pouvoir.
 
-Et si l'on parvenait à obtenir le crâne d'un shaman à neuf feuilles ou plus, sa valeur devenait inestimable!
+Et si l'on parvenait à obtenir le crâne d'un chaman à neuf feuilles ou plus, sa valeur devenait inestimable!
 
-Parmi les étoiles, certaines planètes abritent des indigènes dotés de pouvoirs mystérieux radicalement différents de ceux des cultivateurs. Ces peuples ont attiré l'attention de l'Alliance de la Culture. L'Alliance ne les élimine pas, mais les capture d'une certaine manière: elle laisse les générations se multiplier afin de les récolter systématiquement et créer un approvisionnement inépuisable de ces essences.
+Parmi les étoiles, certaines planètes abritent des indigènes dotés de pouvoirs mystérieux radicalement différents de ceux des cultivateurs. Ces peuples ont attiré l'attention de l'Alliance de Culture. L'Alliance ne les élimine pas, mais les capture d'une certaine manière: elle laisse les générations se multiplier afin de les récolter systématiquement et créer un approvisionnement inépuisable de ces essences.
 
 Pour élever une race en captivité, il faut naturellement la nourrir...
 
@@ -98,7 +98,7 @@ Wang Lin possédait désormais 19 crânes. Après les avoir soigneusement rangé
 
 Il ignorait combien de couches composaient la Nécropole Immortelle et, sans son âme Ascendante, il n'aurait jamais pu progresser autant. Il manquait de confiance pour affronter cette onzième étape.
 
-Pourtant, un sentiment mystérieux lui soufflait que quelque chose dans cette couche l'appelait. Wang Lin eut un ricanement amer; au lieu de s'élancer tête baissée, il entreprit de dresser une formation.
+Pourtant, un sentiment mystérieux lui soufflait que quelque chose dans cette couche l'appelait. Wang Lin eut un sourire froid; au lieu de s'élancer tête baissée, il entreprit de dresser une formation.
 
 Il s'agissait de la formation que Du Tian lui avait enseignée pour contrer le pouvoir de lignée de l'ancêtre du Clan des Démons Géants: un petit réseau de transfert.
 

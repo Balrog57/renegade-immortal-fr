@@ -22,7 +22,7 @@ Ces seize personnes étaient dispersées autour de l'entrée de la Tombe de Suza
 
 Avec ces seize experts en attente, personne dans les environs n'osait s'approcher. Tous attendaient que ces seize individus entrent pour ensuite se disputer le droit de passer à leur tour. Après tout, pénétrer dans ce lieu offrait la chance de récupérer son fragment d'âme. Pour une chance de sauver leur propre vie, tous les habitants de la planète Suzaku étaient prêts à tout donner. Plus leur niveau de culture était élevé, plus cette détermination était absolue.
 
-La silhouette de Wang Lin approchait au loin. Il portait une robe blanche qui lui conférait un air de grand calme.
+La silhouette de Wang Lin approchait au loin. Il portait une robe blanche qui lui conférait un air de grand calme; ses cheveux, détachés dans son dos, flottaient au vent et accentuaient encore son allure éthérée.
 
 Tout au long du trajet, Situ Nan lui avait exposé en détail les enjeux de la Tombe de Suzaku. Cependant, Wang Lin n'était pas très confiant pour ce voyage. La Tombe de Suzaku semblait bien plus dangereuse qu'il ne l'avait initialement prévu.
 
@@ -62,7 +62,7 @@ Dès que les quinze regards se posèrent sur Wang Lin, leurs yeux s'animèrent d
 
 Wang Lin marcha vers le pied du mont Suzaku. Il s'assit près de l'entrée et médita silencieusement.
 
-Parmi les seize cultivateurs de la Transformation de l'Âme présents, le seul au stade avancé était un homme d'âge moyen. Vêtu d'une robe pourpre, il paraissait tout à fait ordinaire. Il était assis en tailleur, les yeux clos. Une épée antique était plantée dans le sol devant lui, son gland doré flottant au vent tandis que les deux clochettes fixées dessus produisaient un tintement cristallin.
+Parmi les seize cultivateurs de la Transformation de l'Âme présents, le seul au stade avancé était un homme d'âge moyen. Vêtu d'une robe pourpre, il paraissait tout à fait ordinaire. Il était assis en tailleur, les yeux clos. Une antique épée noire était posée devant ses genoux, son gland doré flottant au vent tandis que les deux clochettes fixées dessus produisaient un tintement cristallin.
 
 Un petit singe aux yeux rouges était assis à ses côtés. L'animal se grattait parfois la tête en poussant des cris vers l'entrée.
 

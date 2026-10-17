@@ -113,7 +113,7 @@ Wang Lin apprit cela alors qu'il regagnait Chu. Le choc qui le traversa fut inde
 
 Cependant, quelqu'un trouva Wang Lin avant Yun Quezi. Ce jour-là, Wang Lin venait d'ouvrir un ancien réseau de transfert dont la destination était Chu.
 
-Au moment où il pénétra dans le réseau, Wang Lin s'arrêta et se retourna pour regarder au loin, où il vit un homme corpulent portant un chapeau de paille approcher.
+Au moment où il pénétra dans le réseau, Wang Lin s'arrêta et se retourna pour regarder au loin, où il vit un homme corpulent portant un chapeau de paille et irradiant une lueur dorée approcher.
 
 « Frère Wang, cela fait bien des années que nous ne nous sommes vus. Vous souvenez-vous encore de moi? » L'homme corpulent s'arrêta à 33 mètres de lui et retira son chapeau.
 
@@ -127,7 +127,7 @@ Voyant la Secte de Jade Céleste approcher, Chu Yunfei s'arrêta brusquement et 
 
 Un homme marchait vers lui. Vêtu d'une robe rouge, le visage marqué par l'âge, il dégageait une aura antique et une pression écrasante. Il s'arrêta à 66 mètres de Chu Yunfei et le fixa intensément.
 
-« Frère Chu, cela fait bien des années que nous ne nous sommes pas vus. Tout le monde va-t-il bien? »
+« Frère Chu, cela fait bien des années que nous ne nous sommes pas vus, et vous avez toujours la même prestance. »
 
 Le regard de Chu Yunfei se fit grave alors qu'il fixait l'inconnu: « Yun Quezi! »
 

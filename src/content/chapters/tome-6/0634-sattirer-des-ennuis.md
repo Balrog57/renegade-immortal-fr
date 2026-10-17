@@ -18,7 +18,7 @@ Alors que le nombre de chemins se multipliait, le corps de Du Jian s'arrêta sou
 
 Les deux femmes, Zhao Yixuan et Xu Fei, s'arrêtèrent à leur tour pour observer les environs. Ces chemins ramifiés ressemblaient à des gueules béantes attendant que leurs proies s'approchent.
 
-« Tout le monde, je suis convaincu que des trésors se cachent dans ces fissures. Je pense qu'en descendant plus profondément, nous en trouverons davantage. Notre but est d'obtenir des richesses, tout dépendra donc désormais de nos capacités. » Sur ces mots, Du Jian s'élança vers l'une des crevasses.
+« Tout le monde, je suis convaincu que des trésors se cachent dans ces fissures. Je pense qu'en descendant plus profondément, nous en trouverons davantage. Notre but est d'obtenir des trésors, tout dépendra donc désormais de nos capacités. » Sur ces mots, Du Jian s'élança vers l'une des crevasses.
 
 Murong Zhuo hésita un instant avant de voler vers une autre fissure.
 
@@ -34,7 +34,7 @@ Tout en volant, Wang Lin tourna la tête pour observer la direction prise par le
 
 Interrompant sa réflexion, Wang Lin baissa le regard. Le ravin semblait sans fond, et il ignorait jusqu'à quelle profondeur il s'étendait. Ils avaient déjà volé un long moment avant de s'arrêter tout à l'heure, mais ils n'avaient toujours pas atteint le bas.
 
-« Même le cristal de Bei Lou n'a pu percer le fond de cet Abîme des Marées. La seule chose que je sache, c'est qu'un large corridor sinueux relie les cinq entrées entre elles. Quant à la sortie, il n'y en a qu'une! »
+« Même le cristal de Bei Luo n'a pu percer le fond de cet Abîme des Marées. La seule chose que je sache, c'est qu'un large corridor sinueux relie les cinq entrées entre elles. Quant à la sortie, il n'y en a qu'une! »
 
 Les yeux de Wang Lin s'illuminèrent et, au lieu de descendre, il prit soudainement de l'altitude. À cet instant, il ressentit immédiatement une pression pesante émanant du haut.
 
@@ -100,7 +100,7 @@ Il était déjà venu seul dans ce lieu autrefois, mais il n'était pas descendu
 
 Ce n'est qu'après avoir trouvé Murong et les autres qu'il avait enfin pu planifier son entrée aujourd'hui. Il était certain que Wang Lin ne percerait pas à jour son stratagème. Après tout, l'arbre ancien paraissait trop ordinaire, et le chemin était jonché de spécimens similaires n'ayant aucune capacité offensive.
 
-Wang Lin frappa sa sacoche et la lame demi-lunaire apparut. Il la lança, et en un éclair, elle s'engouffra dans la crevasse. La lame fut d'une rapidité telle qu'elle saisit immédiatement l'épée volante et revint vers Wang Lin.
+Wang Lin frappa son sac de rangement et la lame demi-lunaire apparut. Il la lança, et en un éclair, elle s'engouffra dans la crevasse. La lame fut d'une rapidité telle qu'elle saisit immédiatement l'épée volante et revint vers Wang Lin.
 
 Tout cela se produisit avec une célérité extrême, si rapide que l'arbre ancien desséché sembla ne même pas remarquer l'événement. La lame demi-lunaire revint dans les mains de Wang Lin, ramenant avec elle l'épée volante violette.
 

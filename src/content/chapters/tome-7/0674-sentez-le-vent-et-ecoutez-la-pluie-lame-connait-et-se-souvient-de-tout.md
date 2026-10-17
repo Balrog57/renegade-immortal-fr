@@ -46,13 +46,13 @@ Une lueur d'effroi brillait dans ses yeux. Auparavant, quand Wang Lin l'avait at
 
 Il prit la ferme décision qu'il ne ferait jamais d'ennemi à Xu Mu!
 
-La terreur que ressentait Carefree Shenren dans son cœur n'était pas moins grande que celle de l'ancêtre de la famille Ran. Il regarda la Formation d'Épées des Sept Étoiles et prit une profonde inspiration. À cet instant, il n'avait aucun doute que si Xu Mu voulait le tuer, il ne pourrait absolument pas résister.
+La terreur que ressentait Xiaoyao Sanren dans son cœur n'était pas moins grande que celle de l'ancêtre de la famille Ran. Il regarda la Formation d'Épées des Sept Étoiles et prit une profonde inspiration. À cet instant, il n'avait aucun doute que si Xu Mu voulait le tuer, il ne pourrait absolument pas résister.
 
 « Je crains que sa culture ne soit au sommet du stade avancé de l'Ascendant! »
 
 Relativement parlant, Sun Xi était beaucoup plus calme. Dans son cœur, il pensait que le niveau de culture de Wang Lin était extrêmement élevé. À cet instant, il se sentit rassuré et pensa: « Si ce Xu Mu est aussi fort, je dois m'assurer d'entretenir de bonnes relations avec lui. »
 
-Le cuir chevelu de Huan Dong se hérissa. Les sept épées autour de lui étaient comme des lames de mort suspendues au-dessus de sa tête, prêtes à tomber à tout moment. Il fixa Wang Lin, mais vit aussi les trois autres derrière lui et hurla: « Ran Xuefeng, Sun Xi, Zhao Chuawen, cherchez-vous la mort?! »
+Le cuir chevelu de Huan Dong se hérissa. Les sept épées autour de lui étaient comme des lames de mort suspendues au-dessus de sa tête, prêtes à tomber à tout moment. Il fixa Wang Lin, mais vit aussi les trois autres derrière lui et hurla: « Ran Xuefeng, Sun Xi, Zhao Chuanwen, cherchez-vous la mort?! »
 
 Les trois réfléchirent silencieusement sans répondre. Cependant, un éclair de froideur passa dans leurs yeux.
 
@@ -62,7 +62,7 @@ Bien que les paroles de Huan Dong s'adressent à l'ancêtre de la famille Ran et
 
 En entendant cela, une pointe d'hésitation traversa les yeux de l'ancêtre de la famille Ran, mais elle fut immédiatement remplacée par de la détermination. Il dit calmement: « Camarade cultivateur Huan, je me demande pourquoi vous êtes venu sur la planète Ran Yun. »
 
-Huan Dong fixa l'ancêtre de la famille Ran, puis les deux autres. Il esquissa un sourire. « Ainsi, le membre de la famille Huan a bel et bien été tué par vous trois il y a quatre ans. Ran Xuefeng, Sun Xi, Zhao Chuawen, les lignées de vos familles touchent à leur fin! »
+Huan Dong fixa l'ancêtre de la famille Ran, puis les deux autres. Il esquissa un sourire. « Ainsi, le membre de la famille Huan a bel et bien été tué par vous trois il y a quatre ans. Ran Xuefeng, Sun Xi, Zhao Chuanwen, les lignées de vos familles touchent à leur fin! »
 
 L'expression de l'ancêtre de la famille Ran devint sombre alors qu'il se tournait vers Wang Lin: « Camarade cultivateur Xu, que diriez-vous de nous remettre cet homme? »
 

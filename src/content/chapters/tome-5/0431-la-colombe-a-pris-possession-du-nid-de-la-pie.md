@@ -8,7 +8,7 @@ slug: la-colombe-a-pris-possession-du-nid-de-la-pie
 ---
 « Frère Wang, ce jade contient des informations sur le domaine de Liu Mei. Je sais que ce senior a ses propres raisons pour cela, alors libre à vous de les consulter ou non. »
 
-Zhou Wutai partit avec la boute de vin à moitié vide et laissa le jade derrière lui.
+Zhou Wutai partit avec la bouteille de vin à moitié vide et laissa le jade derrière lui.
 
 Wang Lin réfléchit un instant, puis scruta le jade de son Sens Divin. Au fil des instants, son expression devint de plus en plus sombre.
 
@@ -18,7 +18,7 @@ Il se leva, entra dans l'ancien réseau de transfert, l'activa et disparut.
 
 Le pays de Chu était la nation la plus proche du Clan des Immortels Délaissés. Il y avait naturellement de nombreux membres de ce clan ici.
 
-La Secte du Ciel Nuageux de Chu était tombée aux mains du Clan des Immortels Délaissés depuis bien longtemps; cela s'était produit dès leur apparition. Tous les cultivateurs portaient des tatouages imprimés sur leur corps. Les mortels avaient eu de la chance et n'avaient pas été trop affectés; seuls quelques villages trop proches du Clan des Immortels Délaissés avaient été touchés accidentellement lors des combats.
+La Secte du Ciel Nuageux de Chu était tombée aux mains du Clan des Immortels Délaissés depuis bien longtemps; cela s'était produit dès leur apparition. Tous les cultivateurs portaient des tatouages imprimés sur leur corps. Les mortels avaient eu de la chance et n'avaient pas été trop affectés; seuls quelques villages trop proches des sectes de cultivateurs avaient été touchés accidentellement par les sorts lors des assauts du Clan des Immortels Délaissés.
 
 Hormis le fait de ravir les enfants capables de cultiver, le Clan des Immortels Délaissés ne tuait pas les mortels.
 
@@ -34,7 +34,7 @@ Le Chu avait bien changé depuis le départ de Wang Lin.
 
 L'activation du réseau de transfert attira l'attention du Clan des Immortels Délaissés. À l'instant même où Wang Lin apparut, une masse de nuages noirs convergea du ciel. Sept ou huit chamans se trouvaient à l'intérieur de cette obscurité. Dès qu'ils aperçurent Wang Lin, ils commencèrent à activer la puissance de leurs tatouages pour l'attaquer.
 
-Wang Lin resta calme. Il daigna même pas regarder les chamans avant de mouvoir son corps et de disparaître.
+Wang Lin resta calme. Il ne daigna même pas regarder les chamans avant de mouvoir son corps et de disparaître.
 
 Lorsqu'il réapparut, il se trouvait déjà au village où Zhou Ru était née. L'endroit était totalement désolé et l'une de ces plantes étranges y poussait. Il n'y avait plus aucune trace de vie. Wang Lin laissa échapper un soupir avant de repartir.
 
@@ -52,7 +52,7 @@ Il vola à toute allure et, en un clin d'œil, arriva au-dessus de l'orifice men
 
 En contemplant ce végétal gigantesque, il eut soudain une pensée. Il agita alors sa main droite et se dissimula.
 
-Peu après, une lueur fantomatique émana de la plante tandis qu'un shaman aux cinq feuilles en émergeait. Celui-ci se transforma en un nuage noir et s'envola au loin.
+Peu après, une lueur fantomatique émana de la plante tandis qu'un chaman aux cinq feuilles en émergeait. Celui-ci se transforma en un nuage noir et s'envola au loin.
 
 Une fois celui-ci parti, Wang Lin réapparut. Ses yeux brillèrent et il pointa la plante du doigt. Un rayon d'énergie spirituelle jaillit vers l'immense végétal. Au moment où l'énergie toucha la plante, celle-ci se désintégra en une multitude de poussières dorées.
 
@@ -96,14 +96,14 @@ Wang Lin ne s'arrêta pas et pénétra directement dans la deuxième couche. Pui
 
 Après avoir inspecté les lieux, Wang Lin disparut de nouveau. Cette fois, il réapparut devant l'entrée de la quatrième couche. En voyant cela, son expression changea légèrement et il se dissimula promptement.
 
-Peu après, il vit un visage gigantesque s'approcher de l'entrée de la quatrième couche. À mesure qu'il se rapprochait, il se transforma en un shaman à six feuilles. Cet homme d'âge mûr avait la majeure partie du corps couverte de tatouages. Derrière lui suivaient plus d'une douzaine de cultivateurs au regard éteint.
+Peu après, il vit un visage gigantesque s'approcher de l'entrée de la quatrième couche. À mesure qu'il se rapprochait, il se transforma en un chaman à six feuilles. Cet homme d'âge mûr avait la majeure partie du corps couverte de tatouages. Derrière lui suivaient plus d'une douzaine de cultivateurs au regard éteint.
 
-Le shaman à six feuilles sauta dans l'entrée et les cultivateurs le suivirent rapidement. Les yeux de Wang Lin s'illuminèrent; il les suivit silencieusement pour entrer dans la quatrième couche.
+Le chaman à six feuilles sauta dans l'entrée et les cultivateurs le suivirent rapidement. Les yeux de Wang Lin s'illuminèrent; il les suivit silencieusement pour entrer dans la quatrième couche.
 
-Cette strate était plus lumineuse que les précédentes. Le shaman à six feuilles reprit sa forme de visage géant, saisit tous les cultivateurs et s'envola au loin. Wang Lin fut lui aussi emporté avec eux. Grâce à son niveau de culture, le shaman ne remarqua rien.
+Cette strate était plus lumineuse que les précédentes. Le chaman à six feuilles reprit sa forme de visage géant, saisit tous les cultivateurs et s'envola au loin. Wang Lin fut lui aussi emporté avec eux. Grâce à son niveau de culture, le chaman ne remarqua rien.
 
-Le shaman se déplaçait très vite; après le temps d'écoulement d'un bâton d'encens, ils arrivèrent au centre de la quatrième couche. Un Arbre de la Réincarnation, d'environ un mètre d'épaisseur et dix mètres de haut, s'y trouvait.
+Le chaman se déplaçait très vite; après le temps d'écoulement d'un bâton d'encens, ils arrivèrent au centre de la quatrième couche. Un Arbre de la Réincarnation, d'environ un mètre d'épaisseur et dix mètres de haut, s'y trouvait.
 
-Cependant, cet arbre était étrange: au lieu de branches, une lumière circulaire flottait au sommet. À l'intérieur de cette lumière se tenait un vieil homme totalement nu, présentant un trou de la taille d'un poing dans la poitrine. Son corps était couvert de tatouages et une plante à huit feuilles scintillait lentement sur son front.
+Cependant, cet arbre était étrange: au lieu de branches, une lumière circulaire flottait au sommet. À l'intérieur de cette lumière se tenait un vieil homme aux yeux clos, totalement nu, présentant un trou de la taille d'un poing dans la poitrine. Son corps était couvert de tatouages et une plante à huit feuilles scintillait lentement sur son front.
 
 Simultanément, un tatouage dégageant une aura antique flottait au-dessus de sa tête. Ce motif était si complexe qu'un seul regard suffisait à donner le vertige. Sous l'arbre se tenaient plus d'une douzaine de chamans à six feuilles. Aucun ne parlait, et derrière chacun d'eux se trouvaient plus de dix cultivateurs.

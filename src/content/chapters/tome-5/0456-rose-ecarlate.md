@@ -20,7 +20,7 @@ Ce que Wang Lin percevait dans les yeux de Papillon Rouge, c'était l'image mêm
 
 L'actuelle Papillon Rouge était toujours belle, mais Wang Lin ne pouvait plus y déceler la fierté et l'arrogance de la fille du ciel qu'elle avait été autrefois.
 
-La Papillon Rouge d'autrefois était le génie de Xue Yue, la fille bénie des cieux, celle qui avait atteint le stade de la Formation de l'Âme en seulement cent ans. Elle considérait Wang Lin comme une simple fourmi, et leurs brefs affrontements avaient fini par mener à leur bataille décisive.
+La Papillon Rouge d'autrefois était le génie de Xue Yue, la fille bénie des cieux, celle qui avait atteint le stade de la Formation de l'Âme en seulement cent ans. Elle considérait Wang Lin comme une simple fourmi, et leurs différends, creusés peu à peu, les avaient finalement menés à leur bataille décisive.
 
 Malgré cela, dans le cœur de Wang Lin, il lui vouait toujours un respect certain. Ce respect était celui que l'on accorde à un adversaire de valeur.
 
@@ -34,9 +34,9 @@ Papillon Rouge restait là, le regard perdu dans le ciel, les yeux dénués d'é
 
 La voix de Qian Feng surgit du vide: « Ceng Niu, je n'ai pas le temps de m'occuper de toi aujourd'hui. Puisque tu as trouvé cet endroit, nous nous retrouverons à la montagne spirituelle. »
 
-Wang Lin se retourna brusquement vers une montagne au loin. Un brouillard noir s'en échappa et chargea vers la montagne spirituelle à une vitesse fulgurante.
+Wang Lin se retourna brusquement vers une montagne au loin. Une silhouette noire y surgit telle une bourrasque, puis fila à une vitesse fulgurante vers la montagne spirituelle, au centre même de cette zone.
 
-Le regard de Wang Lin se glaça. Il laissa échapper un froid renâclant et s'apprêta à foncer vers la montagne spirituelle.
+Le regard de Wang Lin se glaça. Il laissa échapper un reniflement glacial et s'apprêta à foncer vers la montagne spirituelle.
 
 « Papillon Rouge, ne voulais-tu pas combattre Ceng Niu à nouveau? Je te donne cette chance aujourd'hui. Tue-le! » La voix de Qian Feng résonna au loin avant qu'il ne disparaisse.
 
@@ -48,7 +48,7 @@ Simultanément, une aura puissante émana d'elle. Cette puissance n'était pas i
 
 « Ceng Niu! » lança Papillon Rouge d'une voix glaciale, tandis que son regard tranchant se fixait sur Wang Lin.
 
-Wang Lin fronça légèrement les sourcils. Il n'était pas pressé de trouver Qian Feng et ne s'attendait pas à voir la montagne spirituelle ici. Si l'endroit se trouvait réellement à l'intérieur du Cristal de Planète de Culture, la montagne spirituelle ne devrait pas exister.
+Wang Lin fronça légèrement les sourcils. Il n'était pas pressé de trouver Qian Feng et ne s'attendait pas à voir la montagne spirituelle ici. Si l'endroit se trouvait réellement à l'intérieur du Cristal de la Planète de Culture, la montagne spirituelle ne devrait pas exister.
 
 Cependant, maintenant qu'elle était sous ses yeux, la situation était étrange; mais puisque Qian Feng voulait aller l'explorer, il n'avait qu'à le laisser faire.
 
@@ -72,7 +72,7 @@ Le cœur de Wang Lin tressaillit. En entendant la voix de Papillon Rouge, son re
 
 Elle n'avait pas totalement perdu la raison; une étincelle d'humanité subsistait, très bien dissimulée.
 
-Papillon Rouge était fière; sa dignité coulait dans ses veines, faisait partie de son essence même. Elle était aussi orgueilleuse qu'une rose dès l'instant de sa naissance.
+Papillon Rouge était fière; sa dignité coulait dans ses veines, faisait partie de son essence même. Toute sa vie, elle avait été une rose orgueilleuse.
 
 Cette parcelle de conscience qu'elle gardait si précieusement préférait mourir plutôt que de vivre une vie de chien.
 
@@ -104,7 +104,7 @@ Tout cela se joua en un éclair. Au moment où le Fouet de l'Âme percuta la lan
 
 Dans un fracas, Wang Lin recula brusquement de plus de trois cents mètres. Ses yeux brillaient d'une lueur étrange alors qu'il grommela: « Fouet de l'Âme! »
 
-Ce fouet lui avait appartenu autrefois, mais il avait dû le rendre aussitôt après l'avoir saisi. Maintenant qu'il le revoyait, il ne comptait pas le laisser repartir!
+Ce fouet lui avait appartenu autrefois, mais il avait finalement dû le rendre. Maintenant qu'il le revoyait, il ne comptait pas le laisser repartir!
 
 Quant à Papillon Rouge, poussée par la rafale qui projetait l'onde de choc vers elle, elle fut contrainte au recul. Une immense aura glaciale s'échappa de son armure rouge et s'étira vers l'avant. Des craquements se firent entendre alors que diverses sculptures de glace se formaient dans l'air devant elle.
 
@@ -124,7 +124,7 @@ Des éclairs violets passèrent de l'arme au corps de Wang Lin, faisant crépite
 
 À cet instant, un désir de combat qu'il n'avait jamais ressenti auparavant envahit son cœur.
 
-Cette hache avait été invoquée par l'ancêtre du Clan des Démons Géants avant sa mort; c'était l'arme du fondateur de ce clan qui était resté piégé sous la Secte des Cadavres à Zhao. Après l'avoir obtenue, Wang Lin avait initialement prévu de la confier à son corps original. Cependant, maintenant que l'épée céleste ne possédait pas d'esprit pour libérer toute sa puissance et qu'il ne souhaitait pas utiliser le drapeau de l'âme, c'était l'arme idéale pour déployer toute sa force.
+Cette hache avait été invoquée par l'ancêtre du Clan des Démons Géants avant sa mort; c'était l'arme du fondateur de ce clan qui était resté piégé sous la Secte des Cadavres à Zhao. Après l'avoir obtenue, Wang Lin avait initialement prévu de la confier à son corps original. Cependant, maintenant que l'épée céleste, privée de son esprit d'épée, ne pouvait libérer toute sa puissance et qu'il ne souhaitait pas utiliser le drapeau de l'âme, c'était l'arme idéale pour déployer toute sa force.
 
 Papillon Rouge fixa Wang Lin et ouvrit la bouche. Une lumière rouge s'en échappa, prenant la forme d'une rose de cristal écarlate qui se mit à flotter devant elle.
 

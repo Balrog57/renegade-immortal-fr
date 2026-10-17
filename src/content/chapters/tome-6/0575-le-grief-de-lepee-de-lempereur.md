@@ -8,11 +8,11 @@ slug: le-grief-de-lepee-de-lempereur
 ---
 Ce dragon argenté fixa Wang Lin avant de laisser échapper un rugissement furieux. Puis, son corps s'élança et sa griffe massive fondit sur lui. Lorsque la griffe descendit du ciel, c'était comme si les cieux eux-mêmes s'effondraient, et une aura surpuissante emplit instantanément la zone.
 
-Wang Lin leva la tête pour contempler le ciel. Il avait éprouvé la puissance du dragon argenté à maintes reprises ces derniers jours. Wang Lin ne bougea pas, mais les 3 792 filaments d'énergie meurtrière libérèrent une intention de combat redoutable. À mesure que cette intention se propageait, une aura capable de transpercer le ciel et le monde entier apparut.
+Wang Lin leva la tête pour contempler le ciel. Il avait éprouvé la puissance du dragon argenté à maintes reprises ces derniers jours. Wang Lin ne bougea pas, mais les 3 792 filaments d'énergie de massacre libérèrent une intention de combat redoutable. À mesure que cette intention se propageait, une aura capable de transpercer le ciel et le monde entier apparut.
 
-Plus de 3 000 éclats d'énergie meurtrière déchaînèrent une intention assassine monstrueuse qui chargea la griffe du dragon argenté tel un glaive acéré!
+Plus de 3 000 éclats d'énergie de massacre déchaînèrent une intention assassine monstrueuse qui chargea la griffe du dragon argenté tel un glaive acéré!
 
-Dans un fracas assourdissant, le monde écarlate tout entier trembla. La griffe du dragon argenté s'effondra sous la force des 3 792 filaments d'énergie meurtrière.
+Dans un fracas assourdissant, le monde écarlate tout entier trembla. La griffe du dragon argenté s'effondra sous la force des 3 792 filaments d'énergie de massacre.
 
 Le dragon argenté poussa un rugissement féroce, et ses yeux draconiques révélèrent une intention meurtrière encore jamais vue!
 
@@ -28,7 +28,7 @@ L'énergie d'épée fonça droit sur Wang Lin!
 
 Sans la moindre hésitation, le corps de Wang Lin se déplaça avec la rapidité de l'éclair, mais il ne chargea pas le dragon argenté. Au lieu de cela, il fit volte-face et s'élança vers l'entrée.
 
-Les 3 792 filaments d'énergie meurtrière le rattrapèrent et se transformèrent l'un après l'autre en sceaux de vie.
+Les 3 792 filaments d'énergie de massacre le rattrapèrent et se transformèrent l'un après l'autre en sceaux de vie.
 
 En un clin d'œil, les 3 792 sceaux de force vitale s'imprimèrent sur le front de Wang Lin avant de se propager instantanément sur tout son corps. Avec plus de 3 000 sceaux de vie l'entourant, c'était comme si Wang Lin avait acquis plus de 3 000 couches de protection supplémentaires.
 
@@ -64,9 +64,9 @@ L'un d'eux réfléchit un instant et déclara lentement: « Elle n'est pas moins
 
 Il était le premier des généraux démons, celui qui était stationné près du Pays du Démon de Feu: Mo Fei!
 
-Pourtant, si l'on regardait de plus près, cet homme ressemblait trait pour trait au jeune homme aux cheveux noirs de la Prison de Hong!
+Pourtant, si l'on regardait de plus près, cet homme ressemblait trait pour trait au jeune homme aux cheveux noirs de la Prison Hong!
 
-Dans le manoir Mo, le visage de Mo Lihai était empreint de choc face à la lumière argentée. Il voyait clairement qu'elle se dirigeait vers la Prison de Hong; son cœur rata un battement, envahi par un mauvais pressentiment.
+Dans le manoir Mo, le visage de Mo Lihai était empreint de choc face à la lumière argentée. Il voyait clairement qu'elle se dirigeait vers la Prison Hong; son cœur rata un battement, envahi par un mauvais pressentiment.
 
 « L'épée de l'Empereur! Ne serait-elle pas en route pour Wang Lin... » Puis Mo Lihai secoua la tête et se dit: « Comment Wang Lin pourrait-il faire bouger l'épée de l'Empereur avec son niveau de culture? Je m'imagine des choses. »
 
@@ -76,7 +76,7 @@ Au palais royal, un homme vêtu d'une robe impériale regarda le ciel et sourit.
 
 Derrière lui, une femme envoûtante demanda doucement: « Empereur, de quoi vous réjouissez-vous ainsi? »
 
-Le corps de Wang Lin se déplaça comme un éclair dans les escaliers de la Prison de Hong. Il bougeait avec une rapidité extrême et, tandis qu'il courait, le sang dans ses veines bouillonnait. Bien que la force de l'énergie d'épée ait été détournée par les sceaux de vie, elle provoquait tout de même un chaos interne.
+Le corps de Wang Lin se déplaça comme un éclair dans les escaliers de la Prison Hong. Il bougeait avec une rapidité extrême et, tandis qu'il courait, le sang dans ses veines bouillonnait. Bien que la force de l'énergie d'épée ait été détournée par les sceaux de vie, elle provoquait tout de même un chaos interne.
 
 Lorsqu'il descendait les escaliers auparavant, il n'était pas rapide, mais à présent, il passait comme un souffle.
 
@@ -88,7 +88,7 @@ Les yeux de Wang Lin se plissèrent, mais il sentit bientôt une énergie d'ép�
 
 Sentant son cuir chevelu s'engourdir, Wang Lin suivit rapidement l'homme nommé Xu, dissimulant sa présence sans laisser la moindre trace de lui-même.
 
-Les deux se déplacèrent avec une célérité extrême et disparurent après avoir traversé la Prison de Hong.
+Les deux se déplacèrent avec une célérité extrême et disparurent après avoir traversé la Prison Hong.
 
 Peu de temps après leur départ, l'épée de l'Empereur arriva et brisa directement la porte. Elle balaya la prison, cherchant la proie qui lui avait fait perdre sa dignité!
 
@@ -96,9 +96,9 @@ Peu de temps après leur départ, l'épée de l'Empereur arriva et brisa directe
 
 Le mur se referma aussitôt et l'homme nommé Xu s'éclipsa précipitamment. En courant, il grommela: « Ça n'en valait pas la peine... Si j'avais su qu'il allait attirer l'épée de l'Empereur ici, je ne l'aurais jamais envoyé là-bas, quoi qu'il arrive... »
 
-Wang Lin avait totalement occulté sa présence. Il n'utilisait pas d'énergie spirituelle céleste pour voler, mais marchait rapidement dans la rue. Au loin, il percevait les bruits de destruction provenant de la Prison de Hong, entremêlés aux hymnes d'épée colériques.
+Wang Lin avait totalement occulté sa présence. Il n'utilisait pas d'énergie spirituelle céleste pour voler, mais marchait rapidement dans la rue. Au loin, il percevait les bruits de destruction provenant de la Prison Hong, entremêlés aux hymnes d'épée colériques.
 
-Wang Lin accéléra encore. Ce lieu n'était pas loin du manoir Mo. Après le temps qu'il faut pour brûler une demi-tige d'encens, il atteignit le manoir Mo. Mo Lihai se tenait dans la cour, les yeux fixés sur la Prison de Hong, le cœur lourd d'un sentiment de catastrophe.
+Wang Lin accéléra encore. Ce lieu n'était pas loin du manoir Mo. Après le temps qu'il faut pour brûler une demi-tige d'encens, il atteignit le manoir Mo. Mo Lihai se tenait dans la cour, les yeux fixés sur la Prison Hong, le cœur lourd d'un sentiment de catastrophe.
 
 Il aperçut immédiatement Wang Lin et, remarquant comment celui-ci dissimulait sa présence, comprit instantanément la situation grâce à son intelligence. Il esquissa un sourire amer, conduisit Wang Lin vers une montagne artificielle et, d'un revers de la main, y creusa une cavité.
 
@@ -108,7 +108,7 @@ Le sens divin de Wang Lin s'étendit avant qu'il ne s'engouffre sans dire un mot
 
 Ce serait une nuit blanche pour Mo Lihai, et il en allait de même pour les habitants de la Cité du Démon Céleste!
 
-Toute la ville fut baignée par une lumière argentée durant toute la nuit. L'épée de l'Empereur, incapable de trouver la proie qui l'avait blessée, devint plus furieuse encore. Elle décida de ravager la Prison de Hong avant de patrouiller dans le ciel de la cité, cherchant frénétiquement.
+Toute la ville fut baignée par une lumière argentée durant toute la nuit. L'épée de l'Empereur, incapable de trouver la proie qui l'avait blessée, devint plus furieuse encore. Elle décida de ravager la Prison Hong avant de patrouiller dans le ciel de la cité, cherchant frénétiquement.
 
 Cela rendit la tâche de Mo Lihai bien plus ardue. Il devait sans cesse utiliser son énergie spirituelle démoniaque pour masquer la présence de Wang Lin afin que l'épée ne puisse le détecter.
 
@@ -122,8 +122,8 @@ Sa rage redoublait!
 
 C'était une nouvelle insulte!
 
-À l'aube, l'épée de l'Empereur, empreinte d'une frustration immense, laissa échapper un hymne d'épée. Elle se tourna vers la Prison de Hong et projeta un rayon d'énergie qui creusa une brèche de plus de mille pieds de long.
+À l'aube, l'épée de l'Empereur, empreinte d'une frustration immense, laissa échapper un hymne d'épée. Elle se tourna vers la Prison Hong et projeta un rayon d'énergie qui creusa une brèche de plus de mille pieds de long.
 
 Après avoir déchargé sa fureur, l'épée de l'Empereur retourna vers sa formation, toujours habitée par la rage.
 
-La Prison de Hong était l'une des quatre grandes prisons de la Cité du Démon Céleste. Bien qu'elle eût été endommagée par l'épée de l'Empereur, elle fut rapidement réparée grâce à d'importantes ressources et main-d'œuvre. Cependant, l'épée de l'Empereur semblait avoir la Prison de Hong pour cible: chaque fois qu'elle était reconstruite, l'épée réapparaissait pour la détruire à nouveau, afin d'évacuer sa colère.
+La Prison Hong était l'une des quatre grandes prisons de la Cité du Démon Céleste. Bien qu'elle eût été endommagée par l'épée de l'Empereur, elle fut rapidement réparée grâce à d'importantes ressources et main-d'œuvre. Cependant, l'épée de l'Empereur semblait avoir la Prison Hong pour cible: chaque fois qu'elle était reconstruite, l'épée réapparaissait pour la détruire à nouveau, afin d'évacuer sa colère.

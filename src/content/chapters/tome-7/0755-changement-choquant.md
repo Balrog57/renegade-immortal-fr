@@ -6,11 +6,11 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 755 - Shocking Change
 slug: changement-choquant
 ---
-« Peau de dieu ancestral! » L'expression de Wang Lin s'assombrit instantanément alors qu'il fixait l'armure de cuir sur le squelette.
+« Peau d'Ancien Dieu! » L'expression de Wang Lin s'assombrit instantanément alors qu'il fixait l'armure de cuir sur le squelette.
 
 Il ne parvenait pas à définir ce qu'il ressentait, mais dès qu'il vit l'armure, une profonde tristesse envahit Wang Lin.
 
-Il observa attentivement de nouveau. Il s'agissait bel et bien d'une armure en cuir façonnée dans la peau d'un dieu ancestral. Bien qu'il ignorât combien d'étoiles ce dieu ancestral possédait, le simple spectacle de cette armure lui rappela son corps originel.
+Il observa attentivement de nouveau. Il s'agissait bel et bien d'une armure en cuir façonnée dans la peau d'un Ancien Dieu. Bien qu'il ignorât combien d'étoiles cet Ancien Dieu possédait, le simple spectacle de cette armure lui rappela son corps originel.
 
 Li Yuan murmura: « Le frère Xu connaît cet objet? »
 
@@ -42,7 +42,7 @@ Wang Lin et Li Yuan étaient tous deux des esprits avisés et extraordinaires. I
 
 À cet instant précis, le réseau de transfert apparu après la rupture de la restriction commença à montrer des signes d'instabilité. C'était comme s'il avait été caché dans l'obscurité si longtemps que, dès son apparition, il entrait en conflit avec l'énergie spirituelle céleste environnante.
 
-D'innombrables petits vortex apparurent sur les bords du réseau de transfert, signe imminent d'un effondrement. Des illusions émanèrent de ces tourbillons; bien qu'il ne s'agisse que de fragments d'images, on pouvait y distinguer les ruines d'édifices antiques.
+D'innombrables petits vortex apparurent sur les bords du réseau de transfert, signe imminent d'un effondrement. Des illusions émanèrent de ces tourbillons; bien qu'il ne s'agisse que de fragments d'images, on pouvait y distinguer les ruines d'édifices antiques et des restes de cadavres.
 
 Wang Lin et Li Yuan remarquèrent cela simultanément et leurs yeux se plissèrent.
 
@@ -58,7 +58,7 @@ Cela provoqua également une perte de contrôle de l'énergie spirituelle céles
 
 Wang Lin fut encore plus stupéfait. Ce Sens Divin lui procurait un sentiment familier. Pourtant, sans la moindre hésitation, il s'élança vers le réseau de transfert.
 
-Le visage de Li Yuan était livide; il perdit presque l'usage de ses facultés alors qu'il suivait de près Wang Lin.
+Le visage de Li Yuan était livide; il faillit voir son âme se disperser alors qu'il suivait de près Wang Lin.
 
 Les deux n'étaient initialement pas loin du réseau de transfert. En se déplaçant à une vitesse fulgurante, ils s'en rapprochèrent davantage. Cependant, le Sens Divin devint soudainement incontrôlable et la zone située dans un rayon de 330 mètres autour d'eux vira brusquement au rouge.
 

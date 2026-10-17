@@ -6,7 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 491 - Crashing the celebration
 slug: gacher-la-celebration
 ---
-L'aura violette provenant de l'est couvrit rapidement l'horizon d'une teinte pourpre. Les fracas de la rupture du mur du son résonnaient depuis cette aura.
+L'aura violette provenant de l'est couvrit rapidement l'horizon d'une teinte pourpre. Des sifflements fendant l'air résonnaient depuis cette aura et retentissaient dans le ciel et sur la terre.
 
 Tous les cultivateurs invités présents dans la division violette remarquèrent cette anomalie. Ils posèrent leurs coupes de vin et levèrent la tête vers l'est.
 
@@ -18,7 +18,7 @@ Les yeux de Bai Wei brillèrent d'une lueur mystérieuse; il prit une petite gor
 
 Le Deuxième Frère de la division violette, un homme d'âge moyen, chargea en hurlant: « Aujourd'hui est la grande célébration de ma Secte du Destin Céleste! Quiconque osera gâcher cette fête sera tué sans poser de questions! » Il condamna Wang Lin avant même que celui-ci ne puisse parler. Tout en criant, sa main forma un sceau et il tonna: « Pouvoir de la terre! »
 
-À la suite de ses paroles, une lumière jaune et terreuse apparut dans sa main. Elle se transforma immédiatement en une masse de terre qui s'élança comme une tornade vers l'aura violette venant de l'est.
+À la suite de ses paroles, une lumière jaune et terreuse apparut dans sa main. Elle se transforma immédiatement en une vaste nuée de sable qui, tel un essaim d'abeilles, dépassa de loin sa vitesse et s'élança vers l'aura violette venant de l'est.
 
 Le regard de Wang Lin était féroce. D'un seul pas, il apparut au sommet des nuages. À cet instant précis, la tempête de sable générée par le pouvoir terrestre du Deuxième Frère atteignit sa position.
 
@@ -30,7 +30,7 @@ La tempête de sable imminente fut affectée par ce souffle. Dès qu'elle approc
 
 Wang Lin sortit calmement du tourbillon et fixa froidement le Deuxième Frère en déclarant: « Tu m'as provoqué à deux reprises. Si je ne te tue pas, alors je ne suis pas Wang Lin! »
 
-Sur ce, Wang Lin leva son index droit. L'énergie spirituelle céleste dans son corps s'agita, et une étincelle de flamme démoniaque apparut au bout de son doigt.
+Sur ce, Wang Lin leva son index droit. L'énergie spirituelle céleste dans son corps s'inversa brusquement, et une étincelle de flamme démoniaque apparut au bout de son doigt.
 
 L'expression de l'homme d'âge moyen changea et il cria: « Septième Frère, c'est la célébration de l'anniversaire du Maître! Ne sois pas si téméraire en présence de tant de cultivateurs! »
 

@@ -118,7 +118,7 @@ L'homme gras poussa un rugissement, mais l'impact dévastateur du cône dissipa 
 
 Bang! Bang! Bang! Sous ses pas, le sol se brisa. L'homme recula de trois enjambées, parcourant plusieurs mètres, tandis que chair et sang explosaient de son corps à chaque mouvement. Après ce troisième pas de recul, son corps entier vola en éclats, éparpillant des morceaux de viande sur toute la place.
 
-Cinq fils ténus s'échappèrent des débris de chair pour fusionner avec le corps de Shi Xiao.
+Cinq fils noirs ténus s'échappèrent des débris de chair pour fusionner avec le corps de Shi Xiao.
 
 « Il n'y a point de combat à mort entre généraux démons; vous, les étrangers, vous n'êtes là que pour être massacrés! » Shi Xiao retira sa main. Sans même daigner regarder la chair au sol, ses yeux devinrent glacials en se fixant sur Mo Lihai.
 

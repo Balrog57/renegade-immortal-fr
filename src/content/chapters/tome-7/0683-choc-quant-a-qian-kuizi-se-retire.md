@@ -10,7 +10,7 @@ Qian Kuizi était l'un des trois ancêtres de la famille Qian. Il avait cultivé
 
 Il ne représentait pas la famille Qian lors de ce voyage, mais aidait secrètement l'ancêtre de la famille Huan. Cependant, il n'agissait pas gratuitement, car il avait la convoitise de l'un des trésors de la famille Huan.
 
-« Il me suffit de tuer ce jeune homme audacieux pour pouvoir obtenir ce trésor. Tout cela est trop complexe; ce Huan Wuqing a toujours été avare, et pourtant, il se montre si généreux cette fois... » Qian Kuizi avait l'apparence d'un homme d'environ quarante ans. Pas un seul cheveu blanc ne ternissait sa chevelure et il était très beau. Les robes blanches qu'il portait lui donnaient l'allure d'un être céleste.
+« Il me suffit de tuer ce jeune homme audacieux pour pouvoir obtenir ce trésor. Tout cela est trop complexe; ce Huan Wuqing a toujours été avare, et pourtant, il se montre si généreux cette fois... » Qian Kuizi avait l'apparence d'un homme d'environ quarante ans. Il avait le teint pâle, sans barbe, et il était très beau. Les robes blanches qu'il portait lui donnaient l'allure d'un être céleste.
 
 « Ce jeune homme arrogant pourrait s'avérer très difficile à gérer. Cette terrifiante énergie d'épée qui est apparue auparavant dans la famille Huan est très probablement liée à lui. Je ne peux pas agir de manière impulsive. Lorsque ce jeune homme arrivera, je devrai l'observer attentivement. Si je peux agir, alors je ne me refuserai pas à tuer en échange du trésor... Si je ne le peux pas, il n'y a aucune raison de semer les graines d'un désastre pour un simple trésor! »
 

@@ -24,7 +24,7 @@ Wang Lin regarda Liu Mei et dit calmement: « Vous avez déjà tué les autres. 
 
 Il était venu ici pour comprendre pourquoi Liu Mei se trouvait dans la partie sud de la planète. En déployant son sens divin, il avait immédiatement repéré le clone de Sun Xi. Après réflexion, il comprit ce qui s'était passé.
 
-Puisque les trois leur avaient menti au sujet des clones, il n'avait plus aucune raison de se mettre en danger pour eux. Tant qu'il donnerait le meilleur de lui-même, cela suffirait.
+Puisque les trois lui avaient menti au sujet des clones, il n'avait plus aucune raison de se mettre en danger pour eux. Tant qu'il donnerait le meilleur de lui-même, cela suffirait.
 
 De plus, ce qui troublait le cœur de Wang Lin était que la culture de cette Liu Mei avait déjà atteint le sommet du dernier stade d'Ascendant. Ce niveau de culture fit imperceptiblement rétrécir les pupilles de Wang Lin.
 
@@ -38,7 +38,7 @@ Wang Lin répondit calmement: « Non! »
 
 Liu Mei observa Wang Lin un long moment avant d'esquisser un sourire aussi léger que le vent printanier. Elle ne reçut en retour que le regard de Wang Lin, toujours aussi imperturbable, comme l'eau calme.
 
-« Assez. Partez maintenant avant que je ne change d'avis! » La voix de Wang Lin devint glaciale. Ce sourire la dégoûtait profondément; sur la planète Suzaku, elle s'était montrée tout aussi provocante.
+« Assez. Partez maintenant avant que je ne change d'avis! » La voix de Wang Lin devint glaciale. Ce sourire le dégoûtait profondément; sur la planète Suzaku, elle s'était montrée tout aussi provocante.
 
 Une trace d'émotion complexe passa dans les yeux de Liu Mei et elle dit doucement: « Je ne m'attendais pas à ce que votre culture ait déjà atteint un degré aussi incroyable. Même moi, je ne peux pas la percer... »
 
@@ -122,7 +122,7 @@ Zhou Ru et Papillon Rouge apparurent du vide. Au même moment, le père de Wang 
 
 « Wang Lin, te souviens-tu encore de moi... » Wang Zhuo sortit du néant; il n'était plus un vieillard, mais un jeune homme plein de vigueur.
 
-« Disciple, tu dois te souvenir de transmettre l'héritage de la Secte du Affinement de l'Âme... » La silhouette antique de Du Tian émergea du vide.
+« Disciple, tu dois te souvenir de transmettre l'héritage de la Secte de l'Affinement de l'Âme... » La silhouette antique de Du Tian émergea du vide.
 
 Peu après, des figures familières apparurent une à une. Chacune d'elles contemplait silencieusement Wang Lin. Leurs regards différaient: certains étaient complexes, d'autres empreints de perte, de joie ou de tristesse...
 

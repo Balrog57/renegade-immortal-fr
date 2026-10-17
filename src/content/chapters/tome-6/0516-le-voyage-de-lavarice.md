@@ -68,7 +68,7 @@ Après tout, ce phénomène ne se produisait qu'une fois tous les 5 000 ans, ce 
 
 Si l'on n'est pas capable d'atteindre le stade Yin et Yang et de franchir la première étape, on ne peut espérer vivre 5 000 ans.
 
-Même les vieux monstres qui apparaissaient rarement étaient présents devant la Mer des Esprits Démoniaques de l'Est. Certains venaient seuls, d'autres étaient accompagnés de leurs disciples. Chacune de leurs apparitions provoquait une agitation générale et chacun s'octroyait un territoire exclusif.
+Même les vieux monstres qui apparaissaient rarement étaient présents devant la Mer des Esprits Démoniaques de l'Est. Certains venaient seuls, d'autres étaient accompagnés de leurs disciples. Chacun d'eux s'octroyait de force une place, avec une grande arrogance.
 
 Mais plus ils se montraient imposants, moins les gens osaient les offenser.
 
@@ -80,17 +80,17 @@ Une multitude de points lumineux apparurent soudainement dans le vide. Ils étai
 
 Ces lueurs créèrent une pression écrasante, comme si une tempête titanesque était sur le point de déferler.
 
-À cet instant, hormis les célèbres vieux monstres, les expressions de tous les autres cultivateurs changèrent. Même Yao Xixue ouvrit les yeux pour contempler cette pluie infinie de lueurs dorées.
+À cet instant, hormis les célèbres vieux monstres, les expressions de tous les autres cultivateurs changèrent. Même Yao Xixue ouvrit les yeux pour contempler cette pluie infinie de lueurs cristallines.
 
 Elle murmura doucement: « Le Saint de l'Épée... »
 
-Les points dorés venus du lointain se métamorphosèrent en d'anciennes épées. Soudain, des rayons d'énergie d'épée se refermèrent sur eux, créant une pression colossale. À leur approche, tous les cultivateurs aux abords de l'entrée de la Mer des Esprits Démoniaques de l'Est s'écartèrent précipitamment.
+Les lueurs venues du lointain se métamorphosèrent en d'anciennes épées qui n'étaient en réalité que des flux d'énergie d'épée, empreints d'une majesté céleste. À leur approche, tous les cultivateurs aux abords de l'entrée de la Mer des Esprits Démoniaques de l'Est s'écartèrent précipitamment.
 
 Cette scène était bien plus grandiose que celle de n'importe quel autre vieux monstre arrivé jusque-là.
 
-Au milieu de cette immense énergie tranchante, on distinguait une bête Qilin gigantesque. Le Saint de l'Épée, Ling Tianhou, était assis sur la tête du Qilin, et ses yeux brillaient comme des torches.
+Au milieu de cette immense énergie tranchante, on distinguait une bête Qilin gigantesque. Le Saint de l'Épée, Ling Tianhou, était assis sur le Qilin, et ses yeux brillaient comme des torches.
 
-Derrière lui scintillaient quatre épées illusoires, accentuant sa férocité.
+Derrière lui scintillaient quatre épées illusoires, accentuant sa majesté.
 
 Douze personnes suivaient le Saint de l'Épée!
 
@@ -132,7 +132,7 @@ L'homme d'âge moyen, assis sur le crâne géant et entouré par cette aura fun�
 
 Le Saint de l'Épée Ling Tianhou esquissa un sourire ténu et répondit: « Cupidité! »
 
-Cupidité était celui de la planète Suzaku qui cherchait à dévorer d'anciens cultivateurs pour restaurer sa culture. Il cherchait également l'origine de cette divine rétribution et, sans le savoir, traquait Wang Lin.
+Cupidité était celui de la planète Suzaku qui cherchait à dévorer d'anciens cultivateurs pour restaurer sa culture. Il pistait aussi la trace de cette tribulation céleste, cherchant à retrouver Wang Lin.
 
 Cet homme était l'un des principaux responsables de la tentative de vol de la Perle Défiant le Ciel appartenant à Situ Nan.
 

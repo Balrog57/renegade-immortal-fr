@@ -80,7 +80,7 @@ Alors que les divers sorts et trésors de ces cultivateurs se rapprochaient, Wan
 
 Lorsque les cultivateurs qui accouraient virent le ricanement de Wang Lin, un frisson leur parcourut l'échine. Cette intention meurtrière et ce regard ne signifiaient qu'une chose: Wang Lin s'apprêtait à déclencher un massacre!
 
-« Puisque vous voulez tous me sceller, alors venez! » Wang Lin fusionna avec le monde et recula rapidement. À cet instant, l'aura de Yao Bingyun le verrouilla. Les yeux de Wang Lin étaient brûlants d'intention meurtrière tandis qu'il fuyait. Sa silhouette réapparut dans le Domaine Occidental, devant une planète de culture.
+« Puisque vous aimez tant les blocus, alors venez! » Wang Lin fusionna avec le monde et recula rapidement. À cet instant, l'aura de Yao Bingyun le verrouilla. Les yeux de Wang Lin étaient brûlants d'intention meurtrière tandis qu'il fuyait. Sa silhouette réapparut dans le Domaine Occidental, devant une planète de culture.
 
 Wang Lin n'en connaissait pas le nom, mais dès son apparition, il fit un pas en avant et la scruta avec son Sens Divin. Aucun cultivateur n'atteignait le sommet du stade avancé de l'Ascendant sur cette planète.
 
@@ -116,7 +116,7 @@ Les yeux de Wang Lin étaient injectés de sang lorsqu'il réapparut en divers p
 
 Cependant, s'il n'y avait aucun cultivateur Yin Illusoire sur la planète, cela signifiait qu'ils étaient impliqués dans sa poursuite; alors, un bain de sang éclatait sur le monde!
 
-« Vous m'avez forcé! Le fait que vous me traquiez sans autre raison que la récompense de la famille Yao est la cause karmique; le massacre de vos planètes est l'effet karmique! » Wang Lin n'aimait pas tuer, mais il y était poussé et n'avait plus d'autre choix!
+« Vous m'avez forcé! Le fait que vous me traquiez sans autre raison que la récompense de la famille Yao est la cause karmique; le massacre de vos planètes est l'effet karmique! Cette causalité est la vôtre: entrez donc dans le cycle des réincarnations! » Wang Lin n'aimait pas tuer, mais il y était poussé et n'avait plus d'autre choix!
 
 En l'espace de seulement trente jours, une tempête sanglante balaya le Domaine Occidental. Des nouvelles qui mettaient les cultivateurs en colère tout en les terrifiant se propagèrent.
 

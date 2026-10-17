@@ -6,7 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 647 - Furnace
 slug: le-fourneau
 ---
-Alors que Chen Long s'élançait, l'énergie de l'épée de Ling Tianhou se rassembla dans sa main. Cette énergie tourbillonna autour de son poignet avant qu'une pression écrasante ne se répande.
+Alors que Chen Long s'élançait, l'énergie de l'épée de Ling Tianhou se rassembla dans sa main. Elle s'enroula autour de son doigt tandis qu'une pression écrasante se répandait.
 
 Les pupilles de Wang Lin se rétractèrent. Il avait déjà remarqué une anomalie dans le rayon d'énergie de l'épée de Ling Tianhou appartenant à Chen Long. Dès l'instant où cette énergie apparut, Wang Lin sentit son cœur se serrer.
 
@@ -14,17 +14,17 @@ Les pupilles de Wang Lin se rétractèrent. Il avait déjà remarqué une anomal
 
 Les yeux de Wang Lin s'illuminèrent et il cessa sa course. Il ne poursuivit plus le jeton et retint le sort céleste qu'il tenait en main, tout en fixant froidement Chen Long du regard.
 
-Chen Long fit preuve d'une audace fulgurante et apparut soudainement aux côtés du jeton. Ses yeux brillaient de joie. Il ignorait ce que c'était, mais si Cupidité s'y intéressait à ce point, cela devait être un trésor rare!
+Chen Long était extrêmement rapide et, en un clin d'œil, se retrouva aux côtés du jeton. Ses yeux brillaient de joie. Il ignorait ce que c'était, mais si Cupidité s'y intéressait à ce point, cela devait être un trésor rare!
 
 Cependant, au moment même où il tendit la main vers le jeton, le rugissement furieux de Cupidité jaillit de l'essaim de moustiques: « Jeune Chen Long, ce vieil homme va te tuer!!! Troisième style du Dévoreur de Mort!!! »
 
-La voix de Cupidité fut comme un éclair. Elle sembla se solidifier en traversant l'essaim de moustiques, passa devant Wang Lin et chargea directement vers Chen Long.
+La voix de Cupidité éclata comme le tonnerre. Elle sembla se solidifier en traversant l'essaim de moustiques, passa devant Wang Lin et chargea directement vers Chen Long.
 
 Le regard de Wang Lin se glaça et il recula immédiatement de quelques pas. Le rugissement surgit de l'essaim et commença à prendre forme. Soudain, une petite silhouette cristalline apparut dans les airs!
 
 Cette personne ne ressemblait en rien à Cupidité, mais son corps dégageait son aura.
 
-« Deuxième âme originelle! » Wang Lin eut un haut-le-cœur en fixant la petite silhouette.
+« Deuxième âme originelle! » Wang Lin inspira profondément en fixant la petite silhouette.
 
 La colère de Cupidité était telle qu'elle aurait pu consumer son cœur. Impuissant, il n'avait d'autre choix que de projeter sa deuxième âme originelle tandis que son corps principal restait piégé par l'essaim de moustiques. Les sept aiguilles tournaient rapidement autour de lui; elles pouvaient le protéger un temps, mais pas longtemps!
 
@@ -80,7 +80,7 @@ Les trois individus étaient désormais très proches de la sortie du Pays du D�
 
 Cupidité était au bord de la folie. Dans un rugissement, il frappa son sac de rangement et un fourneau gigantesque en jaillit!
 
-Ce fourneau, de la taille d'un homme, était d'un noir profond. D'innombrables runes en forme de bêtes le recouvraient, dégageant une aura de désolation.
+Ce fourneau, de la taille d'un homme, était d'un noir profond. D'innombrables runes en forme de bêtes le recouvraient, dégageant une aura primordiale.
 
 Cupidité hurla: « Inversion de l'univers, renversement des cieux et de la terre! »
 
@@ -90,7 +90,7 @@ Les positions de Wang Lin, Chen Long et Cupidité furent soudainement inversées
 
 Quant à Chen Long, il apparut là où se tenait Wang Lin. Interloqué et terrifié, il chargea vers la sortie sans dire un mot.
 
-La peur l'habitait. Il n'avait jamais imaginé que Cupidité possédât des trésors aussi prodigieux. Ce jouet était d'une puissance inouïe: il pouvait renverser l'univers! En échangeant sa position avec Wang Lin, il avait ressenti une puissance divine; face à elle, il se sentait insignifiant.
+La peur l'habitait. Il n'avait jamais imaginé que Cupidité possédât des trésors aussi prodigieux. Ce trésor était d'une puissance inouïe: il pouvait renverser l'univers! En échangeant sa position avec Wang Lin, il avait ressenti une puissance divine; face à elle, il se sentait insignifiant.
 
 « Ce Cupidité est véritablement digne de la génération de Maître. Bien que son niveau de culture soit bien inférieur au sien, il doit y avoir quelque chose de spécial en lui pour avoir capté l'attention de Maître! »
 
@@ -118,4 +118,4 @@ Une fois lancé, l'écran s'élargit jusqu'à atteindre trente-trois mètres de 
 
 La silhouette de Zhou Yi émergea de l'épée céleste. L'expression était grave et sa main droite pointait vers l'avant. Sans hésiter, il libéra l'une des deux dernières énergies de l'épée vitale!
 
-Le visage de Wang Lin s'assombrit et il activa immédiatement l'énergie de l'épée de Ling Tianhou en lui. Cette force ouvrit un passage à travers la pression tandis qu'il s'élançait vers le bas. Derrière lui, la deuxième âme originelle de Cupidité, drapée d'innombrables éclairs, poursuivait lentement Wang Lin.
+Le visage de Wang Lin s'assombrit et il activa immédiatement l'énergie de l'épée de Ling Tianhou en lui. Cette force ouvrit un passage à travers la pression tandis qu'il s'élançait vers le bas. Derrière lui, la deuxième âme originelle de Cupidité, drapée d'innombrables éclairs, poursuivait Wang Lin de près.

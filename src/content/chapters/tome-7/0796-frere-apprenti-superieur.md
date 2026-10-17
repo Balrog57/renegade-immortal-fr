@@ -8,9 +8,9 @@ slug: frere-apprenti-superieur
 ---
 L'expression du Maître Yan Leizi était grave lorsqu'il déclara: « Si le Seigneur Céleste souhaite restaurer votre culture, il vous faudra une immense quantité d'énergie originelle. Plutôt que de dévorer des cultivateurs ici, dans le Système Stellaire de Luotian, venez avec moi vers le Système Stellaire de l'Alliance, où résident de nombreux cultivateurs puissants. Je suis convaincu qu'il ne faudra pas longtemps pour que la culture du Seigneur Céleste retrouve son apogée! »
 
-Qing Shui répondit calmement: « Cette raison ne suffit pas! »
+Qing Shui répondit calmement: « Cette raison ne suffit pas! » En réalité, il était très contrarié intérieurement.
 
-« Après votre scellement, le Royaume Céleste a subi une catastrophe qui a provoqué son effondrement. Ne voulez-vous pas savoir ce qui s'est passé? La rumeur prétend que l'Alliance de Culture possède un être céleste vivant. Si vous venez avec moi, vous saurez tout. »
+« Après votre scellement, le Royaume Céleste a subi une catastrophe et les quatre grands Royaumes Célestes se sont tous effondrés. Ne voulez-vous pas savoir ce qui s'est passé? La rumeur prétend que l'Alliance de Culture possède un être céleste vivant. Si vous venez avec moi, vous saurez tout. »
 
 Qing Shui réfléchit en silence. Après un long moment, il finit par dire lentement: « Ce n'est toujours pas suffisant. »
 

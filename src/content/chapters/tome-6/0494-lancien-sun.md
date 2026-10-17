@@ -12,7 +12,7 @@ Parmi les immenses foules venues de tous horizons, certains étaient des cultiva
 
 En ce matin, les disciples des sept divisions de la Secte du Destin Céleste sortirent, en commençant par la Division Rouge.
 
-La Division Rouge comptait au total sept disciples, et aucun ne manquait à l'appel. Ils portaient tous des robes rouges ornées de dragons dorés brodés sur les manches et des ceintures d'un vert chaleureux autour de la taille. Les sept membres s'élancèrent de leur division en sept rayons de lumière rouge. Dans le ciel surplombant la Division Rouge, ils s'inclinèrent respectueusement vers la direction de la secte principale.
+La Division Rouge comptait au total sept disciples, et aucun ne manquait à l'appel. Ils portaient tous des robes rouges ornées de dragons dorés brodés sur les manches et du jade chaud de la rivière immortelle à la taille. Les sept membres s'élancèrent de leur division en sept rayons de lumière rouge. Dans le ciel surplombant la Division Rouge, ils s'inclinèrent respectueusement vers la direction de la secte principale.
 
 Une fois la Division Rouge passée, la Division Orange suivit de près. Elle comptait également sept membres vêtus d'orange qui s'inclinèrent respectueusement après leurs prédécesseurs.
 
@@ -30,7 +30,7 @@ Wang Lin restait là, le visage impassible, observant froidement chaque disciple
 
 Parmi les disciples des six autres divisions, il n'en connaissait que trois. L'un d'eux était Sima Rufeng, classé troisième de la Division Bleue. Il se trouvait au sommet du stade avancé de la Transformation de l'Âme et ne lui manquait qu'une étape pour atteindre le stade Ascendant!
 
-L'autre était un homme nommé Wang, de la Division Verte. Lorsqu'il vit le regard de Wang Lin, il afficha une expression d'indifférence. Son niveau de culture dépassait celui de Sima Rufeng; il se trouvait à une demi-étape du stade Ascendant.
+L'autre était un homme nommé Wang, de la Division Cyan. Lorsqu'il vit le regard de Wang Lin, il afficha une expression d'indifférence. Son niveau de culture dépassait celui de Sima Rufeng; il se trouvait à une demi-étape du stade Ascendant.
 
 Outre ces deux-là, il y avait une autre personne qui semblait très familière à Wang Lin. C'était l'homme d'âge moyen qui s'était battu contre Chi Hu et qui avait utilisé le cristal d'intention meurtrière.
 

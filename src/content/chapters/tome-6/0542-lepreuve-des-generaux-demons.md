@@ -102,13 +102,13 @@ La zone dans un rayon de 330 mètres autour de Wang Lin fut soudainement emprein
 
 Au moment où il utilisa le Doigt de la Mort, un fracas retentit dans l'air entre lui et l'homme robuste. Wang Lin fut repoussé de trois pas, son regard devenant glacial.
 
-Il fixa alors l'homme suspendu dans les airs. Ce dernier rétracta son poing droit tandis que son corps oscillait légèrement. Ses yeux étincelèrent comme des éclairs lorsqu'il déclara: « Bien, ce général a utilisé la gravité pour te prendre de court. Avec un tel doigt, tu es digne de devenir un Ancien sous mes ordres! »
+Il fixa alors l'homme suspendu dans les airs. Ce dernier rétracta son poing droit tandis que son corps oscillait légèrement. Ses yeux étincelèrent comme des éclairs lorsqu'il déclara: « Bien, ce général se trouvait dans les airs et, en empruntant de la force, a pris un léger avantage sur toi. Avec un tel doigt, tu es digne de devenir un Ancien sous mes ordres! »
 
 Wang Lin resta calme et répondit: « Je ne veux pas d'une position interne! »
 
 Le visage de l'homme se fit sérieux avant qu'il ne sourie: « Ta compréhension de la Terre des Esprits Démoniaques dépasse mes attentes. Tu connais la distinction entre les fonctions internes et externes. »
 
-Dans les souvenirs de Luo Yun, son ancêtre lui avait expliqué que les Anciens occupaient des positions internes sans troupes sous leur commandement. Seuls ceux occupant des positions externes, tels que les commandants, disposaient de troupes à leurs ordres!
+Dans les souvenirs de Lou Yun, son ancêtre lui avait expliqué que les Anciens occupaient des positions internes sans troupes sous leur commandement. Seuls ceux occupant des positions externes, tels que les commandants, disposaient de troupes à leurs ordres!
 
 « L'Empereur Démon a dit que nous pouvions accorder n'importe quelle fonction aux étrangers pourvu qu'ils en aient la capacité. Petit gars, si tu veux une position externe, tu dois alors déployer ta véritable puissance, et ce doigt n'était pas assez fort! »
 
@@ -124,6 +124,6 @@ Cette Intention de Bataille aux Dix Effondrements n'était pas matérielle, elle
 
 Les dix coups provoquaient un effondrement spatial successif, un à chaque impact. Au dixième effondrement, le sort devenait d'une puissance inimaginable. Une telle technique était extrêmement rare, même dans l'ensemble du monde de la culture. C'était la première fois que Wang Lin affrontait une telle chose.
 
-Dès l'instant où l'Intention de Bataille aux Dix Effondrements vola vers lui, il parvint à en percer le secret. Ses yeux s'illuminèrent brusquement et, d'un pas assuré, il se tint droit comme un pin millénaire. Il n'utilisa aucun trésor magique, mais une vapeur grise commença à circuler sur son bras droit: l'Art Céleste de la Massacre était activé.
+Dès l'instant où l'Intention de Bataille aux Dix Effondrements vola vers lui, il parvint à en percer le secret. Ses yeux s'illuminèrent brusquement et, d'un pas assuré, il se tint droit comme un pin millénaire. Il n'utilisa aucun trésor magique, mais une vapeur grise commença à circuler sur son bras droit: l'Art du Massacre Céleste était activé.
 
 Simultanément, il pointa son index et utilisa le sort démoniaque du doigt. L'énergie spirituelle céleste en lui se transmuta rapidement en énergie spirituelle démoniaque pour se condenser sur la pointe de son doigt.

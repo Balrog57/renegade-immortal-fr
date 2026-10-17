@@ -8,7 +8,7 @@ slug: au-dessus-de-lascendant
 ---
 « Au-dessus du stade d'Ascendant... » Situ Nan cessa de voler et regarda Wang Lin.
 
-Situ Nan répondit d'un ton grave: « Le royaume au-delà du stade d'Ascendant n'est pas une chose que la plupart des cultivateurs connaissent, car il y a tout simplement trop peu de personnes à ces niveaux. »
+Situ Nan répondit d'un ton grave: « Le royaume au-delà du stade d'Ascendant n'est pas connu des cultivateurs ordinaires. Ce n'est pas comme l'Âme Naissante ou la Formation de l'Âme, que tous les cultivateurs connaissent, car il y a tout simplement trop peu de personnes à ces niveaux. »
 
 « Le stade d'Ascendant est un sommet et, en même temps, une porte. La plupart des cultivateurs restent bloqués devant cette porte, incapables de poursuivre leur culture avant que leur espérance de vie n'atteigne son terme.
 
@@ -30,7 +30,7 @@ Les yeux de Wang Lin s'illuminèrent. « Les trois royaumes du Briseur du Nirvan
 
 Wang Lin prit une profonde inspiration, puis fronça les sourcils et demanda: « Et après les trois royaumes du Briseur du Nirvana? Est-ce là le sommet? »
 
-Situ Nan secoua la tête et répondit: « Comment pourrait-ce être aussi simple? Les trois royaumes du Briseur du Nirvana ne sont considérés que comme la deuxième étape pour les cultivateurs. Pourtant, quelqu'un au stade de Briseur du Nirvana peut être considéré comme une puissance majeure au sein de l'Alliance de la Culture. On cherche rarement à s'attirer leurs foudres. La rumeur prétend même que les vieux monstres de l'Alliance de la Culture ont réussi à franchir le stade du Briseur du Nirvana. »
+Situ Nan secoua la tête et répondit: « Comment pourrait-ce être aussi simple? Les trois royaumes du Briseur du Nirvana ne sont considérés que comme la deuxième étape pour les cultivateurs. Pourtant, quelqu'un au stade de Briseur du Nirvana peut être considéré comme une puissance majeure au sein de l'Alliance de la Culture. On cherche rarement à s'attirer leurs foudres. La rumeur prétend même qu'aucun des vieux monstres de l'Alliance de la Culture n'a réellement franchi le stade du Briseur du Nirvana. »
 
 Wang Lin réfléchit un instant, puis regarda Situ Nan et demanda: « Êtes-vous un Scruteur du Nirvana? »
 
@@ -52,7 +52,7 @@ Ye Wuyou a obtenu une technique puissante après son retour de l'Alliance, appel
 
 Cependant, les techniques offertes par l'Alliance de la Culture sont classées au même titre que les trésors célestes. Le Sceau de Suzaku n'est qu'une technique de qualité inférieure, mais elle augmente considérablement la puissance de celui qui porte le titre.
 
-Malheureusement, le Sceau de Suzaku ne peut être utilisé que si l'on contrôle le Cristal Planétaire de Culture. Une fois que vous maîtrisez les deux, votre force augmentera de façon prodigieuse.
+Malheureusement, le Sceau de Suzaku ne peut être utilisé qu'après avoir hérité du Cœur de la Planète de Culture; sinon, si vous l'appreniez, votre force augmenterait sans aucun doute.
 
 La Tactique du Suzaku que chaque génération de Suzaku apprend est ce que la première génération, Ye Wuyou, a réussi à extraire du Sceau de Suzaku. Non seulement la tactique augmente la vitesse de culture, mais une fois que vous possédez le Cristal Planétaire de Culture, il accroît la compatibilité entre vous et le cristal, afin que vous puissiez atteindre la puissance d'un Ascendant Titulaire plus rapidement. »
 
@@ -116,7 +116,7 @@ Situ Nan renifla: « Si ce n'était pas parce que le sac de portage de ce vieil 
 
 Les yeux de Wang Lin s'illuminèrent et il dit avec un sourire qui n'en était pas vraiment un: « Zhu Quezi possède beaucoup de trésors célestes! »
 
-« Non seulement tous les trésors de Zhu Quezi sont de qualité inférieure, mais ils ont également été rassemblés par la première génération de Suzaku. Je me sentirais trop mal à l'aise de les voler. » Situ Nan affichait un air de pitié.
+« Non seulement tous les trésors de Zhu Quezi sont de qualité inférieure, mais la plupart ont été rassemblés par la première génération de Suzaku. Je me sentirais trop mal à l'aise de les voler. » Situ Nan affichait un air de pitié.
 
 « Situ, quelle qualité donneriez-vous à ce trésor? » Wang Lin réfléchit un instant, puis frappa son sac de portage et le piège à bêtes apparut. Il lança le piège, faisant apparaître devant lui le Charriot de Guerre qui Tue les Dieux.
 

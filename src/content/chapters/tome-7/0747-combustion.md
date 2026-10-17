@@ -8,7 +8,7 @@ slug: combustion
 ---
 En un instant, la vision de Wang Lin se brouilla et son corps s'effondra au sol.
 
-Li Yuan affichait un visage pâle lorsqu'il atterrit à trente-trois mètres de Wang Lin. Quant à la femme nommée Ge, elle était livide et commença immédiatement à vomir; la rapidité des haut-le-cœur était telle que son corps semblait presque incapable de les supporter.
+Li Yuan affichait un visage pâle lorsqu'il atterrit à trente-trois mètres de Wang Lin. Quant à la femme nommée Ge, elle était livide et commença immédiatement à vomir; la vitesse avait été si grande que son corps avait failli ne pas la supporter.
 
 Dès qu'il toucha terre, Wang Lin ressentit une douleur fulgurante émanant de la sphère de lumière logée dans sa poitrine. Cette souffrance était si intense qu'elle manqua de le submerger totalement.
 
@@ -46,7 +46,7 @@ Le corps de Li Yuan s'élança et il s'envola vers l'avant. Quant à la femme no
 
 Wang Lin les suivit tranquillement. S'il n'avait pas tué cette femme, c'était parce qu'elle servait de clé à Li Yuan; ce dernier était probablement la raison principale pour laquelle elle avait pu accéder au Royaume Céleste du Tonnerre.
 
-Selon ses spéculations, si l'objectif de Li Yuan n'avait été que l'épée de fer et les restrictions, il aurait pu les lui ravir plus facilement dès leur entrée dans le royaume. Il devait y avoir une causalité karmique derrière ses actes.
+Selon ses spéculations, si l'objectif de Li Yuan n'avait été que l'épée de fer, avec ses restrictions, il aurait pu la lui ravir facilement dans le Royaume Céleste du Tonnerre. Il devait y avoir une causalité karmique derrière ses actes.
 
 Wang Lin restait serein. Tout en les suivant, il subissait la douleur intérieure. À cet instant, ses sentiments envers le vieil homme étaient complexes.
 

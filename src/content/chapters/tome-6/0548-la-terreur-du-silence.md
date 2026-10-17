@@ -18,6 +18,8 @@ Lorsqu'il avait aperçu Wang Lin apparaître plus tôt, un éclair de choc avait
 
 Alors que l'individu chargeait droit vers la zone, tous les soldats s'écartèrent pour lui frayer un passage afin qu'il puisse foncer directement sur Wang Lin.
 
+À une centaine de mètres du centre, la bête rugit et s'immobilisa; mais la poussière qu'elle avait soulevée continua de se répandre alentour.
+
 L'intendant agita ses manches pour dissiper la poussière d'un coup de vent, puis se tourna vers l'homme en armure noire et déclara: « Voici le nouveau commandant nommé. Vice-commandant Sima, n'allez-vous pas le saluer? » Il insista délibérément sur les termes « vice-commandant ».
 
 L'homme à l'armure noire fixa Wang Lin d'un regard sombre et dit froidement: « Sima Yan salue le commandant! »
@@ -42,7 +44,7 @@ Wang Lin ne daigna même pas un regard aux soldats environnants et traversa dire
 
 Une fois les trois hommes partis, un éclat de rire s'éleva des dix mille soldats démons, un rire chargé de dédain et de mépris. Seul Sima Yan ne riait pas. Il fronça légèrement les sourcils. Il ne connaissait que peu de choses sur ce nouveau commandant, mais il savait que, s'il avait été à sa place, il n'aurait certainement pas pu partir si calmement sans faire de vagues!
 
-Sima Yan fronça les sourcils et ordonna: « Que vous retourniez tous à votre entraînement! » Bien que sa voix fût basse, elle résonna comme le tonnerre aux oreilles des soldats démons. Les dix régiments se dispersèrent promptement pour reprendre leurs exercices.
+Sima Yan fronça les sourcils et ordonna: « Retournez tous à votre entraînement! » Bien que sa voix fût basse, elle résonna comme le tonnerre aux oreilles des soldats démons. Les dix régiments se dispersèrent promptement pour reprendre leurs exercices.
 
 Dans le camp militaire, outre les rangées de baraquements, se trouvait une demeure très simple protégée par une formation. Un grand drapeau noir flottait à côté de la maison, sur lequel le nom « Sima » était brodé de fils d'or! Il était évident que c'était là que résidait Sima Yan.
 
@@ -72,9 +74,9 @@ Chaque régiment de mille hommes possédait un chef, tous étant les fidèles li
 
 S'il n'avait pas agi immédiatement, c'était parce qu'il comprenait parfaitement les lois militaires de ces contrées, grâce aux souvenirs de Lou Yun. Les neuf pays de cette région suivaient un droit militaire très différent du monde de la culture. À moins d'avoir une puissance suffisante pour défier l'Empereur Démon, il fallait se plier à leurs lois si l'on souhaitait bénéficier de leur puissance!
 
-Tout étranger arrivant en Terre des Esprits Démons devait d'abord s'intégrer à l'un des neuf pays et obtenir un commandement militaire. C'était l'unique moyen de s'imposer. Si l'on se retrouvait seul face à un homme commandant des dizaines de milliers de soldats, le combat était inutile. Bien que la culture de ces soldats ne fût pas élevée, leur nombre les rendait redoutables, d'autant plus qu'ils étaient experts en formations mystérieuses et imprévisibles.
+Tout étranger arrivant en Terre des Esprits Démoniaques devait d'abord s'intégrer à l'un des neuf pays et obtenir un commandement militaire. C'était l'unique moyen de s'imposer. Si l'on se retrouvait seul face à un homme commandant des dizaines de milliers de soldats, le combat était inutile. Bien que la culture de ces soldats ne fût pas élevée, leur nombre les rendait redoutables, d'autant plus qu'ils étaient experts en formations mystérieuses et imprévisibles.
 
-De plus, si l'on massacrait trop de soldats démons, le commandant en chef — un être presque aussi puissant que le Général Démon — finirait par apparaître. À ce moment-là, un cultivateur solitaire ne pourrait plus jamais s'imposer dans ce pays! Il serait contraint de fuir vers la nation voisine, et ce, de façon répétée jusqu'à ne plus pouvoir circuler en Terre des Esprits Démons. Il finirait par devoir se terrer dans un lieu isolé pour cultiver, perdant ainsi toute chance d'obtenir des mérites militaires ou de fusionner avec un démon ancien!
+De plus, si l'on massacrait trop de soldats démons, le commandant en chef — un être presque aussi puissant que le Général Démon — finirait par apparaître. À ce moment-là, un cultivateur solitaire ne pourrait plus jamais s'imposer dans ce pays! Il serait contraint de fuir vers la nation voisine, et ce, de façon répétée jusqu'à ne plus pouvoir circuler en Terre des Esprits Démoniaques. Il finirait par devoir se terrer dans un lieu isolé pour cultiver, perdant ainsi toute chance d'obtenir des mérites militaires ou de fusionner avec un démon ancien!
 
 C'est pour cette raison que tous les cultivateurs cherchaient à obtenir une position officielle au sein d'un pays. Par conséquent, Wang Lin devait respecter la loi militaire, sous peine de tout perdre!
 

@@ -8,13 +8,13 @@ slug: lombre-sanguine-du-demon-ancestral
 ---
 La goutte de sang bleu se transforma en Wang Lin. Il tendit la main dans les airs et son sac de contenance apparut de nulle part. Il enfila ensuite une robe bleue avant de faire un pas et d’enchaîner plusieurs téléportations d'un coup. Il disparut sans laisser de trace.
 
-Sa silhouette réapparut à plusieurs centaines de kilomètres de là, puis il chargea directement vers la capitale du pays des Démons Célestes.
+Sa silhouette réapparut à d'innombrables kilomètres de là, puis il chargea directement vers la capitale du pays du Démon Céleste.
 
 Après que la Pilule de l'Âme Sanguine a absorbé une trace de sens divin et de sang, elle active également une autre capacité pendant une courte période. Au moment de la mort, tout ce qui est lié à l'âme originelle fusionne avec le vide. Une fois ressuscité, on peut utiliser le pouvoir de son âme et de son sang pour récupérer les objets stockés dans ce vide!
 
 Autrefois, Yao Xixue avait utilisé cette fonction!
 
-Autrefois, l'Omniscient avait offert à Wang Lin un trésor salvateur, mais ce trésor ne pouvait résister qu’au choc d'un cultivateur Ascendant. Bien que la culture du vieil homme de neuf mètres de haut fût au stade avancé de l'Ascendant, sa véritable puissance surpassait largement cela.
+Autrefois, l'Omniscient avait offert à Wang Lin un trésor salvateur, mais ce trésor ne pouvait résister qu’au choc d'un cultivateur Ascendant au stade avancé. Bien que la culture du vieil homme de neuf mètres de haut fût au stade avancé de l'Ascendant, sa véritable puissance surpassait largement cela.
 
 Il y avait aussi cette existence mystérieuse dans la tour noire; ainsi, même s'il avait utilisé le trésor salvateur, il lui aurait été difficile de rester en vie. C’est pourquoi Wang Lin avait décidé de tenter le tout pour le tout avec la Pilule de l'Âme Sanguine après avoir envisagé d'innombrables possibilités!
 
@@ -28,9 +28,9 @@ Il craignait qu'au moment où l'effet du Fruit de l'Ascension Céleste disparaî
 
 L'existence dans la tour noire n'était jamais sortie. Il était évident qu'elle avait besoin de la tour pour exister, ce qui rendait Wang Lin encore plus déterminé!
 
-Il sortit d'une téléportation et continua de voler vers la ville des Démons Célestes. Il avait deux préparations à faire. La première était déjà achevée, la seconde consistait à obtenir l'aide du Démon Ancestral!
+Il sortit d'une téléportation et continua de voler vers la Cité du Démon Céleste. Il avait deux préparations à faire. La première était déjà achevée, la seconde consistait à obtenir l'aide de l'Ancien Démon!
 
-Wang Lin pensa secrètement: « L'affaire d'il y a dix ans a été retardée par ma percée au stade Ascendant. Cependant, cet événement était extrêmement important, je crois donc que le Démon Ancestral ne reviendra pas sur sa parole. » Il vola encore plus vite. Il restait quelques vestiges du Fruit de l'Ascension Céleste dans son âme originelle et, maintenant qu'il était lucide, il pouvait s'en débarrasser facilement. Pourtant, Wang Lin ne le fit pas, car il devait le garder comme recours au cas où la tour noire ne serait pas essentielle et que l'existence à l'intérieur pourrait toujours l'attaquer par son sens divin!
+Wang Lin pensa secrètement: « L'affaire d'il y a dix ans a été retardée par ma percée au stade Ascendant. Cependant, cet événement était extrêmement important, je crois donc que l'Ancien Démon ne reviendra pas sur sa parole. » Il vola encore plus vite. Il restait quelques vestiges du Fruit de l'Ascension Céleste dans son âme originelle et, maintenant qu'il était lucide, il pouvait s'en débarrasser facilement. Pourtant, Wang Lin ne le fit pas, car il devait le garder comme recours au cas où la tour noire ne serait pas essentielle et que l'existence à l'intérieur pourrait toujours l'attaquer par son sens divin!
 
 « Si c'est vraiment le cas, alors je dois être prêt à vivre la vie d'un fugitif. » Wang Lin poussa un soupir. Lui et l'existence dans la tour noire n'avaient aucun grief antérieur. C'était cette entité qui l'avait attaqué le premier, mais il n'y a ni bien ni mal dans le monde de la culture; seule la force compte.
 
@@ -42,9 +42,9 @@ Il faut dire que le sort de grande téléportation consommait énormément d'én
 
 On pourrait dire que Wang Lin s'était précipité comme jamais auparavant lors de ce voyage.
 
-« Malheureusement, j'étais sous l'influence du Fruit de l'Ascension Céleste, sinon je n'aurais pas laissé cette énergie d'épée derrière moi... Cependant, je me souviens de l'endroit où se trouvait ce corps. Je me demande si l'énergie d'épée sera toujours là si j'y retourne. » Les yeux de Wang Lin s'illuminèrent d'excitation, mais il savait que ce n'était pas le moment de retourner dans le Pays des Démons de Feu.
+« Malheureusement, j'étais sous l'influence du Fruit de l'Ascension Céleste, sinon je n'aurais pas laissé l'énergie d'épée de Zi Shu derrière moi... Cependant, je me souviens de l'endroit où se trouvait son cadavre. Je me demande si l'énergie d'épée sera toujours là si j'y retourne. » Les yeux de Wang Lin s'illuminèrent d'excitation, mais il savait que ce n'était pas le moment de retourner dans le Pays du Démon de Feu.
 
-Wang Lin n'était plus qu'à une grande téléportation de la capitale du pays des Démons Célestes. Alors qu'il s'apprêtait à franchir l'espace, un rugissement furieux retentit soudainement derrière lui.
+Wang Lin n'était plus qu'à une grande téléportation de la capitale du pays du Démon Céleste. Alors qu'il s'apprêtait à franchir l'espace, un rugissement furieux retentit soudainement derrière lui.
 
 « Je veux voir jusqu'où tu pourras t'enfuir! »
 
@@ -66,26 +66,26 @@ La main droite de l'homme s'interrompit brusquement. Une pointe de confusion app
 
 « Ling Tianhou... Quel nom familier... »
 
-Wang Lin recula rapidement. Son regard devint glacial et il cria: « Le Saint de l'Épée Ling Tianhou de la Secte de l'Épée Da Lou! »
+Wang Lin recula rapidement. Son regard devint glacial et il cria: « Le Saint de l'Épée Ling Tianhou de la Secte de l'Épée Da Luo! »
 
-« Secte de l'Épée Da Lou... Saint de l'Épée... » La confusion dans les yeux de l'homme s'intensifia et il commença à lutter. À cet instant, une illusion d'âme démoniaque apparut soudainement entre les sourcils de l'homme. Il lança un regard venimeux à Wang Lin avant de pousser un cri strident.
+« Secte de l'Épée Da Luo... Saint de l'Épée... » La confusion dans les yeux de l'homme s'intensifia et il commença à lutter. À cet instant, une illusion d'âme démoniaque apparut soudainement entre les sourcils de l'homme. Il lança un regard venimeux à Wang Lin avant de pousser un cri strident.
 
 Ce cri fit disparaître la confusion dans les yeux de l'homme, remplacée par une flamme démoniaque.
 
-Wang Lin recula promptement et cria: « Démon Ancestral! »
+Wang Lin recula promptement et cria: « Ancien Démon! »
 
-Une volonté puissante jaillit soudainement de la Cité des Démons Célestes et descendit devant Wang Lin!
+Une volonté puissante jaillit soudainement de la Cité du Démon Céleste et descendit devant Wang Lin!
 
-« Tu es en retard de dix ans! » La voix du Démon Ancestral résonna dans les oreilles de Wang Lin.
+« Tu es en retard de dix ans! » La voix de l'Ancien Démon résonna dans les oreilles de Wang Lin.
 
 « Prête-moi ton sang! »
 
-Sitôt cette voix entendue, une quantité massive de sang jaillit des pores du corps de Wang Lin. Ce sang se condensa pour prendre la forme d'un humain, et la conscience du Démon Ancestral descendit sur lui.
+Sitôt cette voix entendue, une quantité massive de sang jaillit des pores du corps de Wang Lin. Ce sang se condensa pour prendre la forme d'un humain, et la conscience de l'Ancien Démon descendit sur lui.
 
 Le corps de Wang Lin trembla, ayant perdu la majeure partie de son sang. Son visage devint livide et il sortit rapidement une pilule. Puis, il s'assit en position de lotus et commença à cultiver.
 
 L'âme démoniaque sur le front de l'homme imposant fixa l'ombre de sang devant Wang Lin et cria dans une langue mystérieuse: « Bei Luo, os-tu m'entraver?! »
 
-L'ombre de sang bougea et se transforma en un corps doté de deux cornes. Une lumière démoniaque brilla dans ses yeux. Il regarda l'âme démoniaque et dit calmement: « Tu n'es qu'un des neuf fragments d'âme dispersés du Démon Ancestral. Pourquoi ne pourrais-je pas t'entraver?! »
+L'ombre de sang bougea et se transforma en un corps doté de deux cornes. Une lumière démoniaque brilla dans ses yeux. Il regarda l'âme démoniaque et dit calmement: « Tu n'es qu'un des neuf démons dispersés sous les ordres de l'Ancien Diable. Pourquoi ne pourrais-je pas t'entraver?! »
 
 « La langue des anciens dieux! » Wang Lin ouvrit les yeux, affichant une expression pensive.

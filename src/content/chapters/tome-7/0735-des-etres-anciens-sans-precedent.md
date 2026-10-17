@@ -36,7 +36,7 @@ Le tonnerre dans le ciel résonnait parmi les nuages, comme si la majesté du to
 
 Après l'arrivée du tonnerre, les nuages commencèrent à se dissiper et à disparaître. À ce moment-là, au plus profond de la fosse, Wang Lin ouvrit soudainement les yeux. Son regard dégageait une puissance électrique et une pointe d'excitation.
 
-Il se lécha les lèvres. L'énergie d'origine contenue dans le tonnerre céleste était extrêmement riche, plusieurs fois plus dense que celle du lac de tonnerre. En raison de sa culture, il avait déjà atteint la limite de l'énergie d'origine qu'il pouvait stocker. Cependant, cet excédent allait modifier radicalement sa situation.
+Il se lécha les lèvres. L'énergie d'origine contenue dans le tonnerre céleste était extrêmement riche, plusieurs fois plus dense que celle du lac de tonnerre. L'énergie d'origine dans son âme originelle avait auparavant atteint la saturation, mais depuis qu'il avait atteint la grande perfection de l'Ascendant, il disposait de nouveau d'un peu de capacité supplémentaire, ce qui changeait cet état de saturation.
 
 Il se déplaça rapidement et jaillit du cratère. Simultanément, il frappa son sac de rangement et le fourneau de tonnerre réapparut dans sa main!
 
@@ -84,7 +84,7 @@ Même lorsqu'il manipulait la foudre, il n'avait jamais ressenti un tel engourdi
 
 Quiconque n'y connaissait rien aurait cru que ce fourneau était un trésor de rang suprême, capable d'absorber l'univers lui-même!
 
-Presque instantanément, l'immense vortex fut aspiré dans le tourbillon de foudre. Alors que le vortex disparaissait, le fourneau émit des craquements sinistres et une fissure apparut sur sa surface!
+Presque instantanément, l'immense vortex fut entièrement absorbé dans le fourneau de tonnerre. Alors que le vortex se dissipait au-dessus de la planète Qing Ling, le fourneau émit des craquements sinistres et une fissure apparut sur sa surface!
 
 C'était la première fois qu'une fissure apparaissait sur un fourneau de tonnerre depuis l'ouverture du Royaume Céleste du Tonnerre!
 

@@ -28,7 +28,7 @@ Li Yuan pressa le pas et atteignit rapidement les ruines à l'est. Il s'accroupi
 
 Lorsque Wang Lin arriva calmement, il déploya son Sens Divin, mais ne trouva rien.
 
-Peu après, les yeux de Li Yuan se plissèrent. Il pointa alors un endroit précis du doigt: « Frère Xu, attaque cet endroit avec un sort! »
+Peu après, les yeux de Li Yuan se plissèrent. Il pointa alors un endroit précis du doigt: « Frère Xu, attaquez cet endroit avec un sort! »
 
 Wang Lin ne perdit pas de temps. Il leva la main et un éclair de tonnerre violet jaillit tel un dragon sauvage vers le point désigné. Le tonnerre s'écrasa dans un fracas assourdissant, faisant trembler la terre et remuer les débris.
 
@@ -42,7 +42,7 @@ Wang Lin acquiesça et répondit: « Je pense que la formation qui gère cette p
 
 Li Yuan s'accroupit et épousseta une épaisse couche de poussière. Après quelques calculs, il hocha la tête: « C'est exact. À en juger par cette poussière, personne n'est venu ici depuis fort longtemps. Comme vous l'avez dit, Frère Xu, cette formation a perdu toute son énergie spirituelle céleste et est devenue une formation morte. »
 
-Il expliqua ensuite: « Une formation morte fonctionne ainsi: une fois l'énergie spirituelle perdue, elle ne peut plus être activée. Cependant, j'ai un moyen de la restaurer! Frère Xu, j'aurai besoin d'un peu de temps, je vous prie de patienter un instant. » Sur ces mots, Li Yuan s'agenouilla, mordit son index gauche, prit une profonde inspiration et pressa son doigt contre la formation.
+Il expliqua ensuite: « Une formation morte fonctionne ainsi: une fois l'énergie spirituelle perdue, elle ne peut plus être activée. Cependant, j'ai un moyen de la restaurer! Frère Xu, j'aurai besoin d'un peu de temps, je vous prie de patienter un instant. » Sur ces mots, Li Yuan s'assit en tailleur, mordit son index gauche, prit une profonde inspiration et pressa son doigt contre la formation.
 
 L'énergie originelle jaillit de sa main gauche. Le sang s'écoula de la blessure pour pénétrer dans la formation avant de se répandre lentement.
 
@@ -82,7 +82,7 @@ Li Yuan fixa le rayonnement déclinant et déclara: « Si la formation céleste 
 
 Wang Lin hocha la tête, mais son expression changea soudainement alors qu'il scrutait l'horizon. Il aperçut deux rayons de lumière d'épée approcher; ils dégageaient de puissantes fluctuations d'énergie spirituelle céleste. Ils avaient manifestement remarqué le faisceau et voulaient découvrir ce qui se passait.
 
-Wang Lin détourna le regard et tendit sa main droite vers le sol. Une masse considérable de briques s'éleva avant d'exploser en une fine poussière. Wang Lin dispersa ensuite cette poussière dans toutes les directions.
+Wang Lin détourna le regard et tendit sa main droite vers le sol. Une masse considérable de pans de murs brisés s'éleva avant d'exploser en une fine poussière. Wang Lin dispersa ensuite cette poussière dans toutes les directions.
 
 En un instant, la poussière forma un anneau d'un rayon de 3,3 kilomètres, isolant la zone intérieure du monde extérieur.
 
@@ -90,7 +90,7 @@ Les yeux de Wang Lin se fixèrent sur le faisceau mourant et il lâcha d'une voi
 
 Bien que sa voix fût feutrée, elle résonna dans les oreilles des deux arrivants comme un coup de tonnerre. Ces deux individus étaient au milieu du stade de l'Ascendant; leur esprit fut ébranlé par cette injonction, et même la lumière de leurs épées devint instable. Ils s'arrêtèrent à la lisière de l'anneau, n'osant faire un seul pas de plus.
 
-Ils se regardèrent avec des visages pâles avant de ranger précipitamment leurs armes. L'un d'eux déclara respectueusement: « Nous sommes deux juniors de la famille Zhao du domaine occidental. Nous obéirons aux ordres de l'Aîné et ne franchirons pas cet anneau. »
+Ils se regardèrent avec des visages pâles avant de ranger précipitamment leurs armes. L'un d'eux déclara respectueusement: « Nous sommes deux juniors de la famille Zhao du domaine occidental. Nous obéirons aux ordres du Senior et ne franchirons pas cet anneau. »
 
 Le faisceau commença à se dissiper de plus en plus vite. Les yeux de Li Yuan brillèrent d'impatience alors qu'il s'avançait vers la formation, attendant sa disparition complète. Même les deux cultivateurs à l'extérieur écarquillèrent les yeux; ils n'avaient jamais vu une telle scène et, après réflexion, supposèrent qu'un trésor venait de faire son apparition!
 

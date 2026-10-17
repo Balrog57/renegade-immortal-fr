@@ -24,7 +24,7 @@ Ce coup créa un vortex. Les courtes épées furent aspirées par le tourbillon,
 
 Des explosions retentirent dans le vide tandis que Ta Shan agitait froidement ses poings. Chaque fois qu'un coup frappait une lame, celle-ci était repoussée en arrière. Même si les courtes épées esquivaient les coups, elles ne parvenaient pas à endommager son corps.
 
-Les yeux de Wang Lin s'illuminèrent et il chargea. Son doigt droit pointa vers la Paire du Dao Fané. Celle-ci brilla et vola vers l'homme à la robe noire.
+Les yeux de Wang Lin s'illuminèrent et il chargea. Son doigt droit pointa vers la Paire Dao Fanée. Celle-ci brilla et vola vers l'homme à la robe noire.
 
 Simultanément, le monde fut envahi par une intention meurtrière dense qui se propagea rapidement. Dès que cette intention apparut, une lumière grise enveloppa l'homme à la robe noire.
 
@@ -48,7 +48,7 @@ Au moment où l'homme leva les mains, une force mystérieuse commença soudainem
 
 L'expression féroce de l'homme s'intensifia et il poussa violemment vers le haut!
 
-Un fracas assourdissant résonna dans le vide. Le son fut si puissant que tous les membres du Clan des Immortels Délaissés qui approchaient s'arrêtèrent net. Leurs corps tremblèrent et ils furent forcés de reculer sous l'onde de choc. Ceux dont la culture était plus faible virent du sang jaillir de leurs orifices.
+Un fracas assourdissant résonna dans le vide. Le son fut si puissant que tous les membres du Clan des Immortels Élus qui approchaient s'arrêtèrent net. Leurs corps tremblèrent et ils furent forcés de reculer sous l'onde de choc. Ceux dont la culture était plus faible virent du sang jaillir de leurs orifices.
 
 Le Sceau Céleste vacilla et marqua une pause.
 

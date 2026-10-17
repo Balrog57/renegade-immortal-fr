@@ -108,7 +108,7 @@ Le pouce de Wang Lin ne marqua aucun temps mort et s'abattit avec tout le poids 
 
 C'était comme si tout ce qui se trouvait dans un rayon de 50 kilomètres s'était concentré sur son doigt. Alors que le Doigt de la Mort descendait, le colosse en armure noire eut l'illusion de lutter contre les cieux eux-mêmes.
 
-Le colosse poussa un rugissement et fusionna instantanément avec la tortue noire derrière lui. Ses yeux furent alors embrasés d'une lueur démoniaque. Enfin, Wang Lin faisait face à un natif utilisant un sort démoniaque ancestral!
+Le colosse poussa un rugissement et fusionna instantanément avec la tortue noire derrière lui. Ses yeux furent alors embrasés d'une lueur démoniaque. Pour la première fois, Wang Lin voyait réellement à l'œuvre le pouvoir démoniaque d'un natif de ces terres!
 
 Au moment de la fusion, la tortue sembla prendre vie; elle poussa un cri et lança sa queue vers Wang Lin.
 

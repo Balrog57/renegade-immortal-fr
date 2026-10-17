@@ -24,7 +24,7 @@ Il passait du temps dans le Tombeau de Suzaku, et tout était si différent de c
 
 Wang Lin réfléchit encore un instant, puis il déploya son sens divin et son cœur trembla.
 
-Au centre de cette zone se trouvait un immense bassin recouvert d'une couche de glace bleu foncé, empêchant quiconque de voir ce qui s'y cachait.
+Au centre de cette zone se trouvait un bassin un peu plus grand que les autres, dont le bord était couvert d'une couche de glace scintillante et dont l'intérieur, d'un bleu profond, ne laissait rien voir de ce qui s'y cachait.
 
 Cependant, l'intention de l'épée y était la plus intense; elle perçait les cieux et dégageait une aura arrogante.
 
@@ -48,7 +48,7 @@ Un sens divin émana de l'épée. Ce sens était tyrannique et empreint d'une im
 
 L'intention de l'épée provenant du grand bassin central était très semblable à celle des épées célestes.
 
-Il toucha son sac de rangement et l'épée céleste apparut. Dès son apparition, l'épée précédente pâlit, telle une luciole face à un brasier rugissant.
+Il toucha son sac de rangement et l'épée céleste apparut. Dès son apparition, l'épée précédente pâlit, telle une luciole sous la lune brillante.
 
 Wang Lin cria: « Xu Liguo! »
 
@@ -74,9 +74,9 @@ Il y avait peu de failles ici; Wang Lin n'en rencontra que trois durant son traj
 
 Plus il s'enfonçait, moins il croisait de failles. Finalement, il accéléra à pleine vitesse et chargea vers le centre telle une météore.
 
-Quelques heures plus tard, le grand bassin central apparut enfin. Des centaines d'épées volantes flottaient au-dessus de lui, libérant leur intention. Wang Lin pouvait ressentir cette puissance même à distance.
+Quelques heures plus tard, le grand bassin central apparut enfin. D'innombrables épées volantes flottaient au-dessus de lui, libérant leur intention. Wang Lin pouvait ressentir cette puissance même à distance.
 
-Xu Liguo s'arrêta net, n'osant plus avancer. Il lança un regard complaisant à Wang Lin et dit: « Maître, vous avez vu que je n'ai pas failli et que j'ai rassemblé tous les esprits d'épée pour vous! Maintenant que mon travail est terminé, que diriez-vous que je retourne dans l'épée en attendant que vous éliminiez tous ces esprits? Je ressortirai juste après. » Sur ce, Xu Liguo retourna rapidement vers l'épée céleste.
+Xu Liguo s'arrêta net, n'osant plus avancer. Il lança un regard complaisant à Wang Lin et dit: « Maître, vous avez vu que je n'ai pas tiré au flanc en chemin et que j'ai rassemblé tous les esprits d'épée pour vous! Maintenant que mon travail est terminé, que diriez-vous que je retourne dans l'épée en attendant que vous éliminiez tous ces esprits? Je ressortirai juste après. » Sur ce, Xu Liguo retourna rapidement vers l'épée céleste.
 
 Cependant, alors que la moitié de son corps était déjà rentrée dans l'arme, Wang Lin saisit l'épée et la projeta, avec Xu Liguo à l'intérieur, en plein milieu de la masse d'épées de trésor.
 
@@ -94,9 +94,9 @@ Wang Lin afficha une expression de déception. En ressentant une aura similaire 
 
 Bien qu'il sût que c'était peu probable, ce sentiment ne le quittait pas.
 
-Hélas, l'objet devant lui n'était pas la Richesse, mais une lame de demi-lune. Depuis l'Antiquité, les épées et les lames étaient de renommée égale, mais si les épées possédaient leur fierté, les lames avaient leur propre frénésie. Cela ne posait aucun problème tant qu'il ne s'agissait que de simples morceaux de métal, mais une fois qu'elles acquéraient un esprit, la coexistence devenait impossible.
+Hélas, l'objet devant lui n'était pas la Richesse, mais une lame de demi-lune. Depuis l'Antiquité, les épées et les lames étaient de renommée égale, mais si les épées possédaient leur fierté, les lames avaient leur propre frénésie. Cela ne posait aucun problème tant qu'il ne s'agissait que de simples morceaux de métal, mais une fois qu'elles acquéraient un esprit, elles ne s'assemblaient plus aisément.
 
-Il était d'autant plus improbable qu'une lame capable de faire adorer d'innombrables épées puisse coexister avec une autre, et cette lame n'était pas ordinaire!
+Et que dire de celle-ci, capable de faire adorer d'innombrables esprits d'épée: cette lame n'était assurément pas ordinaire!
 
 Mais quelle que soit l'extraordinaire nature de cet objet, il était constitué d'innombrables fragments d'âmes; il était donc impossible de l'emporter. Même s'il réussissait à s'en saisir après avoir quitté le Cristal de la Planète de Culture, elle se briserait en une multitude de fragments qui retourneraient à leurs propriétaires originaux.
 
@@ -106,7 +106,7 @@ Wang Lin soupira intérieurement. Il allait lever la main pour rappeler l'épée
 
 Depuis son arrivée, il avait croisé de nombreuses formes de vie, toutes composées de multiples fragments d'âmes. Aucune ne présentait un esprit constitué d'un unique fragment comme cette lame.
 
-Lorsque la lame de demi-lune s'éleva du bassin, toutes les épées environnantes émettent des bourdonnements, comme pour rendre hommage à leur seigneur, avant de se retirer.
+Lorsque la lame de demi-lune s'éleva du bassin, toutes les épées environnantes émirent des bourdonnements, comme pour rendre hommage à leur seigneur, avant de se retirer.
 
 Depuis l'intérieur de l'épée céleste, Xu Liguo vit la lame et commença à paniquer. Il avait toujours été un poltron; en voyant toutes les autres épées reculer, il voulut lui aussi se soumettre, mais craignait Wang Lin.
 

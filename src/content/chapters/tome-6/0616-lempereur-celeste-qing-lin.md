@@ -80,9 +80,9 @@ Plus Wang Lin obtenait d'informations, plus il avait l'impression qu'un voile de
 
 « Le Couple Céleste Nuageux était célèbre il y a des dizaines de milliers d'années. Ils ne sont pas partis de cet endroit comme les autres, mais ont décidé de cultiver à l'intérieur de leur grotte factice. C'est pourquoi, en dehors de très peu de gens, ils sont presque inconnus. Je n'ai entendu parler de ce couple que par mon père. » En disant cela, Yao Xixue laissa transparaître une trace d'envie et de mélancolie. Lorsqu'elle avait entendu parler de ce couple, elle traversait sa période de jeunesse. Même maintenant, un lambeau de ce rêve subsistait au fond de son cœur, et l'évocation de ce souvenir la plongeait dans une douce tristesse.
 
-Wang Lin réfléchit un instant, puis ses yeux s'illuminèrent soudainement alors qu'il fixait Yao Xixue: « Votre père, le Patriarche Sanglant, devrait arriver bientôt! »
+Wang Lin réfléchit un instant, puis ses yeux s'illuminèrent soudainement alors qu'il fixait Yao Xixue: « Ton père, le Patriarche Sanglant, devrait arriver bientôt! »
 
-À ces mots, le cœur de Yao Xixue trembla violemment. Cependant, son visage afficha une surprise feinte et elle répondit: « Je n'ai aucune idée de ce que vous voulez dire! » Son expression était parfaitement naturelle, ne laissant paraître aucun indice.
+À ces mots, le cœur de Yao Xixue trembla violemment. Cependant, son visage afficha une surprise feinte et elle répondit: « Je n'ai aucune idée de ce que tu veux dire! » Son expression était parfaitement naturelle, ne laissant paraître aucun indice.
 
 « Au cours de ces dizaines de milliers d'années, le Domaine des Esprits Démoniaques a été ouvert d'innombrables fois. J'ignore combien de fois tu es venue ici, mais avec les capacités du Patriarche Sanglant, prolonger sa vie ne devrait pas être difficile. Dans cette optique, il se trouve que c'est précisément le moment où tu dois entrer dans la grotte, même au risque qu'un étranger s'en aperçoive. S'il n'y avait pas un secret derrière tout cela, je crains que tu ne sois pas aussi anxieuse! »
 
@@ -90,7 +90,7 @@ Wang Lin réfléchit un instant, puis ses yeux s'illuminèrent soudainement alor
 
 La voix de Wang Lin était calme et profonde alors qu'il avançait lentement son raisonnement.
 
-Yao Xixue regarda Wang Lin pendant un long moment. Puis elle sourit et hocha la tête: « Tu es très intelligent. C'est exact, mon père arrivera très bientôt! En fait, non seulement mon père, mais je crains que ton maître, l'Omniscient, Ling Tianhou de la Secte de l'Épée Da Lou, ainsi que divers vieux monstres de la planète Tian Yun n'arrivent également ici sous peu! »
+Yao Xixue regarda Wang Lin pendant un long moment. Puis elle sourit et hocha la tête: « Tu es très intelligent. C'est exact, mon père arrivera très bientôt! En fait, non seulement mon père, mais je crains que ton maître, l'Omniscient, Ling Tianhou de la Secte de l'Épée Da Luo, ainsi que divers vieux monstres de la planète Tian Yun n'arrivent également ici sous peu! »
 
 Wang Lin ferma les yeux, ne laissant qu'une mince fente ouverte, et dit lentement: « Est-ce à cause de ce jeton doré qui est apparu lors de la marée? »
 

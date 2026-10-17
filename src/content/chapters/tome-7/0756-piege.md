@@ -38,7 +38,7 @@ Après un long moment, il leva son pied droit et frappa le sol avec une violence
 
 Une immense fissure apparut sous ses pieds et se propagea comme un dragon fou à travers le fragment. La faille se divisa encore et encore jusqu'à ce que l'intégralité du fragment soit parcourue de craquelures terrifiantes.
 
-La puissance d'un cultivateur dépassant le stade de la Scrutation Nirvana surpasse les limites du Royaume Céleste du Tonnerre. Une tempête balaya le fragment tandis qu'innombrables fissures surgissaient de toutes parts. À cet instant, même des déchirures spatiales apparurent dans le ciel.
+La puissance d'un cultivateur dépassant le stade du Scruteur du Nirvana surpasse les limites du Royaume Céleste du Tonnerre. Une tempête balaya le fragment tandis qu'innombrables fissures surgissaient de toutes parts. À cet instant, même des déchirures spatiales apparurent dans le ciel.
 
 La terre s'effondra!
 
@@ -70,7 +70,7 @@ Des déchirures spatiales apparaissaient occasionnellement dans le ciel, libéra
 
 C'était le seul son qui régnait ici.
 
-Un autel d'environ 33 mètres de haut se dressait là, avec de nombreuses marches menant au sommet. L'autel était endommagé et parsemé de fissures, dont certaines remontaient jusqu'au sommet.
+Un autel brun d'environ 33 mètres de haut se dressait là, avec de nombreuses marches menant au sommet. L'autel était endommagé et parsemé de fissures, dont certaines remontaient jusqu'au sommet.
 
 À cet instant, un éclat de lumière apparut sur la plateforme sommitale de l'autel et deux silhouettes en émergèrent.
 
@@ -98,11 +98,11 @@ Aucune joie ni colère ne transparaissait sur son visage alors qu'elle fixait ca
 
 Wang Lin fixa silencieusement Yao Xixue.
 
-« Veux-tu que je te laisse partir? Ou veux-tu me supplier de demander à mon père de ne pas te tuer... Wang Lin, ai-je raison? » La moquerie dans la voix de Yao Xixue devint plus tranchante encore.
+« Veux-tu me libérer? Ou veux-tu me supplier de demander à mon père de ne pas te tuer... Wang Lin, ai-je raison? » La moquerie dans la voix de Yao Xixue devint plus tranchante encore.
 
 « Je pourrais laisser mon père t'épargner la vie, car je ne te laisserai pas mourir si facilement... » Le calme quitta les yeux de Yao Xixue pour laisser place à une haine profonde.
 
-Wang Lin fronça les sourcils et dit: « Ainsi, tu es en train de dire que, que je te laisse partir ou non, mon destin est le même... »
+Wang Lin fronça les sourcils et dit: « Ainsi, tu es en train de dire que, que je te libère ou non, mon destin est le même... »
 
 Yao Xixue regarda Wang Lin et répondit froidement: « Tu n'oseras pas me tuer, car me tuer reviendrait à me libérer! Si tu m'enfermes quelque part, tu devras faire face à la poursuite éternelle de mon père. Un jour, il te trouvera, et je m'échapperai. »
 
@@ -110,13 +110,13 @@ Alors que Wang Lin fixait Yao Xixue, son regard se glaça. Il forma rapidement q
 
 Il se leva ensuite, scruta l'horizon et se mit à réfléchir.
 
-« Te laisser partir... ou non... cela ne dépend pas de moi, mais de l'Ancêtre de Sang! » Les yeux de Wang Lin étaient féroces. Puis, d'une simple pensée, il leva les restrictions environnantes et se tourna vers Li Yuan.
+« Te libérer... ou non... cela ne dépend pas de moi, mais de l'Ancêtre de Sang! » Les yeux de Wang Lin étaient féroces. Puis, d'une simple pensée, il leva les restrictions environnantes et se tourna vers Li Yuan.
 
 Un instant plus tard, Li Yuan ouvrit lentement les yeux en expulsant une bouffée d'air vicié. Ses yeux révélèrent une pointe de terreur lorsqu'il demanda: « Frère Xu, qui est cette personne?! »
 
 Wang Lin poussa un soupir. Après avoir reculé de quelques pas, il joignit les mains en signe de respect envers Li Yuan et dit: « J'ai fait peser un fardeau sur vous, Frère Li. Cet homme s'appelle l'Ancêtre de Sang. Sa culture est insondable et j'ai un différend avec lui. Lorsque nous partirons, vous devrez filer en premier pour ne pas être davantage impliqué. »
 
-Li Yuan esquissa un sourire amer: « Frère Xu, la culture de cet homme n'est pas une simple culture du second niveau. Ma Restriction d'Annihilation n'est qu'au quatrième niveau et, bien que je l'aie utilisée avec le Cœur de la Restriction, il a tout de même pu s'échapper. Je crains que son niveau de culture ne dépasse le stade du Briseur Nirvana; il se situe au moins au stade du Purificateur Nirvana... Avec une telle puissance, c'est une existence de premier rang dans le Système Stellaire Luotian... Comment avez-vous pu provoquer un tel être? Hélas... Si ma restriction d'annihilation avait atteint le septième niveau, j'aurais peut-être pu l'enfermer. »
+Li Yuan esquissa un sourire amer: « Frère Xu, la culture de cet homme n'est pas une simple culture du second niveau. Ma Restriction d'Annihilation n'est qu'au quatrième niveau et, bien que je l'aie utilisée avec le Cœur de la Restriction, il a tout de même pu s'échapper. Je crains que, s'il n'est pas au stade du Briseur du Nirvana, il soit au moins un cultivateur du Purificateur du Nirvana... Avec une telle puissance, c'est une existence de premier rang dans le Système Stellaire Luotian... Comment avez-vous pu provoquer un tel être? Hélas... Si ma restriction d'annihilation avait atteint le septième niveau, j'aurais peut-être pu l'enfermer. »
 
 Wang Lin resta calme et répondit lentement: « Frère Li, cherchons d'abord la sortie. Nous pourrons discuter une fois en sécurité. »
 
@@ -152,7 +152,7 @@ La peinture dans le ciel semblait déchirée, parsemée de multiples ouvertures 
 
 Wang Lin fut stupéfait et son expression changea radicalement. Il demanda: « Voulez-vous dire que notre position actuelle se trouve dans l'espace de stockage d'un être céleste? »
 
-Li Yuan rit, l'excitation brillant davantage dans ses yeux alors qu'il hochait la tête: « Oui, c'est certain. Cet endroit est très ancien et l'espace est devenu instable, ce qui a provoqué ces fissures. Autrement, il nous aurait été impossible de pénétrer ici. La terre que nous voyons a été déplacée d'ailleurs. Même cette montagne et cet arbre n'appartiennent pas à ce lieu; ils ont tous été importés de l'extérieur. »
+Li Yuan rit, l'excitation brillant davantage dans ses yeux alors qu'il hochait la tête: « Oui, c'est certain. Cet endroit est très ancien et l'espace ouvert par cet être céleste n'était déjà pas très stable, ce qui a provoqué ces fissures. Autrement, il nous aurait été impossible de pénétrer ici. La terre que nous voyons a été déplacée d'ailleurs. Même cette montagne et cet arbre n'appartiennent pas à ce lieu; ils ont tous été importés de l'extérieur. »
 
 Un éclat mystérieux traversa les yeux de Wang Lin alors qu'il demandait lentement: « Frère Li, si cet endroit devait s'effondrer, tout ce qu'il contient serait-il détruit avec lui...? »
 

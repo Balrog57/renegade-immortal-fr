@@ -6,7 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 487 - Sword Intent
 slug: lintention-de-lepee
 ---
-Le pavillon des trésors trônait au centre de la division pourpre, sur une plateforme gigantesque qui s'étendait depuis les montagnes. Ce pavillon comptait neuf étages et, lorsqu'on le contemplait de loin, la densité de l'énergie spirituelle qu'il dégageait ressemblait à un immense parasol.
+Le pavillon des trésors trônait à mi-hauteur de la montagne de la division pourpre, sur une plateforme gigantesque qui s'avançait en biais depuis la paroi. Ce pavillon comptait neuf étages et, lorsqu'on le contemplait de loin, l'énergie spirituelle dense qu'il dégageait formait des ondulations qui se propageaient dans toutes les directions.
 
 Le pavillon était édifié en dalles de jade vert. L'extérieur du bâtiment exhalait une aura antique, comme s'il avait été purifié d'innombrables fois par le passage du temps. Certaines dalles de jade avaient même viré au gris.
 
@@ -44,7 +44,7 @@ La trace d'intention d'épée sur cette lame était précisément celle que Zhou
 
 À l'époque, Zhou Yi avait poursuivi le Saint de l'Épée Ling Tianhou. Plus de cent ans s'étaient écoulés depuis cet événement.
 
-C'était la première fois qu'il ressentait l'intention d'épée de Zhou Yi. S'il n'avait pas passé de longues années sous la pagode à comprendre le domaine de Zhou Yi, il n'aurait jamais pu identifier d'un simple coup d'œil que cette intention appartenait à ce dernier.
+C'était la première fois qu'il ressentait l'intention d'épée de Zhou Yi. S'il n'avait pas passé de longues années sous la pagode à comprendre le domaine d'Ascendant de Zhou Yi, il n'aurait jamais pu identifier d'un simple coup d'œil que cette intention appartenait à ce dernier.
 
 Il n'y avait qu'une infime trace d'intention dans l'épée. Après l'avoir ressentie, Wang Lin réfléchit un instant et frotta la lame volante. L'épée commença soudainement à briller d'un vert éclatant et un rayon de lumière en jaillit. Cette lumière se mua en une étoile verte qui flotta devant Wang Lin.
 
@@ -100,9 +100,9 @@ Wang Lin fut surpris. Même avec sa force mentale, il ne put s'empêcher d'être
 
 « Un total de 123 600 pièces! » Tandis que la voix du géant résonnait, d'innombrables jades célestes jaillirent du corps de la figure pour s'accumuler à une trentaine de mètres devant Wang Lin.
 
-Wang Lin fixa l'amas de jades qui croissait à vue d'œil et sentit sa gorge s'assécher. Il n'aurait jamais imaginé que la Secte du Destin céleste distribue les jades de cette manière.
+Wang Lin fixa l'amas de jades qui croissait à vue d'œil et sentit sa gorge s'assécher. Il n'aurait jamais imaginé que la Secte du Destin Céleste distribue les jades de cette manière.
 
-« Si une place de disciple reste vacante pendant des dizaines de milliers d'années, la quantité de jades accumulée atteindra un niveau inimaginable... Les jades célestes sont censés être rares, alors pourquoi la Secte Céleste en possède-t-elle autant... » Wang Lin prit une grande inspiration. À cet instant, les jades formaient déjà une petite montagne. Ses yeux s'illuminèrent alors qu'il les rangeait rapidement dans son sac de rangement.
+« Si une place de disciple reste vacante pendant plus de dix mille ans, la quantité de jades accumulée atteindra un niveau inimaginable... Les jades célestes sont censés être rares, alors pourquoi la Secte du Destin Céleste en possède-t-elle autant... » Wang Lin prit une grande inspiration. À cet instant, les jades formaient déjà une petite montagne. Ses yeux s'illuminèrent alors qu'il les rangeait rapidement dans son sac de rangement.
 
 Une fois terminé, il toucha son sac; il avait toujours l'impression que ce n'était pas réel.
 

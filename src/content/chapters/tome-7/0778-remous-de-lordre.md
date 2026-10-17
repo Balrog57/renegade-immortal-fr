@@ -26,7 +26,7 @@ La femme hocha la tête et le suivit. Quant au jeune homme qui venait d'atteindr
 
 « Quelqu'un capable d'inspirer une telle crainte au Jeune Maître n'est pas un individu que je peux provoquer! Xu Mu... »
 
-Une fois le groupe de Tang Yanfeng parti, les cultivateurs environnants commencèrent à hésiter. Bien que Wang Lin soit entré dans l'orifice noir, aucun d'eux n'osa s'aventurer dans la zone de 3,3 kilomètres. Même si la source de la poussière avait disparu, c'était comme si cette zone était véritablement devenue une terre de mort.
+Une fois le groupe de Tang Yanfeng parti, les cultivateurs environnants commencèrent à hésiter. Bien que Wang Lin soit entré dans l'orifice noir, aucun d'eux n'osa s'aventurer dans la zone de 3,3 kilomètres. Même si la source de terreur avait disparu, c'était comme si cette zone était véritablement devenue une terre de mort.
 
 Après un long moment, ils se retirèrent un à un. Finalement, nul n'osa prendre le risque; après tout, la scène précédente les avait profondément terrifiés.
 
@@ -82,7 +82,7 @@ Wang Lin ne répondit pas, mais son sens divin continuait de s'étendre avec pr�
 
 Li Yuan observa le symbole, de plus en plus sérieux. Finalement, il fut frappé par le choc lorsqu'il finit par l'identifier.
 
-Wang Lin dit lentement: « Frère Xu, ce symbole est formé par le tunnel même dans lequel nous nous trouvons. J'ai déployé mon sens divin tout au long du chemin et j'ai pu le reconstituer. »
+Wang Lin dit lentement: « Frère Li, ce symbole est formé par le tunnel même dans lequel nous nous trouvons. J'ai déployé mon sens divin tout au long du chemin et j'ai pu le reconstituer. »
 
 « Le frère Xu veut dire que quelqu'un a conçu ce tunnel en suivant la forme de ce symbole! » Li Yuan se redressa. Son niveau de culture n'était pas assez élevé pour couvrir l'intégralité du tunnel avec son sens divin, mais il ne doutait aucunement des paroles de Wang Lin.
 
@@ -130,4 +130,4 @@ Une fois cela fait, Wang Lin se retourna vers le vortex. Il réfléchit un insta
 
 Simultanément, une voix étrange résonna dans l'esprit de Wang Lin:
 
-« Voulez-vous apprendre des sorts célestes...? »
+« Quels sorts célestes souhaitez-vous apprendre...? »

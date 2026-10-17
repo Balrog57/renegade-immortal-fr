@@ -28,17 +28,17 @@ Son corps se tordit et roula violemment dans la vallée. Ses yeux n'exprimaient 
 
 Tout s'était déroulé avec une rapidité fulgurante, mais l'impact fut tel que les visages de l'assistance devinrent livides.
 
-« Tout ceci est de ma faute. Si le frère aîné de Qian Qin n'était pas mort, tout se serait bien passé et il n'y aurait point de rancune entre nous... » Guo Xingyi lança un regard chargé d'intention meurtrière vers Qian Qin.
+« Tout ceci est de ma faute. Si le frère aîné de Qian Qin n'était pas mort, tout se serait bien passé et il n'y aurait point de rancune entre nous, mais à présent... » Guo Xingyi serra l'épée précieuse dans sa main, médita un instant, puis lança un regard où brilla une lueur d'intention meurtrière vers Qian Qin.
 
 Quant à l'autre femme, celle qui appelait Guo Xingyi « frère aîné », son visage était livide; elle pressait sa petite main contre sa bouche, comme sur le point de vomir. Son corps tremblait, manifestement terrifiée par ce qui venait de se produire.
 
 Seul l'homme en robe bleue, qui n'avait cessé de faire l'éloge de Guo Xingyi, ne montrait aucun signe d'inconfort. Au contraire, lorsqu'il tourna les yeux vers la vallée, une expression d'extase illumina son visage.
 
-Shi Fang, de la Secte de l'Épée Da Lou, sourit à l'ancien de petite taille et dit: « Il semble que nous n'ayons plus besoin de tuer personne. Cet individu a déjà attiré la majorité des Insectes Multitude dans son propre corps. »
+Shi Fang, de la Secte de l'Épée Da Lou, sourit à l'ancien de petite taille et dit: « Il semble que nous n'ayons plus besoin de tuer personne. Cet individu a déjà attiré la majorité des Insectes des Neuf Multitudes dans son propre corps. »
 
-Le petit ancien sourit en retour: « Le frère Shi est plus doué pour les restrictions; j'espère que vous ne vous retenez pas. Une fois les Fruits Dorés Brillants en notre possession, nous devrons encore rendre compte à la secte. »
+Le petit ancien sourit en retour: « Le frère Shi est plus doué pour les restrictions; j'espère que vous ne vous retenez pas. Une fois les Fruits d'Or Brillants en notre possession, nous devrons encore rendre compte à la secte. »
 
-Shi Fang rit. Sans un mot, il frappa son sac de rangement et un jade rouge apparut dans sa main. Sa main droite prit la forme d'une épée tandis qu'il pointait le jade et ordonna: « Restriction du Sceau de l'Épée, ouvre! »
+Shi Fang rit. Sans un mot, il frappa son sac de rangement et un jade rouge apparut dans sa main. Sa main gauche prit la forme d'une épée tandis qu'il pointait le jade et ordonna: « Restriction du Sceau de l'Épée, ouvre! »
 
 Aussitôt, le jade se mit à bourdonner et s'élança dans la vallée tel un rayon de lumière rouge.
 
@@ -48,21 +48,21 @@ La soie rouge se déplaça avec une célérité extrême pour atteindre la proie
 
 À cet instant, les yeux de l'ancien Shi Fang s'illuminèrent et il cria: « Scelle! »
 
-Sous l'effet de ce commandement, le filet rouge se mit à irradier une lumière pourpre. Une série de craquements retentit alors que d'innombrables rayons de lumière rouge jaillissaient du filet, formant un sceau d'une puissance redoutable.
+Sous l'effet de ce commandement, le filet rouge se mit à scintiller d'éclairs rouges. Dans un crépitement, d'innombrables runes d'éclairs rouges apparurent sur tout le filet et s'y entremêlèrent étroitement, formant un sceau d'une grande solidité.
 
 Une fois la manœuvre achevée, le petit ancien s'avança immédiatement dans la vallée. Dès son entrée, des bruits de froissement émanèrent des feuilles et quelques points rouges en surgirent; cependant, ils n'étaient plus que peu nombreux cette fois.
 
-L'expression du petit ancien resta sereine tandis qu'il levait sa main droite pour claquer des doigts. À chaque mouvement, un rayon d'énergie d'épée était projeté, détruisant une masse de points rouges.
+L'expression du petit ancien resta sereine tandis qu'il levait sa main droite pour faire jouer ses cinq doigts. À chaque doigt qu'il faisait claquer, un rayon d'énergie d'épée fendait l'air, détruisant une masse de points rouges.
 
-En vérité, s'il y avait eu quelques Insectes Multitude supplémentaires, il lui aurait été difficile de les maîtriser, mais comme il n'en restait que peu, la tâche semblait dérisoire.
+En vérité, s'il y avait eu quelques Insectes des Neuf Multitudes supplémentaires, il lui aurait été difficile de les maîtriser, mais comme il n'en restait que peu, la tâche semblait dérisoire.
 
 Shi Fang descendit également dans la vallée. Avec son aide, les derniers insectes furent instantanément anéantis.
 
 La troisième personne à pénétrer dans la vallée fut l'oncle-maître de Guo Xingyi, suivi par tous les autres. Quant à Qian Qin, la colère avait quitté son visage pour laisser place à un calme terrifiant.
 
-Après que le petit ancien eut lancé le dernier rayon d'énergie d'épée pour achever le dernier Insecte Multitude, ses yeux s'illuminèrent en se posant sur le champ de fleurs dorées.
+Après que le petit ancien eut lancé le dernier rayon d'énergie d'épée pour achever le dernier Insecte des Neuf Multitudes, ses yeux s'illuminèrent en se posant sur le champ de fleurs dorées.
 
-« Lu Songyi, va cueillir ces Fruits Dorés Brillants! » La voix du petit ancien portait une autorité qui n'admettait aucune désobéissance!
+« Lu Songyi, va cueillir ces Fruits d'Or Brillants! » La voix du petit ancien portait une autorité qui n'admettait aucune désobéissance!
 
 Lu Songyi était ce vieillard au stade de la Formation de l'Âme. En entendant l'ordre, il hocha immédiatement la tête et s'apprêta à récolter les fruits.
 
@@ -76,7 +76,7 @@ Ce mouvement changea soudainement toute l'atmosphère ambiante; une aura de mort
 
 En conséquence, le vieillard nommé Lu, qui s'apprêtait à récolter les fruits, s'interrompit net, le visage frappé par la stupeur.
 
-Les autres subirent le même sort. Seules les yeux de Qian Qin restaient calmes tandis qu'elle contemplait le cadavre de son frère aîné. C'était comme si tout ce qui se passait autour d'elle ne la concernait plus.
+Les autres subirent le même sort. Seuls les yeux de Qian Qin restaient calmes tandis qu'elle contemplait le cadavre de son frère aîné. C'était comme si tout ce qui se passait autour d'elle ne la concernait plus.
 
 Shi Fang réfléchit un instant, puis cria: « Camarade cultivateur qui vient d'arriver, nul besoin de feindre ou de se cacher! Je suis l'un des anciens de la Secte de l'Épée Da Lou, Shi Fang. Je vous prie de bien vouloir sortir pour converser! » Les deux anciens échangèrent un regard où transparaissait leur choc mutuel.
 
@@ -96,7 +96,7 @@ Au moment où l'ancien lançait le miroir, Shi Fang, dont la coopération avec l
 
 Shi Fang hurla: « Tranche! »
 
-Alors que les deux anciens attaquaient, le vieillard de la Formation de l'Âme, Lu Songyi, se déplaça comme un éclair pour charger vers les Fruits Dorés Brillants. Fort de sa longue culture, il savait saisir chaque opportunité; étant déjà proche des fruits, il y parvint en un instant.
+Alors que les deux anciens attaquaient, le vieillard de la Formation de l'Âme, Lu Songyi, se déplaça comme un éclair pour charger vers les Fruits d'Or Brillants. Fort de sa longue culture, il savait saisir chaque opportunité; étant déjà proche des fruits, il y parvint en un instant.
 
 La lumière du miroir de bronze agissait comme une restriction enserrant le gaz gris. Simultanément, l'épée de Shi Fang fondit sur la cible comme si elle tombait du sommet du neuvième ciel. Avant même l'impact, un sifflement déchirant l'air retentit.
 
@@ -112,6 +112,6 @@ Accompagnant cette charge, une voix glaciale émana de l'intérieur du brouillar
 
 Cette voix était d'une froideur extrême; dès qu'elle atteignit les oreilles de l'assistance, elle fit frissonner chacun d'entre eux. La lumière verte entourant le gaz gris s'effondra instantanément en une multitude de rayons avant de se dissiper.
 
-Des craquements sinistres jaillirent du miroir de bronze suspendu dans le ciel, puis... Boum!
+Des craquements sinistres jaillirent du miroir de bronze suspendu dans le ciel, puis... il s'effondra!
 
-L'énergie de l'épée que Shi Fang avait projetée venait de se briser!
+L'épée que Shi Fang avait abattue venait de se rompre!

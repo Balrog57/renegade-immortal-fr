@@ -32,7 +32,7 @@ Qian Qin n'avait guère envie de parler, mais sous le regard fulgurant du vieill
 
 « Cent! » Les yeux du petit vieillard s'illuminèrent soudainement. « Les bêtes démoniaques qui gardent cent Fruits d'Or Brillants doivent être extrêmement puissantes. Si ta secte a réussi à les localiser, elle n'est donc pas insignifiante! »
 
-Qian Qin resta silencieuse, mais l'homme en robe blanche de sa propre secte s'exclama avec indignation: « Ma secte a déployé d'immenses efforts et a sacrifié plusieurs Anciens pour trouver ces Fruits d'Or Brillants. Votre Secte de l'Épée Da Lou... »
+Qian Qin resta silencieuse, mais l'homme en robe blanche de sa propre secte s'exclama avec indignation: « Ma secte a déployé d'immenses efforts et a sacrifié plusieurs Anciens pour trouver ces Fruits d'Or Brillants. Votre Secte de l'Épée Da Luo... »
 
 Qian Qin fronça les sourcils et cria: « Tais-toi! »
 
@@ -42,15 +42,15 @@ Guo Xingyi hésita un instant avant de dire respectueusement: « Seigneur Ancien
 
 Le grand vieillard eut un rire et répondit: « Si nous les trouvons, nous lui en donnerons un! Montre-nous le chemin! »
 
-Qian Qin poussa un soupir, le cœur lourd de sentiments complexes. Elle n'avait d'autre choix que de mener la marche, sous peine de porter préjudice à sa secte. Avec la tyrannie dont faisait preuve la Secte de l'Épée Da Lou, quiconque oserait s'y opposer serait anéanti.
+Qian Qin poussa un soupir, le cœur lourd de sentiments complexes. Elle n'avait d'autre choix que de mener la marche, sous peine de porter préjudice à sa secte. Avec la tyrannie dont faisait preuve la Secte de l'Épée Da Luo, quiconque oserait s'y opposer serait anéanti.
 
-Sans parler du fait que ces deux seuls Anciens dégageaient une aura plusieurs fois supérieure à celle du Grand Ancien de sa propre secte. Comparée à la Secte de l'Épée Da Lou, sa secte n'était qu'une luciole; ils n'avaient aucune chance de résister...
+Sans parler du fait que ces deux seuls Anciens dégageaient une aura plusieurs fois supérieure à celle du Grand Ancien de sa propre secte. Comparée à la Secte de l'Épée Da Luo, sa secte n'était qu'une luciole; ils n'avaient aucune chance de résister...
 
 « Guo Xingyi, trahir ma confiance... » Qian Qin ressentit une amertume profonde. Elle lança un regard assassin à Guo Xingyi avant de serrer les mâchoires et de s'enfoncer dans les Terres Démoniaques du Nord.
 
-L'homme en robe blanche de sa secte la suivit, l'expression sombre. Les membres de la Secte de l'Épée Da Lou pénétrèrent dans la brume ténue et disparurent.
+L'homme en robe blanche de sa secte la suivit, l'expression sombre. Les membres de la Secte de l'Épée Da Luo pénétrèrent dans la brume ténue et disparurent.
 
-Wang Lin progressait à travers les Terres Démoniaques du Nord. Les mains derrière le dos, il survolait la région, ses pieds flottant à un mètre du sol. Il continuait de méditer sur les diverses mutations de l'Art de l'Abattage Céleste et sur la manière de transformer la force vitale en un sceau de vie.
+Wang Lin progressait à travers les Terres Démoniaques du Nord. Les mains derrière le dos, il survolait la région, ses pieds flottant à un mètre du sol. Il continuait de méditer sur les diverses mutations de l'Art du Massacre Céleste et sur la manière de transformer la force vitale en un sceau de vie.
 
 La chaîne de montagnes environnante était plongée dans un silence absolu, sans aucun signe de vie. Alors qu'il volait, une lueur spectrale clignota devant lui, puis une silhouette jaillit soudainement de sa cachette pour charger Wang Lin.
 
@@ -70,19 +70,19 @@ Cette petite créature n'avait aucun membre, seulement une gueule béante. Elle 
 
 Wang Lin retira son doigt et reprit sa progression. En se retirant, des filaments de gaz gris s'échappèrent des restes de la petite bête pour s'enrouler autour de son doigt.
 
-« L'Art de l'Abattage Céleste récolte la force vitale lors du massacre. Je me demande simplement si ce que j'ai entre les doigts est bien de la force vitale... » Wang Lin baissa les yeux pour observer le gaz gris autour de son doigt. Après une courte réflexion, il reprit son vol.
+« L'Art du Massacre Céleste récolte la force vitale lors du massacre. Je me demande simplement si ce que j'ai entre les doigts est bien de la force vitale... » Wang Lin baissa les yeux pour observer le gaz gris autour de son doigt. Après une courte réflexion, il reprit son vol.
 
-Le temps passa lentement. Wang Lin se déplaçait avec rapidité sans toutefois s'enfoncer trop profondément. Il déploya son Sens Divin pour verrouiller la position des membres de la Secte de l'Épée Da Lou.
+Le temps passa lentement. Wang Lin se déplaçait avec rapidité sans toutefois s'enfoncer trop profondément. Il déploya son Sens Divin pour verrouiller la position des membres de la Secte de l'Épée Da Luo.
 
 Chaque mouvement de ces derniers était parfaitement visible par le Sens Divin de Wang Lin; ils ne pouvaient rien lui cacher.
 
-Wang Lin voulait découvrir la nature exacte de ce Fruit d'Or Brillant. Il souhaitait également utiliser les membres de la Secte de l'Épée Da Lou, et plus particulièrement ces deux Anciens au stade de la Transformation de l'Âme, comme sujets d'entraînement pour son Art de l'Abattage Céleste.
+Wang Lin voulait découvrir la nature exacte de ce Fruit d'Or Brillant. Il souhaitait également utiliser les membres de la Secte de l'Épée Da Luo, et plus particulièrement ces deux Anciens au stade de la Transformation de l'Âme, comme sujets d'entraînement pour son Art du Massacre Céleste.
 
-À cet instant, Wang Lin n'éprouvait toujours aucune bienveillance envers la Secte de l'Épée Da Lou!
+À cet instant, Wang Lin n'éprouvait toujours aucune bienveillance envers la Secte de l'Épée Da Luo!
 
 Alors qu'il survolait la chaîne de montagnes, le gaz gris autour de ses doigts était devenu plusieurs fois plus épais qu'auparavant. Les filaments de gaz s'enroulaient avec célérité autour de ses phalanges, tels des cordages.
 
-Les Terres Démoniaques du Nord regorgeaient de bêtes démoniaques, mais aucune ne représentait une menace pour Wang Lin. Si ce n'était pour son désir de découvrir le Fruit d'Or Brillant, il serait déjà descendu plus profondément pour mettre en pratique son Art de l'Abattage Céleste sur des créatures plus puissantes.
+Les Terres Démoniaques du Nord regorgeaient de bêtes démoniaques, mais aucune ne représentait une menace pour Wang Lin. Si ce n'était pour son désir de découvrir le Fruit d'Or Brillant, il serait déjà descendu plus profondément pour mettre en pratique son Art du Massacre Céleste sur des créatures plus puissantes.
 
 Ce jour-là, Wang Lin retira son doigt de la tête d'un taureau dont la puissance égalait celle d'un cultivateur au stade de la Formation de l'Âme. Au moment du retrait, un épais panache de gaz gris jaillit du front du taureau pour s'enrouler autour de son doigt.
 
@@ -102,7 +102,7 @@ Le moustique était, après tout, une bête venue des étoiles. Bien qu'il soit 
 
 Cette bête vivait pour dévorer; elle pouvait consommer n'importe quel type de créature au monde et, plus elle dévorait, plus elle devenait puissante.
 
-Depuis qu'il l'avait suivie, elle avait englouti d'innombrables pilules, trésors célestes et noyaux divers. Bien que sa force fût encore au stade de l'Âme Naissante, sa férocité pouvait terrifier des bêtes même au stade de la Formation de l'Âme.
+Depuis qu'elle avait suivi Wang Lin, elle avait englouti d'innombrables pilules, trésors célestes et noyaux divers. Bien que sa force fût encore au stade de l'Âme Naissante, sa férocité pouvait terrifier des bêtes même au stade de la Formation de l'Âme.
 
 Le corps de Wang Lin avança et plana dans les airs. Le moustique poussa un rugissement et s'élança. Il se déplaça comme un éclair pour se placer sous les pieds de Wang Lin, l'entraînant alors profondément dans la chaîne de montagnes.
 

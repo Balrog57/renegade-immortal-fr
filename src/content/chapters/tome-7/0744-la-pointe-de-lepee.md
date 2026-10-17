@@ -8,13 +8,13 @@ slug: la-pointe-de-lepee
 ---
 Wang Lin regarda Li Yuan avec un sourire qui n'en était pas un. Son regard était semblable à une épée, perçant directement le cœur de Li Yuan.
 
-L'expression de Li Yuan ne trahissait aucune panique; au contraire, elle devint plus sereine encore. Sans l'ombre d'un malaise, il répondit respectueusement: « L'Aîné doit se demander pourquoi Junior n'est pas allé sur place pour briser lui-même les restrictions. »
+L'expression de Li Yuan ne trahissait aucune panique; au contraire, elle devint plus sereine encore. Sans l'ombre d'un malaise, il répondit respectueusement: « L'Aîné doit se demander comment Junior connaît un tel endroit, et pourquoi il n'est pas allé sur place briser lui-même les restrictions pour y entrer. »
 
 Wang Lin observa Li Yuan. L'intelligence de cet homme surpassait de loin celle de la femme et n'avait rien d'ordinaire. D'après ce qu'il avait entendu de leur part, cet homme avait été sauvé par la famille de la femme, mais le prix à payer avait été de livrer son âme de vie.
 
 Cependant, Wang Lin avait toujours eu le sentiment que leur conversation précédente avait été orchestrée par l'homme nommé Li Yuan, comme s'il tentait de suggérer quelque chose.
 
-L'expression de Li Yuan resta neutre, puis il afficha un air de sincérité et déclara: « Dans ma jeunesse, j'ai trouvé une carte antique dépeignant une zone interdite du Royaume Céleste du Tonnerre, datant d'avant son effondrement. Junior est confiant de pouvoir trouver cet endroit, pourvu qu'il existe encore. Quant aux restrictions qui s'y trouvent, Junior est sûr à 70 % de pouvoir les briser. »
+L'expression de Li Yuan resta neutre, puis il afficha un air de sincérité et déclara: « Dans ma jeunesse, j'ai obtenu par hasard une carte antique dépeignant une zone interdite du Royaume Céleste du Tonnerre, datant d'avant son effondrement. Junior l'a étudiée longtemps et est confiant de pouvoir trouver cet endroit, pourvu qu'il existe encore. Quant aux restrictions qui s'y trouvent, Junior est sûr à 70 % de pouvoir les briser. C'est précisément pour cette zone interdite que Junior est venu ici. »
 
 Le visage de Wang Lin ne changea pas et il garda le silence.
 
@@ -34,7 +34,7 @@ L'expression de Li Yuan resta neutre, mais son cœur était empreint d'une vigil
 
 Li Yuan réfléchit un instant avant de sortir un morceau de jade et d'y graver des marques pendant un long moment. Il le tendit ensuite à Wang Lin en disant: « Puisque l'Aîné est intéressé, Junior ne sera pas avare. »
 
-Wang Lin saisit le jade. Après l'avoir scanné avec son Sens Divin, il fronça immédiatement les sourcils.
+Wang Lin saisit le jade. Après l'avoir scanné avec son sens divin, il fronça immédiatement les sourcils.
 
 À cet instant, bien que Li Yuan ait la tête baissée, il aperçut le léger froncement de sourcils de Wang Lin. Il pensa pour lui-même: « Ce cultivateur est étrange et possède une connaissance immense, sans quoi il n'aurait pas percé mes restrictions plus tôt. Cependant, peu importe son savoir, il ne pourra pas comprendre mes méthodes de restriction! »
 
@@ -44,7 +44,7 @@ Wang Lin ne comprenait effectivement pas cette restriction. Malgré sa maîtrise
 
 Lorsqu'il commença à observer l'intérieur du jade, dix-huit statues apparurent. Lorsqu'il tenta de les appréhender, elles commencèrent à se superposer, provoquant un véritable séisme dans son esprit.
 
-Wang Lin retira son Sens Divin. Bien qu'il n'ait pu tout percer, il réussit à déceler quelque chose de familier. Sans le mentionner, il rangea l'objet et dit doucement: « Montrez-moi le chemin! »
+Wang Lin retira son sens divin. Bien qu'il n'ait pu tout percer, il réussit à déceler quelque chose de familier. Sans le mentionner, il rangea l'objet et dit doucement: « Montrez-moi le chemin! »
 
 Li Yuan hocha rapidement la tête et s'approcha de la femme nommée Ge. Cependant, celle-ci le repoussa d'un geste et, dans un reniflement méprisant, sauta sur un rayon d'énergie d'épée avant de s'envoler au loin.
 
@@ -66,7 +66,7 @@ La femme nommée Ge était rongée par le ressentiment, mais elle n'osait pas l'
 
 La femme nommée Ge laissa échapper un reniflement glacial sans répondre. Cependant, la voix de Li Yuan résonna soudainement dans son esprit:
 
-« Madame Ge, j'ai déjà enveloppé mon Sens Divin dans des restrictions, il ne peut donc pas nous entendre. Cet homme a entendu notre échange précédent, il sait donc que mon âme de vie est entre les mains de votre famille. Tant qu'il vous contrôle, il nous contrôle tous les deux. Cependant, Madame peut être rassurée, je trouverai un moyen de récupérer votre âme de vie! »
+« Madame Ge, j'ai déjà enveloppé mon sens divin dans des restrictions, il ne peut donc pas nous entendre. Cet homme a entendu notre échange précédent, il sait donc que mon âme de vie est entre les mains de votre famille. Tant qu'il vous contrôle, il nous contrôle tous les deux. Cependant, Madame peut être rassurée, je trouverai un moyen de récupérer votre âme de vie! »
 
 La voix de Li Yuan était prudente, mais elle transmettait sincérité et détermination. Bien que la femme Ge ait laissé échapper un ricanement froid, son cœur s'apaisa. Il semblait qu'elle accordait du crédit à l'explication de Li Yuan.
 

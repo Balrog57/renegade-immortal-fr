@@ -12,7 +12,7 @@ Wang Lin venait de le nourrir avec trois âmes originelles. En particulier, l'un
 
 Après avoir posé certaines restrictions autour de Li Yuan, Wang Lin s'assit à ses côtés et commença à réfléchir.
 
-« L'Ancêtre Sanguin appartient bel et bien à la famille Yao. Il s'avère que la famille Yao est très puissante, surtout le Dieu Sanguin de cette lignée... » Le regard de Wang Lin devint glacial.
+« L'Ancêtre Sanguin appartient bel et bien à la famille Yao. Il s'avère que la famille Yao est très puissante, surtout l'ancêtre de la famille Yao, le Dieu Sanguin... » Le regard de Wang Lin devint glacial.
 
 « Je n'ai jamais manqué d'ennemis redoutables depuis que j'ai commencé ma culture, alors ajouter un Dieu Sanguin ne change pas grand-chose! » Wang Lin savait que même s'il avait été informé de l'existence du Dieu Sanguin auparavant, il n'aurait tout de même pas pu laisser Li Yuan mourir...
 
@@ -24,7 +24,7 @@ De plus, puisqu'il avait déjà offensé l'Ancêtre Sanguin, il prit une décisi
 
 Ces trois sacs de rangement appartenaient aux trois individus défunts. Le regard de Wang Lin se posa d'abord sur les épées que lui et Li Yuan avaient trouvées dans l'espace de stockage.
 
-Après les avoir scannées avec son sens divin, les pensées de Wang Lin s'agitèrent. Ces neuf épées s'envolèrent immédiatement dans les airs pour se planter dans le sol. Huit d'entre elles formèrent un cercle, tandis que la dernière trônait au centre.
+Après les avoir scannées avec son sens divin, les pensées de Wang Lin s'agitèrent. Ces neuf épées s'envolèrent immédiatement dans les airs pour se planter dans le sol. Huit d'entre elles formèrent un cercle, tandis que la dernière se planta seule, à l'écart.
 
 Wang Lin frappa son sac de rangement et les neuf os de bêtes s'envolèrent aussitôt. Le plus grand os de bête atterrit au centre du cercle, tandis que les huit autres entourèrent les huit épées formant le cercle.
 
@@ -36,9 +36,9 @@ Il examina attentivement les neuf os de bêtes. Il les avait déjà vérifiés a
 
 Après une courte réflexion, le sens divin de Wang Lin se déploya et pénétra dans les huit petits os de bêtes. Dès que son sens divin les toucha, les huit os tremblèrent instantanément et une force d'aspiration en jaillit. Le sens divin de Wang Lin ressentit immédiatement cette attraction.
 
-Ses yeux s'illuminèrent et son énergie originelle se déversa dans son sens divin. Sous l'effet de l'aspiration, son sens divin se divisa en huit parties qui pénétrèrent les huit os.
+Ses yeux s'illuminèrent et son énergie originelle se déversa dans son sens divin. Sous l'effet de l'aspiration, son âme originelle se divisa en huit parties qui pénétrèrent les huit os.
 
-Cette aspiration semblait sans fin, aspirant son sens divin comme si elle voulait dévorer toute son âme originelle. Après avoir réfléchi un instant, Wang Lin retira son sens divin des os de bêtes.
+Cette aspiration semblait sans fin, aspirant sans cesse son âme originelle comme si elle voulait dévorer toute son âme originelle. Après avoir réfléchi un instant, Wang Lin retira son âme originelle des os de bêtes.
 
 Puis, ses mains formèrent des sceaux et il en déposa d'innombrables aux alentours. Son énergie originelle se propagea alors, enveloppant tout dans un rayon de 3,3 kilomètres autour de lui. Un brouillard blanc, saturé de son énergie originelle, apparut.
 
@@ -46,7 +46,7 @@ Si un étranger passait par là et voyait ce brouillard, il n'oserait rien faire
 
 Cela signifiait qu'un cultivateur du deuxième stade se trouvait à l'intérieur de ce brouillard et ne voulait pas être dérangé. Quiconque tenterait d'entrer serait attaqué par l'énergie originelle contenue dans la brume.
 
-Une fois le brouillard d'énergie originelle formé, Wang Lin réfléchit un moment avant d'ouvrir la bouche pour laisser le fragment s'infiltrer dans la brume. Ce n'est qu'alors qu'il se sentit apaisé et s'assit. Son ancienne âme originelle de dragon tonnerre jaillit et fonça vers les huit os de bêtes.
+Une fois le brouillard d'énergie originelle formé, Wang Lin réfléchit un moment avant d'ouvrir la bouche pour laisser le sceau fragmentaire s'infiltrer dans la brume. Ce n'est qu'alors qu'il se sentit apaisé et s'assit. Son ancienne âme originelle de dragon tonnerre jaillit et fonça vers les huit os de bêtes.
 
 Dès que son âme originelle approcha, une force d'aspiration émana des huit os. L'âme originelle de Wang Lin se divisa à nouveau en huit parties pour entrer dans chaque os de bête.
 
@@ -62,7 +62,7 @@ Les yeux de Wang Lin se plissèrent et l'énergie originelle dans son corps se p
 
 Après un temps indéterminé, les yeux de Wang Lin s'illuminèrent. Il avait percé la restriction. D'une simple pensée, d'innombrables restrictions apparurent autour de lui et se propagèrent dans toutes les directions.
 
-À cet instant, l'épée entourée des huit os de bêtes s'envola. Elle survola les os eux-mêmes, qui étaient entourés par les huit épées. L'épée pointa vers le bas et une déflagration d'énergie d'épée jaillit immédiatement.
+À cet instant, l'épée entourée des huit os de bêtes s'envola. Elle survola le grand os, entouré par les huit épées. L'épée pointa vers le bas et une déflagration d'énergie d'épée jaillit immédiatement.
 
 Cette énergie se divisa en huit rayons qui pénétrèrent chacune des huit épées volantes. L'âme originelle de Wang Lin fut une fois de plus divisée en huit pour entrer dans les huit épées célestes.
 
@@ -78,7 +78,7 @@ Wang Lin ouvrit les yeux, affichant un mélange de choc et d'excitation.
 
 « Il est véritablement digne d'être qualifié de trésor céleste. Sans cette méthode spécifique, il est impossible d'y laisser une empreinte! Une fois l'empreinte déposée avec succès, on acquiert immédiatement la connaissance nécessaire pour s'en servir... » Wang Lin se leva, agita la main et le grand os de bête vola aussitôt vers lui.
 
-« Cet objet s'appelle la Paire de Dao Fanée. Il est extrêmement puissant et peut être considéré comme un véritable trésor magique! Malheureusement, il a été endommagé par son ancien maître lors d'un combat contre un dieu antique. Le fait que son précédent possesseur soit mort fait qu'il n'est toujours pas totalement réparé. Cependant, sa puissance demeure incroyable; il peut être considéré comme l'un de mes trésors les plus puissants! » La main droite de Wang Lin s'avança et l'os de bête sembla prendre vie. Il se précipita vers lui et disparut dans sa paume.
+« Cet objet s'appelle la Paire de Dao Fanée. Il est extrêmement puissant et peut être considéré comme un véritable trésor magique! Malheureusement, il a été endommagé entre les mains de son ancien maître lors d'un combat contre un dieu antique. Le fait que son précédent possesseur soit mort fait qu'il n'est toujours pas totalement réparé. Cependant, sa puissance demeure incroyable; il peut être considéré comme l'un de mes trésors les plus puissants! » La main droite de Wang Lin s'avança et l'os de bête sembla prendre vie. Il se précipita vers lui et disparut dans sa paume.
 
 Un instant plus tard, un tatouage en forme d'os de bête apparut sur le dos de la main droite de Wang Lin. Il était d'un réalisme saisissant!
 
@@ -124,7 +124,7 @@ Wang Lin leva la main droite et tout le brouillard originel se retira. Il observ
 
 Les yeux de Li Yuan brillèrent et il hocha la tête. Il se leva et s'inclina devant Wang Lin: « Frère Xu, je vous suis extrêmement redevable. Je garderai cela dans mon cœur et ne l'oublierai jamais. »
 
-Li Yuan n'était pas un homme de paroles, mais cela venait du fond de son âme. Il ne ressentait que de la gratitude envers Wang Lin!
+Li Yuan était un homme de peu de mots, mais ceux-ci venaient du fond de son âme. Il ne ressentait que de la gratitude envers Wang Lin!
 
 Wang Lin eut un léger sourire tandis que sa main droite saisissait le dernier sac qu'il n'avait pas encore inspecté. Il le scanna de son sens divin et le lança à Li Yuan.
 
@@ -138,13 +138,13 @@ Li Yuan acquiesça et rangea les épées. Il ramassa le sac et le scanna du sens
 
 Wang Lin l'accepta avec un sourire et le rangea dans son sac.
 
-Li Yuan hésita et demanda: « Je ne peux plus percevoir la culture de Frère Xu. Il est évident que vous avez énormément progressé. L'Ancêtre Sanguin a-t-il été neutralisé par l'espace de stockage? »
+Li Yuan hésita et demanda: « Je ne peux plus percevoir la culture de Frère Xu. Il est évident que vous avez énormément progressé. L'Ancêtre Sanguin a-t-il été détruit par l'espace de stockage? »
 
 « Le danger de l'Ancêtre Sanguin est écarté. Bien qu'il ne soit pas mort, la différence n'est pas grande », répondit calmement Wang Lin. En entendant cela, Li Yuan fut surpris et lança un regard significatif à Wang Lin. Avec sa sagesse, il comprit que l'augmentation fulgurante du niveau de culture de Wang Lin était liée à l'Ancêtre Sanguin.
 
 Wang Lin regarda Li Yuan et sourit: « Frère Li, je vais explorer le Royaume Céleste du Tonnerre pour traquer tous les sorts célestes. Seriez-vous prêt à m'aider à briser les restrictions? »
 
-Avec sa puissance actuelle, hormis quelques individus d'exception, peu dans le Royaume Céleste du Tonnerre pouvaient lui faire face. Si Li Yuan l'accompagnait, Wang Lin pourrait facilement le protéger. Sans compter que si Li Yuan disposait de suffisamment de temps pour utiliser ses capacités sur les restrictions, il n'aurait même plus besoin de la protection de Wang Lin.
+Avec sa puissance actuelle, hormis quelques individus d'exception, personne dans le Royaume Céleste du Tonnerre ne pouvait lui faire face. Si Li Yuan l'accompagnait, Wang Lin pourrait facilement le protéger. Sans compter que si Li Yuan disposait de suffisamment de temps pour utiliser ses capacités sur les restrictions, il n'aurait même plus besoin de la protection de Wang Lin.
 
 Wang Lin avait ses propres raisons d'inviter Li Yuan. Ce dernier en savait manifestement bien plus que lui sur le Royaume Céleste du Tonnerre. De plus, Wang Lin ne pouvait rivaliser avec lui en matière de restrictions; la recherche de sorts célestes serait donc bien plus efficace avec son aide.
 
@@ -154,7 +154,7 @@ Li Yuan pointa du doigt une plaine au loin. Le sol était couvert de mauvaises h
 
 Du bout de son unique bras, Li Yuan forma des sceaux. Son corps étant désormais imprégné d'énergie originelle, il pouvait utiliser certaines restrictions qu'il ne pouvait auparavant manipuler à cause de la suppression de son empreinte d'esclave.
 
-Le ciel s'assombrit et la plaine devant eux sembla se soulever comme le couvercle d'un tableau. Lorsque les restrictions de Li Yuan s'abattirent, la plaine se brisa, révélant les ruines d'une cité.
+Le ciel s'assombrit et la plaine devant eux sembla se soulever comme une toile de peinture que l'on soulève. Lorsque les restrictions de Li Yuan s'abattirent, la plaine se brisa, révélant les ruines d'une cité.
 
 Une stèle de pierre brisée se dressait devant les décombres, portant trois caractères anciens:
 

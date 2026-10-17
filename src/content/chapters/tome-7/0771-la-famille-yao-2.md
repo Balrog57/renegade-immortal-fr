@@ -13,7 +13,7 @@ Cette énergie originelle pénétra le nuage noir et lui donna soudainement l'im
 
 Des bruits d'explosions résonnèrent de l'intérieur et le nuage noir commença véritablement à s'effondrer. Le rugissement étouffé de l'Ancêtre Sanguin parvint jusqu'à lui, tel un coup de tonnerre dans ses oreilles.
 
-Le rugissement de l'Ancêtre Sanguin retentit: « Espèce de gamin, Wang Lin, tu n'es pas digne de sceller ce vieil homme! » Les nuages noirs denses se contractèrent à nouveau; ils étaient désormais très fins et sur le point de disparaître.
+Le rugissement de l'Ancêtre Sanguin retentit: « Espèce de gamin, Wang Lin, tu n'es pas digne de sceller ce vieil homme! » Les nuages noirs denses s'effondrèrent à nouveau; ils étaient désormais très fins et sur le point de disparaître.
 
 Une fois les nuages noirs dissipés, cela signifierait que le drapeau du milliard d'âmes était détruit!
 
@@ -65,7 +65,7 @@ C'est ainsi que l'image sur le drapeau prit forme.
 
 En contemplant le drapeau du milliard d'âmes, Wang Lin resta silencieux. Il ne ressentit aucune fierté d'avoir vaincu l'Ancêtre Sanguin; son cœur était empreint de mélancolie.
 
-Il avait dû lutter acharnement pour vaincre l'Ancêtre Sanguin et n'était pas aussi calme qu'il en avait l'air. Ce combat avait été jalonné de moments de vie ou de mort, et le moindre instant d'inattention aurait signifié la fin. Cette bataille n'avait rien été de moins que sa fuite face au Serpent aux yeux de lune. En réalité, elle était même un peu plus périlleuse.
+Il avait dû lutter avec acharnement pour vaincre l'Ancêtre Sanguin et n'était pas aussi calme qu'il en avait l'air. Ce combat avait été jalonné de moments de vie ou de mort, et le moindre instant d'inattention aurait signifié la fin. Cette bataille n'avait rien été de moins que sa fuite face au Serpent aux yeux de lune. En réalité, elle était même un peu plus périlleuse.
 
 Après tout, l'intelligence du Serpent aux yeux de lune était très limitée.
 

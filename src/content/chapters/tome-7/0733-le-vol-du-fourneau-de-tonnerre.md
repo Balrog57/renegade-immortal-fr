@@ -48,17 +48,17 @@ Sa limite précédente était de sept traits. Désormais, il accomplissait sept 
 
 « Le pouvoir de huit traits surpasse celui de sept! » Les yeux de Wang Lin étaient paisibles. À cet instant, il ressemblait davantage à un érudit qu'à un cultivateur.
 
-Lorsqu'il rangea le pinceau, la rune disparut. Le sens divin, autrefois divisé dans les runes, retourna dans le corps de Wang Lin.
+Lorsqu'il rangea le pinceau, la rune disparut. L'âme originelle, autrefois divisée dans les runes, retourna dans le corps de Wang Lin.
 
 Wang Lin se leva, fit un pas en avant et disparut sans laisser de trace.
 
-Une demi-lune plus tard, un éclair de tonnerre quitta la planète Qing Ling pour s'élancer droit vers les cieux. Wang Lin était assis sur le dos de la Bête de Tonnerre, les yeux clos et silencieux.
+Une demi-lune plus tard, un éclair de tonnerre quitta la planète Qing Ling pour s'élancer droit vers les cieux. Wang Lin était assis sur le dos de la Bête du Tonnerre, les yeux clos et silencieux.
 
 Tous les cultivateurs de la planète Qing Ling levèrent la tête. En plus du respect qui brillait dans leurs yeux, ils ressentirent un certain apaisement. C'était comme si la pression invisible qui pesait sur eux s'était dissipée avec le départ de Wang Lin.
 
-Avant de partir, Wang Lin avait cueilli tous les Fruits d'Ascension Céleste ayant poussé durant ces dix ans. De plus, une nouvelle vague de ressentiment s'était accumulée. Avec ce surplus de ressentiment, l'âme du fleuve des enfers montrait des signes d'éveil.
+Avant de partir, Wang Lin avait cueilli tous les Fruits d'Ascension Céleste ayant poussé durant ces dix ans, ainsi qu'un nouveau lot de tablettes de jade chargées de ressentiment. Son âme du fleuve, dans le fleuve des enfers, montrait déjà des signes de condensation et d'éveil.
 
-Un éclair traversa les étoiles et Wang Lin quitta la planète Qing Ling après y avoir vécu vingt ans.
+Un éclair traversa les étoiles et Wang Lin quitta la planète Qing Ling après y avoir vécu près de vingt ans.
 
 Cet endroit était son repaire. Une fois qu'il aurait obtenu un fourneau de tonnerre, il reviendrait ici, car l'entrée dans le Royaume Céleste du Tonnerre serait plus sûre depuis ce point.
 
@@ -70,15 +70,15 @@ Cependant, le Système Stellaire de Luotian différait du Système Stellaire de 
 
 Il ne restait plus que trois mois avant l'ouverture du Royaume Céleste du Tonnerre. C'était le moment où toutes les familles recevraient leurs fourneaux. Les yeux de Wang Lin s'illuminèrent et il prit une décision.
 
-« Puisque je n'ai pas de fourneau de tonnerre, je vais en voler un! » La main droite de Wang Lin tapota légèrement la tête de la Bête de Tonnerre. Celle-ci poussa un rugissement, comme si elle savourait l'idée.
+« Puisque je n'ai pas de fourneau de tonnerre, je vais en voler un! » La main droite de Wang Lin tapota légèrement la tête de la Bête du Tonnerre. Celle-ci poussa un rugissement, comme si elle savourait l'idée.
 
 En vérité, s'il avait cherché Shengong Hu, il aurait pu lui en obtenir un. Cependant, la culture de Shengong Hu était trop puissante. S'ils se rencontraient trop souvent, ce dernier pourrait finir par le démasquer; à moins que cela ne soit crucial, Wang Lin préférait éviter de croiser cet homme.
 
-Tous les cultivateurs entrant dans le Royaume Céleste du Tonnerre n'avaient pas encore atteint la deuxième étape. Après tout, les cultivateurs de la deuxième étape étaient rares; la plupart se situaient entre les stades de Transformation de l'Âme et d'Ascendant.
+Parmi les cultivateurs entrant dans le Royaume Céleste du Tonnerre, tous ne pouvaient pas être de la deuxième étape. Après tout, les cultivateurs de la deuxième étape étaient rares; la plupart se situaient entre les stades de Transformation de l'Âme et d'Ascendant.
 
-Dans le domaine sud du Système Stellaire de Luotian, grâce au jade laissé par Shengong Hu, Wang Lin trouva une planète de culture. Il ne prit pas la peine de vérifier le nom des deux familles présentes. À chaque ouverture du Royaume Céleste du Tonnerre, ces deux familles obtenaient un ou deux fourneaux. Plus important encore, aucune d'elles n'avait de membre dépassant le sommet du stade avancé de l'Ascendant.
+Dans le domaine sud du Système Stellaire de Luotian, grâce à la tablette de jade laissée par Shengong Hu, Wang Lin trouva une planète de culture. Il ne prit pas la peine de retenir le nom de cette planète. À chaque ouverture du Royaume Céleste du Tonnerre, ces deux familles obtenaient un ou deux fourneaux. Plus important encore, aucune d'elles n'avait de membre dépassant le sommet du stade avancé de l'Ascendant.
 
-Une fois arrivé sur la planète, Wang Lin l'explora avec son sens divin. Il constata que les chefs des deux familles n'étaient pas là. Il flotta parmi les étoiles, ferma les yeux et se mit à cultiver.
+Une fois arrivé sur la planète, Wang Lin l'explora avec son sens divin. Il constata que les experts des deux familles n'étaient pas là. Il flotta parmi les étoiles, ferma les yeux et se mit à cultiver.
 
 Le temps passa lentement. Un mois avant l'ouverture du Royaume Céleste du Tonnerre, plus de dix rayons de lumière foncèrent vers Wang Lin tels des météores.
 
@@ -86,7 +86,7 @@ Parmi ces cultivateurs, l'un d'eux se trouvait au stade de l'Yin Illusoire, tand
 
 Le cultivateur au stade de l'Yin Illusoire était un vieil homme aux cheveux argentés dont les yeux brillaient intensément. Son énergie originelle était peu abondante et encore instable; il était évident qu'il venait tout juste d'atteindre ce stade. Il fit un pas en avant, scrutant Wang Lin avec une expression d'incertitude.
 
-Le vieil homme demanda: « Pourquoi ce Seigneur Messager est-il venu sur la planète Zheng Tan? »
+Le vieil homme demanda: « Pourquoi ce Seigneur Messager est-il venu sur la planète Sheng Tan? »
 
 Wang Lin ouvrit les yeux et fronça imperceptiblement les sourcils. D'un ton calme, il demanda: « Êtes-vous tous revenus de la collecte des fourneaux de tonnerre? »
 
@@ -112,7 +112,7 @@ Après un reniflement méprisant, le vieil homme forma un sceau et pointa la mai
 
 Les membres de sa famille s'étaient déjà repliés pour observer la scène à distance.
 
-La marionnette céleste ne fut nullement perturbée par les étincelles qui frappaient son corps. Loin de ralentir, elle accéléra encore. Le coup de poing siffla dans l'air et, en un éclair, atteignit le vieil homme. La force du choc déchira l'espace pour s'abattre sur lui.
+La marionnette céleste ne fut nullement perturbée par les étincelles qui frappaient son corps. Loin de ralentir, elle accéléra encore. Le coup de poing siffla à travers la distance et, d'un pas, la marionnette se retrouva devant le vieil homme; en s'abattant, le poing forma un dragon d'énergie qui fendit l'espace.
 
 L'expression du vieil homme changea légèrement et il recula précipitamment. Simultanément, sa main traça un sceau et un bouclier de flammes apparut devant lui. Le coup de poing du Gardien Céleste percuta le bouclier dans une explosion fracassante.
 
@@ -140,9 +140,9 @@ Le regard de Wang Lin resta calme alors que sa main droite projetait le brouilla
 
 Le vieil homme, paniqué, recula une fois de plus. Ses deux mains formèrent un sceau qu'il pointa entre ses sourcils. La zone entre ses arcades commença à bouger étrangement et une fente s'ouvrit, comme si un troisième œil apparaissait!
 
-Son troisième œil devint cramoisi tandis que le sang de tout son corps circulait avec frénésie, semblant se condenser sur son visage. L'énergie originelle dans ses veines se déchaîna également pour converger vers son front, mêlée à son sang.
+Son visage devint cramoisi tandis que le sang de tout son corps circulait avec frénésie, semblant se condenser sur son visage. L'énergie originelle dans ses veines se déchaîna également pour converger vers son front, mêlée à son sang.
 
-Ce processus lui donnait l'impression d'être déchiré de l'intérieur. Alors que la douleur atteignait son paroxysme, un troisième œil s'ouvrit lentement entre ses sourcils. Le vieil homme poussa un rugissement en fixant Wang Lin, puis, les mains formant un nouveau sceau, il pointa deux points de pression sous ses oreilles.
+Ce processus lui donnait l'impression d'être déchiré de l'intérieur. Alors que la douleur atteignait son paroxysme, un troisième œil s'ouvrit lentement entre ses sourcils. Le vieil homme poussa un rugissement en fixant Wang Lin, puis, les mains formant un nouveau sceau, il pointa deux points de pression au-dessus de ses oreilles.
 
 Instantanément, le troisième œil s'épanouit pleinement. Une lumière rouge en jaillit, se propageant comme un éventail.
 
@@ -150,7 +150,7 @@ L'expression de Wang Lin changea. Le sort de cet homme était d'une étrangeté 
 
 Sous l'effet de la lumière rouge, l'âme de la montagne commença à se désintégrer rapidement. Wang Lin plissa les yeux et lança sans hésiter l'éclair qu'il tenait en main.
 
-Le foudre fonça droit sur le vieil homme. Ce dernier fut incapable d'utiliser son sort originel à pleine puissance, car il n'était au stade de l'Yin Illusoire que depuis deux ans et manquait cruellement d'énergie originelle.
+L'éclair fonça droit sur le vieil homme. Ce dernier fut incapable d'utiliser son sort originel à pleine puissance, car il n'était au stade de l'Yin Illusoire que depuis deux ans et manquait cruellement d'énergie originelle.
 
 De ce fait, la lumière rouge du troisième œil ne dura que trois respirations avant qu'il ne s'effondre sous la douleur. L'œil se referma automatiquement et la lueur disparut.
 

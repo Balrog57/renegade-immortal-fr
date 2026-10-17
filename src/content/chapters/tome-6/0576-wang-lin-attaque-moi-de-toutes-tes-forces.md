@@ -6,7 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: "Chapter 576 - Wang Lin, Attack Me At Full Power!"
 slug: wang-lin-attaque-moi-de-toutes-tes-forces
 ---
-Un autre fracas retentit depuis la Prison Hong. Alors que la poussière et les débris s'élevaient dans les airs, l'épée d'argent émit un chant héroïque avant de s'élancer vers l'horizon.
+Un autre fracas retentit depuis la Prison Hong. Alors que la poussière et les débris s'élevaient dans les airs, l'épée d'argent émit fièrement un chant avant de s'élancer vers l'horizon.
 
 Wang Lin regarda l'épée de l'Empereur s'éloigner et esquissa un léger sourire. « Pourquoi cette épée agit-elle comme un enfant? Puisqu'elle ne parvient pas à me trouver, elle en veut maintenant à la Prison Hong. Combien de fois cela fait-il déjà? Dix? »
 
@@ -24,11 +24,11 @@ Il n'en demanda pas les détails, mais il devina que pour enrôler l'épée de l
 
 Deux opportunités s'offraient aux participants durant cette compétition. Si le général démon perdait, son assistant pouvait combattre à sa place! Cependant, l'assistant devait remplir une condition: il ne devait pas être un natif, mais un étranger!
 
-C'est précisément pour cette raison que le général démon avait choisi Wang Lin.
+C'était l'une des raisons pour lesquelles le général démon avait choisi Wang Lin.
 
-La voix de Wang Lin resta calme lorsqu'il répondit lentement: « Même sans cette paume, je peux encore vaincre! »
+La voix de Wang Lin resta calme lorsqu'il répondit lentement: « Même sans cette paume, je peux encore vous vaincre! »
 
-Mo Lihai fixa Wang Lin. Après un long silence, il éclata de rire: « Bien. À l'entendre, mes efforts n'ont pas été vains! Frère Wang, l'Empereur Démon sera personnellement présent à la compétition des généraux démons dans une demi-lune. Si vous vous illustrez et que je vous nomme, vous obtiendrez sans aucun doute le poste de général démon! »
+Mo Lihai fixa Wang Lin. Après un long silence, il éclata de rire: « Bien. À l'entendre, mes efforts n'ont pas été vains! Frère Wang, l'Empereur Démon sera personnellement présent à la compétition des généraux démons dans une demi-lune, lors de la nuit des esprits démoniaques. Si vous vous illustrez et que je vous nomme, vous obtiendrez sans aucun doute le poste de général démon! »
 
 Wang Lin sourit mais ne répondit rien.
 
@@ -76,7 +76,7 @@ Wang Lin ouvrit les yeux et regarda le bateau pour la première fois. Son regard
 
 Ils se contemplèrent un moment avant que Wang Lin ne lève sa cruche en signe de salut et n'en prenne une grande gorgée. Le jeune homme esquissa un sourire, leva sa coupe et la vida d'un trait.
 
-Le bateau s'éloigna progressivement jusqu'à disparaître de la vue de Wang Lin. Seules les échos ténus de la cithare flottaient encore dans la distance.
+Le bateau s'éloigna progressivement jusqu'à disparaître de la vue de Wang Lin. Seuls les échos ténus de la cithare flottaient encore dans la distance.
 
 La musicienne se retourna vers la rive lointaine, mais dans ses yeux, tout restait plongé dans l'obscurité.
 
@@ -96,7 +96,7 @@ Wang Lin inspecta les lieux, son regard s'arrêtant sur la plaque à l'entrée d
 
 « Manoir du Vice-Commandant Xuan »
 
-« Les huit commandants portent les mêmes noms que les huit cités de la Cité du Démon Céleste, mais leurs manoirs ne comportent pas le mot "vice"! Ceci est donc le manoir du vice-commandant de la ville de Xuan. » Après avoir fait ce constat, Mo Lihai marqua une hésitation et ajouta: « Le vice-commandant de Xuan entretient des relations personnelles privilégiées avec l'Empereur Démon... »
+« Les huit commandants portent les mêmes noms que les huit cités situées hors de la Cité du Démon Céleste, mais leurs manoirs ne comportent pas le mot "vice"! Ceci est donc le manoir du vice-commandant de la ville de Xuan. » Après avoir fait ce constat, Mo Lihai marqua une hésitation et ajouta: « Le vice-commandant de Xuan entretient des relations personnelles privilégiées avec l'Empereur Démon... »
 
 Wang Lin acquiesça. Mo Lihai lui avait déjà expliqué en détail comment deux vice-commandants seraient choisis lors de cette compétition, ainsi que l'importance capitale de cet enjeu.
 
@@ -138,7 +138,7 @@ Il se sentait légitimé dans ce mépris: il était vice-commandant, proche de l
 
 Il ne considérait même pas Mo Lihai comme un égal, alors pourquoi s'intéresserait-il à son suivant?
 
-S'il n'avait pas su que l'Empereur Démon portait un intérêt particulier à Mo Lihai, il ne l'aurait même pas rencontré, car il le jugeait indigne. Il aurait préféré profiter de ses fleurs. Dans la Cité du Démon Céleste, tout le monde savait à quel point le vice-commandant Xuan chérissait les fleurs exotiques. Il ne se contentait pas de les aimer, il les vénérait. Si un serviteur effleurait accidentellement une fleur, il était expulsé du manoir. Si quelqu'un osait en endommager une, il perdait la tête!
+S'il n'avait pas su que l'Empereur Démon portait un intérêt particulier à Mo Lihai, il ne l'aurait même pas rencontré, car il le jugeait indigne. Il aurait préféré profiter de ses fleurs. Dans la Cité du Démon Céleste, tout le monde savait à quel point le vice-commandant Xuan chérissait les fleurs exotiques. Il ne se contentait pas de les aimer, il les vénérait. Si un serviteur effleurait accidentellement une fleur, il était expulsé du manoir. Si quelqu'un osait en endommager une, il s'attirait son courroux!
 
 Une pointe d'impatience traversa le cœur de l'homme en pourpre, bien qu'il ne l'eût pas manifestée.
 
@@ -148,11 +148,11 @@ Il ne sous-estimait pas Wang Lin, c'était plutôt une indifférence dénuée de
 
 « Utilise toute ta puissance. Si tu parviens à me faire bouger, alors seulement, tu seras jugé qualifié! » L'homme en pourpre reporta son regard vers le ciel, sans même daigner regarder Wang Lin.
 
-Wang Lin le fixa froidement et, sans la moindre hésitation, leva la main. Une énergie de carnage se concentra sur sa paume alors qu'il pointait l'avant.
+Wang Lin le fixa froidement et, sans la moindre hésitation, leva la main. Une énergie de massacre se concentra sur sa paume alors qu'il pointait l'avant.
 
-D'innombrables éclats d'énergie de carnage jaillirent soudainement de sa main. À cet instant, une tempête d'intention meurtrière enveloppa les environs.
+D'innombrables éclats d'énergie de massacre jaillirent soudainement de sa main. À cet instant, une tempête d'intention meurtrière enveloppa les environs.
 
-Deux mille filaments d'énergie de carnage s'élancèrent de la main de Wang Lin, chargeant vers l'homme en pourpre tels des dragons déchaînés!
+Deux mille filaments d'énergie de massacre s'élancèrent de la main de Wang Lin, chargeant vers l'homme en pourpre tels des dragons déchaînés!
 
 Au départ, l'expression de l'homme restait de marbre, ignorant totalement l'existence de Wang Lin. Cependant, une fraction de seconde plus tard, son visage se mua alors que les deux mille filaments convergeaient vers lui.
 
@@ -168,11 +168,11 @@ Voyant que l'armure allait être repoussée jusqu'à dix centimètres de lui, l'
 
 Mais l'armure démoniaque ne put absolument résister aux deux mille filaments de carnage et finit par s'effondrer brutalement!
 
-Les deux mille filaments pénétrèrent son corps et circulèrent une fois à travers lui. Puis, Wang Lin fit un geste de la main et l'énergie de carnage quitta le corps de l'homme par ses pores pour revenir dans la paume de Wang Lin.
+Les deux mille filaments pénétrèrent son corps et circulèrent une fois à travers lui. Puis, Wang Lin fit un geste de la main et l'énergie de massacre quitta le corps de l'homme par ses pores pour revenir dans la paume de Wang Lin.
 
-Le visage de l'homme en pourpre était d'une pâleur extrême, tandis que Wang Lin semblait s'être transformé en une existence radicalement différente.
+Le visage de l'homme en pourpre était d'une pâleur extrême, et à ses yeux, Wang Lin était devenu une existence radicalement différente.
 
-Avec sa culture au sommet du stade avancé de la Transformation de l'Âme et ces deux mille filaments de carnage, il n'était plus difficile pour lui de lutter contre des cultivateurs Ascendants!
+Avec sa culture au sommet du stade avancé de la Transformation de l'Âme et ces deux mille filaments de carnage, il n'était plus difficile pour lui de lutter contre des cultivateurs Ascendants au stade initial!
 
 « Très bien! Tu as les qualifications! » L'homme prit une profonde inspiration, s'efforçant de retrouver un visage serein et esquissant un sourire de supériorité, tel un aîné envers la jeune génération.
 

@@ -50,7 +50,7 @@ Bang! Bang! Bang!...
 
 Parmi les dix-huit fleurs de prunier, trois s'effondrèrent instantanément. Wang Lin fit un pas et sortit du vortex formé par les fleurs.
 
-« Tu es l'âme du serviteur du céleste. Puisque l'empreinte d'esclave fut gravée dans la famille Li, ils sont devenus les esclaves du céleste et ont dû suivre tes ordres! »
+« Tu es l'âme du serviteur du céleste. Avec l'empreinte d'esclave, tu t'es fondu dans le cycle de réincarnation des membres de la famille Li, si bien que de génération en génération ils suivent ta volonté et deviennent les esclaves du céleste! »
 
 « Non seulement tu n'es pas Li Yuan, mais même l'ancêtre Li d'il y a des dizaines de milliers d'années, celui qui recueillit les trois trésors, n'était pas lui-même. C'est toi qui t'es fusionné avec l'empreinte d'esclave pour te réincarner dans la famille Li! » Les yeux de Wang Lin brillaient alors qu'il avançait, la voix empreinte de détermination.
 
@@ -70,7 +70,7 @@ Lorsque le fouet atteignit Li Yuan en plein conflit intérieur, son corps trembl
 
 « Même le corps que tu habites te rejette! Car ton âme n'appartient pas à la famille Li! » Wang Lin poussa un nouveau rugissement, ses yeux émettant une lueur mystérieuse. Il fit un autre pas et pointa Li Yuan du doigt.
 
-Sort de l'Arrêt!
+Sort d'Arrêt!
 
 Le corps de Li Yuan, en pleine retraite, se figea brusquement sous l'impact du Fouet du Karma qui le frappa de nouveau.
 

@@ -20,7 +20,7 @@ Les trois forces utilisèrent le corps de Wang Lin comme un champ de bataille. C
 
 Une lueur mystérieuse brilla dans les yeux de Wang Lin. Il s'était éveillé. C’est l'impact même de cet éclair qui l'avait totalement tiré de sa torpeur.
 
-« La rétribution divine... » Wang Lin prit une inspiration glacée. Il se souvenait encore de la rétribution divine des Terres de l'Esprit Démon. Face à elle une nouvelle fois, ses yeux brillèrent d'un éclat vif.
+« La rétribution divine... » Wang Lin prit une inspiration glacée. Il se souvenait encore de la rétribution divine de la Terre des Esprits Démoniaques. Face à elle une nouvelle fois, ses yeux brillèrent d'un éclat vif.
 
 Dès son éveil, il perçut le chaos qui régnait en lui. Si ce chaos n'était pas résolu au plus vite, son corps exploserait de lui-même, sans même que la rétribution divine ait besoin de le tuer.
 
@@ -30,13 +30,13 @@ Depuis l'épée céleste à ses côtés, Xu Liguo poussa immédiatement un cri: 
 
 Alors que Wang Lin s'élevait, il agita sa main droite. L'épée céleste vola vers lui et fut rangée dans son sac de rangement. La montagne céleste fut également mise de côté.
 
-Au moment où il jaillit du fragment, tous les nuages environnants se mirent à bouillonner. Sous ce mouvement violent, une rétribution divine plus intense encore que celle des Terres de l'Esprit Démon apparut!
+Au moment où il jaillit du fragment, tous les nuages environnants se mirent à bouillonner. Sous ce mouvement violent, une rétribution divine plus intense encore que celle de la Terre des Esprits Démoniaques apparut!
 
 Sous la puissance de ces cieux, Wang Lin eut l'impression qu'une main gigantesque l'écrasait depuis le ciel. Des craquements sinistres résonnaient dans son corps.
 
 Simultanément, quatre éclairs noirs convergèrent depuis le haut, le bas, la droite et la gauche du fragment pour descendre avec fracas! Les yeux de Wang Lin brillèrent intensément. Il ouvrit les bras, refusant même de tenter d'esquiver. Le tonnerre venu d'en haut s'abattit sur lui, suivi de près par ceux venant des flancs gauche et droit.
 
-Enfin, le tonnerre surgissant du dessous du fragment perça la structure pour frapper à son tour Wang Lin.
+Enfin, le tonnerre surgissant du dessous du fragment perça le fragment pour frapper à son tour Wang Lin.
 
 Les quatre rayons de tonnerre noir déferlèrent sauvagement à travers le corps de Wang Lin, entrant une fois de plus en collision avec le corps de sang et la puissance du vieil homme mystérieux.
 
@@ -60,9 +60,9 @@ Au moment de la percée, Wang Lin sembla ressentir son propre Dao! C'était comm
 
 Un long cri s'échappa de sa bouche, un cri qui perça les nuages et se propagea vers le monde extérieur.
 
-L'Ancêtre du Sang observait les nuages, espérant que Wang Lin soit terrassé par la rétribution divine. Cependant, en entendant ce cri, son expression changea radicalement.
+L'Ancêtre Sanguin observait les nuages, espérant que Wang Lin soit terrassé par la rétribution divine. Cependant, en entendant ce cri, son expression changea radicalement.
 
-« Yin Illusoire... » Le visage de l'Ancêtre du Sang s'assombrit et il murmura: « Il semble que la moitié de mon corps de sang contenait assez d'énergie originelle pour qu'il puisse temporairement résister à la rétribution et atteindre le stade Yin Illusoire... Mais cela reste encore... »
+« Yin Illusoire... » Le visage de l'Ancêtre Sanguin s'assombrit et il murmura: « Il semble que la moitié de mon corps de sang contenait assez d'énergie originelle pour qu'il puisse temporairement résister à la rétribution et atteindre le stade Yin Illusoire... Mais cela reste encore... »
 
 Alors qu'il parlait, son expression se mua une fois de plus alors qu'il fixait les nuages tourbillonnants devant lui.
 
@@ -84,13 +84,13 @@ Ce processus était appelé transformation originelle. Il visait à élever un c
 
 Depuis la disparition des anciens et l'effondrement du Royaume Céleste, très peu de personnes avaient réussi à franchir ces deux royaumes lors de l'entrée dans le stade Yin et Yang; mais tous ceux qui y étaient parvenus avaient accompli des exploits prodigieux et siégé au sommet de la seconde étape!
 
-Même l'Omniscient avait mis 300 ans pour traverser ces deux royaumes. Ling Tianhou en avait mis 800, et l'Ancêtre du Sang près de 1 000 ans.
+Même l'Omniscient avait mis 300 ans pour traverser ces deux royaumes. Ling Tianhou en avait mis 800, et l'Ancêtre Sanguin près de 1 000 ans.
 
 Cela n'avait rien à voir avec le talent. La raison principale était l'énergie originelle!
 
 À cet instant, Wang Lin progressait inexorablement dans cette voie! La rétribution divine lui servait de nutriments, tandis que le corps de sang et la puissance du vieil homme étaient l'énergie originelle alimentant ce processus!
 
-L'Ancêtre du Sang fixa les nuages devant lui, son intention meurtrière redoublant d'intensité.
+L'Ancêtre Sanguin fixa les nuages devant lui, son intention meurtrière redoublant d'intensité.
 
 « Je suis venu pour le tuer, et je lui offre une fortune immense! Je ne l'accepterai pas! »
 

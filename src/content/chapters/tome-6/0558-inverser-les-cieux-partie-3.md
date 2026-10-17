@@ -48,7 +48,7 @@ Cependant, au moment où l'énergie d'épée entra dans son corps, l'énergie sp
 
 Il avait alors immédiatement exécuté son plan en revêtant le chapeau de paille que Yun Quezi lui avait donné, avant de se faufiler à nouveau sur la plateforme!
 
-Ce chapeau contenait de puissantes restrictions et, Yun Quezi étant un cultivateur au stade Ascendant, ses trésors étaient naturellement redoutables. L'effet de ce chapeau était de dissimuler le sens divin, et Wang Lin l'avait déjà utilisé avec succès par le passé!
+Ce chapeau contenait de puissantes restrictions et, Yun Quezi étant un cultivateur au stade intermédiaire de l'Ascendant, ses trésors étaient naturellement redoutables. L'effet de ce chapeau était de dissimuler le sens divin, et Wang Lin l'avait déjà utilisé avec succès par le passé!
 
 À moins que l'adversaire n'ait atteint le stade Ascendant, il était impossible de le détecter!
 
@@ -96,7 +96,7 @@ Wang Lin sourit faiblement. « J'ai l'intention de te sceller jusqu'à ton épui
 
 Yao Xixue prit une profonde inspiration et réfléchit un instant. Puis elle demanda froidement: « Comment savoir si tu dis la vérité? »
 
-Wang Lin eut un petit rire: « Tu n'as pas besoin de répondre! »
+Wang Lin eut un petit rire: « Tu peux refuser! »
 
 Elle le dévisagea froidement avant de renifler: « Pose ta question! »
 
@@ -134,7 +134,7 @@ L'homme expliqua lentement: « Un sort de garde. Mais depuis que Maître a scell
 
 Les yeux de Wang Lin s'illuminèrent: « Si quelqu'un d'autre résiste aux trois attaques d'énergie d'épée pendant que je suis à l'intérieur, sera-t-il aussi autorisé à entrer? »
 
-« Si vous parvenez à briser un sceau à l'intérieur, vous obtiendrez le droit d'entrer. Après cela, la grotte se scellera automatiquement et n'autorisera plus personne, à moins que vous ne soyez mort. »
+« Si vous parvenez à briser un sceau à l'intérieur, vous obtiendrez l'autorité sur la grotte. Après cela, la grotte se fermera automatiquement et nul autre n'y entrera, à moins que vous ne soyez mort. »
 
 Wang Lin insista: « Cette grotte existe depuis des éternités, d'autres sont-ils déjà entrés? »
 
@@ -174,7 +174,7 @@ Un sceau de restriction y était apposé, mais il était brisé. Quelqu'un l'ava
 
 Après avoir inspecté les environs, il se dirigea vers le pavillon. Il s'arrêta devant et l'examina: l'édifice était scellé, et chaque marche menant à l'entrée possédait son propre sceau.
 
-« C'est un sceau intégral. Une fois activée, la restriction transforme tout, l'intérieur comme l'extérieur, en une zone de confinement pour sceller totalement le pavillon! Cette méthode est très rare, même dans l'Antiquité. D'après certains ouvrages que j'ai lus, elle provient du Royaume Céleste et est appelée "restrictions célestes"! »
+« C'est un sceau intégral. Une fois que la restriction s'abat, elle se divise en une multitude de restrictions, de sorte que tous les objets, à l'intérieur comme à l'extérieur du pavillon, deviennent eux-mêmes des restrictions! Cette méthode est très rare, même dans l'Antiquité. D'après certains ouvrages que j'ai lus, elle provient du Royaume Céleste et est appelée "restrictions célestes"! »
 
 Wang Lin murmura: « Cette grotte regorge de restrictions célestes. Serait-ce vraiment la demeure d'un être céleste... »
 
@@ -182,7 +182,7 @@ Cette pensée le rendit encore plus prudent. Bien que les sceaux du pavillon aie
 
 Le pavillon comptait trois étages, et Wang Lin ne gravissait chaque marche qu'après une observation rigoureuse. Bien que cela fût fastidieux, cette méthode lui permettait de percer à jour toutes les restrictions intérieures.
 
-Le pavillon était totalement vide; pas même une table ou une chaise n'était restée. Sans les marques au sol indiquant la présence passée de mobilier, il aurait cru qu'il n'y avait jamais rien eu ici.
+Le pavillon était totalement vide; pas même une table ou une chaise n'était restée. Sans les marques au sol indiquant la présence passée de mobilier, il n'aurait jamais pensé que ces tables et ces chaises avaient été emportées par ceux qui étaient venus avant lui, après avoir brisé les sceaux.
 
 Il se moqua de lui-même: « Même les chaises et les tables dans la demeure d'un être céleste ne doivent pas être ordinaires; il est donc logique qu'elles aient été emportées! »
 
@@ -192,6 +192,6 @@ L'une d'elles utilisait des restrictions anciennes et extrêmement subtiles. Les
 
 La majorité des protections avaient été levées de cette façon, ce qui prouvait l'œuvre d'une même personne.
 
-Cette restriction était célèbre dans l'ancien monde de la culture, mais très peu pouvaient la maîtriser. Même les disciples ne pouvaient en apprendre que quelques-unes selon leur rang; un disciple plafonnait généralement à 9 restrictions, tandis qu'un maître de secte pouvait atteindre les 18!
+Cette restriction était célèbre dans l'ancien monde de la culture, mais elle était très attachée à la distinction de la lignée directe: les étrangers ne pouvaient jamais l'apprendre. Même les disciples directs ne pouvaient en apprendre que quelques-unes selon leur rang; au plus 9 restrictions, tandis qu'un maître de secte pouvait atteindre les 18!
 
 Alors qu'il s'apprêtait à repartir, le regard de Wang Lin se fixa soudainement sur les marques au sol qui indiquaient que les tables et les chaises avaient été déplacées!

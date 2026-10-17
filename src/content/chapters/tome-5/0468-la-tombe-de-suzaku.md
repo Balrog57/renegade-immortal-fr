@@ -10,7 +10,7 @@ Les pupilles de Wang Lin se rétractèrent et il dit calmement: « Mo Zhi! »
 
 « C'est moi. Frère Da Niu, vous n'avez toujours pas répondu à ma question. » L'homme ôta son masque. C'était bel et bien la personne que Wang Lin avait rencontrée dans le temple lors de cette nuit pluvieuse, celle avec qui il avait conversé sur la vie et la mort.
 
-Wang Lin déclara d'un ton calme: « Mon avenir n'est pas sur la planète Suzaku! » Wang Lin comprenait désormais pourquoi le cristal blanc s'était dirigé vers lui. Cela devait avoir un lien étroit avec cet homme.
+Wang Lin déclara d'un ton calme: « Mon ambition n'est pas d'être Suzaku! » Wang Lin comprenait désormais pourquoi le cristal blanc s'était dirigé vers lui. Cela devait avoir un lien étroit avec cet homme.
 
 Mo Zhi regarda Wang Lin, secoua la tête et soupira. « Dommage. Puisque frère Da Niu ne le souhaite pas, je n'insisterai pas sur ce sujet... » Ses yeux furent soudainement envahis par une confusion profonde qui mit un moment avant de se dissiper.
 
@@ -64,7 +64,7 @@ Zi Xin déclara froidement: « Wang Lin, que veux-tu dire par là?! »
 
 Wang Lin la regarda d'un œil serein et répondit: « Jeune fille, quand j'ai commencé à cultiver, tu n'étais même pas née. L'odeur du lait maternel ne s'était pas encore évaporée. Tais-toi! »
 
-Les yeux de Zi Xin brillèrent de colère, elle se redressa soudainement et l'aura d'une cultivatrice au stade intermédiaire de la Transformation de l'Âme se propagea. Elle fixa Wang Lin et lança: « Wang Lin, tu m'as envoyée dans la faille spatiale autrefois et j'ai failli mourir. Je ne l'ai pas oublié. Avant, ton niveau de culture était supérieur, mais maintenant que ton drapeau d'âme d'un milliard est parti, tu n'es qu'au début du stade de la Transformation de l'Âme. Si je voulais te tuer, ce serait aussi simple que de lever la main! »
+Les yeux de Zi Xin brillèrent de colère, elle se redressa soudainement et l'aura d'une cultivatrice au stade intermédiaire de la Transformation de l'Âme se propagea. Elle fixa Wang Lin et lança: « Wang Lin, tu m'as envoyée dans la faille spatiale autrefois et j'ai failli mourir. Je ne l'ai pas oublié. Avant, ton niveau de culture était supérieur, mais maintenant que ton drapeau des âmes d'un milliard est détruit, tu n'es qu'au début du stade de la Transformation de l'Âme. Si je voulais te tuer, ce serait aussi simple que de lever la main! »
 
 Wang Lin la dévisagea froidement avec une pointe de dérision et dit calmement: « Et si j'acceptais de devenir le prochain Suzaku... »
 

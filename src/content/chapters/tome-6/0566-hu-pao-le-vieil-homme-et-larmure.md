@@ -14,15 +14,15 @@ Dès son réveil, Treize avait vu Wang Lin, et son cœur s'était instantanémen
 
 Après avoir évoqué Hu Pao, Wang Lin laissa échapper un soupir. La disparition de Hu Pao de la Prison des Ténèbres était très étrange. Avec son Sens Divin au sommet du stade tardif de la Transformation de l'Âme, il avait balayé toute la ville sans trouver la moindre trace de lui.
 
-Hu Pao pratiquait la technique de affinement de l'âme que Wang Lin lui avait enseignée; par conséquent, en fin de compte, le contrôle ultime des fragments d'âme appartenait à Wang Lin. Pourtant, Wang Lin ne parvenait pas à localiser les fragments d'âme raffinés par Hu Pao.
+Hu Pao pratiquait la technique d'affinement de l'âme que Wang Lin lui avait enseignée; par conséquent, en fin de compte, le contrôle ultime des fragments d'âme appartenait à Wang Lin. Pourtant, Wang Lin ne parvenait pas à localiser les fragments d'âme raffinés par Hu Pao.
 
 « Si Hu Pao n'est pas mort, il doit se trouver dans un lieu mystérieux. Il n'y a aucune autre explication à mon incapacité à le trouver... » Wang Lin réfléchit un instant avant de renoncer à cette affaire. Il avait déjà fait tout ce qu'il pouvait.
 
 Il leva les yeux pour regarder Treize. L'une des raisons pour lesquelles il avait emmené Hu Pao et Treize à la Cité du Démon Antique était de les tester.
 
-S'ils réussissaient l'épreuve, il leur enseignerait de nouvelles techniques. Pour Hu Pao, outre le affinement de l'âme, il y avait aussi l'extraction d'âmes!
+S'ils réussissaient l'épreuve, il leur enseignerait de nouvelles techniques. Pour Hu Pao, outre l'affinement de l'âme, il y avait aussi l'extraction d'âmes!
 
-Cependant, ce sortilège d'extraction d'âmes exigeait bien plus d'efforts que le affinement de l'âme. Bien que Wang Lin l'ait modifié, il ne l'enseignerait pas à la légère.
+Cependant, ce sortilège d'extraction d'âmes exigeait bien plus d'efforts que l'affinement de l'âme. Bien que Wang Lin l'ait modifié, il ne l'enseignerait pas à la légère.
 
 Quant à Treize, l'idée initiale de lui transmettre la Tactique du Dieu Antique fut immédiatement écartée. La Tactique du Dieu Antique était une chose qu'il ne pourrait jamais enseigner!
 
@@ -32,7 +32,7 @@ Sur la planète Suzaku, Wang Lin avait eu de nombreuses interactions avec le Cla
 
 Parmi ces jades figurait l'enregistrement d'une méthode de culture corporelle nommée les Neuf Cultivations du Titan. À l'époque, Wang Lin n'y avait jeté qu'un regard rapide avant de l'oublier. Il regarda Treize, toucha son sac de rangement, et un jade cyan apparut dans sa main.
 
-Wang Lin le scruta avec son Sens Divin et pensa: « C'est bien ça! » Les Neuf Cultivations du Titan comprenaient un total de neuf niveaux et constituaient une technique de raffinement corporel. Après avoir mémorisé les neuf incantations, il effaça les trois derniers niveaux et les remit à Treize!
+Wang Lin le scruta avec son Sens Divin et pensa: « C'est bien ça! » Les Neuf Cultivations du Titan comprenaient un total de neuf niveaux et constituaient une technique de raffinement corporel. Après avoir mémorisé les neuf incantations, il effaça les trois derniers niveaux, ne gardant que les six premiers, et les remit à Treize!
 
 Treize saisit le jade avec excitation. Sa gratitude envers Wang Lin était déjà indescriptible. Il se prosterna au sol, effectua plusieurs kowtows et s'exclama: « Ancêtre, Treize ne vous écoutera que vous pour le reste de sa vie! »
 
@@ -50,7 +50,7 @@ La rumeur disait qu'il y a des éons, ce lieu fut l'un des anciens champs de bat
 
 À l'extérieur de cet ancien champ de bataille, une restriction invisible isolait tout du monde extérieur!
 
-En ce moment précis, un jeune homme était assis au milieu de ce champ de bataille antique. Devant lui se trouvaient plus d'une centaine de petits drapeaux. Ces derniers s'animaient sans aucun vent et tournaient lentement autour de lui.
+En ce moment précis, un jeune homme était assis au milieu de ce champ de bataille antique. Devant lui se trouvaient plus d'une centaine de petits drapeaux. Ces derniers s'animaient sans aucun vent, et des âmes en jaillissaient une à une pour tournoyer autour de lui.
 
 Un panache de brume noire enveloppait son corps, et la présence de cette brume provoquait le réveil des innombrables âmes qui dormaient en ces lieux.
 
@@ -70,13 +70,13 @@ L'expression du vieillard resta glaciale: « Si ce n'était pas pour le fait que
 
 Hu Pao afficha une expression complexe et déclara: « Si je peux raffiner tous les fragments d'âme ici, la première chose que je ferai sera de tuer ce Wang Lin! »
 
-Le vieil homme regarda Hu Pao et demanda: « Il t'a pourtant enseigné le sort de affinement de l'âme. Pourquoi t'obstines-tu à vouloir sa mort? »
+Le vieil homme regarda Hu Pao et demanda: « Il t'a pourtant enseigné le sort d'affinement de l'âme. Pourquoi t'obstines-tu à vouloir sa mort? »
 
 Hu Pao réfléchit un instant avant de ricaner: « Bien qu'il m'ait enseigné ce sort, il avait des intentions cachées. Si Wang Lin n'avait pas provoqué la colère de Sima Yan, je n'aurais jamais été jeté dans la Prison des Ténèbres! »
 
 « Durant les premiers mois à la Prison des Ténèbres, j'espérais que Wang Lin vienne me sauver, mais avec le temps, cet espoir s'est éteint. Quand j'étais torturé, où était-il? Quand j'étais maltraité, où était-il? »
 
-« Finalement, toutes mes attentes se sont transformées en haine. Sans lui, je n'en serais pas arrivé là... Heureusement, le Bienfaiteur m'a secouru, et ce jour-là, quand je me suis réveillé, j'ai juré de ne plus jamais être un esclave! »
+« Finalement, toutes mes attentes se sont transformées en haine. Sans lui, je n'en serais pas arrivé là... Heureusement, le Bienfaiteur m'a secouru, et au moment où j'ai quitté la Prison des Ténèbres, j'ai juré de ne plus jamais être un esclave! »
 
 Le visage froid du vieil homme laissa apparaître l'ombre d'un sourire: « Bien. Une telle détermination... il n'est pas étonnant que tu aies attiré mon attention! » Puis le vieillard se détourna, fit un pas et disparut sans laisser de trace.
 
@@ -86,7 +86,7 @@ Hu Pao serra les poings en regardant au loin et marmonna pour lui-même: « Trei
 
 Les yeux de Hu Pao étaient empreints d'une intense intention meurtrière.
 
-Au plus profond de ce champ de bataille antique se dressait une tour d'un noir abyssal. Cette tour mesurait d'une centaine de mètres de haut et était entourée d'anneaux de lumière qui semblaient absorber toute clarté environnante. De loin, elle dégageait une aura de majesté imposante.
+Au plus profond de ce champ de bataille antique se dressait une tour d'un noir abyssal. Cette tour mesurait une centaine de mètres de haut et était entourée d'anneaux de lumière qui semblaient absorber toute clarté environnante. De loin, elle dégageait une aura de majesté imposante.
 
 La silhouette de l'homme en robe noire apparut devant la tour. Il prit une profonde inspiration et pénétra à l'intérieur. Au sommet de la structure, il s'agenouilla sur les deux genoux.
 
@@ -98,7 +98,7 @@ De loin, l'armure évoquait la silhouette d'une personne assise en tailleur et e
 
 Soudain, deux lueurs fantomatiques apparurent à l'intérieur du casque comme une paire d'yeux, et leur regard se posa sur le vieil homme. À cet instant, le monde extérieur trembla légèrement, comme si un esprit céleste était descendu parmi les mortels.
 
-Le vieillard prit une grande inspiration et dit: « Votre subordonné a vérifié et a découvert que l'Empereur Démon du Pays du Démon Céleste, Tian Xie, aurait dû franchir l'ultime étape il y a mille ans, mais qu'il la supprime de force! »
+Le vieillard prit une grande inspiration et dit: « Votre subordonné a vérifié et a découvert que l'Empereur Démon du Pays du Démon Céleste, Tian Xie, aurait dû franchir l'ultime étape il y a mille ans, mais qu'il s'y retient de force depuis lors! »
 
 La lueur fantomatique dans le casque vacilla et un froid invisible émana de l'armure. Le corps et l'esprit du vieillard tremblèrent, et une sueur froide perla sur son front.
 
@@ -106,8 +106,8 @@ Après un long moment, la lueur se posa sur les yeux du vieil homme, comme pour 
 
 Le corps du vieillard était trempé de sueur lorsqu'il dit simplement: « Oui! » Il se leva ensuite et quitta respectueusement le sommet de la tour. Il redescendit au premier étage et s'assit en position du lotus, paraissant nettement plus détendu cette fois-ci.
 
-« Si cet enfant, Hu Pao, parvient à absorber une multitude de fragments d'âme, alors en combinant la nature mystérieuse de la technique de affinement de l'âme et mes compétences en alchimie, sa culture pourra progresser rapidement en peu de temps. Je le laisserai ensuite pratiquer l'Art Momentané du Maître afin de condenser toute sa longévité et son potentiel en deux heures de puissance, pour qu'il devienne l'un des Gardiens Démoniaques! »
+« Si cet enfant, Hu Pao, parvient à absorber une multitude de fragments d'âme, alors en combinant la nature mystérieuse de la technique d'affinement de l'âme et mes compétences en alchimie, sa culture pourra progresser rapidement en peu de temps. Je le laisserai ensuite pratiquer l'Art Momentané du Maître afin de condenser toute sa longévité et son potentiel en deux heures de puissance, pour qu'il devienne l'un des Gardiens Démoniaques! »
 
-« Ce sort de affinement de l'âme est très mystérieux, mais j'ai le sentiment qu'un défaut s'y cache. Cependant, le Maître ne peut pas rester éveillé trop longtemps, je ne peux donc pas gaspiller son temps avec une si petite affaire... »
+« Ce sort d'affinement de l'âme est très mystérieux, mais j'ai le sentiment qu'un défaut s'y cache. Cependant, le Maître ne s'est éveillé que depuis peu, je ne peux donc pas le déranger avec une si petite affaire... »
 
 « Si ce n'était pas pour le fait que Hu Pao maîtrise ce sort de raffinement mystérieux, il n'aurait ni les qualifications ni le statut nécessaires pour devenir un Gardien Démoniaque! Si cette expérience réussit, je devrai aller inspecter cette Tribu du Affinement de l'Âme! »

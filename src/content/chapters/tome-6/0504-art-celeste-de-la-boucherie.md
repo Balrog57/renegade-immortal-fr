@@ -1,6 +1,6 @@
 ---
 n: 504
-title: Art Céleste de la Boucherie
+title: Art du Massacre Céleste
 book: 6
 bookTitle: Arriving on Tian Yun
 en: Chapter 504 - Celestial Slaughter Art
@@ -18,7 +18,7 @@ L'âme originelle de Wang Lin fut violemment secouée et il perdit toute conscie
 
 « Étrange! » L'expression de Wang Lin s'assombrit tandis qu'il méditait silencieusement. Puis, il déploya son sens divin et recommença à chercher. Il renonça à vérifier les sorts des autres Omniscients pour se concentrer uniquement sur la recherche de cet étrange Omniscient aux robes grises.
 
-Le temps passa lentement. Wang Lin chercha de toutes ses forces et finit par croiser à nouveau l'Omniscient aux robes grises.
+Le temps passa lentement. Wang Lin chercha de toutes ses forces et finit par croiser l'Omniscient aux robes grises à trois reprises de plus.
 
 À chaque tentative, aucune de ses attaques n'avait d'effet, et l'Omniscient aux robes grises disparaissait sans laisser de trace. Peu importait ses efforts, il ne parvenait pas à comprendre comment cet homme s'éclipsait ainsi.
 
@@ -46,7 +46,7 @@ Wang Lin répondit calmement: « Pour choisir un sort interdit! »
 
 « Un sort interdit... » L'Omniscient aux robes grises afficha un air de dédain, puis il regarda Wang Lin et ajouta: « Il est très rare qu'il permette à qui que ce soit d'entrer ici. Je crains que ce ne soit pour moi! »
 
-Les yeux de Wang Lin s'illuminèrent et il demanda: « Quel est votre rang, Senior? »
+Les yeux de Wang Lin s'illuminèrent et il demanda: « Senior, qui êtes-vous? »
 
 L'Omniscient aux robes grises ne répondit pas à la question, mais examina attentivement Wang Lin avant de dire calmement: « Déploie ton domaine! »
 
@@ -60,11 +60,11 @@ Aussitôt, des filaments de gaz gris jaillirent du tableau de montagnes et de ri
 
 Les yeux de l'Omniscient aux robes grises émettaient une lueur grise qui perça l'espace pour s'ancrer dans le regard de Wang Lin. Quant au gaz gris qui fonçait sur lui comme des dragons féroces, il s'effondra silencieusement devant lui.
 
-« Un domaine de vie et de mort... » L'Omniscient aux robes grises regarda Wang Lin et dit: « La raison pour laquelle l'Omniscient t'a permis de venir ici est probablement pour que tu obtiennes mon Art Céleste de la Boucherie. Il voulait sans doute voir si tu étais destiné à apprendre ce sort. L'Art Céleste de la Boucherie n'est pas un sort céleste en soi; il est imité d'un sort céleste de rang inconnu. Cette tactique céleste s'accorde parfaitement avec ton domaine de vie et de mort. Cependant, pour que tu apprennes mon Art Céleste de la Boucherie, tu dois me promettre une chose! »
+« Un domaine de vie et de mort... » L'Omniscient aux robes grises regarda Wang Lin et dit: « La raison pour laquelle l'Omniscient t'a permis de venir ici est probablement pour que tu obtiennes mon Art du Massacre Céleste. Il voulait sans doute voir si tu étais destiné à apprendre ce sort. L'Art du Massacre Céleste n'est pas un sort céleste en soi; il est imité d'un sort céleste de rang inconnu. Cette tactique céleste s'accorde parfaitement avec ton domaine de vie et de mort. Cependant, pour que tu apprennes mon Art du Massacre Céleste, tu dois me promettre une chose! »
 
 L'expression de Wang Lin resta impassible: « Parlez! »
 
-Le regard de l'Omniscient aux robes grises était froid lorsqu'il prononça lentement: « Une fois que tu utiliseras l'Art Céleste de la Boucherie, tu ne devras laisser aucun ennemi en vie. Si tu peux me promettre cela, je te l'enseignerai! »
+Le regard de l'Omniscient aux robes grises était froid lorsqu'il prononça lentement: « Une fois que tu utiliseras l'Art du Massacre Céleste, tu ne devras laisser aucun ennemi en vie. Si tu peux me promettre cela, je te l'enseignerai! »
 
 Wang Lin réfléchit un instant, puis esquissa un léger sourire et secoua la tête. « Je ne l'apprendrai pas! »
 
@@ -78,7 +78,7 @@ Le gaz gris dépassa Wang Lin et frappa un Omniscient qui pratiquait un sort à 
 
 Simultanément, un rayon de lumière grise retourna vers l'Omniscient aux robes grises depuis le nuage de fumée, révélant être un sceau complexe.
 
-L'Omniscient aux robes grises dit calmement: « Ce sceau est formé par l'Art Céleste de la Boucherie! On utilise la voie du massacre pour obtenir la force vitale, et cette force vitale circule autour de soi pour former des sceaux de vie. Plus tu possèdes de ces sceaux, plus ta défense est puissante! J'en porte des centaines de millions sur moi; ainsi, même si la planète Tian Yun explosait, je serais indemne! Tu ne veux toujours pas apprendre ce sort? »
+L'Omniscient aux robes grises dit calmement: « Ce sceau est formé par l'Art du Massacre Céleste! On utilise la voie du massacre pour obtenir la force vitale, et cette force vitale circule autour de soi pour former des sceaux de vie. Plus tu possèdes de ces sceaux, plus ta défense est puissante! J'en porte des centaines de millions sur moi; ainsi, même si la planète Tian Yun explosait, je serais indemne! Tu ne veux toujours pas apprendre ce sort? »
 
 Wang Lin réfléchit un instant avant de demander: « Pourquoi devrais-je l'apprendre? »
 
@@ -92,11 +92,11 @@ Wang Lin afficha un air pensif. Peu après, il saisit la pierre de jade formée 
 
 Au moment où il toucha l'objet, le monde aux sept couleurs autour de lui changea brusquement. C'était comme si le monde basculait et sa vision devint floue. Lorsqu'il retrouva la vue, il se trouvait à nouveau au sommet de la tour.
 
-Devant lui, l'Omniscient affichait une lueur mystérieuse dans les yeux. Il fixa la pierre de jade dans la main de Wang Lin en se caressant la barbe: « Art Céleste de la Boucherie... excellent! »
+Devant lui, l'Omniscient affichait une lueur mystérieuse dans les yeux. Il fixa la pierre de jade dans la main de Wang Lin en se caressant la barbe: « Art du Massacre Céleste... excellent! »
 
 Wang Lin ne dit rien, mais fronça lentement les sourcils.
 
-L'Omniscient regarda Wang Lin et rit: « Ne réfléchis pas trop. Cette personne est la seconde âme originelle de ton maître. Je l'ai cultivée lorsque j'étais jeune. Cependant, à l'époque où j'étais au stade du Yin et du Yang, en raison de certains événements, j'ai dû me séparer de lui. L'Art Céleste de la Boucherie correspond à cette volonté de survie que tu recherches! »
+L'Omniscient regarda Wang Lin et rit: « Ne réfléchis pas trop. Cette personne est la seconde âme originelle de ton maître. Je l'ai cultivée lorsque j'étais jeune. Cependant, à l'époque où j'étais au stade du Yin et du Yang, en raison de certains événements, j'ai dû me séparer de lui. L'Art du Massacre Céleste correspond à cette volonté de survie que tu recherches! »
 
 Wang Lin réfléchit un instant avant de ranger la pierre de jade. Il ne croyait pas tout ce que disait l'Omniscient, mais étant très rusé, il ne laissa rien paraître sur son visage et se contenta de hocher la tête.
 
@@ -110,7 +110,7 @@ L'Omniscient hocha la tête, agita ses manches et déclara: « Je t'ai enseigné
 
 Wang Lin fit quelques pas en arrière avant de lever soudainement la tête: « Maître, ce disciple souhaite quitter la secte pour s'entraîner! »
 
-L'Omniscient ne se retourna pas, mais sa voix résonna: « Un disciple de ma Secte du Destin Céleste ne peut quitter la secte pour s'entraîner que s'il part en tant qu'émissaire. Prends mon jeton, rends-toi au Tribunal des Services Stellaires et choisis un pays de culture de rang inférieur à 6 pour y servir d'émissaire. Cependant, ne sois pas en retard dans trois mois, le jour de l'Étoile Rouge, à la pointe du mont Dushan, au-delà de la Mer Démoniaque Orientale! »
+L'Omniscient ne se retourna pas, mais sa voix résonna: « Un disciple de ma Secte du Destin Céleste ne peut quitter la secte pour s'entraîner que s'il part en tant qu'émissaire. Prends mon jeton, rends-toi au Tribunal des Services Stellaires et choisis un pays de culture de rang inférieur à 6 pour y servir d'émissaire. Cependant, ne sois pas en retard dans trois mois, le jour de l'Étoile Rouge, à la pointe du mont Dushan, au-delà de la Mer de l'Est! »
 
 Sur ces mots, la silhouette de l'Omniscient pénétra dans la tour et disparut. Un jeton blanc vola hors de la tour pour atterrir dans la main de Wang Lin. Simultanément, une force douce émana de la tour, propulsant Wang Lin loin de la montagne.
 

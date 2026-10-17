@@ -90,7 +90,7 @@ Wang Lin ne daigna même pas un regard vers eux; il ouvrit les bras et les éner
 
 L'énergie démoniaque était si dense qu'elle créa un tourbillon dont Wang Lin était le centre. Lorsque les neuf mille soldats arrivèrent, Wang Lin avait fini d'absorber l'énergie. Il pointa le doigt vers le ciel, faisant revenir l'épée céleste et la lame en croissant. Ces armes flottèrent au-dessus de sa tête, émettant des vibrations stridentes.
 
-En un laps de temps très court, plus de la moitié du régiment d'un millier d'hommes du chef de régiment Sun avait péri!
+En un laps de temps très court, plus de la moitié du régiment d'un millier d'hommes du chef de régiment Sun avait péri! Les survivants reculèrent tous; la colère dans leurs yeux s'était dissipée, remplacée par une intention de tuer sans limite et une once de peur profondément enfouie.
 
 Les neuf chefs de régiment, vêtus de leurs armures noires, encerclèrent Wang Lin. Leurs regards se posèrent immédiatement sur le cadavre du chef de régiment Sun.
 

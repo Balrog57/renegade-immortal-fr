@@ -48,9 +48,9 @@ Mo Lihai se remémora le combat d'il y a quelques jours et dit: « Mo Fei est co
 
 « Ce sort de disque rotatif a le pouvoir de réfléchir tous les sorts... Il est redoutable! »
 
-L'expression de Wang Lin resta neutre lorsqu'il dit: « Hormis l'Intention du Poing de l'Effondrement des Dix et la Mer Démoniaque aux Cent Vagues, je ne crois pas que Mo Fei n'ait aucun autre atout! »
+L'expression de Wang Lin resta neutre lorsqu'il dit: « Hormis l'Intention du Poing de l'Effondrement des Dix et la Mer Démoniaque aux Cent Vagues, je ne crois pas que tu n'aies aucun autre atout! »
 
-Mo Lihai regarda Wang Lin et avoua honnêtement: « Je l'ai utilisé. C'est le sort que l'Empereur Démon m'a personnellement enseigné, appelé Brûleur de Démons. Je l'ai employé et j'ai réussi à briser 17 des 18 couches du disque rotatif avant d'être finalement vaincu! »
+Mo Lihai regarda Wang Lin et avoua honnêtement: « Je l'ai utilisé. C'est le sort que l'Empereur Démon m'a personnellement enseigné lorsque je suis devenu général démoniaque, appelé Brûleur de Démons. Je l'ai employé et j'ai réussi à briser 17 des 18 couches du disque rotatif avant d'être finalement vaincu! »
 
 « Frère Wang, j'avais passé un accord avec Mo Fei: le perdant renonce au concours des généraux démoniaques. Que je puisse obtenir le poste de vice-commandant en chef dépendra entièrement de toi, Frère Wang! » Le cœur de Mo Lihai était amer alors qu'il reculait de deux pas pour s'incliner profondément devant Wang Lin.
 
@@ -92,7 +92,7 @@ Il n'y avait qu'un seul siège au sommet, celui de l'Empereur Démon!
 
 Aux extrémités sud et nord de la place se trouvaient des tribunes de huit étages, larges d'environ 264 mètres, où étaient assis d'innombrables dames et de jeunes héritiers des grandes demeures. Les deux étages supérieurs de chaque tribune ne comportaient que quatre sièges chacun.
 
-Sur ces 16 sièges, les huit du haut étaient réservés aux commandants en chef, et les quatre du bas aux vice-commandants en chef.
+Sur ces 16 sièges, les huit du haut étaient réservés aux commandants en chef, et les huit du bas aux vice-commandants en chef.
 
 À cet instant, la place était en pleine effervescence. Les gens continuaient de s'installer avant l'arrivée de l'Empereur Démon, et la foule ne cessait de croître.
 
@@ -138,7 +138,7 @@ Seuls les commandants en chef possédaient ce privilège!
 
 Ciel, Xuan, Jaune, Univers, Éternité et Désolé. Les six vice-commandants en chef descendirent du ciel pour prendre place aux deux étages supérieurs des tribunes nord et sud. Le visage du Vice-Commandant Xuan était extrêmement pâle. Dès qu'il s'assit, il ferma les yeux pour cultiver, ignorant tout ce qui l'entourait.
 
-Une fois les six arrivés, un rugissement encore plus assourdissant que celui du Tambour du Démon Céleste retentit dans toute la ville. Les huit commandants en chef marchèrent vers la place suspendue dans le ciel. Parmi eux, il y avait sept hommes et une femme!
+Une fois les six arrivés, un rugissement encore plus assourdissant que celui du Tambour du Démon Céleste retentit dans toute la ville. Les huit commandants en chef marchèrent dans les airs vers la place. Parmi eux, il y avait sept hommes et une femme!
 
 Les huit se saluèrent d'un geste solennel avant de rejoindre leurs sièges respectifs sans dire un mot.
 

@@ -62,7 +62,7 @@ Wang Lin hocha la tête et quitta la pièce.
 
 Mo Lihai resta pensif. Après un long moment, il murmura: « Je ne peux effectivement pas sous-estimer ce Wang Lin. Il semble que sacrifier la vie de ce Treize pour obtenir son aide ait été la bonne décision. »
 
-« Au-delà de la puissance de ce coup de poing, la simple force de ces filaments de gaz gris imprégnés d'intention meurtrière est extrêmement anormale. Avec seulement cinq filaments qui n'étaient même pas à pleine puissance, il a fait vaciller mon armure démoniaque. C'est plus tranchant que certaines épées démoniaques! Mais le plus important est ailleurs: il y a quelque chose de mystérieux dans ce gaz gris, capable d'affecter la force vitale de mon corps! »
+« Sans parler de la puissance de cette paume, la simple force de ces filaments de gaz gris imprégnés d'intention meurtrière est extrêmement anormale. Avec seulement cinq filaments qui n'étaient même pas à pleine puissance, il a fait vaciller mon armure démoniaque. C'est plus tranchant que certaines épées démoniaques! Mais le plus important est ailleurs: il y a quelque chose de mystérieux dans ce gaz gris, capable d'affecter la force vitale de mon corps! »
 
 « S'il y avait plusieurs milliers de filaments de ce gaz gris... ce serait extrêmement dangereux! Il vaut mieux ne pas se faire un ennemi de Wang Lin et préserver notre relation actuelle! » Après avoir médité un instant, il quitta la pièce pour s'atteler à l'obtention d'un accès pour Wang Lin à la Prison Hong.
 
@@ -92,7 +92,7 @@ Sous les étoiles et la lune, une ombre solitaire buvait du vin et contemplait l
 
 « Les cieux et la terre sont inhumains. Cultiver consiste à défier les cieux, mais si un cultivateur est également sans cœur, alors lui aussi devient inhumain. Utiliser un cœur inhumain pour cultiver l'inhumaine voie des cieux... comment cela peut-il être considéré comme une rébellion contre le ciel? Ce n'est que se soumettre à la volonté céleste. »
 
-« Depuis l'aube des temps, ceux qui suivent la volonté des cieux sont favorisés par eux, mais en vérité, ils ne sont que des insectes! Mon Dao ne suit pas la volonté des cieux; je suis mon cœur pour marcher contre les cieux. Je ne cherche pas l'immortalité, je cherche à me dépêtrer de mon statut d'insecte. Voilà ce que signifie se rebeller! »
+« Depuis l'aube des temps, ceux qui suivent la volonté des cieux sont favorisés par eux, mais en vérité, ils ne sont que des insectes! Mon Dao ne suit pas la volonté des cieux; je suis mon cœur pour marcher contre les cieux. Je ne cherche pas seulement la longévité, mais surtout à me dépêtrer de mon statut d'insecte. Voilà ce que signifie se rebeller! »
 
 Wang Lin vida le pot en une seule gorgée et le projeta. La cruche vola en éclats au sol. Puis, Wang Lin pressa l'espace entre ses sourcils et pencha la tête sur le côté. La mélancolie dans ses yeux s'estompa lentement...
 

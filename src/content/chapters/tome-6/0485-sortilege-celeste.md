@@ -6,7 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 485 - Celestial Spell
 slug: sortilege-celeste
 ---
-L'âme originelle de la femme fut libérée du sceau dans lequel elle était piégée au sein du drapeau spirituel. Un rayon de lumière violette jaillit de la bouche de Wang Lin et se mua en la silhouette de la femme, à une centaine de mètres de là.
+L'âme originelle de la femme fut libérée du sceau dans lequel elle était piégée au sein de l'étendard de l'âme. Un rayon de lumière violette jaillit de la bouche de Wang Lin et se mua en la silhouette de la femme, à une centaine de mètres de là.
 
 Dès son apparition, elle poussa un rugissement furieux et se jeta sur Wang Lin.
 
@@ -24,13 +24,13 @@ Bai Wei acquiesça rapidement et respectueusement, puis se retourna pour s'envol
 
 Quant à la femme en phase avancée de Transformation de l'Âme, son expression était également empreinte de profond respect, et elle partit aux côtés de Bai Wei.
 
-Les visages du vieil homme et de Zhao Xingsha étaient tous deux sombres, particulièrement celui de Zhao Xingsha. Son expression était particulièrement laide alors qu'il lança un regard chargé de sens à Wang Lin avant de s'en aller.
+Les visages de l'homme d'âge moyen et de Zhao Xingsha étaient tous deux sombres, particulièrement celui de Zhao Xingsha. Son expression était particulièrement laide alors qu'il lança un regard chargé de sens à Wang Lin avant de s'en aller.
 
 Les autres disciples de la division pourpre partirent lentement. Leur attitude envers Wang Lin avait radicalement changé; désormais, nul au sein de la division pourpre n'oserait plus lui manquer de respect.
 
 Wang Lin se tint respectueusement aux côtés de l'Omniscient, la tête baissée et silencieux. La puissance de l'Omniscient dépassait tout ce qu'il pouvait imaginer. Il compara secrètement ce dernier à Situ Nan et dut admettre que ce dernier était loin d'être l'égal de l'Omniscient!
 
-Après tout, Situ Nan ne pouvait pas désintégrer une âme originelle d'un simple mot ni restaurer l'ordre d'un simple geste. Cela relevait déjà du domaine des sorts célestes; ce n'était pas chose que des cultivateurs ordinaires pouvaient accomplir.
+Après tout, Situ Nan ne pouvait pas désintégrer une âme originelle d'un simple mot ni tout restaurer en son état initial d'un simple mot. Cela relevait déjà du domaine des sorts célestes; ce n'était pas chose que des cultivateurs ordinaires pouvaient accomplir.
 
 Au cours du mois passé ensemble, Situ Nan lui avait expliqué les différents types de sorts utilisés par les cultivateurs, et ceux qui avaient le plus marqué Wang Lin étaient les sorts célestes.
 
@@ -44,13 +44,13 @@ Quant aux trois sorts de mort que Situ Nan avait enseignés à Wang Lin, il les 
 
 Situ Nan ne pouvait pas le reproduire, il ne pouvait qu'en imiter la structure. Après d'innombrables années d'étude, il avait réussi à en dériver ces trois sorts de mort. Ces derniers possédaient des attributs démoniaques, car Situ Nan suivait la voie démoniaque.
 
-L'Omniscient se tint silencieusement devant le Palais de la Forêt Violette et fixa longuement le mot « Forêt ».
+L'Omniscient se tint silencieusement devant le Pavillon de la Forêt Violette et fixa longuement le mot « Forêt ».
 
 Les environs étaient plongés dans un silence total. Wang Lin restait là, aux côtés de l'Omniscient, sans un bruit. Il ignorait quelle était la personnalité de son nouveau maître et ne parvenait pas à percer ses pensées. Cependant, à en juger par l'expression de l'Omniscient, celui-ci ne semblait pas en colère.
 
 Après un long moment, l'Omniscient poussa un soupir et détourna le regard. Il regarda Wang Lin avec un sourire: « Quel beau "Forêt"! Pas mal. Une aura tyrannique émane de ce mot, capable de percer les cieux. Oui, il y a quelqu'un que tu connais très bien qui cultive la voie démoniaque, et cette personne a laissé une trace d'aura démoniaque en toi! »
 
-Le cœur de Wang Lin tressaillit. Bien que son visage restât impassible, ses pensées s'emballèrent. Finalement, sa mémoire se fixa sur le Deuxième Frère, celui qui avait utilisé la technique interdite de l'avatar pour obtenir le corps d'un démon immortel. Il prit alors une décision et hocha la tête avec franchise: « Le disciple connaissait effectivement quelqu'un, mais nos chemins se sont séparés lors de notre voyage. »
+Le cœur de Wang Lin tressaillit. Bien que son visage restât impassible, ses pensées s'emballèrent. Finalement, sa mémoire se fixa sur le Deuxième Frère, celui qui avait utilisé la technique interdite pour obtenir le corps d'un démon immortel. Il prit alors une décision et hocha la tête avec franchise: « Le disciple connaissait effectivement quelqu'un, mais nos chemins se sont séparés lors de notre voyage. »
 
 L'Omniscient caressa sa barbe blanche en souriant. « Même s'il était venu sur la planète Tian Yun, cela n'aurait pas posé de problème. Aux yeux de ton maître, il n'existe ni bien ni mal; on ne fait que suivre ses désirs! Destin céleste, destin céleste! Tout dans ce monde dépend du destin! Tant que le cœur est déterminé, on peut cultiver l'un des millions de Dao qui existent! »
 
@@ -62,13 +62,13 @@ Wang Lin salua respectueusement l'Omniscient avant de pénétrer dans le Pavillo
 
 Dans la chambre secrète située au troisième étage du pavillon, Wang Lin poussa un soupir de soulagement et observa les lieux avec une lueur mystérieuse dans les yeux.
 
-« Il semble que j'aie trouvé ma place au sein de cette Secte du Destin Céleste. Il semble aussi que je ne puisse pas me permettre d'être quelqu'un de bon. On dirait que ceux qui font preuve de plus de dominance ont de meilleures chances de survie ici. »
+« Il semble que j'aie trouvé ma place au sein de cette Secte du Destin Céleste. Il semble aussi que je ne puisse pas me permettre de trop céder. On dirait que ceux qui font preuve de plus de dominance ont de meilleures chances de survie ici. »
 
-« L'Omniscient observait probablement tout le long, et il a clairement vu tous les trésors que j'ai utilisés. Le char de guerre est une chose, mais l'essentiel réside dans l'épée céleste... Tout se déroule comme prévu, mais si je veux m'implanter solidement ici, je ne peux pas cacher cette épée. Il est impossible de la dissimuler à l'Omniscient, et je ne possède rien pour me protéger de lui. Cependant, je crois que l'Omniscient n'aurait pas la face de réclamer cela à son disciple. S'il le demande, je la lui donnerai directement, ce qui me permettra probablement d'en tirer de grands bénéfices. Cette technique d'avatar interdite que le Deuxième Frère utilisait était excellente! »
+« L'Omniscient observait probablement tout le long, et il a clairement vu tous les trésors que j'ai utilisés. Le char de guerre est une chose, mais l'essentiel réside dans l'épée céleste... Tout se déroule comme prévu, mais si je veux m'implanter solidement ici, je ne peux pas cacher cette épée. Il est impossible de la dissimuler à l'Omniscient, et je l'ai donc utilisée ouvertement, sans rien pour la couvrir. Cependant, je crois que l'Omniscient n'aurait pas la face de réclamer cela à son disciple. S'il le demande, je la lui donnerai directement, ce qui me permettra probablement d'en tirer de grands bénéfices. Cette technique interdite que le Deuxième Frère utilisait était excellente! »
 
 « Désormais, ma culture a atteint le sommet du début de la phase de Transformation de l'Âme, et durant l'Essai Humain, j'ai traversé d'innombrables cycles qui ont solidifié mon cœur Dao. »
 
-« Lors de l'Essai Céleste, j'ai pu comprendre le Dao céleste et obtenir une illumination dans mon domaine. Cependant, pour atteindre le milieu de la Transformation de l'Âme, j'ai besoin de jades célestes. La quantité de jades dont je dispose est insuffisante. »
+« Lors de l'Essai Céleste, j'ai pu comprendre le Dao céleste et obtenir une illumination dans mon domaine. Je ne suis plus très loin du milieu de la Transformation de l'Âme, mais pour l'atteindre, j'ai besoin de jades célestes. La quantité de jades dont je dispose est insuffisante. »
 
 Après avoir réfléchi un instant, Wang Lin déploya plusieurs restrictions pour protéger le pavillon et commença sa culture.
 
@@ -88,7 +88,7 @@ Les yeux de Zhao Xingsha brillèrent d'une lueur diabolique alors qu'il fixait l
 
 « Septième Frère, je vais te laisser affronter la Quatrième Sœur en premier! Je ne te tuerai pas, mais je te blesserai si gravement qu'il te faudra des années pour t'en remettre. D'ici là, je serai déjà l'un des sept disciples directs et ma culture sera en voie de rétablissement; tu ne vaudras plus alors mon attention! »
 
-Sur le côté ouest de la division pourpre se trouvait un pavillon très élégant d'un blanc laiteux. C'était le Palais Wei Pourpre! Bai Wei était assis tranquillement à l'intérieur, face à une branche d'arbre.
+Sur le côté ouest de la division pourpre se trouvait un pavillon très élégant d'un blanc laiteux. C'était le Pavillon Wei Pourpre! Bai Wei était assis tranquillement à l'intérieur, face à une branche d'arbre.
 
 C'était une branche fraîchement coupée, sur laquelle poussaient encore de jeunes bourgeons.
 

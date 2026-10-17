@@ -18,7 +18,7 @@ L'homme et le dragon descendirent dans la fosse, s'enfonçant de plus en plus pr
 
 Un rugissement retentit derrière lui alors que le dragon vert ouvrait la gueule. Une immense sphère d'éclairs s'en échappa et fonça droit sur Wang Lin.
 
-Cette boule de foudre avançait avec la puissance d'une armée entière, s'abattant sur Wang Lin telle une divine rétribution. Le regard de Wang Lin se glaça; il s'apprêtait à esquiver quand, soudain, la sphère sembla marquer un temps d'arrêt avant de dévier de sa trajectoire initiale pour descendre légèrement.
+Cette boule de foudre avançait avec un élan colossal, s'abattant sur Wang Lin telle une tribulation céleste. Le regard de Wang Lin se glaça; il s'apprêtait à esquiver quand, soudain, la sphère sembla marquer un temps d'arrêt avant de dévier de sa trajectoire initiale pour descendre légèrement.
 
 Le visage de Wang Lin changea radicalement lorsqu'il sentit une force d'aspiration inimaginable jaillir de sous lui. À cet instant, il n'hésita plus. Il frappa son sac de rangement et les trois épées s'envolèrent. Elles formèrent une formation et s'enfoncèrent dans la paroi, se soutenant mutuellement, tandis que Wang Lin agrippait fermement l'une d'elles.
 
@@ -48,7 +48,7 @@ Le dragon de tonnerre se débattait et ses éclairs vacillaient follement. Il te
 
 À ce moment précis, la force d'aspiration s'intensifia soudainement. Elle devint plusieurs fois plus puissante et tira avec une violence inouïe. Wang Lin eut l'impression que ses bras allaient être arrachés, mais il s'agrippa à son épée. Les trois lames raclèrent la paroi, laissant derrière elles de profonds sillons.
 
-Toutefois, la force était trop grande et le rempart formé par les trois épées se dissipait rapidement. Sentant le danger imminent, Wang Lin serra les dents et projeta immédiatement une partie de son sens divin dans son sac de rangement. L'épée céleste et la lame de lune s'envolèrent instantanément pour s'ancrer dans la paroi sous ses pieds. Wang Lin se redressa sur ces deux lames alors qu'il sombrait à nouveau.
+Toutefois, la force était trop grande et le rempart formé par les trois épées se dissipait rapidement. Sentant le danger imminent, Wang Lin serra les dents et détacha immédiatement une partie de son âme originelle pour la fondre dans son sac de rangement. L'épée céleste et la lame de lune s'envolèrent instantanément pour s'ancrer dans la paroi sous ses pieds. Wang Lin se redressa sur ces deux lames alors qu'il sombrait à nouveau.
 
 Des bruits de friction résonnèrent dans la fosse tandis que cinq entailles profondes étaient traînées le long de la paroi avec lui.
 
@@ -86,11 +86,11 @@ Tout dépendrait de la rapidité avec laquelle le dragon ou l'humain activerait 
 
 Wang Lin serra les dents et, sans hésiter, ferma les yeux pour laisser sortir son âme originelle. Au moment précis où le dragon pénétrait dans la fissure et s'apprêtait à cracher sa boule de foudre, l'âme originelle de Wang Lin dévora le dragon de tonnerre!
 
-Autrefois, Wang Lin était un dévoreur d'âmes capable de consumer chaque esprit du monde. Cependant, à mesure que son niveau de culture augmentait, il avait progressivement cessé d'utiliser cette technique. À cet instant, son âme originelle s'étendit considérablement. Le dragon de tonnerre fut totalement stupéfait par ce dévorat.
+Autrefois, Wang Lin était un dévoreur d'âmes capable de consumer chaque esprit du monde. Cependant, à mesure que son niveau de culture augmentait, il avait progressivement cessé d'utiliser cette technique. À cet instant, son âme originelle s'étendit considérablement. Le dragon de tonnerre fut totalement stupéfait par cette dévoration.
 
 Après avoir absorbé l'âme du dragon de tonnerre antique, l'âme originelle de Wang Lin retourna instantanément dans son corps. À cet instant, une explosion puissante secoua son essence même.
 
-Même réduite à la moitié de son corps spirituel, la puissance du dragon de tonnerre antique demeurait inimaginable. Une fois le dévorat accompli, Wang Lin activa le sort du dévoreur d'âmes pour l'absorber rapidement.
+Même réduite à la moitié de son corps spirituel, la puissance du dragon de tonnerre antique demeurait inimaginable. Une fois la dévoration accomplie, Wang Lin activa le sort du dévoreur d'âmes pour l'absorber rapidement.
 
 Des éclairs jaillirent à l'intérieur et à l'extérieur de son âme originelle, manifestant la fureur du tonnerre. La puissance pénétra jusque dans sa chair et ses os.
 

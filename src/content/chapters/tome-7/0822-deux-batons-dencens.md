@@ -8,9 +8,9 @@ slug: deux-batons-dencens
 ---
 Tenant l'âme originelle de l'homme d'âge moyen, Wang Lin regarda froidement les deux individus qui fuyaient dans des directions opposées. Il ne les poursuivit pas personnellement, mais une ombre surgit derrière lui: Ta Shan s'élança pour les traquer.
 
-Il n'y eut aucune difficulté à éliminer ces deux cultivateurs de l'Yin Illusoire terrifiés, grâce au corps céleste de Garde Corporelle Yang de Ta Shan.
+Il n'y eut aucune difficulté à éliminer ces deux cultivateurs de l'Yin Illusoire terrifiés, grâce au corps de Gardien Céleste de Ta Shan, au stade du Yang Corporel.
 
-« Aîné, ayez pitié; la culture de ce junior n'a pas été facile à acquérir. Aîné, pardonnez-moi... » L'homme d'âge moyen était mort de peur. Son âme originelle implorait sans cesse la clémence dans la main de Wang Lin.
+« Senior, ayez pitié; la culture de ce junior n'a pas été facile à acquérir. Senior, pardonnez-moi... » L'homme d'âge moyen était mort de peur. Son âme originelle implorait sans cesse la clémence dans la main de Wang Lin.
 
 L'expression de Wang Lin resta glaciale tandis qu'il pressait sa main gauche sur l'âme originelle de l'homme. L'énergie originelle afflua dans sa paume et il commença à fouiller les souvenirs de l'âme.
 
@@ -28,15 +28,15 @@ Wang Lin murmura: « Ainsi en est-il! »
 
 À ce moment-là, des bruits de craquement provinrent du lointain. À son retour, Ta Shan tenait dans chaque main une âme originelle et un sac.
 
-Comme précédemment, Wang Lin utilisa le sort de recherche d'âme sur les deux autres âmes originelles. En combinant les souvenirs des trois, il comprit parfaitement les deux grands événements survenus ces six derniers mois.
+Comme précédemment, Wang Lin utilisa le sort de recherche d'âme sur les deux autres âmes originelles. En combinant les souvenirs des trois, il comprit parfaitement les deux grands événements survenus depuis plus de six mois.
 
 Naturellement, il ne laisserait pas partir les âmes originelles de ceux qui l'avaient offensé. Il les jeta dans le drapeau d'âmes afin qu'elles servent de nourriture pour la technique « Invoque le Vent ».
 
 Quant aux sacs des trois hommes, Wang Lin les inspecta et y trouva quelques trésors magiques. Il les sortit un par un et les broya. Puis, il cracha de l'énergie originelle essentielle pour les transformer en liquide avant de les fusionner dans le corps de Ta Shan.
 
-La puissance d'un corps de Gardien Céleste provenait principalement de rares trésors célestes mentionnés dans le jade céleste. Cependant, ces trésors avaient disparu depuis bien longtemps.
+La puissance d'un corps de Gardien Céleste provenait principalement de rares trésors célestes mentionnés dans le jade céleste de l'Empereur Céleste Qing Lin. Cependant, ces trésors avaient disparu depuis bien longtemps.
 
-Wang Lin ne pouvait donc que faire au mieux: il extrayait divers trésors pour s'en servir de matériaux afin de rendre la Gardien Céleste de plus en plus puissante.
+Wang Lin ne pouvait donc que faire au mieux: il extrayait divers trésors pour s'en servir de matériaux afin de rendre le corps du Gardien Céleste de plus en plus puissant.
 
 Il y avait également deux morceaux de jade dans leurs sacs. D'après leurs souvenirs, ces jades servaient à contacter la famille Yao. On pouvait dire que la famille Yao avait déployé des forces considérables pour s'en prendre à lui.
 
@@ -56,7 +56,7 @@ Il nourrissait de nombreux griefs contre les quatre grandes familles, particuli�
 
 « Il est peu probable que ce soit dû au Pavillon des Collections; l'effondrement du Royaume Céleste du Tonnerre rend cela fort improbable. » Tandis qu'il méditait, son cœur était empreint d'une intention meurtrière.
 
-« L'Ordre Céleste... Cela me rappelle l'Ordre de Cent Jours des Dix Mille Démons! » Les yeux de Wang Lin s'illuminèrent et il s'élança.
+« L'Ordre Céleste... Cela me rappelle l'Ordre de Cent Jours des Dix Mille Démons, à l'époque sur la planète Suzaku! » Les yeux de Wang Lin s'illuminèrent et il s'élança.
 
 Il se transforma en météore et fendit la voûte étoilée.
 
@@ -72,7 +72,7 @@ Simultanément, sept autres faisceaux de lumière surgirent de la gauche et de l
 
 Sept autres rayons de lumière accoururent également de derrière lui.
 
-Tout semblait bloqué. Le regard de Wang Lin devint glacial et il murmura: « Entre la réception de l'information et maintenant, seul le temps de la combustion de deux bâtons d'encens s'est écoulé. Il semble que les membres de la famille Yao soient dispersés à travers tout le Système Stellaire de Luotian! »
+Tout semblait bloqué. Le regard de Wang Lin devint glacial et il murmura: « Depuis la mort de ce lettré jusqu'à maintenant, seul le temps de la combustion de deux bâtons d'encens s'est écoulé. Il semble que les membres de la famille Yao soient dispersés à travers tout le Système Stellaire de Luotian! »
 
 Le corps de Wang Lin ne bougea pas. Il balaya l'assemblée du regard et ses yeux se plissèrent.
 
@@ -96,7 +96,7 @@ Des bruits de craquements retentirent et un épais nuage de sang enveloppa la zo
 
 Ses yeux brûlaient d'intention meurtrière alors qu'il pourchassait l'un des cultivateurs du Yin Illusoire. Il s'agissait d'un homme d'âge moyen. Face à la poursuite de Wang Lin, il afficha un regard féroce. Sa main traça un sceau et l'énergie originelle de son corps jaillit; il s'apprêtait à lancer un sortilège.
 
-Wang Lin eut un sourire narquois. Son corps vacilla et il pointa le doigt vers l'avant. L'homme d'âge moyen s'immobilisa brusquement, laissant Wang Lin charger. Le pied de Wang Lin s'écrasa sur le front de l'homme comme s'il l'utilisait comme un tremplin.
+Wang Lin eut un sourire narquois. Son corps vacilla et il pointa le doigt vers l'avant. L'homme d'âge moyen s'immobilisa brusquement, laissant Wang Lin charger. Le pied de Wang Lin s'écrasa sur le sommet du crâne de l'homme comme s'il l'utilisait comme un tremplin.
 
 Un fracas retentit, le corps de l'homme explosa et son âme originelle s'échappa en panique. Cependant, une brume noire jaillit du drapeau d'âmes que Wang Lin avait sorti et enveloppa l'âme.
 

@@ -66,15 +66,15 @@ Wang Lin demanda soudainement: « Existe-t-il une famille Xiang sur la planète 
 
 Wang Lin marqua une pause avant de regarder Sun Tai: « Vous étiez le Grand Ancien de la Secte des Cadavres sur la planète Suzaku dans le Système Stellaire de l'Alliance, vous devez donc connaître certaines choses. Quel genre d'organisation est la Secte des Cadavres? »
 
-Sun Tai laissa échapper un soupir et dit amèrement: « Bien que j'aie été le Grand Ancien de la Secte des Cadavres sur la planète Suzaku, il y a encore beaucoup de choses que j'ignore. Je sais seulement que la Secte des Cadavres était l'une des deux grandes sectes du Système Stellaire de l'Alliance.
+Sun Tai laissa échapper un soupir et dit amèrement: « Bien que j'aie été le Grand Ancien de la Secte des Cadavres sur la planète Suzaku, des gens de mon rang, il y en a beaucoup, et il y a encore beaucoup de choses que j'ignore. Je sais seulement que la Secte des Cadavres était l'une des deux grandes sectes du Système Stellaire de l'Alliance.
 
 Je parle de véritables sectes; non pas celles qui ne s'étendent que sur une seule planète. Ces sectes rayonnent à travers toute l'Alliance. Elles comptent d'innombrables cultivateurs puissants, et leur influence s'étend même dans les zones intérieures de l'Alliance de Culture.
 
-La rumeur prétend que l'ancêtre de la Secte des Cadavres jouit d'un statut extrêmement élevé au sein de l'Alliance. C'est ce qui permet à la Secte des Cadavres de perdurer depuis si longtemps.
+La rumeur prétend que le maître de la Secte des Cadavres jouit d'un statut extrêmement élevé au sein de l'Alliance. C'est ce qui permet à la Secte des Cadavres de perdurer depuis si longtemps.
 
-Quant à l'autre grande secte capable de rivaliser avec la Secte des Cadavres, c'est la Secte des Quatre Divinités. Pour être précis, la planète Suzaku est considérée comme une branche éloignée de la Secte des Quatre Divinités. On disait que la première génération de Suzaku était originaire de la Planète Divine.
+Quant à l'autre grande secte capable de rivaliser avec la Secte des Cadavres, c'est la Secte des Quatre Divinités. Pour être précis, la planète Suzaku est considérée comme une branche éloignée de la Secte des Quatre Divinités. On disait que la première génération de Suzaku était originaire de la Planète des Quatre Divinités.
 
-La Planète Divine n'est elle-même qu'une branche de la Secte des Quatre Divinités. Si vous y réfléchissez, vous pouvez être considéré comme un disciple extérieur de la Secte des Quatre Divinités. »
+La Planète des Quatre Divinités n'est elle-même qu'une branche de la Secte des Quatre Divinités. Si vous y réfléchissez, vous pouvez être considéré comme un disciple extérieur de la Secte des Quatre Divinités. »
 
 Le regard de Wang Lin était très sérieux. Après tout, son temps en tant que cultivateur était relativement court et il ignorait encore de nombreux secrets. En entendant cela, il eut le sentiment d'acquérir une nouvelle compréhension du Système Stellaire de l'Alliance.
 
@@ -122,4 +122,4 @@ Le soleil se coucha et Wang Lin ferma les yeux. La vie et la mort, la cause et l
 
 C'était ainsi que fonctionnait le monde.
 
-« Le karma est un chemin qui s'étend au-delà du domaine de la vie et de la mort. On peut dire que le karma est la racine de la vie et de la mort; c'est parce qu'il existe une cause karmique de vie qu'il en découle un effet karmique de vie. » Wang Lin ressentit un éveil, mais tout lui semblait encore étranger. C'était comme s'il pouvait le voir sans pouvoir le toucher.
+« Le karma est une autre manifestation, qui vient après le domaine de la vie, de la mort et de la réincarnation. On peut même dire que le karma est la source de la vie et de la mort; c'est parce que la vie existe que le fruit de la mort peut en naître... » Wang Lin ressentit un éveil, mais tout lui semblait encore étranger. C'était comme s'il pouvait le voir sans pouvoir le toucher.

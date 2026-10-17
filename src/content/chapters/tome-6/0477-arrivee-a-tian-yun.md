@@ -8,7 +8,7 @@ slug: arrivee-a-tian-yun
 ---
 Ce jour-là, un rayon de lumière argentée fendit le vide. Ce rayon ressemblait à un dragon, se déplaçant à travers l'espace sans la moindre obstruction.
 
-Une silhouette se tenait sur ce sillage argenté. Cette personne arborait une longue chevelure flottant derrière elle, un regard fier et des traits acérés; ses vêtements claquaient violemment, comme sous l'effet d'un vent impétueux.
+Une silhouette se tenait sur ce sillage argenté. Cette personne arborait une longue chevelure flottant derrière elle, un regard fier et des traits acérés; sa longue robe blanche claquait violemment, comme sous l'effet d'un vent impétueux.
 
 Sa peau, hâlée, dégageait une vitalité profonde et une vigueur spirituelle intense.
 
@@ -20,7 +20,7 @@ Sa peau n'était plus aussi pâle qu'autrefois sur la planète Suzaku, mais un p
 
 Quant au dragon argenté, il s'agissait de la boussole stellaire après sa sublimation.
 
-Grâce aux souvenirs de l'Ancien Dieu Tu Si, il avait utilisé une technique spéciale, combinée à la pierre de bois du vide, pour en modifier la structure et parachever la fusion avec l'encre de neige. Tout cela avait engendré un changement mystérieux.
+Grâce aux souvenirs de l'Ancien Dieu Tu Si, il avait utilisé une technique spéciale, combinée à la pierre de bois du vide, pour en modifier la forme et parachever la fusion avec l'encre de neige. Tout cela avait engendré un changement mystérieux.
 
 Quant à cette forme de dragon argenté, elle était inspirée d'une créature antique appelée Qiu He, issue des souvenirs de l'Ancien Dieu. La vitesse de cette créature était prodigieuse; la boussole avait donc emprunté sa forme pour en capturer une partie de la célérité. Bien qu'elle ne puisse égaler la créature réelle, la boussole atteignait désormais une vitesse inimaginable.
 
@@ -126,7 +126,7 @@ Wang Lin monta alors sur la garde de l'épée.
 
 « Je vous remercie! » L'expression de Wang Lin ne changea pas tandis qu'il joignait les mains en signe de respect.
 
-L'éclat mystérieux dans les yeux du jeune homme s'intensifia. Il regarda Wang Lin, puis l'épée, avant de s'incliner: « Entrez. Le Senior Omniscient vous attend depuis longtemps. »
+L'éclat mystérieux dans les yeux du jeune homme s'intensifia. Il regarda Wang Lin, puis l'épée, avant de joindre brièvement les mains: « Entrez. Le Senior Omniscient vous attend depuis longtemps. »
 
 Une fois ces mots prononcés, le gaz vert se fendit, formant un tunnel profond menant vers la planète.
 

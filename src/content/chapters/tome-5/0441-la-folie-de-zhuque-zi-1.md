@@ -22,7 +22,7 @@ Situ Nan attrapa le jade. En l'examinant, son expression changea radicalement. I
 
 Situ Nan rangea le jade, afficha un sourire espiègle et demanda: « Est-ce que tu comptes me donner ce Char de Guerre de l'Extermination Divine? »
 
-L'expression de Wang Lin resta imperturbable tandis qu'il formait un sceau de la main pour pointer le char. Un rayon de lumière noire s'échappa du char vers lui.
+L'expression de Wang Lin resta imperturbable tandis qu'il formait un sceau de la main pour pointer le char. Un rayon de lumière noire s'échappa du char, se transforma en piège à bêtes et vola vers lui.
 
 « Pourquoi ne te l'offrirais-je pas?! » Wang Lin saisit le piège à bêtes et le rangea. Situ Nan allait chercher à se venger, et s'il ne disposait d'aucun trésor, Wang Lin s'inquiéterait pour lui; il décida donc de lui céder le char de guerre. Avec son nouveau corps et ce char, sa quête de vengeance serait bien plus aisée.
 
@@ -30,7 +30,7 @@ Privé du piège qui le contrôlait, l'esprit de la bête poussa un rugissement,
 
 Situ Nan éclata de rire et se lança aussitôt à sa poursuite.
 
-« Ne fuis pas! Viens jouer avec ce vieux fou! »
+« Ne fuis pas! Viens jouer avec ce vieux! »
 
 Les quatre armées du Clan des Immortels Délaissés couvraient les cieux des directions nord, est, ouest et sud du continent Suzaku.
 
@@ -70,7 +70,7 @@ Qian Feng portait une robe noire et ses yeux dégageaient une aura maléfique. I
 
 Liu Mei était toujours aussi belle. Sa robe de soie blanche lui donnait l'allure d'une fée. En cet instant, ses sourcils étaient étroitement froncés, mais elle restait également silencieuse.
 
-La silhouette de Zhu Quezi trahissait une trace de solitude lorsqu'il dit d'un ton pesant: « Le pays de Suzaku ne peut repousser le Clan des Immortels Délaissés. Qian Feng, Liu Mei, vous allez tous deux traverser une épreuve de vie ou de mort aujourd'hui. Que vous surviviez ou que vous mouriez dépendra de votre chance. »
+La silhouette de Zhu Quezi trahissait une trace de solitude lorsqu'il dit d'un ton pesant: « La planète Suzaku ne peut repousser le Clan des Immortels Délaissés. Qian Feng, Liu Mei, vous allez tous deux traverser une épreuve de vie ou de mort aujourd'hui. Que vous surviviez ou que vous mouriez dépendra de votre chance. »
 
 À ce moment précis, les nuages noirs se refermèrent comme des tsunamis impétueux. Le nuage venant de l'est ne comptait qu'un seul individu: un homme d'âge moyen vêtu d'une robe grise qui ressemblait à un érudit. D'un seul pas, il atteignit une distance de 330 mètres de Zhu Quezi. « Zhu Quezi, je suis le cinquième ancêtre du Clan des Immortels Délaissés. »
 
@@ -90,11 +90,11 @@ Zhu Quezi se tourna brusquement vers lui et demanda: « Dois-je t'appeler Yun Qu
 
 Yun Quezi secoua la tête et répondit: « Peu importe. Tu peux m'appeler comme bon te semble, frère aîné. »
 
-« Vous êtes tous venus. La seule chamane à onze feuilles du Clan des Immortels Délaissés, la première ancêtre, tu pourrais tout aussi bien sortir de l'ombre. » Les yeux de Zhu Quezi brillèrent alors qu'il scrutait le ciel.
+« Vous êtes tous venus. Le seul chamane à onze feuilles du Clan des Immortels Délaissés, le premier ancêtre, tu pourrais tout aussi bien sortir de l'ombre. » Les yeux de Zhu Quezi brillèrent alors qu'il scrutait le ciel.
 
 Un rayon de lumière aux cinq couleurs se rassembla dans les cieux et une silhouette transparente prit lentement forme. La figure descendit avec lenteur et dit: « Zhu Quezi. »
 
-Cette première ancêtre paraissait extrêmement ordinaire, et pourtant, d'un simple revers de la main, elle avait fait fuir Chu Yuanfei. Sa puissance était comparable à celle d'un cultivateur Ascendant au stade avancé, voire, dans une certaine mesure, supérieure.
+Ce premier ancêtre paraissait extrêmement ordinaire, et pourtant, d'un seul coup de paume, il avait fait fuir Chu Yuanfei. Sa puissance était comparable à celle d'un cultivateur Ascendant au stade avancé, voire, dans une certaine mesure, supérieure.
 
 Yun Quezi dit d'une voix grave: « Frère aîné, notre objectif n'est pas de détruire la planète Suzaku, mais de trouver un moyen pour que nous puissions coexister. Si tu promets de remettre le Cristal de Culture Planétaire, nous pourrons arrêter cette guerre. Nous diviserons la planète en deux et ne nous dérangerons plus jamais! »
 
@@ -110,16 +110,16 @@ Le regard de Zhu Quezi devint glacial et il ricana. Il sembla d'abord qu'il n'al
 
 Simultanément, l'expression du cinquième ancêtre changea et il recula précipitamment. À cet instant, un point sanglant apparut sur son front et le sang commença à s'en écouler.
 
-La première ancêtre fronça les sourcils et rejoignit le cinquième ancêtre. Elle tendit la main et sortit une aiguille dorée. Pourtant, dès que l'aiguille apparut, elle disparut sans laisser de trace.
+Le premier ancêtre fronça les sourcils et rejoignit le cinquième ancêtre. Il tendit la main et saisit une aiguille dorée. Pourtant, dès que l'aiguille apparut, elle disparut sans laisser de trace.
 
-L'expression de Zhu Quezi devint sombre alors qu'il se mouvait. Sa vitesse était telle que, hormis Yun Quezi et la première ancêtre, personne ne vit ce qu'il avait fait.
+L'expression de Zhu Quezi devint sombre alors qu'il se mouvait. Sa vitesse était telle que, hormis Yun Quezi et le premier ancêtre, personne ne vit ce qu'il avait fait.
 
 « Sceau de Suzaku, attaque! » La voix antique de Zhu Quezi résonna depuis le vide.
 
-Lorsqu'il réapparut, il pointait déjà vers le bas depuis les cieux. Le ciel s'obscurcit tandis qu'une immense quantité de flammes enveloppait son corps. Les flammes recouvrirent tout dans un rayon de 3 300 mètres autour de lui, et le sol commença à montrer des signes de calcination.
+Lorsqu'il réapparut, il se trouvait déjà dans les airs, la main droite pointée vers l'avant. Le ciel s'obscurcit tandis qu'une immense quantité de flammes enveloppait son corps. Les flammes recouvrirent tout dans un rayon de 3 300 mètres autour de lui, et le sol commença à montrer des signes de calcination.
 
-À l'exception d'Yun Quezi et de la première ancêtre, tous reculèrent rapidement pour éviter l'impact des flammes.
+À l'exception d'Yun Quezi et du premier ancêtre, tous reculèrent rapidement pour éviter l'impact des flammes.
 
 Au même moment, un phénix de feu jaillit du corps de Zhu Quezi. Il poussa un cri strident avant de replier ses ailes et de plonger vers le sol.
 
-La première ancêtre s'élança dans les airs. Son corps commença à émettre une lueur noire, puis elle leva la main en pointant vers le haut. Une mystérieuse plante à onze feuilles apparut soudainement sur son front. L'une des feuilles se détacha et flotta vers l'endroit qu'elle désignait.
+Le premier ancêtre s'élança dans les airs. Son corps commença à émettre une lueur noire, puis il leva la main droite en pointant vers l'avant. Une mystérieuse plante à onze feuilles s'épanouit soudainement sur son front. L'une des feuilles se détacha et flotta vers l'endroit qu'il désignait.

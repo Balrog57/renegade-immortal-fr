@@ -10,7 +10,7 @@ Les yeux de Wang Lin s'illuminèrent et il dit lentement: « Quatrième Sœur, j
 
 La Quatrième Sœur regarda Wang Lin avant de laisser échapper un sourire. Elle toucha sa sacoche de rangement, en retira un morceau de jade et le lança à Wang Lin.
 
-« J'avais initialement prévu de te libérer après la célébration de l'anniversaire du Maître, mais je ne m'attendais pas à ce que tu puisses t'échapper par tes propres moyens, Septième Frère. J'étais impuissante face à cette situation, et j'espère que Frère Cadet ne m'en tiendra pas rigueur. Dans ce jade, en plus du sort de téléportation, se trouve également une restriction que le Maître m'a enseignée autrefois. Cette restriction est une technique que le Maître a réussi à créer après avoir étudié un sort céleste de qualité inférieure; sa puissance est donc immense. Considère cela comme un cadeau pour compenser mes actions passées. »
+« J'avais initialement prévu de te libérer après la célébration de l'anniversaire du Maître, mais je ne m'attendais pas à ce que tu puisses t'échapper par tes propres moyens, Septième Frère. J'étais impuissante face à cette situation, et j'espère que Frère Cadet ne m'en tiendra pas rigueur. Dans ce jade, en plus du sort de téléportation, se trouve également une restriction que le Maître m'a enseignée autrefois. Cette restriction est une technique que le Maître a réussi à créer après avoir étudié un sort céleste de qualité inférieure; sa puissance est correcte. Considère cela comme un cadeau pour compenser mes actions passées. »
 
 Wang Lin accepta le jade, puis il regarda la Quatrième Sœur et hocha la tête après réflexion.
 
@@ -44,9 +44,9 @@ Peu après, il retira son Sens Divin et afficha une expression pensive.
 
 « Ainsi fonctionne donc cette grande restriction de téléportation. Elle utilise l'instant fugace de distorsion temporelle qui se produit lors d'un déplacement. D'abord, on se scelle avec cette restriction afin que, pendant cet instant précis, on puisse utiliser la téléportation plusieurs fois pour engendrer une force mystérieuse. Ensuite, une fois le sceau relâché, toute cette force explose et crée une téléportation bien plus puissante. »
 
-« Bien que le concept soit simple, son utilisation réelle est semée d'embûches. Si le nombre de scellements n'est pas parfaitement contrôlé, il est fort probable que l'on se retrouve projeté dans une faille spatiale. »
+« Bien que le concept soit simple, son utilisation réelle est semée d'embûches. Si la durée du scellement n'est pas parfaitement maîtrisée, il est fort probable que l'on se retrouve projeté dans une faille spatiale. »
 
-« De plus, il est impossible de se téléporter vers un lieu précis. On peut supposer que la Quatrième Sœur a utilisé son Sens Divin au stade avancé de la Transformation de l'Âme, ainsi que sa connaissance de la planète Tian Yun, pour pouvoir nous téléporter dans cette forêt. »
+« De plus, il est impossible de se téléporter vers un lieu précis. On peut supposer que la Quatrième Sœur a utilisé son Sens Divin au stade avancé de la Transformation de l'Âme, ainsi que sa connaissance de la planète Tian Yun, pour pouvoir nous téléporter avec précision dans cette forêt de pierre. »
 
 « Cependant, dans l'ensemble, ce sort est tout à fait unique! »
 
@@ -124,7 +124,7 @@ L'énergie spirituelle céleste restante dans son corps se déversa rapidement p
 
 Finalement, Wang Lin rassembla l'énergie spirituelle céleste dorée dans sa main gauche et laissa le reste de son énergie circuler normalement. Cependant, aucune énergie ne se dirigeait vers sa main gauche; c'était devenu une zone interdite.
 
-« L'énergie spirituelle céleste créée par cette Tactique de Raffinement Céleste en Neuf Cycles est fascinante. Maintenant, je ne connais pas encore sa véritable puissance... » Ses yeux brillèrent, mais il ne l'utilisa pas. Au lieu de cela, sa main traça un sceau pour activer le sort de téléportation supérieur. À l'apparition de la lumière argentée, il fit sept pas.
+« L'énergie spirituelle céleste créée par cette Tactique de Raffinement Céleste en Neuf Cycles est fascinante. Maintenant, je ne connais pas encore sa véritable puissance... » Ses yeux brillèrent, mais il ne l'utilisa pas. Au lieu de cela, sa main traça un sceau pour activer le grand sort de téléportation. À l'apparition de la lumière argentée, il fit sept pas.
 
 La lueur disparut, emportant Wang Lin avec elle.
 

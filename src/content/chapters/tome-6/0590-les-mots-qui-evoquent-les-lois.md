@@ -12,7 +12,7 @@ Hormis le commandant en chef du Ciel, tous les autres commandants se levèrent, 
 
 Les vice-commandants en dessous d'eux étaient totalement stupéfaits, et leurs cœurs tremblaient violemment alors qu'ils dévoraient Wang Lin du regard.
 
-Il faut dire qu'il y avait parmi les présents des individus capables de faire résonner le tambour cinq fois! Certains pouvaient même le faire cinq fois de suite, mais l'onde de choc créée lorsque les cinq coups fusionnaient en un seul pouvait être décrite comme un séisme céleste!
+Il faut savoir que parmi les présents, certains étaient capables de faire résonner le tambour cinq fois! Mais le faire cinq fois de suite, même pour qui en avait la capacité, produisait une onde de choc, lorsque les cinq coups fusionnaient en un seul, que l'on pouvait décrire comme un séisme céleste!
 
 Un tel contre-coup violent n'était pas une chose qu'un général démon pouvait supporter! Même le génial général démon, Mo Fei, ne pouvait endurer que trois coups consécutifs. S'il y avait un quatrième, il perdrait sans aucun doute!
 
@@ -24,7 +24,7 @@ Cependant, cet homme n'avait même pas bougé. Il flottait aux côtés du tambou
 
 « Il doit y avoir un problème! Ce cultivateur a dû utiliser une méthode sournoise! »
 
-« Yu Sen a déployé des efforts considérables pour le faire résonner quatre fois, et cet homme l'a fait cinq fois d'un geste nonchalant... Cependant, Mo Fei allait en faire huit, et cet homme ne pourra certainement pas faire plus! » Des cris de stupeur incessants s'élevèrent de la foule.
+« Yu Sen a déployé des efforts considérables pour le faire résonner quatre fois, et cet homme l'a fait cinq fois d'un geste nonchalant... Cependant, Mo Fei en a fait résonner huit, et cet homme ne pourra certainement pas faire plus! » Des cris de stupeur incessants s'élevèrent de la foule.
 
 Ils n'ignoraient pas la silhouette de Wang Lin. Il y a quelques jours, il avait été le premier à blesser gravement un général démon, gravant ainsi son image dans l'esprit de tous.
 
@@ -42,7 +42,7 @@ De plus, la place, fissurée en un large cercle de plus d'un kilomètre autour d
 
 Être capable de provoquer une telle destruction sur une place renforcée par d'innombrables restrictions ne pouvait être décrit que comme incroyable.
 
-Presque tous les commandants en chef aspirèrent une bouffée d'air froid. Yu Sen eut un sourire amer, secoua la tête et renonça totalement à l'idée de défier Wang Lin.
+Presque tous les généraux démons aspirèrent une bouffée d'air froid. Yu Sen eut un sourire amer, secoua la tête et renonça totalement à l'idée de défier Wang Lin.
 
 La seule générale démon, Xie Lian, portait une armure intégrale. Bien qu'il s'agisse d'une armure complète, elle restait extrêmement révélatrice, mettant en valeur ses courbes magnifiques.
 
@@ -56,7 +56,7 @@ Parmi les généraux démons, les yeux de Shi Xiao s'illuminèrent tandis qu'il 
 
 Shi Xiao laissa échapper un reniflement froid et ne répondit rien, mais son expression s'assombrit.
 
-Parmi les généraux démons, seul Mo Fei ne regardait pas Wang Lin. Au lieu de cela, il contemplait silencieusement l'horizon lointain. Le cultivateur de la Secte de l'Épée Da Lou fixait Wang Lin avec une intention meurtrière non dissimulée.
+Parmi les généraux démons, seul Mo Fei ne regardait pas Wang Lin. Au lieu de cela, il contemplait silencieusement l'horizon lointain. Le cultivateur de la Secte de l'Épée Da Luo fixait Wang Lin avec une intention meurtrière non dissimulée.
 
 Au milieu de tout ce tumulte, l'expression de l'homme en armure dorée était extrêmement disgracieuse. Il regarda le tambour démoniaque et serra les poings!
 
@@ -72,7 +72,7 @@ Les sceaux de vie ne pouvaient être détruits que si l'intégralité des quelqu
 
 En entendant les paroles de Wang Lin, le visage de l'homme en armure dorée devint encore plus livide. Il renifla froidement et rétorqua: « J'ai dit que tu ne pouvais pas dépasser cinq coups. Es-tu un imbécile incapable de comprendre le sens de mes paroles?! Tu as frappé cinq fois, cela n'a pas dépassé cinq, donc ce n'est pas ta victoire! »
 
-Après une telle déclaration, certains spectateurs dans les gradins estimèrent que la moralité de cet intendant à l'armure dorée était bien trop basse!
+Après une telle déclaration, certains spectateurs dans les gradins estimèrent que cet intendant à l'armure dorée avait l'esprit bien trop étroit!
 
 Wang Lin lança un regard glacial à l'homme en armure dorée, puis sa main droite se referma en un poing et frappa le tambour démoniaque derrière lui.
 
@@ -114,7 +114,7 @@ Les cieux et la terre fusionnèrent avec le son du tambour pour forger cette sen
 
 Cette force inimaginable fit soudainement pâlir l'homme en armure dorée. Il recula involontairement de quelques pas, ses oreilles bourdonnèrent et son visage devint livide!
 
-À cet instant, il eut l'illusion de faire face au monde entier. L'énergie spirituelle démoniaque dans son corps s'emballa, et il ressentit même l'impulsion irrépressible de se trancher lui-même le bras.
+À cet instant, il eut l'illusion de faire face au monde entier. L'énergie spirituelle démoniaque dans son corps s'emballa, et il ressentit même une pointe d'impulsion à se trancher lui-même le bras.
 
 Les personnes aux alentours étaient toutes sous le choc. Ils n'avaient plus le courage de parler comme auparavant; la place entière était plongée dans un silence anormal!
 
@@ -128,7 +128,7 @@ Parmi les commandants en chef, à l'exception du commandant en chef du Ciel qui 
 
 « Les mots qui évoquent la Loi! » Les sept commandants se regardèrent, découvrant le choc dans les yeux de leurs pairs.
 
-Aucun d'eux ne remarqua qu'au moment où cette voix retentit, les yeux toujours clos du commandant en chef du Ciel s'ouvrirent légèrement, révélant une pointe de confusion.
+Aucun d'eux ne remarqua qu'au moment où cette voix retentit, les yeux toujours clos du commandant en chef du Ciel s'ouvrirent légèrement, révélant une lueur trouble.
 
 Parmi les vice-commandants, le vice-commandant jaune fut totalement stupéfait, tandis que le vice-commandant Xuan laissa échapper un soupir.
 

@@ -84,7 +84,7 @@ La plateforme étant étroite, le corps de Wang Lin fut expulsé et il chuta dan
 
 L'homme d'âge moyen baissa la tête pour observer l'endroit où Wang Lin avait disparu avant de relever le regard et de dire lentement: « Je considérerai cela comme une résistance réussie au premier assaut! Place au second! » Sur ce, il leva sa main droite et un autre rayon de lumière dorée se condensa à son extrémité.
 
-La blessure grave de Wang Lin n'était pas une surprise pour Yao Xixue. Elle ne se souciait guère de la vie de cet homme; seule l'entrée dans la grotte comptait. L'avertissement de son père concernant les relations avec Wang Lin était totalement oublié.
+La blessure grave de Wang Lin n'était pas une surprise pour Yao Xixue. Elle ne se souciait guère de la vie de cet homme; seule l'entrée dans la grotte comptait. L'avertissement de son père de ne pas se brouiller avec Wang Lin était totalement oublié.
 
 En vérité, elle estimait que le statut et la culture de Wang Lin n'étaient pas dignes d'une amitié, malgré ses capacités anormales!
 
@@ -102,7 +102,7 @@ Lors de sa première visite, elle avait utilisé les jades pour franchir les onz
 
 « Je considère que vous avez encaissé le second coup! Voici maintenant le troisième! » Tandis que l'homme parlait, un autre rayon doré se rassembla à son doigt. Sans lui laisser le temps de se préparer, la lumière s'élança.
 
-Bien que le teint de Yao Xixue fût délavé, son cœur battait avec excitation. Auparavant, lorsqu'elle atteignait le troisième assaut, elle était si gravement blessée et si épuisée en énergie spirituelle céleste qu'il lui était impossible de résister.
+Bien que le teint de Yao Xixue fût rougeoyant, son cœur battait avec excitation. Auparavant, lorsqu'elle atteignait le troisième assaut, elle était si gravement blessée et si épuisée en énergie spirituelle céleste qu'il lui était impossible de résister.
 
 Mais grâce à la résistance de Wang Lin au premier coup, elle disposait encore d'une grande réserve d'énergie spirituelle céleste. Malgré ses blessures légères, elle pouvait encore utiliser ses sorts.
 

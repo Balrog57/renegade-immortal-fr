@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 702 - Shut up
 slug: silence
 ---
-Le cœur de Wang Ping se serra davantage. À ses côtés, Qing Yi lui prit la main. Ses yeux étaient empreints de tendresse lorsqu'elle dit: « Ne t'inquiète pas. Peu importe ce que tu es, je resterai à tes côtés. »
+Le cœur de Wang Lin se serra davantage. À côté de Wang Ping, Qing Yi lui prit la main. Ses yeux étaient empreints de tendresse lorsqu'elle dit: « Ne t'inquiète pas. Peu importe ce que tu es, je resterai à tes côtés. »
 
 Wang Ping réfléchit en silence et hocha la tête.
 
@@ -38,9 +38,9 @@ La Bête de Tonnerre du Temple Céleste au-dessus d'eux libéra également des d
 
 La bête issue du char de guerre leva la tête et poussa un rugissement vers les cieux.
 
-Des grondements tonitruants tombèrent du ciel et des éclairs dévalèrent les airs. Ce n'était pas une rétribution divine, mais l'effet du sortilège de la bête.
+Des grondements tonitruants tombèrent du ciel et des éclairs dévalèrent les airs. Ce n'était pas une tribulation céleste, mais l'effet du sortilège de la bête.
 
-La Bête de Tonnerre du Temple Céleste expulsa un torrent de foudre par ses narines, comme si elle ne pouvait plus contenir sa rage, et se mit elle aussi à rugir.
+La Bête de Tonnerre du Temple Céleste expulsa un torrent de foudre par ses narines, comme si elle ne pouvait plus supporter cette pression, et se mit elle aussi à rugir.
 
 Le regard de la Bête de Tonnerre de Wang Lin devint glacial. Lorsque des Bêtes de Tonnerre se rencontraient, en l'absence de leurs maîtres pour les contenir, elles entraient instantanément dans un combat à mort. Cela les distinguait radicalement des autres bêtes célestes.
 
@@ -60,7 +60,7 @@ Le Temple Céleste possédait certes des Bêtes de Tonnerre à Corne d'Argent, m
 
 Une lueur d'avidité brilla dans ses yeux alors qu'il contemplait la corne. Il fixa ensuite Wang Lin et n'hésita plus. Ses mains tracèrent un sceau avant de se rejoindre brusquement. Lorsqu’il les écarta, une lumière intense jaillit et une épée de foudre argentée prit forme.
 
-Alors que l'électricité parcourait la lame, le Daoïste du Tonnerre forma un nouveau sceau de la main droite et pointa le golem céleste. L'épée longue argentée s'élança vers la marionnette de garde.
+Alors que l'électricité parcourait la lame, le Daoïste du Tonnerre forma un nouveau sceau de la main droite et pointa vers l'avant. L'épée longue argentée s'élança vers la marionnette du Gardien Céleste.
 
 « Tant que je tue cet homme, cette Bête de Tonnerre sans maître sera mienne! » Après avoir lancé l'épée volante, le Daoïste du Tonnerre chargea. Ses mains s'ouvrirent et il hurla: « Rétribution Céleste du Temple du Tonnerre! »
 
@@ -74,7 +74,7 @@ Wang Lin agita le pinceau dans les airs et un symbole se dessina soudainement. S
 
 Sept traits étaient sa limite! Il devait diviser une partie de son âme originelle pour chaque trait, et avec sept traits, il avait déjà fragmenté son âme sept fois!
 
-Depuis que l'âme originelle de Wang Lin avait absorbé l'ancien dragon de tonnerre, elle avait muté. Désormais, puisque sept portions de son âme résidaient dans le symbole, celui-ci n'émettait plus une lueur dorée, mais un éclat blanc saturé de foudre!
+Depuis que l'âme originelle de Wang Lin avait absorbé la moitié de l'ancien dragon de tonnerre, elle avait muté. Désormais, puisque sept portions de son âme résidaient dans le symbole, celui-ci n'émettait plus une lueur dorée, mais un éclat blanc saturé de foudre!
 
 Cette fois, il ne dégageait pas seulement la pression d'un être céleste, mais celle du tonnerre céleste lui-même! Dès que le symbole fut achevé, des craquements stridents jaillirent de l'électricité qui le traversait.
 
@@ -82,7 +82,7 @@ Une force destructrice inimaginable explosa du symbole telle une tempête!
 
 Cette pression était la véritable puissance du tonnerre céleste; rien de ce que les sorts ordinaires pouvaient produire ne pouvait l'égaler. À l'instant où cette puissance apparut, même les deux Bêtes de Tonnerre en plein combat s'interrompirent pour observer. Grâce à leur affinité avec le tonnerre, elles sentirent clairement que cet éclair portait une trace de tonnerre céleste antique!
 
-Ce tonnerre antique provenait de l'ancien dragon de tonnerre. Ce dernier avait autrefois régné sur les foudres des cieux et possédait le pouvoir de commander au tonnerre céleste. En dévorant le dragon, Wang Lin avait fusionné cette puissance avec son âme originelle.
+Ce tonnerre antique provenait de l'ancien dragon de tonnerre. Ce dernier avait autrefois régné sur les foudres des cieux et possédait le pouvoir de commander au tonnerre céleste. En dévorant la moitié du dragon, Wang Lin avait fusionné cette puissance avec son âme originelle.
 
 On pouvait affirmer que le tonnerre issu de l'âme originelle de Wang Lin surpassait tout autre tonnerre au monde. Si le Daoïste du Tonnerre utilisait d'autres sorts, il s'en sortirait, mais face aux sorts de foudre de Wang Lin, il n'avait aucune chance!
 
@@ -102,7 +102,7 @@ Boum, boum, boum, boum! Chaque explosion correspondait à une portion de l'âme 
 
 Lorsque la dernière portion de l'âme finit de résonner, le visage du Daoïste du Tonnerre était livide et il avait déjà reculé de mille pieds. L'effroi dans ses yeux était monstrueux.
 
-C'était la première fois de sa vie qu'il se faisait vaincre par un sort de tonnerre. Il en venait même à se demander si, comparé à son ennemi, ce Xu Mu n'était pas le véritable messager du Royaume Céleste du Tonnerre et lui l'imposteur.
+C'était la première fois de sa vie qu'il se faisait vaincre par un sort de tonnerre. Il en venait même à se demander si, comparé à son ennemi, ce Xu Mu n'était pas le véritable messager du Temple Céleste du Tonnerre et lui l'imposteur.
 
 Ce sentiment de confusion le fit reprendre une profonde inspiration, ses yeux devenant plus sombres encore.
 

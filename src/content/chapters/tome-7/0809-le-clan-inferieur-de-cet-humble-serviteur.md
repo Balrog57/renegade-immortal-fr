@@ -10,7 +10,7 @@ Une âme originelle de dragon antique était absolument prodigieuse aux yeux de 
 
 Lorsque l'ancêtre posa le regard sur l'âme originelle de Wang Lin, ses yeux trahirent une expression complexe. Il poussa un soupir, s'avança et joignit les mains. « Haut... Haut Céleste, cet humble serviteur souhaiterait vous demander... »
 
-Wang Lin ne daigna aucune attention au vieil homme. Il atteignit le char de guerre. Après avoir fixé la sixième rune un instant, Wang Lin la dévora sans la moindre hésitation. Puis, il dévora directement la septième rune également.
+Wang Lin ne prêta aucune attention au vieil homme. Son corps de dragon de tonnerre, long d'une dizaine de mètres, se jeta jusqu'au char de guerre. Après avoir fixé la sixième rune un instant, Wang Lin la dévora sans la moindre hésitation. Puis, il dévora directement la septième rune également.
 
 Cette scène fit plisser les yeux de l'assistance qui observa la scène avec une attention accrue.
 
@@ -36,7 +36,7 @@ Le spectacle de Xu Liguo était très animé, mais Wang Lin l'ignorait totalemen
 
 Alors que le grondement du tonnerre résonnait au sein de son âme originelle, l'une des runes commença à se désagréger. Ce ne fut pas instantané, mais un processus continu.
 
-Pendant ce temps, le Char de Guerre Divin sous l'âme originelle de Wang Lin émit une lueur noire qui devint progressivement plus intense. À la fin, elle semblait capable d'engloutir la lumière elle-même.
+Pendant ce temps, le Char de Guerre Anti-Dieu sous l'âme originelle de Wang Lin émit une lueur noire qui devint progressivement plus intense. À la fin, elle semblait capable d'engloutir la lumière elle-même.
 
 Sous cet éclat noir, quiconque posait les yeux sur Wang Lin en ressentait le frisson.
 
@@ -58,11 +58,11 @@ Les yeux de l'âme originelle de Wang Lin brillèrent d'un éclat vif et les deu
 
 « Dois-je la raffiner en un trésor lié à ma vie? » Tandis que Wang Lin méditait silencieusement, les sept runes fusionnèrent pour former une rune unique près de sa poitrine. Dès l'apparition de cette rune, la lumière noire accumulée par le char de guerre se concentra sur la poitrine de Wang Lin.
 
-« Char de Guerre Divin, libération du sceau! » Ce message transmis par Sens Divin se propagea comme un coup de tonnerre et toute la lumière noire sembla s'engouffrer dans le corps de Wang Lin. Soudain, d'innombrables épines se mirent à briller et une ombre illusoire prit rapidement forme.
+« Char de Guerre Anti-Dieu, libération du sceau! » Ce message transmis par Sens Divin se propagea comme un coup de tonnerre et toute la lumière noire sembla s'engouffrer dans le corps de Wang Lin. Soudain, d'innombrables épines se mirent à briller et une ombre illusoire prit rapidement forme.
 
 C'était une bête spirituelle haute de près de 330 mètres. Dès son apparition, elle poussa un rugissement qui fit pâlir tous les membres du Clan des Immortels Élus. Les plantes entre leurs sourcils clignotèrent frénétiquement et ils ne purent s'empêcher de reculer. Seuls les quelques individus dotés d'une culture puissante purent tenir un instant avant d'être eux aussi contraints de battre en retraite.
 
-Les poils de la puce se hérissèrent et elle poussa des rugissements. De même, le ventre du crapaud tonnerre se gonfla alors qu'il préparait son sortilège le plus puissant.
+Les poils de la bête moustique se hérissèrent et elle poussa des rugissements. De même, le ventre du crapaud tonnerre se gonfla alors qu'il préparait son sortilège le plus puissant.
 
 Seul Xu Liguo luttait encore pour hurler: « À moins que vous ne passiez sur mon corps... »
 
@@ -92,7 +92,7 @@ Wang Lin fronça légèrement les sourcils. C'était un homme cruel et décisif.
 
 Le regard de Wang Lin se glaça et il dit calmement: « Effondrement! Effondrement! Effondrement! »
 
-À peine ces trois mots prononcés, la bête qui accrochait fut instantanément brisée et repoussée. Aussitôt après, un second effondrement survint.
+À peine ces trois mots prononcés, la bête qui chargeait fut instantanément brisée et repoussée. Aussitôt après, un second effondrement survint.
 
 Un gémissement de douleur émana du chaos, et à cet instant précis, un troisième effondrement se produisit. Ces trois décompositions consécutives plongèrent la bête spirituelle dans une agonie inimaginable.
 
@@ -116,4 +116,4 @@ Ce papillon était d'une beauté telle que Wang Lin en plissa les yeux.
 
 C'était un homme vêtu d'une robe bleue, le regard glacial.
 
-« Que fait un humble serviteur de ce royaume ici? »
+« Humbles gens d'un clan inférieur de ce royaume, que faites-vous là? »

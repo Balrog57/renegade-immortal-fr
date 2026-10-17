@@ -6,7 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: "Chapter 645 - Decisive!"
 slug: decisif
 ---
-Le brouillard violet se rétracta frénétiquement, formant une épaisse couche de gaz pourpre à ses lisières. Malgré tous les efforts des disciples de la Secte de l'Épée Da Lou, nul ne parvint à percer cette barrière. Le gaz semblait posséder des propriétés corrosives, ce qui laissait les disciples désabusés et irrités.
+Le brouillard violet se rétracta frénétiquement, formant une épaisse couche de gaz pourpre à ses lisières. Malgré tous les efforts des disciples de la Secte de l'Épée Da Luo, nul ne parvint à percer cette barrière. Rongés par le gaz, ils semblaient perdre une grande partie de leur essence vitale : abattus, mais d'autant plus irritables.
 
 L'un d'eux tenta même d'utiliser l'énergie d'épée de Ling Tianhou, mais cela fut vain: le gaz violet l'absorba promptement.
 
@@ -16,23 +16,23 @@ L'expression de Chen Long changea radicalement. Il se tourna vers Wang Lin, qui 
 
 Les yeux de Wang Lin s'illuminèrent. Sans dire un mot, il recula rapidement. À cet instant, le brouillard violet se contractait avec célérité. S'il tardait trop et se laissait envahir par le gaz pourpre, d'autres dangers pourraient surgir.
 
-Les disciples de la Secte de l'Épée Da Lou battirent également en retraite précipitamment, tandis que Chen Long lançait un appel désespéré: « Compagnon cultivateur Wang! »
+Les disciples de la Secte de l'Épée Da Luo battirent également en retraite précipitamment, tandis que Chen Long lançait un appel désespéré: « Compagnon cultivateur Wang! »
 
 « Compagnon Chen Long, je n'ai même pas la capacité de me sauver moi-même, alors ne comptez pas sur moi! » répondit Wang Lin en secouant la tête avant de disparaître instantanément dans le brouillard. L'épée céleste de Zhou Yi tournait autour de son corps.
 
-« Toi! » Chen Long eut une expression sombre et poussa un soupir. La Secte du Destin Céleste et la Secte de l'Épée Da Lou étaient comme l'eau et le feu. Il comprenait pourquoi Wang Lin refusait d'aider.
+« Toi! » Chen Long eut une expression sombre et poussa un soupir. La Secte du Destin Céleste et la Secte de l'Épée Da Luo étaient comme l'eau et le feu. Il comprenait pourquoi Wang Lin refusait d'aider.
 
-« Je m'en veux d'avoir tant hésité. Si j'avais décidé plus tôt de me rebeller contre Cupidité, nous n'en serions pas là si nous avions utilisé l'énergie d'épée de notre Maître! » Les yeux de Chen Long étaient empreints de regret.
+« Je m'en veux d'avoir tant hésité. Si j'avais décidé plus tôt de me rebeller contre Cupidité, en affrontant Cupidité avec l'énergie d'épée offerte par notre Maître, nous n'en serions pas là! » Les yeux de Chen Long étaient empreints de regret.
 
-Cependant, Cupidité appartenait à la génération de son maître et connaissait donc leur énergie d'épée. Il savait que même s'ils l'utilisaient, Cupidité serait sans doute déjà préparé. La victoire n'était donc pas garantie. De plus, il était fort probable que tous ses frères apprentis y laisseraient la vie.
+Cependant, Cupidité était après tout un Senior de la génération de son maître, et il n'ignorait pas l'existence de leur énergie d'épée. Même s'ils l'utilisaient, Cupidité serait sans doute déjà préparé. La victoire n'était donc pas garantie. De plus, il était fort probable que tous ses frères apprentis y laisseraient la vie.
 
 Il ne voulait pas payer un tel prix pour une simple suspicion; c'est pourquoi il n'avait pu se montrer décisif et avait attendu un siècle!
 
-À cet instant, le brouillard violet se rétracta brusquement et, en un clin d'œil, sa taille fut divisée par dix. À mesure qu'il se contractait, le gaz pourpre à ses lisières devenait de plus en plus puissant. Les membres de la Secte de l'Épée Da Lou reculaient sans cesse.
+À cet instant, le brouillard violet se rétracta brusquement et, en un clin d'œil, sa taille fut divisée par dix. À mesure qu'il se contractait, le gaz pourpre à ses lisières devenait de plus en plus puissant. Les membres de la Secte de l'Épée Da Luo reculaient sans cesse.
 
 « Wang Lin, si nous ne partons pas maintenant, il sera difficile de s'échapper, même avec mes capacités! » La voix anxieuse de Zhou Yi résonna dans l'esprit de Wang Lin.
 
-« Attendons encore un peu! » Les yeux de Wang Lin brillèrent. Il était toujours à l'intérieur du brouillard. En observant les disciples de la Secte de l'Épée Da Lou au loin, son regard devint glacial.
+« Attendons encore un peu! » Les yeux de Wang Lin brillèrent. Il était toujours à l'intérieur du brouillard. En observant les disciples de la Secte de l'Épée Da Luo au loin, son regard devint glacial.
 
 « Cinq personnes... Quatre rayons d'énergie d'épée de Ling Tianhou, cinq épées précieuses... » Le regard de Wang Lin se fit plus froid encore.
 
@@ -46,7 +46,7 @@ Cette énergie s'était formée lorsque Ling Tianhou avait raffiné les quatre p
 
 C'est précisément parce qu'il possédait ce filament d'énergie qu'il regrettait de ne pas avoir agi plus tôt!
 
-Dès que l'énergie d'épée apparut, la contraction du brouillard violet ralentit un instant. À l'extérieur, le regard de Cupidité se glaça. Il remarqua aussitôt que quelque chose clochait avec ce Chen Long, et il avait vu juste.
+Dès que l'énergie d'épée apparut, la contraction du brouillard violet ralentit un instant. À l'extérieur, le regard de Cupidité se glaça. Il avait depuis longtemps remarqué que quelque chose clochait avec ce Chen Long, et il avait vu juste.
 
 Chen Long poussa un soupir, puis l'énergie d'épée enveloppa son corps. Il fonça droit vers le gaz pourpre et, au moment de la collision, un fracas retentit comme une friction intense. Un feu semblait entourer le corps de Chen Long!
 
@@ -54,7 +54,7 @@ Finalement, une petite brèche s'ouvrit dans le brouillard et Chen Long s'en éc
 
 Au moment où Chen Long s'échappa, le brouillard violet se condensa davantage. Il devint si dense qu'on ne pouvait plus rien voir à l'intérieur; même le son ne parvenait plus à s'en échapper.
 
-Les yeux des quatre disciples de la Secte de l'Épée Da Lou étaient remplis de désespoir. Wu Ma poussa un rugissement de rage: « Mes trois frères, puisque nous sommes dans cette situation, pourquoi désespérer? Je sais que Wang Lin est encore là! Aidez-moi à tuer cet homme pour que je n'aie aucun regret! »
+Les yeux des quatre disciples de la Secte de l'Épée Da Luo étaient remplis de désespoir. Wu Ma poussa un rugissement de rage: « Mes trois frères, puisque nous sommes dans cette situation, pourquoi désespérer? Je sais que Wang Lin est encore là! Aidez-moi à tuer cet homme pour que je n'aie aucun regret! »
 
 Sur ces mots, les trois autres disciples manifestèrent une intention meurtrière. En effet, s'ils devaient mourir, autant emporter cette personne de la Secte du Destin Céleste avec eux. Sans son apparition, ils auraient peut-être eu une chance de survivre.
 
@@ -62,13 +62,13 @@ Sur ces mots, les trois autres disciples manifestèrent une intention meurtrièr
 
 « Senior, aide-moi à verrouiller les quatre autres avec ton Sens Divin d'épée! » Les yeux de Wang Lin brillèrent et il se déplaça comme l'éclair. Dans ce brouillard où le Sens Divin était obstrué, il se mouvait tel un spectre.
 
-« Wang Lin, dans dix respirations, même si tu résistes, je te sortirai de là! » Après avoir envoyé ce message, Zhou Yi propagea son Sens Divin d'épée à travers le brouillard qui se contractait et verrouilla les quatre membres de la Secte de l'Épée Da Lou!
+« Wang Lin, dans dix respirations, même si tu résistes, je te sortirai de là! » Après avoir envoyé ce message, Zhou Yi propagea son Sens Divin d'épée à travers le brouillard qui se contractait et verrouilla les quatre membres de la Secte de l'Épée Da Luo!
 
 Wang Lin fonça comme la foudre vers l'un d'eux. Ce dernier possédait le niveau de culture le plus bas des quatre, étant seulement au stade intermédiaire de la Transformation de l'Âme. Son Sens Divin était inutile dans ce brouillard; il était comme aveugle et sourd.
 
 Au moment où Wang Lin se rapprocha, l'homme ne sentit qu'une brise. Mais cette brise devint subitement glaciale et emporta sa tête!
 
-Wang Lin retint la tête, l'énergie d'épée enfermée à l'intérieur. Après avoir rangé l'épée précieuse, il chargea vers sa cible suivante.
+Wang Lin retint la tête, l'âme originelle de l'homme enfermée à l'intérieur. Après avoir rangé l'épée précieuse, il chargea vers sa cible suivante.
 
 Si She contrôlait son épée précieuse, mais il était frustré et le désespoir se lisait dans ses yeux. Il ouvrit grand les paupières, mais ne pouvait voir qu'à 2,3 mètres devant lui. Au-delà, ce n'était que brouillard violet.
 
@@ -94,7 +94,7 @@ Après exactement dix respirations, Zhou Yi arracha Wang Lin du brouillard viole
 
 « Dommage, il reste encore une épée! » soupira Wang Lin.
 
-Parmi les quatre disciples, il n'avait réussi à récupérer que deux autres filaments d'énergie. En ajoutant celui qu'il possédait déjà, il en avait maintenant trois.
+Parmi les quatre disciples de la Secte de l'Épée Da Luo, en comptant l'épée d'avant, Wang Lin n'avait pris que trois épées, ainsi que deux filaments d'énergie d'épée!
 
 Les quatre avaient été piégés dans ce brouillard pendant un siècle; ils étaient donc devenus impatients et avaient sombré dans le désespoir après le départ de Chen Long. Sans ces circonstances, même Wang Lin n'aurait pu capturer les énergies d'épée en seulement dix respirations. Malgré cela, l'un d'eux avait réussi à activer son énergie. Heureusement, Wang Lin était préparé et n'en fut pas blessé.
 
@@ -114,9 +114,9 @@ Cupidité se tenait à distance, entouré par les insectes. Ces bêtes étaient 
 
 Même en contrôlant la bête reine, ce qui lui permettait de manipuler indirectement le troupeau, Cupidité n'osait pas s'approcher de ces créatures. Leur nature était trop violente et impossible à apprivoiser. Le moindre relâchement de sa garde provoquerait une attaque.
 
-S'il n'y en avait eu que des dizaines ou des centaines, il ne s'en serait pas soucié. Même des milliers n'auraient fait que changer son expression. Mais ici, il y en avait des dizaines de milliers!
+S'il n'y en avait eu que quelques-unes, il ne s'en serait pas soucié, et une centaine n'aurait pas posé de grand problème. Même des milliers n'auraient fait que changer son expression. Mais ici, il y en avait plus de dix mille!
 
-Dès lors, comment ne pas avoir le cuir qui pelle? Malgré son contrôle, il restait extrêmement prudent.
+Dès lors, comment ne pas avoir le cuir chevelu hérissé? Malgré son contrôle, il restait extrêmement prudent.
 
 « Quand ton maître apprendra cela, j'aurai naturellement une explication. De plus, rien ne garantit qu'il soit au courant. »
 
@@ -124,7 +124,7 @@ Dès lors, comment ne pas avoir le cuir qui pelle? Malgré son contrôle, il res
 
 L'apparition de Wang Lin fit immédiatement refroidir le regard de Cupidité. Il ricana et envoya un ordre mental. Un vaste groupe de bêtes moustiques poussa un rugissement collectif et chargea vers Wang Lin.
 
-Cupidité laissa échapper un froid reniflement. Il n'avait pas l'intention de tuer Wang Lin immédiatement, mais voulait extraire son âme originelle pour découvrir où se trouvait Situ Nan. En voyant Wang Lin apparaître près de la Mer des Esprits Démoniaques Orientaux, il avait senti l'aura de Situ Nan sur lui!
+Cupidité laissa échapper un froid reniflement. Il n'avait pas l'intention de tuer Wang Lin immédiatement, mais voulait extraire son âme originelle pour découvrir où se trouvait Situ Nan. En voyant Wang Lin apparaître près de la Mer des Esprits Démoniaques de l'Est, il avait senti l'aura de Situ Nan sur lui!
 
 Wang Lin observa les bêtes moustiques accourir vers lui avec une expression étrange.
 

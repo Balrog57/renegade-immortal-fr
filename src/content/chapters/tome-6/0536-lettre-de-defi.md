@@ -32,13 +32,13 @@ Wang Lin marcha d'un pas régulier jusqu'à Treize. Lorsqu'il se pencha pour l'e
 
 Wang Lin s'agenouilla et pressa doucement son doigt droit sur la poitrine de Treize. Un cri strident jaillit soudainement du corps, tandis qu'une ligne rouge bondissait du point de pression pour foncer droit sur lui. Les yeux de Wang Lin devinrent glacials et une force invisible enveloppa son corps. Un bruit sourd retentit, comme si la ligne rouge avait percuté une plaque d'acier, et elle fut violemment repoussée.
 
-À cet instant, Wang Lin fit un mouvement brusque pour saisir la ligne rouge. D'un coup sec, il tira, provoquant un hurlement aigu alors qu'il extirpait la ligne du corps de Treize. Cette entité mesurait plus de trois mètres de long et se tortillait comme un serpent. Son extrémité opposée tenta de charger Wang Lin, mais fut une fois de plus stoppée.
+À cet instant, Wang Lin fit un mouvement brusque pour saisir la ligne rouge. D'un coup sec, il tira, provoquant un hurlement aigu alors qu'il extirpait la ligne du corps de Treize. Cette entité mesurait environ trois mètres de long et se tortillait comme un serpent. Son extrémité opposée tenta de charger Wang Lin, mais fut une fois de plus stoppée.
 
 La froideur dans le regard de Wang Lin s'intensifia et l'énergie spirituelle céleste en son sein déferla avec fureur. Il serra fermement la prise et, après une série de craquements, la ligne rouge se mua en poussière en l'espace de trois respirations.
 
 Une fois la ligne disparue, les traits de Treize retrouvèrent lentement leur couleur. Bien qu'il fût encore extrêmement faible, sa vie n'était plus en danger immédiat. Cependant, le visage de Wang Lin s'assombrit davantage: il comprit instantanément que Treize avait été brisé!
 
-Les trois étoiles d'énergie spirituelle démoniaque que Treize avait accumulées par la culture du sort de raffinage de l'âme s'étaient évaporées. Si cela avait été tout, ce n'aurait pas été grave, mais tous les méridiens de son corps étaient brisés et ses drapeaux d'âmes avaient été dérobés.
+Les trois étoiles d'énergie spirituelle démoniaque que Treize avait accumulées par la culture du sort d'affinement des âmes s'étaient évaporées. Si cela avait été tout, ce n'aurait pas été grave, mais tous les méridiens de son corps étaient brisés et ses drapeaux d'âmes avaient été dérobés.
 
 L'ennemi avait agi avec une cruauté extrême sans pour autant tuer Treize. En laissant le lion le ramener, il prouvait qu'il avait manifestement d'autres desseins.
 
@@ -50,7 +50,7 @@ Treize parvint à peine à entrouvrir la bouche. Dans son état de détresse, il
 
 Le regard de Wang Lin brilla d'une lueur particulière, mais il resta silencieux.
 
-« Sur le chemin du retour, nous avons rencontré une grande tribu. Nous avons tenté de les contourner, mais ils nous ont attaqués. Un homme en robe blanche m'a dérobé mon drapeau d'âme et a planté ce démon en moi. Il m'a laissé un message: si vous voulez récupérer les drapeaux, il ne vous reste qu'à le trouver. »
+« Sur le chemin du retour, nous avons rencontré une grande tribu. Nous avons tenté de les contourner, mais ils nous ont attaqués. Un vieillard en robe blanche a pris mes drapeaux d'âmes et a planté ce démon en moi. Il m'a laissé un message: si vous voulez récupérer les drapeaux, il ne vous reste qu'à le trouver. »
 
 Wang Lin hocha la tête, puis leva son doigt; à cet instant, le corps de Treize tressaillit avant qu'il ne retombe dans l'inconscience.
 
@@ -62,7 +62,7 @@ Une fois la vallée quittée, Wang Lin fendit l'air comme un éclair. Son expres
 
 Initialement, Treize était sorti pour attaquer une autre tribu. S'il avait échoué et péri, cela n'aurait pas affecté Wang Lin. La vie et la mort sont les deux faces d'une même pièce, et en tant que cultivateur du domaine de la vie et de la mort, Wang Lin en avait parfaitement conscience.
 
-Cependant, la situation était différente ici. Treize était sur le chemin du retour lorsqu'il fut attaqué par une autre tribu. L'ennemi ne l'avait pas tué, mais avait implanté un démon en lui. Si cela s'était arrêté là, cela aurait pu servir de leçon, mais ils avaient également brisé ses méridiens et lancé ce défi de récupérer les drapeaux d'âmes.
+Cependant, la situation était différente ici. Treize était sur le chemin du retour lorsqu'il fut attaqué par une autre tribu. L'ennemi ne l'avait pas tué, mais avait implanté un démon en lui. Si cela s'était arrêté là, cela aurait pu servir de leçon, mais ils avaient également pris les drapeaux d'âmes et lancé ce défi de venir les récupérer.
 
 Désormais, la signification changeait: c'était une provocation, ou pour mieux dire, une lettre de défi! Treize était devenu la lettre de défi vivante de quelqu'un!
 
@@ -72,9 +72,9 @@ Wang Lin était doté d'une grande intelligence. Si le niveau de culture de cet 
 
 Fort de cette pensée, il laissa échapper un reniflement glacial et s'élança comme une météorite traversant le ciel.
 
-La Tribu des Eaux Célestes résidait dans une vaste plaine du nord-ouest du Territoire de l'Esprit Démoniaque. La zone était entourée de terres planes; à l'origine, ce n'était pas un lieu propice à l'habitation, mais une formation ancienne y était établie. Cette formation était extrêmement puissante: une fois activée, tout ce qui se trouvait dans un rayon de cinq kilomètres était protégé. Même durant la nuit des esprits démoniaques, l'intérieur restait parfaitement sûr.
+La Tribu des Eaux Célestes résidait dans une vaste plaine du nord-ouest de la Terre des Esprits Démoniaques. La zone était entourée de terres planes; à l'origine, ce n'était pas un lieu propice à l'habitation, mais une formation ancienne y était établie. Cette formation était extrêmement puissante: une fois activée, tout ce qui se trouvait dans un rayon de cinq kilomètres était protégé. Même durant la nuit des esprits démoniaques, l'intérieur restait parfaitement sûr.
 
-La survie d'une tribu dans le Territoire de l'Esprit Démoniaque dépendait de sa capacité à trouver une formation protectrice. On en trouvait beaucoup dans ce territoire, mais peu couvraient une telle étendue de cinq kilomètres. Plus la zone couverte était vaste, plus la formation était puissante, ce qui permettait également à la tribu d'avoir un potentiel de croissance plus important.
+La survie d'une tribu dans la Terre des Esprits Démoniaques dépendait de sa capacité à trouver une formation protectrice. On en trouvait beaucoup dans ce territoire, mais peu couvraient une telle étendue de cinq kilomètres. Plus la zone couverte était vaste, plus la formation était puissante, ce qui permettait également à la tribu d'avoir un potentiel de croissance plus important.
 
 Par exemple, la vallée n'était que limitée par sa taille; une fois qu'une certaine population était atteinte, elle ne pouvait plus accueillir de nouveaux membres. Cette formation sur la plaine couvrant cinq kilomètres, elle permettait une expansion bien plus grande.
 
@@ -84,15 +84,15 @@ Le vieillard en robe blanche prit une tasse et but une gorgée. « De toutes les
 
 L'Ancien en robe grise prit également une tasse. « Quand comptez-vous repartir? »
 
-Le vieillard en robe blanche réfléchit un instant avant de répondre: « Demain. Je ne peux pas m'absenter trop longtemps de la Cité Démoniaque Ancienne. J'ai déjà passé un mois pour rendre visite à ma famille; si je prolonge mon séjour, il sera difficile de l'expliquer au général de l'aile gauche. »
+Le vieillard en robe blanche réfléchit un instant avant de répondre: « Demain. Je ne peux pas m'absenter trop longtemps de la Cité de l'Ancien Démon. J'ai déjà passé un mois pour rendre visite à ma famille; si je prolonge mon séjour, il sera difficile de l'expliquer au général de l'aile gauche. »
 
 L'Ancien en robe grise hocha la tête et dit: « Vous avez blessé le disciple de quelqu'un et dérobé leur étrange petit drapeau. S'ils viennent frapper à notre porte, que devrai-je faire? »
 
-Les yeux du vieillard en robe blanche brillèrent d'une lueur malicieuse: « Que voulez-vous dire par "que devrez-vous faire"? Utilisez simplement la formation pour tuer cet individu! »
+Les yeux du vieillard en robe blanche brillèrent d'une lueur malicieuse: « Et alors? Il suffit de le tuer grâce à la formation! »
 
 L'Ancien en robe grise fronça les sourcils et déclara d'un ton sérieux: « Ces gens n'étaient pas simples. Presque tous possédaient plus d'une étoile d'énergie spirituelle démoniaque et maîtrisaient des sorts démoniaques, particulièrement celui qui menait la troupe. Grâce à ces petits drapeaux, il pouvait contrôler les esprits démoniaques pour attaquer. Au début, ils nous contournaient, mais vous avez manifesté un intérêt pour son drapeau. Non seulement vous les avez tués pour leurs trésors, mais vous avez même laissé le chef s'échapper pour qu'il serve de lettre de défi et attire son protecteur. Vous êtes allé un peu trop loin. »
 
-L'homme en robe blanche rit: « Je suis un garde d'honneur sous les ordres du général de l'aile gauche de la Cité Démoniaque Ancienne. Comment tuer quelques sauvages pourrait-il être excessif? De plus, j'ai déduit que celui qui les dirigeait n'était pas puissant. Pourquoi serait-il encore ici, dans une tribu? S'il était fort, il serait déjà allé à la Cité Démoniaque Ancienne pour obtenir un poste de prestige. Je l'ai attiré ici car je veux obtenir la méthode d'utilisation de ce petit drapeau. S'il vient, tant mieux; sinon, je suivrai la marque que j'ai laissée sur le jeune homme pour la lui voler! »
+L'homme en robe blanche rit: « Je suis un diacre sous les ordres du général de l'aile gauche de la Cité de l'Ancien Démon. Comment tuer quelques sauvages pourrait-il être excessif? De plus, j'ai déduit que celui qui les dirigeait n'était pas puissant. Pourquoi serait-il encore ici, dans une tribu? S'il était fort, il serait déjà allé à la Cité de l'Ancien Démon pour obtenir un poste de prestige. Je l'ai attiré ici car je veux obtenir la méthode d'utilisation de ce petit drapeau. S'il vient, tant mieux; sinon, je suivrai la marque que j'ai laissée sur le jeune homme pour la lui voler! »
 
 L'Ancien en robe grise demanda: « L'incantation dans l'esprit du jeune homme est-elle un leurre? »
 

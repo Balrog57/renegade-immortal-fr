@@ -6,7 +6,7 @@ bookTitle: Cultivation Planet Crystal
 en: Chapter 466 - Tuo Sens Killing Intent
 slug: lintention-meurtriere-de-tuo-sen
 ---
-Une fois que Qian Feng eut fini de parler, il brandit son épée. Une aura primordiale s'en dégagea; une aura qui semblait émaner d'un esprit primordial.
+Une fois que Qian Feng eut fini de parler, il brandit son épée. Une aura primordiale s'en dégagea; une aura qui semblait émaner d'une divinité antique.
 
 Dès l'apparition de l'épée de fer, même Zhu Quezi et Yun Quezi, qui se livraient à un combat au loin, furent stupéfaits.
 
@@ -100,7 +100,7 @@ Quant au corps de Qian Feng, il tomba du ciel pour sombrer dans l'océan. Le sac
 
 Zhou Wutai et Zi Xin observaient la scène à distance. Ils échangèrent un regard, puis Zhou Wutai laissa échapper un soupir secret. Finalement, il n'avait pas réussi à transmettre à temps ce qu'il voulait dire à Wang Lin.
 
-La haine dans les yeux de Zi Xin s'évanouit. Elle regarda le corps de Qian Feng sombrer et se mit à rire d'un rire d'une monstruosité absolue.
+La haine dans les yeux de Zi Xin s'évanouit. Elle regarda le corps de Qian Feng sombrer et se mit à rire, un rire où perçait une haine immense.
 
 « Qian Feng! » Les yeux de Zi Xin devinrent froids; elle s'assit rapidement et ses mains formèrent un sceau mystérieux. Simultanément, des éclairs de lumière jaillirent de son front et plusieurs cultivateurs-marionnettes apparurent pour assurer sa protection.
 
@@ -116,7 +116,7 @@ Au même moment, Zhu Quezi fut également expulsé. Son expression était affreu
 
 Un rire dément résonna depuis l'intérieur de la brume rouge. Peu après, celle-ci se dissipa, révélant la silhouette rouge de Tuo Sen tenant le cristal blanc. Ses yeux projetaient une lueur écarlate.
 
-« Une fois libéré, je vous ferai goûter à ma véritable force! » Tandis que Tuo Sen riait, son corps se changea en un éclair de foudre et chargea vers Wang Lin.
+« Vous deux, petits gamins, une fois libéré, je vous ferai goûter à ma véritable force! » Tandis que Tuo Sen riait, son corps se changea en un éclair de foudre et chargea vers Wang Lin.
 
 « Wang Lin! C'est maintenant ton tour! » La voix de Tuo Sen était glaciale et, lorsqu'elle atteignit les oreilles de Wang Lin, elle le fit sursauter. Wang Lin, toujours protégé par le drapeau des âmes, tentait de s'enfuir rapidement.
 

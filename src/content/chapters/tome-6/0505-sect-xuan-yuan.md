@@ -44,7 +44,7 @@ D'autres personnes utilisaient le réseau de transfert quotidiennement. Hormis q
 
 Au moment où le soleil commençait à poindre à l'horizon, le rayon de lumière violette ralentit, permettant à Zhao Si d'apercevoir l'individu qu'il transportait.
 
-L'homme arborait une longue chevelure qui flottait librement derrière lui. Vêtu d'une robe pourpre, il franchit la distance de 33 mètres devant Zhao Si en un seul pas. Il lança ensuite un regard glacial au garde.
+L'homme avait de longs cheveux simplement noués derrière la tête. Vêtu d'une robe pourpre, il franchit la distance de 33 mètres devant Zhao Si en un seul pas. Il lança ensuite un regard glacial au garde.
 
 Le regard de Zhao Si tomba sur le jeton suspendu à la taille de l'inconnu. Sur ce jeton, un chiffre « sept » était clairement gravé.
 
@@ -72,7 +72,7 @@ Lorsqu'il planait dans les airs, il avait déjà observé le dispositif. Le rés
 
 D'innombrables ravins parcouraient cette zone de cinq kilomètres, semblables à des rivières entrelacées avant de se jeter dans l'océan. Une puissance mystérieuse circulait au sein de ces sillons chargés d'énergie.
 
-Le réseau de transfert couvrant cette étendue ne ressemblait plus à un simple dispositif de téléportation; il évoquait plutôt une bête primordiale. La complexité de cet art dépassait tout ce que Wang Lin avait pu voir jusqu'alors.
+Le réseau de transfert couvrant cette étendue ne ressemblait plus à un simple dispositif de téléportation; il évoquait plutôt une bête primordiale, pleine d'une puissante vitalité. La complexité de cet art dépassait tout ce que Wang Lin avait pu voir jusqu'alors.
 
 Zhao Si prit une grande inspiration et répondit sans délai. Il se dirigea vers le flanc du réseau, forma un sceau et projeta un rayon de lumière verte vers l'installation.
 
@@ -106,7 +106,7 @@ Trois jours plus tôt, il avait appris par un ami proche de la Secte du Destin C
 
 En temps normal, Xu Yunshan n'aurait accordé aucune importance à une telle affaire, mais lorsqu'il apprit que l'arrivant était le septième frère de la Division Pourpre — le nouveau disciple que l'Omniscient venait d'accepter, Wang Lin — son attitude changea radicalement.
 
-En tant qu'habitant d'un pays de culture de rang 6 sous la tutelle de la planète Tian Yun, il disposait de registres détaillés sur chaque disciple de l'Omniscient afin de noter leurs préférences. Son attention se portait habituellement sur les véritables disciples et il n'aurait normalement pas prêté attention à Wang Lin, si ce n'était pour le fait que l'Omniscient semblait lui avoir accordé une attention particulière lors de la célébration d'anniversaire.
+En tant qu'habitant d'un pays de culture de rang 6 sous la tutelle de la planète Tian Yun, il disposait de registres détaillés sur chaque disciple de l'Omniscient afin de noter leurs préférences. Son attention se portait habituellement sur les véritables disciples et il n'aurait normalement pas prêté attention à Wang Lin, si ce n'était qu'il s'était montré extrêmement remarquable lors de la célébration d'anniversaire de l'Omniscient.
 
 Ce Wang Lin était apparu de nulle part, la Secte Xuan Yuan ne savait donc presque rien de lui. De plus, du point de vue de la Secte Xuan Yuan, Wang Lin possédait un potentiel immense. Il valait mieux se lier d'amitié avec lui dès maintenant plutôt que tardivement; c'est ce qui motivait sa présence ici.
 

@@ -96,7 +96,7 @@ Le paysage ressemblait à l'enfer! C'était une vision aussi étrange qu'extrêm
 
 Leurs morts générèrent des filaments de gaz blanc qui rattrapèrent Wang Lin et pénétrèrent dans son corps. Ces essences aidèrent rapidement à réparer son corps meurtri et son âme originelle.
 
-Dans le Pays du Démon de Feu, Zi Shu était monté en selle. Vêtu d'une robe bleue et portant une épée géante dans le dos, il fixait froidement l'horizon. Derrière lui se trouvaient 30 000 soldats démons. Les Douze Épées de la Secte de l'Épée Da Lou s'étaient dispersées, et il en faisait partie. Sa culture atteignait le sommet de la phase tardive de la Transformation de l'Âme. Ayant réussi à obtenir le poste de commandant en chef, il menait ses troupes pour rejoindre son frère aîné de la secte!
+Dans le Pays du Démon de Feu, Zi Shu était monté en selle. Vêtu d'une robe bleue et portant une épée géante dans le dos, il fixait froidement l'horizon. Derrière lui se trouvaient 30 000 soldats démons. Les Douze Épées de la Secte de l'Épée Da Luo s'étaient dispersées, et il en faisait partie. Sa culture atteignait le sommet de la phase tardive de la Transformation de l'Âme. Ayant réussi à obtenir le poste de commandant en chef, il menait ses troupes pour rejoindre son frère aîné de la secte!
 
 Soudain, son expression changea lorsqu'il vit une météorite enflammée fendre le ciel. Ses yeux se plissèrent pour l'observer attentivement, puis son visage se décomposa.
 

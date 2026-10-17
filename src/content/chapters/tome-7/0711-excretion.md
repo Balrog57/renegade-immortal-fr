@@ -30,15 +30,15 @@ Fort heureusement, il ne se déplaçait pas trop vite, permettant ainsi à la B�
 
 Wang Lin eut un haut-le-cœur. « Cette chose ressemble étrangement à la troisième forme du Serpent aux yeux de lune! »
 
-Le Serpent aux yeux de lune possédait trois formes. La première était sa forme dormante, dépourvue de tout pouvoir offensif. Lors de la première venue de Wang Lin, c'était l'état dans lequel il se trouvait.
+Le Serpent aux yeux de lune possédait trois formes. La première était sa forme errante, flottante, dépourvue de tout pouvoir offensif. Lors de la première venue de Wang Lin, c'était l'état dans lequel il se trouvait.
 
-La deuxième forme apparaissait lorsque tous les tentacules étaient rétractés et que le Serpent aux yeux de lune changeait de configuration. Le serpent actuel se trouvait dans cet état.
+La deuxième forme apparaissait lorsque tous les tentacules étaient rétractés et que le Serpent aux yeux de lune changeait de configuration: c'était l'état de sommeil. Le serpent actuel se trouvait dans cet état.
 
 La troisième forme était celle de l'assaut. Tous les tentacules étaient alors déployés et pouvaient s'étendre aussi loin que le corps du serpent lui-même. Si l'on rencontrait un Serpent aux yeux de lune sous cette forme, il fallait fuir impérativement, sous peine d'être attaqué.
 
 En y pensant, l'expression de Wang Lin devint plus sombre encore. Il regarda les mille pieds de brouillard restants et commença à hésiter.
 
-« La dernière fois que je suis venu ici, il y avait deux Serpents aux yeux de lune. L'un était dans le premier état et le second dormait. Pourquoi ont-ils changé maintenant? J'ignore à quel serpent appartient ce tentacule. » Wang Lin réfléchit un instant. S'il partait maintenant, non seulement il aurait gaspillé son temps à récolter les Fruits de l'Ascension Céleste, mais il perdrait également la formation d'épées aux sept étoiles.
+« La dernière fois que je suis venu ici, il y avait deux Serpents aux yeux de lune. L'un était dans le premier état et le second dormait. Pourquoi ont-ils changé maintenant? J'ignore à quel serpent appartient ce tentacule. » Wang Lin réfléchit un instant. S'il partait maintenant, non seulement il aurait gaspillé son temps à récolter les Fruits d'Ascension Céleste, mais il perdrait également la formation d'épées aux sept étoiles.
 
 « Je ne vais pas perdre un trésor avant même de m'en approcher! » Les yeux de Wang Lin brillèrent d'un regard déterminé. Il n'était vraiment pas disposé à repartir ainsi. Il tapota la tête de la Bête du Tonnerre, qui chargea alors à travers le brouillard sans émettre le moindre rugissement.
 
@@ -62,9 +62,9 @@ En un éclair, Wang Lin se téléporta. Sa vitesse fut telle qu'il ne laissa qu'
 
 La silhouette de Wang Lin réapparut dans les airs. Il fixa les tentacules au sol, les sourcils encore plus contractés.
 
-« Pour que le Serpent aux yeux de lune soit affecté par les Fruits de l'Ascension Céleste, ils doivent être appliqués sur son point sensible. Mais avec ces tentacules, la tâche sera laborieuse. »
+« Pour que le Serpent aux yeux de lune soit affecté par les Fruits d'Ascension Céleste, ils doivent être appliqués sur son point sensible. Mais avec ces tentacules, la tâche sera laborieuse. »
 
-Après réflexion, Wang Lin frappa son sac de contenance et une grande quantité de Fruits de l'Ascension Céleste s'en échappa. Ses yeux brillèrent, sa main droite se tendit et il ordonna: « Affiner! »
+Après réflexion, Wang Lin frappa son sac de contenance et une grande quantité de Fruits d'Ascension Céleste s'en échappa. Ses yeux brillèrent, sa main droite se tendit et il ordonna: « Affiner! »
 
 Des bruits d'explosions sèches retentirent alors que les fruits éclataient pour se transformer en un liquide rouge qui se condensa.
 
@@ -72,15 +72,15 @@ Wang Lin forma un sceau de la main et cracha une bouffée d'énergie originelle 
 
 Le regard de Wang Lin devint glacial; il saisit la brume et chargea vers le sol. Il pressa sa main et la brume rouge se précipita vers les tentacules.
 
-En un clin d'œil, la brume s'étendit sur plus de 1 000 pieds, enveloppant densément les tentacules. Il était bien plus facile pour eux d'absorber les fruits sous forme de brume.
+En un clin d'œil, la brume s'étendit sur 1 000 pieds, enveloppant densément les tentacules. Il était bien plus facile pour eux d'absorber les fruits sous forme de brume.
 
 Les dizaines de tentacules dans la zone ralentirent progressivement leurs mouvements, comme des mortels s'enivrant. Leur teinte rouge foncé vira rapidement au cramoisi.
 
 Wang Lin descendit avec prudence et se faufila entre les membres. Les tentacules semblaient l'ignorer totalement, ce qui lui permit de pousser un soupir de soulagement. Peu après, il atteignit enfin le sol.
 
-Les souvenirs de l'Ancien Dieu mentionnaient le point sensible du Serpent aux yeux de lune: la racine des tentacules. Une infime stimulation à cet endroit suffisait à exciter tout son organisme.
+Les souvenirs de l'Ancien Dieu Tu Si mentionnaient le point sensible du Serpent aux yeux de lune: la racine des tentacules. Une infime stimulation à cet endroit suffisait à exciter tout son organisme.
 
-Wang Lin sortit avec précaution plusieurs dizaines de Fruits de l'Ascension Céleste et les affina en un liquide rouge. Après y avoir appliqué des restrictions, il permit au liquide de fusionner avec la racine du tentacule.
+Wang Lin sortit avec précaution plusieurs dizaines de Fruits d'Ascension Céleste et les affina en un liquide rouge. Après y avoir appliqué des restrictions, il permit au liquide de fusionner avec la racine du tentacule.
 
 Il procédait avec une extrême prudence, déployant son sens divin pour surveiller les environs.
 
@@ -104,7 +104,7 @@ Les tentacules se déplacèrent avec une célérité accrue et, en un clin d'œi
 
 Wang Lin, resté à distance, affichait une expression extrêmement sombre. Le Serpent aux yeux de lune, sous sa troisième forme, était extrêmement sensible aux sons; ainsi, plus la Bête du Tonnerre rugissait, plus les tentacules se resserraient autour d'elle. Le mépris dans les yeux de la créature disparut, remplacé par une terreur pure.
 
-Wang Lin envoya une transmission vocale: « Arrête de rugir! » Son visage était de marbre alors qu'il sortait de nouveaux Fruits de l'Ascension Céleste.
+Wang Lin envoya une transmission vocale: « Arrête de rugir! » Son visage était de marbre alors qu'il sortait de nouveaux Fruits d'Ascension Céleste.
 
 À ce moment précis, au cœur de la planète Yun Xia, une silhouette mince était assise dans une vaste caverne, devant un immense fourneau.
 

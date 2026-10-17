@@ -32,7 +32,7 @@ L'énergie d'origine se concentra dans ses mains, puis une flamme démoniaque no
 
 En un clin d'œil, la flamme démoniaque absorba une immense quantité d'énergie d'origine, ce qui la fit briller intensément et s'étendre considérablement. Elle dégagea une épaisse fumée noire qui prit la forme d'un démon à corne unique. Son apparence rappelait celle du Démon Dispersé, mais elle n'en avait pas la même puissance.
 
-Un puissant sentiment de crise surgit dans le cœur de Wang Lin. Sa main droite frappa le lotus pour s'en propulser, puis il chargea directement vers le démon en pressant sa main droite entre ses sourcils.
+Un puissant sentiment de crise surgit dans le cœur de Wang Lin. Sa main droite frappa le lotus pour s'en propulser, puis il chargea directement vers le démon en pressant sa main gauche entre ses sourcils.
 
 Sa vitesse était fulgurante et, alors qu'il se rapprochait, le troisième œil situé entre ses sourcils libéra une puissante lumière rouge. Cette lueur ne s'éparpillait pas, elle convergeait; à cet instant, il paraissait extrêmement démoniaque.
 
@@ -128,4 +128,4 @@ L'Ancêtre de Sang serra le poing et déclara: « Grand-père!! Ma fille unique,
 
 La voix rauque se tut. Après un long silence, un soupir antique s'en échappa.
 
-« Yao Xixue... » La voix était devenue très douce. Puis, après un moment, elle reprit lentement: « J'ai calculé qu'elle se trouve dans le Royaume Céleste du Tonnerre. Va la chercher et ramène mon arrière-petite-fille. Présente-toi au Temple Céleste du Tonnerre avec mon jeton, ils te laisseront entrer. Si tu es en retard, même eux ne pourront pas te faire pénétrer dans le Royaume Céleste. »
+« Yao Xixue... » La voix était devenue très douce. Puis, après un moment, elle reprit lentement: « J'ai calculé qu'elle se trouve dans le Royaume Céleste du Tonnerre. Va la chercher et ramène mon arrière-petite-fille. Le Royaume Céleste du Tonnerre est déjà ouvert. Présente-toi au Temple Céleste du Tonnerre avec mon jeton, ils te laisseront entrer. Si tu es en retard, même eux ne pourront pas te faire pénétrer dans le Royaume Céleste. »

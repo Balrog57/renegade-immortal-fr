@@ -46,13 +46,13 @@ Du Jian ferma soudainement les yeux. Le niveau de culture de Wang Lin était bie
 
 « Je vais tenter ma chance! »
 
-Du Jian prit une profonde inspiration, sentit son domaine déjà accompli et franchit l'ultime étape! Une âme originelle céleste émergea progressivement du corps de Du Jian. Cette énergie devint de plus en plus puissante et finit par briser facilement le sceau que Wang Lin avait posé sur l'âme originelle de Du Jian.
+Du Jian prit une profonde inspiration, sentit son domaine déjà accompli et franchit l'ultime étape! Une énergie originelle du ciel et de la terre émergea progressivement du corps de Du Jian. Cette énergie devint de plus en plus puissante et finit par briser facilement le sceau que Wang Lin avait posé sur l'âme originelle de Du Jian.
 
 Les yeux de Wang Lin brillèrent tandis qu'il fixait Du Jian, plongé dans ses pensées. La raison pour laquelle il permettait à Du Jian d'atteindre le stade Ascendant était d'augmenter les chances de succès pour en faire un Gardien Céleste!
 
 Wang Lin n'avait pas oublié la description du Gardien Céleste inscrite sur le jade. En réalité, dès l'instant où il avait capturé Du Jian, il avait décidé de le raffiner pour en faire un gardien de basse qualité.
 
-Bien que le taux de réussite fût infime, s'il réussissait, il obtiendrait un être comparable à un cultivateur de haut niveau au stade Ascendant, ayant fait un pas vers le stade Yin et Yang. C'était une perspective extrêmement tentante pour Wang Lin.
+Bien que le taux de réussite fût infime, s'il réussissait, il obtiendrait un être comparable à un cultivateur du stade avancé de l'Ascendant à la grande perfection, à un demi-pas du stade Yin et Yang. C'était une perspective extrêmement tentante pour Wang Lin.
 
 Le jade mentionnait également certains sorts que seuls les Gardiens Célestes pouvaient utiliser. Lorsqu'ils étaient déployés, ces sortilèges étaient absolument prodigieux.
 
@@ -86,7 +86,7 @@ Il savait qu'il avait failli échouer au moment de sa percée et que c'était Wa
 
 « Quel genre de fortune alliez-vous me donner... » À cet instant, les sentiments de Du Jian envers Wang Lin étaient ambivalents. Il y avait de la haine et de la gratitude, mais par-dessus tout, du regret et de la peur.
 
-La voix de Wang Lin resta calme lorsqu'il déclara lentement: « Le rituel consiste à raffiner le corps et à transformer l'âme originelle par un rite secret. Cela vous donnera l'opportunité d'atteindre le stade avancé de l'Ascendant, avec un demi-pas vers le stade Yin et Yang! »
+La voix de Wang Lin resta calme lorsqu'il déclara lentement: « Le rituel consiste à raffiner le corps et à transformer l'âme originelle par un rite secret. Cela vous donnera l'opportunité d'atteindre la grande perfection du stade Ascendant, à un demi-pas du stade Yin et Yang! »
 
 Le cœur de Du Jian bondit et il demanda amèrement: « Si ce rituel est si défiant, cela signifie que le taux d'échec est extrêmement élevé. Laissez tomber. Je ne veux poser qu'une question: puis-je conserver ma conscience? »
 
@@ -114,9 +114,9 @@ S'il était si déterminé à raffiner un Gardien Céleste, c'est parce que ce d
 
 La première étape de la création d'un Gardien Céleste consiste à raffiner le corps. Le raffiner jusqu'à ce qu'il ne puisse plus être endommagé par des trésors magiques ordinaires. En voyant cette étape, Wang Lin pensa aux anciens dieux.
 
-La deuxième étape consistait à transformer l'âme originelle: l'ouvrir et la réduire en fragments. Ensuite, il s'agissait de l'agrandir considérablement, quel qu'en soit le prix, avant de la réintégrer dans le corps. Le corps se retrouverait sans âme originelle, tandis que l'âme serait contenue au sein du corps.
+La deuxième étape consistait à transformer l'âme originelle: l'ouvrir et la réduire en fragments. Ensuite, il s'agissait de l'agrandir considérablement, quel qu'en soit le prix, avant de la réintégrer dans le corps. Le corps ne contiendrait plus d'esprit, mais l'esprit demeurerait dans l'intention.
 
-La troisième étape consistait à raffiner les organes. Éliminer toute trace d'organes internes afin qu'ils ne soient plus nourris par l'énergie spirituelle céleste. Cela isolait le corps des cinq sens, lui permettant de ne plus ressentir la douleur.
+La troisième étape consistait à raffiner les organes. Faire flétrir tous les organes internes afin qu'ils ne soient plus nourris par l'énergie spirituelle céleste. Cela isolait le corps des cinq sens, lui permettant de ne plus ressentir la douleur.
 
 La dernière étape consistait à effacer la conscience divine tout en préservant l'intelligence. Cela faisait du Gardien Céleste un être sans émotion, mais capable de réfléchir. Il possédait un corps puissant, aucune émotion et aucune sensation de douleur. C'était une marionnette qui ne sourcillerait pas, même si on lui coupait la tête.
 

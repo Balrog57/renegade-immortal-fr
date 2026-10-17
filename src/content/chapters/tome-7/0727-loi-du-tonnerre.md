@@ -10,11 +10,11 @@ slug: loi-du-tonnerre
 
 Chacun de ses pas provoquait une ondulation à la surface du lac, attirant d'innombrables éclairs.
 
-L'esprit de Wang Lin était concentré et ses yeux étincelaient de lumière électrique. Son âme originelle battait au rythme de son cœur; bien qu'elle ne palpitât pas, elle pulsait un tonnerre qui emplissait tout son être.
+L'esprit de Wang Lin était concentré et ses yeux étincelaient de lumière électrique. Son âme originelle était comme un cœur; bien qu'elle ne palpitât pas, elle dégageait une puissance de tonnerre qui se fondait dans sa chair.
 
-Son corps étant fait de tonnerre, celui-ci le pénétrait sans aucune résistance à mesure que son âme originelle en libérait davantage. Le tonnerre circulait dans ses veines et provoquait une série d'explosions.
+Son corps étant fait de tonnerre, il était parfaitement perméable, sans aucune résistance : la puissance de tonnerre de son âme originelle se diffusa et, en se répandant, forma autour de son corps une série d'explosions de tonnerre.
 
-Ce tonnerre résonnait au plus profond de lui. Wang Lin avança et fit un autre pas.
+Alors que ces explosions retentissaient, Wang Lin avança et fit un autre pas.
 
 Une tempête éclata instantanément au sein du lac, attirant des quantités colossales de foudre. Les éclairs tombaient avec une telle intensité qu'ils créèrent une véritable prison de tonnerre, empêchant toute vie de progresser!
 

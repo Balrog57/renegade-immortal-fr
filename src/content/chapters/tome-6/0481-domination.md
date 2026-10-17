@@ -47,7 +47,7 @@ Le Pavillon des Nuages Pourpres ressemblait à une bête endormie gisant au loin
 
 Le Pavillon des Nuages Pourpres comptait trois étages. Wang Lin apparut au premier étage. Le mobilier environnant était très simple, mais au lieu de paraître ordinaire, il dégageait une sensation de pureté rafraîchissante.
 
-Après avoir fait le tour, Wang Lin monta au deuxième étage. On y trouvait un lit et quelques chaises. Une peinture de montagnes et de rivières était accrochée au mur, et à côté d'elle pendait une épée antique. Tout cela semblait tout à fait banal.
+Après avoir fait le tour, Wang Lin monta au deuxième étage. On y trouvait un lit et quelques coussins d'assise. Une peinture de montagnes et de rivières était accrochée au mur, et à côté d'elle pendait une épée antique. Tout cela semblait tout à fait banal.
 
 La troisième pièce était une chambre secrète dédiée à la culture. Le plafond était fait d'un matériau que Wang Lin n'avait jamais vu auparavant. On aurait dit qu'il n'y avait rien du tout; on pouvait voir le ciel extérieur à travers lui.
 
@@ -127,4 +127,4 @@ Là-bas, le second Ancien fut repoussé, affichant une expression amère. Il res
 
 « Petit-fils, reste tranquille pour ton grand-père Xu. Si tu oses bouger d'un seul pouce, je te découperai un morceau! »
 
-Wang Lin regarda calmement l'Ancien et dit lentement: « Puisque cet endroit refuse que je reste discret, je vais me montrer un peu et agir en maître! Maintenant, dites-moi: qui vivait dans le Pavillon des Nuages Pourpres auparavant? »
+Wang Lin regarda calmement l'Ancien et dit lentement: « Puisque cet endroit refuse que je reste discret, je vais me montrer un peu et devenir quelqu'un d'impérieux! Maintenant, dites-moi: qui vivait dans le Pavillon des Nuages Pourpres auparavant? »

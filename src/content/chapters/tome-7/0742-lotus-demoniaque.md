@@ -14,7 +14,7 @@ Le ciel était sombre et le tonnerre s'abattait occasionnellement sur les cimes;
 
 Au cœur de la montagne se trouvait une grotte. Wang Lin y était assis en position du lotus, soignant ses blessures. Le gardien céleste cultivait également à l'entrée, en pleine récupération.
 
-Ce jour-là, Wang Lin ouvrit les yeux et libéra un éclair doré. Devant lui, dix fragments de formes diverses flottaient lentement dans les airs, comme si une main géante les soutenait.
+Ce jour-là, Wang Lin ouvrit les yeux et libéra un éclair doré. Devant lui, plus de dix fragments de formes diverses flottaient lentement dans les airs, comme si une main géante les soutenait.
 
 Wang Lin commença à réfléchir. Il n'avait pas encore vu à quoi ressemblait l'outil d'origine du Royaume Céleste du Tonnerre, mais il estimait qu'il y avait soixante-dix pour cent de chances que ces fragments appartenaient à un tel objet.
 
@@ -42,7 +42,7 @@ Après la mort de Xu Fenghan, son corps s'était dissipé. Le sens divin de Wang
 
 Il fixa le lotus démoniaque, les yeux étincelants. Cet objet ne pouvait pas quitter la rivière des enfers trop longtemps sous peine de disparaître; seule sa présence dans les eaux de la rivière permettait de ralentir sa dissipation.
 
-À cet instant, la flamme démoniaque s'était déjà éteinte, ne laissant derrière elle qu'un lotus terne et livide. La main de Wang Lin forma un sceau et l'énergie spirituelle céleste se concentra dans son regard.
+À cet instant, la flamme démoniaque s'était déjà éteinte, ne laissant derrière elle qu'un lotus terne et livide ainsi que son socle. La main de Wang Lin forma un sceau et l'énergie spirituelle céleste se concentra dans son regard.
 
 Il scruta le lotus!
 
@@ -90,13 +90,13 @@ Après l'avoir contemplée un long moment, Wang Lin rangea la pilule et brisa la
 
 Après avoir réfléchi un instant, il rangea le talisman et cessa d'y penser. Son corps vacilla et il sortit directement de la grotte. Le gardien céleste le suivit et fusionna avec son ombre.
 
-Juste devant la montagne du tonnerre se trouvait la limite du fragment. Un champ de tonnerre s'étendait à sa lisière, les éclairs ressemblant à des chaînes rouillées plongeant dans l'obscurité.
+Juste devant la montagne du tonnerre se trouvait la limite du fragment. Un champ de tonnerre s'étendait à sa lisière, les éclairs, de couleur brune, ressemblant à des chaînes rouillées plongeant dans l'obscurité.
 
 « Dans le Royaume Céleste de la Pluie, il existait des formations de transfert. Cependant, le tonnerre ici est trop puissant pour permettre l'installation de telles formations; les déplacements dépendent donc de la vigueur de ses propres pas. » Wang Lin réfléchit; il ne se hâta pas de quitter ce fragment, mais inspecta soigneusement la zone à la recherche de fluctuations d'énergie spirituelle céleste.
 
 Alors qu'il volait, l'expression de Wang Lin changea soudainement. Deux rayons d'énergie d'épée foncèrent vers lui depuis l'avant. Un homme et une femme chevauchaient ces deux rayons.
 
-L'homme portait des robes bleu foncé et ses longs cheveux étaient attachés par un ruban bleu. Il semblait avoir une trentaine d'années et possédait une apparence extraordinaire. La femme paraissait avoir environ vingt-huit ans; bien que sa beauté fût remarquable, ses yeux de phénix dégageaient une lueur malicieuse qui laissait présager un tempérament singulier.
+L'homme portait des robes bleu foncé et ses longs cheveux étaient attachés par un ruban bleu. Il semblait avoir une trentaine d'années avec un regard acéré et une apparence extraordinaire. La femme paraissait avoir environ vingt-sept ou vingt-huit ans; bien que sa beauté fût remarquable, ses yeux de phénix dégageaient une aura sinistre qui laissait présager un tempérament irascible.
 
 En volant, ils aperçurent Wang Lin et ne purent s'empêcher de s'interrompre. Ils déployèrent prudemment leur sens divin et furent légèrement rassurés de constater que Wang Lin n'était qu'au sommet du stade tardif de l'Ascendant. Les deux se regardèrent et, sans un mot, s'éloignèrent à toute vitesse.
 

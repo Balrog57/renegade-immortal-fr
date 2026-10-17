@@ -19,7 +19,7 @@ La femme secoua la tête et répondit doucement: « Ce n'est peut-être pas vrai
 
 L'homme rit: « Juan Er, essaies-tu de tester ton mari? Et si nous faisions un pari? Si la personne qui a posé ces restrictions n'a pas cultivé pendant 10 000 ans, j'avoue ma défaite. Qu'en dis-tu? »
 
-La femme sourit et regarda l'homme avec tendresse: « Comment une si petite restriction pourrait-elle attirer l'attention du Céleste des Nuages, Wang Wei, qui prétend pouvoir percer tous les secrets des restrictions célestes? »
+La femme sourit et regarda l'homme avec tendresse: « Comment une si petite restriction pourrait-elle attirer l'attention de Wang Wei du Nuage Céleste, qui prétend pouvoir percer tous les secrets des restrictions célestes? »
 
 L'homme sourit et secoua la tête: « Tu esquives la question. Je ne crois pas que tu n'aies pas déjà percé ces restrictions. Bien qu'elles soient rudimentaires, elles sont empreintes d'une profonde réflexion et s'avèrent extrêmement ingénieuses. Regarde bien; si n'importe qui d'autre que nous deux avait fait preuve d'un tant soit peu de négligence, il ne les aurait même pas remarquées.
 
@@ -57,15 +57,15 @@ La femme sourit: « Je me demande ce que fera ce Cupidité lorsqu'il nous verra.
 
 « Il n'osera pas résister! » répondit l'homme avec un sourire. Son ton était d'un calme absolu, sans la moindre trace de colère.
 
-Dès l'instant où Cupidité pénétra dans le Domaine des Esprits Démoniaques, le Couple Céleste des Nuages fut déjà au courant de sa présence. Après tout, les deux avaient passé des dizaines de milliers d'années en ces lieux. Ils avaient minutieusement exploré l'une des fausses grottes du domaine et les trésors qu'ils y avaient récoltés étaient innombrables.
+Dès l'instant où Cupidité pénétra dans la Terre des Esprits Démoniaques, le Couple du Nuage Céleste fut déjà au courant de sa présence. Après tout, les deux avaient passé des dizaines de milliers d'années en ces lieux. Ils avaient minutieusement exploré l'une des fausses grottes du domaine et les trésors qu'ils y avaient récoltés étaient innombrables.
 
 En plus de son talent pour les restrictions, Wang Wei excellait en divination. Bien qu'il ne fût pas aussi doué que l'Omniscient, il lui était possible de calculer la position de Cupidité ainsi que d'autres changements de flux.
 
 Quant au jeton, ils en avaient également calculé la localisation. Cependant, ce jeton était extrêmement étrange et, pour l'obtenir, ils devaient agir à un moment précis. C'est pourquoi ils n'avaient rien entrepris plus tôt et attendaient désormais à la sortie, dans le Pays des Démons de Feu.
 
-Oublions-les un instant. À l'intérieur de l'Abysse des Marées, Wang Lin chevauchait l'épée céleste de Zhou Yi, fonçant droit vers la sortie tel un éclair.
+Oublions-les un instant. À l'intérieur de l'Abîme des Marées, Wang Lin chevauchait l'épée céleste de Zhou Yi, fonçant droit vers la sortie tel un éclair.
 
-La vitesse de Zhou Yi était fulgurante. Après plusieurs jours, ils traversèrent les corridors pour atteindre la fissure située sous le Pays des Démons de Feu. Il ne leur restait plus qu'à s'envoler de là pour quitter l'Abysse des Marées.
+La vitesse de Zhou Yi était fulgurante. Après plusieurs jours, ils traversèrent les corridors pour atteindre la fissure située sous le Pays des Démons de Feu. Il ne leur restait plus qu'à s'envoler de là pour quitter l'Abîme des Marées.
 
 La sortie du Pays des Démons de Feu était le seul endroit où il n'y avait aucune résistance vers le bas; au contraire, une force s'exerçait vers le haut.
 

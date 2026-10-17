@@ -26,7 +26,7 @@ Le messager cria immédiatement: « Une Pierre de Luotian! Je sais où le Camara
 
 Le visage de Wang Lin ne trahissait aucune émotion tandis que sa main droite formait un sceau. Le nuage noir dévora instantanément l'âme originelle et la scella à l'intérieur du drapeau.
 
-« Une Pierre de Luotian... » Wang Lin réfléchit un instant, puis passa à autre chose. Ses yeux se posèrent sur les trois drapeaux en suspens dans les airs et il tendit la main. Lorsqu'ils tombèrent dans sa paume, il cracha de l'énergie originelle pour les raffiner. Après avoir effacé le sens divin qu'ils contenaient pour y imprimer le sien, Wang Lin les rangea et commença à méditer.
+« Une Pierre de Luotian... » Wang Lin réfléchit un instant, puis passa à autre chose. Ses yeux se posèrent sur les trois drapeaux en suspens dans les airs et il tendit la main. Lorsqu'ils tombèrent dans sa paume, il cracha un souffle d'énergie de l'âme originelle pour les raffiner. Après avoir effacé le sens divin qu'ils contenaient pour y imprimer le sien, Wang Lin les rangea et commença à méditer.
 
 « C'est un rare trésor protecteur! » Après le temps nécessaire pour que la moitié d'un bâton d'encens brûle, les yeux de Wang Lin s'illuminèrent. Il lança les trois drapeaux en l'air, qui se mirent à tourner rapidement autour de lui. Un vortex violet se forma, offrant un certain degré de protection.
 
@@ -62,7 +62,7 @@ Après près de deux mois, Wang Lin organisa les fruits de son voyage dans le Ro
 
 La grenouille tonitruante au sol roula des yeux et bondit avec fracas, suivant la bête moustique.
 
-Lorsqu'ils approchèrent de la zone résidentielle du Clan des Immortels Élus, les yeux de Wang Lin se plissèrent. Il vit que tous étaient rassemblés sur la grande place, y compris les femmes et les enfants.
+Lorsqu'ils approchèrent de la zone résidentielle du Clan des Immortels Élus, les yeux de Wang Lin se plissèrent. Il vit que tous étaient agenouillés sur la grande place, y compris les femmes et les enfants.
 
 Au centre de la place se trouvait une plateforme en bois de dix mètres de large. Une personne y était allongée: c'était Ta Shan!
 

@@ -48,19 +48,19 @@ Un seul doigt pour défier les cieux!
 
 Un doigt démoniaque!
 
-L'énergie spirituelle démoniaque envahit la zone. L'énergie spirituelle céleste contenue dans le corps de Wang Lin ne bougea pas, mais se mua silencieusement en énergie spirituelle démoniaque! Cette dernière était radicalement différente de celle produite par le simple cycle de l'énergie céleste.
+L'énergie spirituelle démoniaque envahit la zone. L'énergie spirituelle céleste contenue dans le corps de Wang Lin ne s'inversa pas, mais se mua silencieusement en énergie spirituelle démoniaque! Cette dernière était radicalement différente de celle formée après l'inversion de l'énergie céleste.
 
 Les cheveux de Wang Lin commencèrent à pousser mystérieusement pour atteindre ses genoux en un clin d'œil. Sa présence n'était plus empreinte de douceur, mais d'une aura de violence pure. Sur son front, six marques démoniaques apparurent.
 
 L'énergie spirituelle démoniaque autour de lui devint extrêmement dense, s'étendant de dix mètres à 330 mètres de rayon. Tout dans cette zone fut submergé par une énergie démoniaque en furie. Cette essence devint si compacte qu'elle se mua en étincelles de flammes vertes, se dispersant circulairement sur le sol.
 
-L'intérieur comme l'extérieur de son corps étaient totalement saturés d'énergie démoniaque. À ce moment, Wang Lin leva soudainement la tête et laissa échapper un rire. Ce rire était empreint d'une aura tyrannique et d'une intention meurtrière effrayante!
+L'intérieur comme l'extérieur de son corps étaient totalement saturés d'énergie démoniaque. À ce moment, Wang Lin leva soudainement la tête et poussa un long cri. Ce cri était empreint d'une aura tyrannique et d'une intention meurtrière effrayante!
 
-Précisément à cet instant, la moitié du sceau de vie située derrière les six marques démoniaques sembla fusionner avec Wang Lin et commença à croître rapidement. En un instant, ce qui n'était qu'une demi-empreinte devint un sceau de vie complet! Dès que le sceau fut achevé, il se propagea pour envelopper tout le corps de Wang Lin.
+Précisément à cet instant, la moitié du sceau de vie cachée sous les six marques démoniaques sembla fusionner avec l'état d'esprit de Wang Lin et commença à croître rapidement. En un instant, ce qui n'était qu'une demi-empreinte devint un sceau de vie complet! Dès que le sceau fut achevé, il se propagea pour envelopper tout le corps de Wang Lin.
 
 Wang Lin fit un pas en avant. Son mouvement n'était pas rapide, mais il marchait lentement, étape par étape, vers le général de l'aile gauche qui trônait dans les cieux.
 
-L'éclat doré dans les yeux du général s'intensifia et il s'écria: « Intéressant! Tu es le premier à réaliser une percée sous mon Intention de Combat des Dix Effondrements! Voyons si tu peux supporter ce cinquième effondrement! »
+L'éclat doré dans les yeux du général s'intensifia et il s'écria: « Intéressant! Tu es le premier à connaître une révélation sous mon Intention de Combat des Dix Effondrements! Voyons si tu peux supporter ce cinquième effondrement! »
 
 Le cinquième effondrement surgit soudainement du vide sitôt le général achevé de parler. Sa puissance était dix fois supérieure à celle du quatrième. Dès son apparition, des rugissements tonnants résonnèrent comme si un châtiment divin s'abattait sur un rayon de 3,3 kilomètres alentour. Le fracas était tel que toute la Grande Muraille Antique pouvait l'entendre.
 
@@ -84,7 +84,7 @@ Cependant, au moment où l'anneau toucha son doigt, il murmura doucement: « Tra
 
 Son corps ressemblait à une ombre et, d'un seul pas, il perça l'anneau de lumière qui constituait le sixième effondrement. En traversant la zone, le sixième effondrement vola en éclats!
 
-L'éclat doré dans les yeux du général de l'aile gauche brilla intensément et il hurla: « Quel étrange individu! Ce général t'a vraiment sous-estimé. Je t'attendrai ici; il reste encore quatre effondrements! »
+L'éclat doré dans les yeux du général de l'aile gauche brilla intensément et il hurla: « Quel étranger! Ce général t'a vraiment sous-estimé. Je t'attendrai ici; il reste encore quatre effondrements! »
 
 « La foi de ton sort est la conviction que tu remporteras la victoire. Elle est forgée par la volonté et l'esprit de tous ceux qui ont succombé à ta technique. Je n'ai pas la culture nécessaire pour briser tes dix effondrements, mais je sais que la clé ne réside pas dans la culture, mais dans la foi! »
 
@@ -98,7 +98,7 @@ Au moment où il apparut, les yeux de Wang Lin s'illuminèrent et il cria: « Fa
 
 Ce qui maintenait la fermeté de son cœur était l'esprit du Doigt Démoniaque. Bien qu'il n'ait prononcé que deux mots, ils portaient sa foi inébranlable! Ce n'était pas une foi en le massacre ou la victoire, mais la foi d'un... état d'esprit démoniaque!
 
-L'état d'esprit démoniaque consiste à défier les cieux, à braver tout ce que les autres désirent, à dérober la vie, à détruire le Dao d'autrui, à agir selon sa propre volonté et à marcher sur le sentier du démon!
+L'état d'esprit démoniaque consiste à défier les cieux, à commettre la plus grande des transgressions du monde, à dérober la vie, à détruire le Dao d'autrui, à agir selon sa propre volonté et à marcher sur le sentier du démon!
 
 L'expression du général de l'aile gauche changea enfin. Lorsqu'il avait rencontré Wang Lin pour la première fois, il ne lui avait accordé aucune importance. Ce n'est qu'en voyant Wang Lin franchir les trois premiers effondrements qu'il l'avait vraiment regardé.
 

@@ -12,29 +12,29 @@ La mort de ces créatures déclencha une série de réactions en chaîne. À cet
 
 Ces morts survinrent silencieusement; elles étaient impossibles à éviter et ne pouvaient être considérées que comme une calamité.
 
-Heureusement, peu de personnes périrent, mais si le Cristal de Culture Planétaire s'effondrait, la planète entière serait condamnée...
+Heureusement, peu de personnes périrent, mais si le Cristal de la Planète de Culture s'effondrait, la planète entière serait condamnée...
 
 Le rire dément de Zhu Quezi résonna dans le Mont Suzaku. Assis à l'intérieur de la montagne, ses yeux étaient empreints de folie. Il afficha un sourire cruel et murmura pour lui-même: « Mon cher frère cadet, comment profites-tu du jeu... Le jeu ne fait que commencer et n'a pas encore atteint son apogée. Mon bon disciple, Qian Feng, j'espère que tu utiliseras ce trésor que je t'ai confié. Une fois ce trésor utilisé, le paroxysme de ce jeu pourra enfin débuter... »
 
 Sur la montagne spirituelle, dans la partie intérieure du tombeau de Suzaku, l'effondrement dura soixante respirations. De nouvelles fissures apparurent sur la porte, la recouvrant presque entièrement.
 
-À cet instant précis, Yun Quezi se déplaça soudainement pour apparaître aux côtés de l'immense porte. Un chapeau de paille apparut alors dans sa main. Il frappa le chapeau, qui se dispersa immédiatement en d'innombrables tatouages. Ces derniers brillèrent intensément avant de s'écraser contre la porte comme des météores.
+À cet instant précis, Yun Quezi se déplaça soudainement pour apparaître aux côtés de l'immense porte. Un chapeau de paille apparut alors dans sa main. Il frappa le chapeau, qui se dispersa immédiatement en d'innombrables runes. Ces dernières brillèrent intensément avant de s'écraser contre la porte comme des météores.
 
 Une série de grondements retentit et les fissures s'élargirent rapidement.
 
 Yun Quezi cria avec force: « Attaquez! »
 
-Les deux membres du Clan de l'Immortel Délaissé s'élancèrent aussitôt dans les airs pour attaquer la porte.
+Les deux membres du Clan des Immortels Délaissés s'élancèrent aussitôt dans les airs pour attaquer la porte.
 
-À ce moment, les yeux du vieil homme virèrent au rouge et il afficha un sourire méprisant. Il pointa sa main vers le ciel et déclara: « Avarice, ignorance... »
+À ce moment, les yeux du vieil homme virèrent au rouge et il afficha un sourire méprisant. Il se leva d'un bond, pointa plusieurs fois la main dans le vide et déclara à voix basse: « Avarice, ignorance... »
 
-Dès qu'il prononça ces mots, les deux membres du Clan de l'Immortel Délaissé qui attaquaient commencèrent soudainement à trembler. Leurs yeux émettaient une lueur démoniaque tandis que des auras verte et violette jaillissaient de leurs corps.
+Dès qu'il prononça ces mots, les deux membres du Clan des Immortels Délaissés qui attaquaient commencèrent soudainement à trembler. Leurs yeux émettaient une lueur démoniaque tandis que des auras verte et violette jaillissaient de leurs corps.
 
 Le vieil homme ordonna alors: « Explosez! »
 
-Dans deux fracas successifs, les deux membres du Clan de l'Immortel Délaissé explosèrent, et l'onde de choc percuta la porte.
+Dans deux fracas successifs, les deux membres du Clan des Immortels Délaissés explosèrent, et l'onde de choc percuta la porte.
 
-En voyant ce sort, Wang Lin le reconnut immédiatement comme étant celui du Seigneur Démon des Six Désirs.
+En voyant ce sort, Wang Lin le reconnut immédiatement comme étant celui du Seigneur Démoniaque des Six Désirs.
 
 La porte trembla violemment après l'explosion des deux membres du clan, et de nouvelles fissures s'y formèrent.
 
@@ -54,7 +54,7 @@ Derrière la porte se déployait une mer dorée. Cette mer était immense, sans 
 
 Au bout de cette mer se trouvait une île d'un or sombre. Un bâtiment s'y dressait; c'était un palais d'une extravagance extrême qui dégageait un éclat doré.
 
-Une fois la porte franchi, les yeux d'Yun Quezi brillèrent d'une lueur mystérieuse et il fonça rapidement vers cette île.
+Une fois la porte franchie, les yeux d'Yun Quezi brillèrent d'une lueur mystérieuse et il fonça rapidement vers cette île.
 
 Le vieil homme le suivit de près. Ses pieds s'activèrent et il vola prestement vers le palais, n'étant qu'à moins de cent mètres derrière Yun Quezi. Les yeux du singe sur son épaule brillèrent intensément, révélant une expression d'excitation.
 
@@ -128,7 +128,7 @@ Les deux se cachaient sous la mer en progressant secrètement. Ils ne s'attendai
 
 L'homme massif en armure dorée ne les poursuivit pas, mais tourna son regard vers Wang Lin.
 
-Le regard de Wang Lin devint glacial. Cette énergie de sabre était aussi puissante qu'une attaque d'un cultivateur Ascendant. C'est pour cette raison que le vieil homme avait dû libérer son âme pour y résister.
+Le regard de Wang Lin devint glacial. Cette énergie de sabre était aussi puissante qu'une attaque d'un cultivateur Ascendant. C'est pour cette raison que le vieil homme avait dû libérer l'âme qui le possédait pour y résister.
 
 Seul Yun Quezi avait pu bloquer l'attaque et s'en servir pour entrer dans la mer.
 

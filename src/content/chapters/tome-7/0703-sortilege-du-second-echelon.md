@@ -18,7 +18,7 @@ Il lui restait moins de trois cents ans; il n'était donc pas disposé à user d
 
 Ce qu'il craignait le plus, c'était le tonnerre de Wang Lin. Le Daoïste du Tonnerre avait déduit que ce tonnerre était lié au domaine de cet individu. S'il parvenait à briser son domaine, il pourrait peut-être remporter la victoire sans avoir recours à l'énergie originelle.
 
-« Laisse ce vieil homme voir encore une fois! Ainsi, ce n'était qu'une âme errante et rancunière. Je pensais qu'il y avait un problème; comment un simple mortel aurait-il pu résister à mon sens divin? Au début, j'ai cru que c'était la marionnette, mais il semble que je me sois trompé... » Le Daoïste du Tonnerre rit, une pointe de malice dans la voix. Cependant, ses pupilles se rétractèrent soudainement et il s'interrompit. Son regard porté sur Wang Ping trahissait un profond sentiment de terreur.
+« Laisse ce vieil homme voir encore une fois! Ainsi, ce n'était qu'un esprit vengeur. Je pensais qu'il y avait un problème; comment un simple mortel aurait-il pu résister à mon sens divin? Au début, j'ai cru que c'était la marionnette, mais il semble que je me sois trompé... » Le Daoïste du Tonnerre rit, une pointe de malice dans la voix. Cependant, ses pupilles se rétractèrent soudainement et il s'interrompit. Son regard porté sur Wang Ping trahissait un profond sentiment de terreur.
 
 « Ceci... c'est de l'énergie d'épée... cette énergie d'épée est trop terrifiante! » Le Daoïste du Tonnerre haleta et recula immédiatement, le cuir chevelu engourdi par la peur. Ce sortilège venait de lui permettre de percevoir les deux rayons d'énergie d'épée nichés au cœur du corps de Wang Ping!
 
@@ -30,7 +30,7 @@ Wang Ping resta silencieux, fixant le dos de son père, sans dire un mot pendant
 
 Les yeux de Wang Lin étaient injectés de sang alors qu'il fixait le Daoïste du Tonnerre qui tentait de fuir. Si les énergies d'épée de Ling Tianhou n'avaient pas été absentes de son corps, il les aurait toutes libérées pour anéantir cet homme.
 
-À cet instant, sans hésiter, il abattit sa main! Une partie de l'énergie originelle fusionnée avec son âme originelle s'engouffra dans l'épée.
+À cet instant, sans hésiter, il leva la grande épée et l'abattit! Une partie de l'énergie originelle fusionnée avec son âme originelle s'engouffra dans l'épée, puis se dissipa entre le ciel et la terre.
 
 Alors que le Daoïste du Tonnerre reculait, son expression changea une fois de plus. Il sentit une aura terrifiante descendre des cieux.
 
@@ -58,17 +58,17 @@ C'étaient des gravures de la Bête du Tonnerre!
 
 Le tonnerre grondait à l'intérieur du gigantesque fourneau et d'innombrables éclairs parcouraient ce monde sans fin. Le fourneau formé par le cosmos agissait comme un creuset, commençant à raffiner tout ce qui s'y trouvait à mesure que les foudres se multipliaient.
 
-L'épée dans la main de Wang Lin tomba avec une force implacable. L'aura étrange, désormais imprégnée des lois du monde, emplit tout le fourneau. Ce qu'elle tranchait n'était pas un objet matériel, mais les lois mêmes de ce monde!
+L'épée dans la main de Wang Lin tomba tout simplement. L'aura étrange, désormais imprégnée des lois du monde, emplit tout le fourneau. Ce qu'elle tranchait n'était pas un objet matériel, mais les lois mêmes de ce monde!
 
 Les éclairs continuaient de s'abattre sur Wang Lin. Ce tonnerre ne naissait pas des cieux, mais du sortilège du Daoïste du Tonnerre. Outre la foudre, il véhiculait également son Dao!
 
-Lorsque le Coup Céleste frappa, le fourneau devint illusoire aux yeux de Wang Lin. Des filaments bleus entouraient la zone, et c'étaient ces fils qui maintenaient la structure du fourneau!
+Lorsque le Coup Céleste s'abattit, le fourneau devint illusoire aux yeux de Wang Lin. Des filaments bleus entouraient la zone, et c'étaient ces fils qui maintenaient la structure du fourneau!
 
 L'épée fendit l'air et les filaments bleus s'effondrèrent rapidement. Un gémissement étouffé du Daoïste du Tonnerre émana du monde, tandis qu'une nouvelle quantité d'énergie originelle jaillissait de son corps pour préserver l'intégrité du fourneau.
 
-Peu de temps après, des éclairs du Dao encore plus puissants descendirent. Chaque coup qui frappait Wang Lin faisait trembler son être. Sans la mutation de son âme originelle, une telle foudre aurait réduit son corps en poussière sans laisser de trace.
+Peu de temps après, des éclairs du Dao encore plus puissants descendirent. Chaque coup qui frappait Wang Lin faisait trembler son être. Sans la mutation de son âme originelle, n'importe quel cultivateur Ascendant aurait été instantanément réduit en poussière sous une telle foudre.
 
-Le regard de Wang Lin devint plus glacial encore. À cet instant, la marionnette de garde céleste, également enfermée dans le fourneau, commença à asséner des coups de poing frénétiques. Elle bombardait toute la zone, faisant trembler l'univers entier.
+Le regard de Wang Lin devint plus glacial encore. À cet instant, la marionnette du Gardien Céleste, également enfermée dans le fourneau, commença à asséner des coups de poing frénétiques. Elle bombardait toute la zone, faisant trembler l'univers entier.
 
 Bien que le tonnerre fût puissant, la chair de la marionnette était bien plus résistante; la foudre ne pouvait donc lui infliger le moindre dommage. Chaque coup porté par la marionnette équivalait à l'attaque d'un cultivateur de l'Yin Illusoire sur les parois du fourneau. C'était là la menace la plus directe pour le Daoïste du Tonnerre!
 

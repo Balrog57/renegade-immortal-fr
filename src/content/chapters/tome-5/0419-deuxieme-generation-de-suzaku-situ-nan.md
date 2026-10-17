@@ -16,7 +16,7 @@ Alors qu'il regagnait Pilu en hâte, Du Tian en apporta davantage à Wang Lin su
 
 « Cependant, la seule compétence constante du drapeau d'âmes au milliard d'âmes est la fusion. L'âme Ascendante que tu as vue a été créée par fusion. Bien qu'elle ne puisse durer éternellement, elle peut tenir tête à un cultivateur Ascendant pendant le temps de la combustion d'un bâton d'encens. »
 
-« Pourtant, ce ne sont là que les atouts secondaires du drapeau. Ce qui peut véritablement menacer les cultivateurs Ascendants, c'est la quatrième âme primaire. En des dizaines de milliers d'années, cette quatrième âme n'est apparue qu'une seule fois. À cette époque, le dernier ancêtre Ascendant au début de son stade de notre secte se battait aux côtés de la deuxième génération de Suzaku contre quatre cultivateurs Ascendants du stade avancé provenant d'autres planètes. »
+« Pourtant, ce ne sont là que les atouts secondaires du drapeau. Ce qui peut véritablement menacer les cultivateurs Ascendants du stade avancé, c'est la quatrième âme primaire. En des dizaines de milliers d'années, cette quatrième âme n'est apparue qu'une seule fois. À cette époque, le dernier ancêtre de notre secte au début du stade Ascendant se battait aux côtés de la deuxième génération de Suzaku contre quatre cultivateurs Ascendants du stade avancé provenant d'autres planètes. »
 
 Bien que le vol de jades célestes fût leur objectif principal, Du Tian souhaitait également instruire Wang Lin sur le drapeau d'âmes au milliard d'âmes afin qu'il puisse mieux le maîtriser dans deux ans.
 
@@ -24,9 +24,9 @@ Du Tian ne cachait rien à Wang Lin; il le traitait comme un véritable disciple
 
 Le regard de Wang Lin se fit sérieux lorsqu'il demanda: « Aux côtés de la deuxième génération de Suzaku? »
 
-Du Tian hocha la tête. « Après avoir vaincu le Clan Immortel Abandonné, la première génération de Suzaku s'est sacrifiée avec plusieurs cultivateurs Ascendants du stade avancé pour sceller le clan. Il a ensuite désigné un successeur pour devenir la deuxième génération de Suzaku. »
+Du Tian hocha la tête. « Après avoir vaincu le Clan Immortel Abandonné, la première génération de Suzaku s'est sacrifiée avec plusieurs vieux monstres Ascendants pour sceller le clan. Il a ensuite désigné un successeur pour devenir la deuxième génération de Suzaku. »
 
-« Cette personne était extrêmement talentueuse et exceptionnelle, bien différente de tous les Suzakus qui lui succédèrent. Elle n'avait soumis aucun pays de culture de rang 5 et, bien qu'elle n'ait régné que durant mille ans, elle possédait un niveau de culture supérieur à celui de tous les Suzakus suivants. On dit qu'elle avait déjà franchi un pas dans le royaume après l'Ascension et qu'elle n'était qu'à une demi-étape du stade suivant. »
+« Cette personne était extrêmement talentueuse et exceptionnelle, bien différente de tous les Suzakus qui lui succédèrent. Elle n'opprimait pas les pays de culture de rang 5 et, bien qu'elle n'ait dirigé la planète Suzaku que très peu de temps, sa culture, durant ces mille ans, était la plus élevée de tous les Suzakus. On dit qu'elle avait déjà posé un demi-pied dans le royaume au-delà de l'Ascension et qu'il ne lui manquait qu'une demi-étape pour atteindre le niveau suivant. »
 
 « Cette personne était sans aucun doute l'expert numéro un de l'histoire de la planète Suzaku! »
 
@@ -38,7 +38,7 @@ Du Tian secoua la tête. « Trop de temps a passé pour que l'on se souvienne en
 
 Wang Lin insista: « Qu'est-il arrivé à lui, finalement? »
 
-Du Tian répondit d'une voix lente: « On ignore ce qu'est devenu son corps. » Il soupira et continua: « La rumeur veut que la bataille contre ces cultivateurs étrangers fut tout aussi intense que celle contre l'esprit ancestral du Clan Immortel Abandonné. En fin de compte, l'ancêtre de ma Secte de Raffinement des Âmes ne fit pas le poids; après tout, il n'était qu'un cultivateur Ascendant au début de son stade. Il utilisa la quatrième âme pour s'échapper et parvint à tuer l'un des cultivateurs étrangers. Cependant, la quatrième âme fut gravement endommagée et est tombée dans un sommeil profond depuis lors. Selon mes calculs, elle aurait dû être presque totalement rétablie à présent. »
+Du Tian répondit d'une voix lente: « Son sort est inconnu. » Il soupira et continua: « La rumeur veut que la bataille contre ces cultivateurs étrangers fut tout aussi intense que celle contre l'esprit ancestral du Clan Immortel Abandonné. En fin de compte, l'ancêtre de ma Secte de Raffinement des Âmes ne fit pas le poids; après tout, il n'était qu'un cultivateur Ascendant au début de son stade. Il utilisa la quatrième âme, ce qui lui sauva la vie, et parvint à tuer l'un des cultivateurs étrangers. Cependant, la quatrième âme fut gravement endommagée et est tombée dans un sommeil profond depuis lors. Selon mes calculs, elle aurait dû être presque totalement rétablie à présent. »
 
 « Bien que la bataille ait été remportée, la deuxième génération de Suzaku fut traquée par les cultivateurs étrangers et disparut. »
 
@@ -96,7 +96,7 @@ Après une déflagration sourde, le gaz noir disparut et le poing se résorba da
 
 Du Tian ricana: « Elle contient même le sang du Clan des Démons Géants, la formation possède donc une partie de la puissance de leur lignage. »
 
-« Vous n'auriez pas dû laisser autant de problèmes derrière vous en allant au Clan des Démons Géants; si j'y étais allé personnellement, je les aurais tous exterminés pour prévenir toute représailles future. Lors de l'attaque du Clan Immortel Abandonné, le second disciple de Suzaku, Qian Feng, s'est rendu chez les Démons Géants, les a déliés de leur sceau et les a tous transférés au pays de Suzaku. »
+« Vous n'auriez pas dû laisser autant de problèmes derrière vous en allant au Clan des Démons Géants; si j'y étais allé personnellement, je les aurais tous exterminés pour prévenir toute représailles future. Après ton départ, lors de la réapparition du Clan Immortel Abandonné, le second disciple de Suzaku, Qian Feng, s'est rendu chez les Démons Géants, les a déliés de leur sceau et les a tous transférés au pays de Suzaku. »
 
 « Je me demandais pourquoi le pays de Suzaku se montrait si généreux, mais il semble qu'ils convoitaient le sang du Clan des Démons Géants. Avec une telle quantité de leur sang, cette formation intègre une partie de la puissance de leur lignage. »
 

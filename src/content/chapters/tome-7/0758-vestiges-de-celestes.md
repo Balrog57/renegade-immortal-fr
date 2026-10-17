@@ -9,7 +9,7 @@ slug: vestiges-de-celestes
 
 Wang Lin observa l'entrée de la seconde vallée; de l'endroit où il se tenait, elle semblait déserte. Il fit quelques pas en avant et inspecta les environs avec prudence. Puis, sa main droite traça un sceau et une restriction s'en échappa.
 
-Cette restriction se divisa en quatorze fragments dans les airs et fonça vers la vallée. Les yeux de Wang Lin brillèrent alors qu'il regardait ces restrictions pénétrer dans la gorge et disparaître silencieusement, comme si elles avaient été englouties. Il n'y eut aucune ondulation.
+Cette restriction se divisa en quatorze fragments dans les airs et fonça vers la vallée. Les yeux de Wang Lin brillèrent alors qu'il regardait ces restrictions pénétrer dans la vallée et disparaître silencieusement, comme si elles avaient été englouties. Il n'y eut aucune ondulation.
 
 Le regard de Wang Lin se fit plus étroit. Après une brève hésitation, ses yeux s'emplirent de détermination. Sa main droite recommença à former des restrictions. Cependant, cette fois-ci, il prit davantage de temps et en forgea des dizaines. Lorsqu'elles furent lancées, chacune d'entre elles se scinda en quatorze parties.
 
@@ -23,7 +23,7 @@ Les yeux de Wang Lin s'illuminèrent et il recula aussitôt. D'une simple pensé
 
 Il chargea sans la moindre hésitation. Il se déplaça avec une vélocité fulgurante, dépassant l'ombre démoniaque en un instant pour arriver directement devant l'écran lumineux qui s'amincissait. Au moment où il le toucha, Wang Lin leva son doigt et y concentra l'énergie de l'épée de Ling Tianhou. Sans la libérer, il la maintint concentrée au bout de son doigt et pressa l'écran lumineux.
 
-L'écran trembla puis se prolongea, formant une brèche. Wang Lin s'y engouffra sans hésiter.
+L'écran trembla et les particules de lumière ténues se dispersèrent rapidement de tous côtés, formant une brèche. Wang Lin s'y engouffra sans hésiter.
 
 Tout cela se produisit en un laps de temps infime. L'ombre démoniaque invisible sursauta et poussa un rugissement silencieux. Puis, toutes les particules de lumière se rassemblèrent sur son corps pour charger vers Wang Lin.
 
@@ -109,19 +109,19 @@ Wang Lin et Li Yuan chargèrent tour à tour vers la troisième vallée. Ils se 
 
 Le lieu était gravement endommagé. L'ouverture, initialement étroite, avait été forcée. D'innombrables éclairs de restriction scintillaient sans relâche. D'un coup d'œil, Wang Lin put distinguer un temple à l'intérieur de la vallée.
 
-Ce temple n'était pas vaste, mais il était très délabré; la porte avait même disparu. Deux squelettes reposaient à l'intérieur, et l'un d'eux portait l'armure en cuir de l'Ancien Dieu!
+Ce temple n'était pas vaste, mais il était très délabré; la porte avait même disparu. Deux squelettes reposaient devant l'entrée, et l'un d'eux portait l'armure en cuir de l'Ancien Dieu!
 
 Quant au second squelette, il ne portait rien, mais une lueur dorée émanait de sa main droite, laquelle avait transpercé le crâne du premier. Le crâne était criblé de fissures; il était évident qu'il avait été broyé par cette saisie.
 
-Bien qu'il n'ait pas assisté au combat, la simple vue de ces restes permettait d'imaginer l'âpreté de la lutte qui venait de s'y dérouler.
+Bien qu'il n'ait pas assisté au combat, la simple vue de ces restes permettait d'imaginer l'âpreté du combat que ces deux-là s'étaient livré jadis.
 
-La main droite de Wang Lin s'étira et l'armure en cuir de l'Ancien Dieu s'envola du squelette pour venir se loger dans sa paume. Au moment où il la toucha, il fut immédiatement envahi par un sentiment de sang et de douleur.
+La main droite de Wang Lin s'étira et l'armure en cuir de l'Ancien Dieu s'envola du squelette pour venir se loger dans sa paume. Au moment où il la toucha, il fut immédiatement envahi par une tristesse sanglante.
 
 En y regardant de plus près, l'armure était très brute et dégageait une aura antique. Même aujourd'hui, des résidus d'une puissance colossale s'en échappaient, comme si elle proclamait encore la grandeur de son propriétaire.
 
 Li Yuan avança jusqu'au second squelette. Il fixa les doigts dorés du défunt. Puis, prenant une profonde inspiration, il s'accroupit et brisa les doigts un par un.
 
-Lorsqu'il releva la tête, il jeta un regard vers le temple sans porte et ses pupilles se contractèrent instantanément. Il cria: « Frère Xu, regarde! »
+Lorsqu'il releva la tête, il jeta un regard vers le temple sans porte et ses pupilles se contractèrent instantanément. Il dit d'une voix grave: « Frère Xu, regarde! »
 
 Wang Lin leva les yeux, fit quelques pas en avant et scruta l'intérieur du temple. Malgré sa force mentale, il ne put s'empêcher de prendre une inspiration glacée. Il inspecta les lieux pour s'assurer de leur sécurité avant d'entrer.
 
@@ -129,7 +129,7 @@ Li Yuan, aux côtés de Wang Lin, pénétra également dans le temple.
 
 L'édifice était divisé en deux niveaux. Le premier étage, dépourvu de zone de culte, était totalement vide, si ce n'est quelques peintures murales accrochées aux murs.
 
-Il y avait au total neuf fresques. En les parcourant une à une, les yeux de Li Yuan s'emplirent d'une lueur étrange. Il marmonna: « Ceci... Quel genre de sort est-ce? Comment un être peut-il être aussi immense... Ces histoires sont peut-être des légendes... »
+Il y avait au total neuf fresques. En les parcourant une à une, les yeux de Li Yuan s'emplirent d'une lueur étrange. Il marmonna: « Ceci... Quel genre de sort est-ce? Comment un être peut-il être aussi immense... Tout ce que montrent ces peintures serait-il pure fiction?... »
 
 Les peintures représentaient clairement un géant colossal arborant huit étoiles sur le front. Il était entouré d'innombrables Célestes armés de divers trésors qui l'attaquaient avec acharnement.
 
@@ -147,9 +147,9 @@ Non loin de la table se trouvait un encensoir, mais il ne contenait plus que de 
 
 Wang Lin s'approcha de la table et vit qu'une feuille était maintenue par un presse-papier. Ce dernier dégageait des ondes d'énergie spirituelle céleste, prouvant son caractère extraordinaire. Cependant, Wang Lin ne s'attarda pas sur l'objet, mais se concentra sur le texte.
 
-« La 16e année de la 27e ère du Royaume Céleste. La guerre entre l'Ordre Ancien et le Royaume Céleste s'est achevée par une victoire! Mon trésor magique a été brisé et doit être raffiné ici. Cependant, en récompense de mes exploits, on m'a offert un fragment de sa peau, dont j'ai fait une armure de cuir...
+« Royaume Céleste, an 16 de Yigeng. Un Ancien Dieu est venu, les Célestes l'ont combattu ensemble et ont triomphé! Mon trésor magique a été brisé et ne peut être raffiné qu'ici. Cependant, en récompense de mes exploits, on m'a attribué un morceau de sa peau, dont j'ai fait une armure de cuir...
 
-« La 19e année de la 27e ère du Royaume Céleste. Un changement terrifiant s'est produit! L'Empereur Céleste a perdu la raison et est mort en pointant le ciel du doigt... J'ai personnellement été témoin de tout, de cette scène qui n'aurait jamais dû exister lors de la mort de l'Empereur Céleste...
+« An 19 de Yigeng. Un changement terrifiant s'est produit! L'Empereur Céleste a sombré dans la folie et est mort en pointant le ciel du doigt... J'ai tout vu de mes propres yeux, ainsi que, dans le ciel, cette scène qui n'aurait jamais dû exister lors de la mort de l'Empereur Céleste...
 
 « Depuis que je suis devenu un Céleste, je n'ai jamais tremblé, même face à un Ancien Dieu. Pourtant, à cet instant, j'ai été saisi par la crainte et l'effroi. J'ai vu... ce qui ne devrait jamais être vu...
 

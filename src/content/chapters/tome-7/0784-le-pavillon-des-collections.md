@@ -10,13 +10,13 @@ Des aiguilles d'argent apparurent devant le cultivateur nommé Chen. Chaque aigu
 
 Le cultivateur nommé Song brandit un motif yin et yang dans sa main; lorsqu'il le projeta, des éclairs parcoururent l'artefact. Il était chargé d'une puissante énergie originelle qui fonça sur Wang Lin.
 
-Un autre suivit le motif, sa main droite formant un sceau étrange pour faire apparaître une longue mèche de cheveux sombres. Dès son apparition, ce fil dégagea une pression intense et une épaisse brume verte.
+Lui-même se tenait derrière le motif, sa main droite formant un sceau étrange pour faire apparaître le fantôme d'une longue mèche de cheveux. Dès son apparition, ce fil dégagea une pression intense et une épaisse brume verte.
 
-Enfin, le cultivateur dont le corps avait été perdu ouvrit la bouche pour cracher un petit éventail de cristal. Elle s'en saisit, le lança, puis expulsa de l'énergie originelle. Celle-ci se mua instantanément en six dragons qui encerclèrent Wang Lin pour lui barrer toute fuite.
+Enfin, le cultivateur dont le corps avait été perdu ouvrit la bouche pour cracher un petit éventail de cristal. Il l'agita aussitôt, puis expulsa à plusieurs reprises l'essence de son âme originelle. Des flammes violettes se répandirent et se muèrent en six dragons de feu qui rugirent en se dispersant, tentant d'encercler Wang Lin pour lui barrer toute fuite.
 
-Les yeux de ces trois individus étaient injectés de sang. Ils n'avaient qu'une idée en tête: tuer Wang Lin pour s'emparer du sort céleste du neuvième étage. Leurs attaques étaient fulgurantes, et leurs sorts ainsi que leurs trésors magiques convergeaient rapidement vers Wang Lin, ne faisant plus qu'un avec lui en un instant.
+Les yeux de ces trois individus étaient injectés de sang. Ils n'avaient qu'une idée en tête: tuer Wang Lin pour s'emparer du sort céleste du neuvième étage. Leurs attaques étaient fulgurantes, et leurs sorts ainsi que leurs trésors magiques convergeaient rapidement vers Wang Lin et, en un instant, furent sur lui.
 
-Wang Lin était encore en état de transe, son esprit captivé par la scène prodigieuse qu'il avait contemplée avec le vent. Alors que les trois assaillants approchaient, il pointa inconsciemment un doigt vers eux et murmura: « Appeler le Vent. »
+Wang Lin était encore en état de transe, son esprit captivé par la scène prodigieuse qu'il avait contemplée avec le vent. Alors que les trois assaillants approchaient, il leva presque inconsciemment la main droite, dos aux trois hommes, et murmura: « Appeler le Vent. »
 
 À l'instant même où il prononça ces mots, un vent noir jaillit de la main de Wang Lin. Ce souffle s'amplifia aussitôt pour envelopper toute la zone. Tandis que ce vent glacial soufflait, le ciel s'obscurcit comme s'il se repliait sur lui-même.
 
@@ -48,7 +48,7 @@ Le cultivateur Song poussa un cri et son âme originelle libéra une immense qua
 
 « Cher camarade Xu, ayez pitié! Je sais que j'ai eu tort, j'ai eu tort! » Sans accorder la moindre attention aux supplications de Song, Wang Lin garda un regard froid et pinça ses doigts. L'âme originelle du cultivateur Song s'effondra immédiatement, se transformant en une énergie originelle que Wang Lin dévora.
 
-La puissante énergie circula dans le corps de Wang Lin, lui rendant peu à peu ses couleurs. Il prit une profonde inspiration et rattrapa aussitôt le cultivateur Lu, qui était piégée par le drapeau des âmes.
+La puissante énergie circula dans le corps de Wang Lin, lui rendant peu à peu ses couleurs. Il prit une profonde inspiration et rattrapa aussitôt le cultivateur Lu, qui était piégé par le drapeau des âmes.
 
 Sa main s'étira et le Fouet du Karma fouetta à plusieurs reprises l'intérieur de la brume noire. Finalement, d'un coup sec du drapeau, il captura l'âme originelle. Le regard de Wang Lin resta impitoyable tandis qu'il extirpait l'âme originelle du cultivateur Lu du drapeau.
 

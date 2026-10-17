@@ -8,19 +8,19 @@ slug: affrontement-avec-qian-feng
 ---
 Qian Feng était à bout de souffle. Zhu Quezi lui avait dérobé une immense part de sa force vitale plus tôt, le laissant extrêmement affaibli. Sa haine envers Zhu Quezi était monstrueuse.
 
-« Heureusement, je ne l'ai pas utilisé lors d'un combat comme il me l'avait ordonné, sinon il m'aurait vidé de mon sang avant même que je n'aie pu tuer l'ennemi. » Qian Feng était furieux, mais ce n'était pas le moment de s'emporter contre Zhu Quezi. Il devait maintenant se concentrer sur la manière de contrer l'intention meurtrière qui le visait.
+« Heureusement, je ne l'ai pas utilisé lors d'un combat comme il me l'avait ordonné, sinon il m'aurait vidé avant même que je n'aie pu tuer l'ennemi. » Qian Feng était furieux, mais ce n'était pas le moment de s'emporter contre Zhu Quezi. Il devait maintenant se concentrer sur la manière de contrer l'intention meurtrière qui le visait.
 
-En vérité, Zhu Quezi n'avait pas commencé à comploter contre lui à la dernière minute. S'il n'y avait pas eu l'apparition du Clan Immortel Abandonné, il aurait peut-être trouvé un moyen d'échapper au destin lorsque sa durée de vie s'épuiserait, afin de continuer à vivre en volant le corps de Qian Feng.
+En vérité, Zhu Quezi n'avait pas commencé à comploter contre lui à la dernière minute. S'il n'y avait pas eu l'apparition du Clan des Immortels Délaissés, il aurait peut-être trouvé un moyen d'échapper au destin lorsque sa durée de vie s'épuiserait, afin de continuer à vivre en s'emparant de la durée de vie de Qian Feng.
 
 Zhu Quezi planifiait cela depuis que Qian Feng était enfant. La raison pour laquelle il avait fait dévorer tous ces domaines par Qian Feng n'était pas pour le bien de ce dernier, mais pour le sien.
 
-La méthode qu'il utilisait sur Qian Feng était en réalité un sort secret que les précédents Suzakus avaient développé. Ce sort était incomplet et n'avait moins de 10 % de chances de réussir; même en cas de succès, il ne retarderait la mort que de quelques décennies.
+La méthode qu'il utilisait sur Qian Feng était en réalité un sort secret que les précédents Suzakus avaient développé. Ce sort était incomplet et n'avait que moins de 10 % de chances de réussir; même en cas de succès, il ne retarderait la mort que de quelques décennies.
 
 De plus, ces quelques décennies de vie supplémentaire exigeaient un prix exorbitant.
 
-La poupée de cuivre était la clé. Elle avait été créée par le quatrième Suzaku à partir d'un métal provenant d'une autre planète, raffiné d'innombrables fois. Puis, les Suzakus suivants y avaient ajouté d'innombrables trésors célestes, permettant enfin l'usage de ce sort d'absorption de vie.
+La poupée de bronze était la clé. Elle avait été créée par le quatrième Suzaku à partir d'un fer venu d'au-delà du ciel, au fil d'innombrables années. Puis, les Suzakus suivants l'avaient raffinée sans relâche, lui permettant enfin d'absorber la durée de vie pour la condenser.
 
-En réalité, si cette poupée de cuivre possédait un tel pouvoir, c'était en raison de la mutation du Cristal de Planète de Culture, et les précédents Suzakus avaient appris à maîtriser cette puissance en étudiant le cristal.
+En réalité, si cette poupée de bronze possédait un tel pouvoir, c'était en raison de la mutation du Cristal de Planète de Culture, et les précédents Suzakus avaient appris à maîtriser cette puissance en étudiant le cristal.
 
 Cependant, cet objet n'était pas encore achevé et présentait de nombreux défauts. Actuellement, bien que Zhu Quezi l'ait utilisé pour prendre forme et paraisse plein de vitalité, ce n'était qu'une apparence temporaire.
 
@@ -120,4 +120,4 @@ Une épée de fer couverte de rouille qui semblait tout droit sortie du monde mo
 
 Pourtant, les taches de rouille dégageaient une puissante odeur de sang. Cette rouille était manifestement le résultat d'une épée imprégnée de sang depuis longtemps.
 
-« Ceci est un secret laissé par mon ancêtre, le dernier Suzaku. Même le Suzaku actuel ignore son existence. Ceng Niu, j'ai la formation du Suzaku et, puisque tu ne peux pas la briser, tu ne peux pas me tuer. En revanche, moi, je peux te tuer avec cette épée! »
+« Ceci est un secret laissé par mon ancêtre, le Suzaku de la génération précédente. Même le Suzaku actuel ignore son existence. Ceng Niu, j'ai la formation du Suzaku et, puisque tu ne peux pas la briser, tu ne peux pas me tuer. En revanche, moi, je peux te tuer avec cette épée! »

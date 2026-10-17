@@ -15,9 +15,9 @@ De même, s'il existe des sorts dérivés de sorts célestes de haute qualité, 
 
 Wang Lin n'était pas dépourvu de sorts offensifs. Qu'il s'agisse des trois sorts mortels de Situ Nan ou du char de guerre dont le premier sceau avait été libéré, tous constituaient des méthodes d'attaque redoutables. En plus de ceux-là, il possédait encore l'épée céleste et la lame en croissant. Cette dernière comptait sans doute parmi les trésors les plus précieux de Wang Lin.
 
-Quant aux sorts d'évasion, avec la restriction de téléportation, il ne s'en inquiétait guère. Bien que son utilisation demande un certain temps, une fois activée, sa puissance est extraordinaire. Quant à ses déplacements dans l'espace, il disposait de la boussole du dragon argenté, et sa vitesse n'y était donc inférieure à celle de quiconque.
+Quant aux sorts d'évasion, avec le sort interdit de téléportation, il ne s'en inquiétait guère. Bien que son utilisation demande un certain temps, une fois activée, sa puissance est extraordinaire. Quant à ses déplacements dans l'espace, il disposait de la boussole du dragon argenté, et sa vitesse n'y était donc inférieure à celle de quiconque.
 
-Toutefois, tout cela ne s'appliquait qu'en comparaison avec les cultivateurs au stade Ascendant. La puissance que l'on acquiert lorsque sa culture dépasse le stade Ascendant pour atteindre les deux étapes Yin et Yang, ou qui franchit ces paliers pour atteindre les trois étapes du Nirvana, était une chose que Wang Lin ne pouvait encore concevoir à l'heure actuelle.
+Toutefois, tout cela ne s'appliquait qu'en comparaison avec les cultivateurs au stade Ascendant. La puissance que l'on acquiert lorsque sa culture dépasse le stade Ascendant pour atteindre les deux étapes Yin et Yang, ou qui franchit ces paliers pour atteindre les trois étapes du Nirvana, qu'il s'agisse du Scruteur du Nirvana ou de la Purification du Nirvana, était une chose que Wang Lin ne pouvait encore concevoir à l'heure actuelle.
 
 L'Omniscient ne rompit pas la réflexion de Wang Lin. Il fixa silencieusement le lointain, sans montrer le moindre signe d'impatience. C'était le choix initial de Wang Lin; l'Omniscient voulait voir quel genre de sort cet enfant choisirait.
 
@@ -93,9 +93,9 @@ Une puissance mystérieuse et inimaginable surgit soudainement. Elle descendit d
 
 À cet unique mot, le ciel changea de couleur et la toile gigantesque vola en éclats. Une intention meurtrière inconcevable balaya alors les 5 000 kilomètres environnants. Tous les Omniscients présents furent contraints de battre en retraite, reculant sur des dizaines de milliers de kilomètres.
 
-À ce moment-là, seuls quelques rares Omniscients restaient dans le périmètre de 5 000 kilomètres; ceux qui possédaient les sorts interdits les plus puissants. Sous l'assaut de cette intention meurtrière, Wang Lin fut instantanément trempé de sueur froide. Cette force était des milliers de fois supérieure à celle de son corps originel. C'était comme comparer la lune éclatante à une luciole; il n'y avait aucune comparaison possible.
+À ce moment-là, seuls quelques rares Omniscients restaient dans le périmètre de 5 000 kilomètres; ceux qui possédaient les sorts interdits les plus puissants. Sous l'assaut de cette intention meurtrière, Wang Lin fut instantanément trempé de sueur froide. Cette force était d'innombrables fois supérieure à celle du corps véritable de l'Omniscient. C'était comme comparer la lune éclatante à une luciole; il n'y avait aucune comparaison possible.
 
-Auparavant, Wang Lin pensait que l'intention meurtrière de son corps originel était la plus forte, mais cet Omniscient gris possédait désormais l'intention la plus terrifiante qu'il ait jamais vue!
+Auparavant, Wang Lin pensait que l'intention meurtrière du corps véritable de l'Omniscient était déjà très forte, mais cet Omniscient gris possédait désormais l'intention la plus terrifiante qu'il ait jamais vue!
 
 Cependant, ce ne fut pas cela qui le choqua le plus. Ce qui le stupéfia, c'est que lorsque tous les autres s'étaient précipités, il avait clairement ressenti avec son Sens Divin que les 3 600 Omniscients étaient tous arrivés!
 

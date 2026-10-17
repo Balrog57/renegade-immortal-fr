@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 806 - Mysterious Yin Furnace
 slug: le-fourneau-yin-mystérieux
 ---
-Wang Lin laissa échapper un froid reniflement avant de se déplacer; il apparut instantanément aux côtés de la bête de brume. Ses deux doigts, formant une épée, se mouvrent plus vite que la créature. Il pressa directement son doigt entre les sourcils de la bête de brume, provoquant une explosion.
+Wang Lin laissa échapper un froid reniflement avant de se déplacer; il apparut instantanément aux côtés de la bête de brume. Ses deux doigts, formant une épée, se mouvaient plus vite que la créature. Il pressa directement son doigt entre les sourcils de la bête de brume, provoquant une explosion.
 
 Cependant, après l'effondrement, elle ne se dissipa pas, mais se transforma en un nuage de brouillard. La brume tourbillonnait et commençait à montrer des signes de reformation.
 
@@ -30,7 +30,7 @@ Une force d'aspiration inimaginable émana de la rivière des Enfers. Les bêtes
 
 Ce n'était pas une seule bête, mais presque toutes. Sous la force de l'aspiration, les bêtes de brume s'effondrèrent en un brouillard épais, comme si elles luttaient pour s'échapper. Cependant, elles ne purent résister et continuèrent d'être englouties par la rivière des Enfers.
 
-À ce moment-là, l'ancêtre du Clan des Immortels Élus afficha une expression anxieuse et cria pour arrêter Wang Lin: « Grand Céleste, ne faites pas ça! »
+À ce moment-là, l'ancêtre du Clan des Immortels Élus afficha une expression anxieuse et cria pour arrêter Wang Lin: « Haut Céleste, ne faites pas ça! »
 
 Les yeux de Wang Lin se rétrécirent. À l'appel du vieil homme, il sentit que la brume noire aspirée par la rivière des Enfers n'était pas en train d'être raffinée. Au lieu de cela, elle se rassemblait pour former une silhouette humaine.
 
@@ -38,11 +38,11 @@ Cette figure humaine n'était qu'une ombre emplie de brume, sans apparence préc
 
 Une fois apparue, son expression était totalement floue; seul l'œil droit était net.
 
-L'ancêtre du Clan des Immortels Élus descendit précipitamment du ciel. Non seulement lui, mais les autres membres du clan atterrirent également en hâte. Lorsque le vieil homme vit que la silhouette humaine n'avait qu'un œil droit, il poussa un soupir de soulagement. Il regarda Wang Lin et cria: « Grand Céleste, veuillez revenir pour que je puisse activer le réseau céleste! C'est une bête de brume humanoïde. Tant que le sort qui l'atteint ne la tue pas instantanément, elle ne sera pas blessée par ce même sort une seconde fois! »
+L'ancêtre du Clan des Immortels Élus descendit précipitamment du ciel. Non seulement lui, mais les autres membres du clan atterrirent également en hâte. Lorsque le vieil homme vit que la silhouette humaine n'avait qu'un œil droit, il poussa un soupir de soulagement. Il regarda Wang Lin et cria: « Haut Céleste, veuillez revenir pour que je puisse activer le réseau céleste! C'est une bête de brume humanoïde. Tant que le sort qui l'atteint ne la tue pas instantanément, elle ne sera pas blessée par ce même sort une seconde fois! »
 
 Les yeux de Wang Lin brillèrent et il se retira rapidement. À l'instant même de son retrait, la bête de brume humanoïde à l'œil unique se précipita sur lui.
 
-Le regard de Wang Lin devint glacial et le tonnerre en son corps s'accumula. En un clin d'œil, des dizaines de boules de tonnerre de la taille d'un poing se formèrent autour de lui. D'un geste du doigt, il projeta ces sphules de foudre vers la bête humanoïde.
+Le regard de Wang Lin devint glacial et le tonnerre en son corps s'accumula. En un clin d'œil, des dizaines de boules de tonnerre de la taille d'un poing se formèrent autour de lui. D'un geste du doigt, il projeta ces boules de tonnerre vers la bête humanoïde.
 
 Cependant, au moment où les boules de tonnerre allaient l'atteindre, Wang Lin cria tout en reculant: « Rassemblement! »
 
@@ -74,17 +74,17 @@ Quant à l'homme corpulent qui avait été écrasé au sol par un fragment, il l
 
 « Ceci... est un être céleste... »
 
-Les sorts de Wang Lin dépassaient de loin l'imagination de quiconque. Même l'ancêtre était abasourdi et murmura pour lui-même: « Paire du Dao du Flétrissement... »
+Les sorts de Wang Lin dépassaient de loin l'imagination de quiconque. Même l'ancêtre était abasourdi et murmura pour lui-même: « Paire de Dao Flétrie... »
 
 Wang Lin détacha son regard de l'endroit où la bête humanoïde avait disparu. Puis, il se tourna vers le vieil homme et dit calmement: « Maintenant, emmenez-moi au Fourneau Yin Mystérieux! »
 
-Le vieil homme prit une profonde inspiration. Le respect dans ses yeux s'intensifia et il répondit rapidement: « Par ici, Grand Céleste! » Tout en parlant, il s'élança dans les airs et vola lentement vers le groupe de bâtiments.
+Le vieil homme prit une profonde inspiration. Le respect dans ses yeux s'intensifia et il répondit rapidement: « Par ici, Haut Céleste! » Tout en parlant, il s'élança dans les airs et vola lentement vers le groupe de bâtiments.
 
 L'expression de Wang Lin resta neutre alors qu'il suivait tranquillement derrière eux.
 
 Cette fois, aucun des membres du Clan des Immortels Élus n'osa les interrompre. Les yeux de l'homme corpulent s'illuminèrent et il se redressa. Il prit ensuite quelques respirations profondes avant de s'élancer à leur suite.
 
-Le vieil homme se retourna et cria avec colère: « Ta Shan, vas-tu continuer à être ingrat?! Le Grand Céleste a déjà fait preuve de clémence! »
+Le vieil homme se retourna et cria avec colère: « Ta Shan, vas-tu continuer à être ingrat?! Le Haut Céleste a déjà fait preuve de clémence! »
 
 Wang Lin avait effectivement fait preuve de clémence. Après tout, il était venu ici sans rien savoir. Il craignait que le meurtre d'un membre du clan ne complique les choses; sinon, Ta Shan serait certainement mort.
 
@@ -100,7 +100,7 @@ Le vieil homme atterrit devant la porte. Il mordit le bout de son doigt et traç
 
 Des courants d'aura froide s'en échappèrent. Lorsque ce froid touchait le corps, il semblait pouvoir s'y infiltrer profondément. Si la culture de quelqu'un était insuffisante, cette aura laisserait des blessures internes cachées.
 
-Le vieil homme se tint sur le côté. « Grand Céleste, c'est ici que se trouve le Fourneau Yin Mystérieux. »
+Le vieil homme se tint sur le côté. « Haut Céleste, c'est ici que se trouve le Fourneau Yin Mystérieux. »
 
 Le Sens Divin de Wang Lin s'étendit. Il y avait une énergie spirituelle céleste très bien dissimulée sous cette aura glaciale.
 
@@ -114,7 +114,7 @@ Ta Shan regarda Wang Lin et dit: « Cet endroit est saturé d'énergie froide. L
 
 Le vieil homme fut surpris et rétorqua: « Bien que l'énergie froide soit intense, mon corps peut encore la supporter. »
 
-Ta Shan regarda Wang Lin et dit: « Grand Céleste, Ta Shan est le gardien de l'autel de cette génération. J'ai les qualifications pour vous accompagner à l'intérieur! »
+Ta Shan regarda Wang Lin et dit: « Haut Céleste, Ta Shan est le gardien de l'autel de cette génération. J'ai les qualifications pour vous accompagner à l'intérieur! »
 
 Le regard de Wang Lin était calme tandis qu'il observait Ta Shan. Ses yeux semblaient dotés d'un pouvoir pénétrant, capable de lire dans le cœur de l'homme.
 

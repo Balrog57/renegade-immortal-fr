@@ -104,7 +104,7 @@ Il avait mis trois jours pour modifier le réseau, mais trente jours pour y ajou
 
 « Si quelqu'un venait vraiment par ici... Il serait sans aucun doute stupéfait! » Les yeux de Wang Lin brillèrent alors que son Sens Divin pénétrait dans la boussole pour l'activer. Soudain, un éclat de lumière rouge sang enveloppa tout son corps et, après quelques respirations, la lueur disparut, emportant Wang Lin avec elle.
 
-Une explosion de lumière rouge sang se produisit sur le Mont Gu Dao, à 500 kilomètres du camp militaire, et Wang Lin apparut!
+Une explosion de lumière rouge sang se produisit sur le Mont Gu, à 500 kilomètres du camp militaire, et Wang Lin apparut!
 
 La lumière aveuglante du soleil frappa ses yeux. Il observa les environs avec la sensation d'être venu d'un autre monde. Les contours lointains de la Grande Muraille Antique semblaient inchangés depuis son départ.
 

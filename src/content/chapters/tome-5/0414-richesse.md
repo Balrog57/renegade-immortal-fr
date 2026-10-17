@@ -96,7 +96,7 @@ Après un soupir, il ramassa les pierres de jade une à une pour les examiner av
 
 « Après une décennie, ce vieil homme en était réduit à mendier des matériaux de forge. J'ai créé plusieurs épées, mais aucune ne correspondait à mon désir, alors j'ai abandonné. »
 
-« Cette année-là, la Secte Heng Yue fut frappée par une grande calamité suite l'attaque d'ennemis puissants; la secte était sur le point de périr. »
+« Cette année-là, la Secte Heng Yue fut frappée par une grande calamité suite à l'attaque d'ennemis puissants; la secte était sur le point de périr. »
 
 « Ce vieil homme est né dans la Secte Heng Yue et mourrait naturellement en elle. J'ai ouvert mon fourneau une dernière fois pour forger une épée. Pressé par le temps, j'ai délaissé les matériaux précieux pour utiliser des métaux ordinaires, puis j'ai forgé une grande épée. »
 
@@ -106,7 +106,7 @@ Après un soupir, il ramassa les pierres de jade une à une pour les examiner av
 
 « C'était le sentiment que je recherchais. J'ai nommé l'épée Richesse. Bien que ce nom ne soit guère prestigieux, il traduisait exactement ce que je ressentais. »
 
-« Mon âme semblait fusionner totalement avec cette épée; je me suis alors précipité pour résoudre la calamité de ma Secte Heng Yue. En partant, j'ai laissé une technique d'épée à l'intérieur de la lame. J'espère que les futurs disciples traiteront cette épée avec bienveillance. »
+« Mon âme semblait fusionner totalement avec cette épée; je me suis alors précipité pour résoudre la calamité de ma Secte Heng Yue. Puis je suis mort en souriant, après avoir laissé une technique d'épée à l'intérieur de Richesse. J'espère que les futurs disciples traiteront cette épée avec bienveillance. »
 
 Wang Lin reposa le jade et ferma les yeux, secoué intérieurement. Si sa motivation première était de découvrir le sort de la Secte Heng Yue, il cherchait aussi à en savoir plus sur Richesse.
 
@@ -124,7 +124,7 @@ Une demi-lune plus tard, il ressortit de la faille spatiale, le sourcil froncé.
 
 « Je crains que l'épée ne soit déjà détruite... »
 
-« Je dois vite retourner à la Secte du Affinement de l'Âme et trouver une multitude de jades célestes pour atteindre le stade de la Transformation de l'Âme! » Sur ces mots, Wang Lin disparut. Lorsqu'il réapparut, il se trouvait dans une ancienne matrice de téléportation avant de quitter définitivement Zhao.
+« Je dois vite retourner à la Secte de l'Affinement de l'Âme et trouver une multitude de jades célestes pour atteindre le stade de la Transformation de l'Âme! » Sur ces mots, Wang Lin disparut. Lorsqu'il réapparut, il se trouvait dans une ancienne matrice de téléportation; il l'activa et quitta Zhao.
 
 Dans un pays de culture de rang 4 situé à l'ouest de la planète Suzaku — un pays désormais sous le joug du Clan des Immortels Délaissés, dont les habitants étaient devenus leurs serviteurs — un homme portant un chapeau de paille se tenait à la frontière. Il était enveloppé d'une aura dorée.
 
@@ -134,4 +134,4 @@ Dans un pays de culture de rang 4 situé à l'ouest de la planète Suzaku — un
 
 Il fit un pas et disparut.
 
-Dans une ancienne matrice de téléportation du pays de Pilu, une lumière éclatante jaillit et Wang Lin en sortit. Il s'élança immédiatement dans les airs, fonçant droit vers la Secte du Affinement de l'Âme.
+Dans une ancienne matrice de téléportation du pays de Pilu, une lumière éclatante jaillit et Wang Lin en sortit. Il s'élança immédiatement dans les airs, fonçant droit vers la Secte de l'Affinement de l'Âme.

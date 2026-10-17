@@ -12,7 +12,7 @@ Wang Lin sourit. « Je n'ai pas une grande confiance en ma capacité à briser v
 
 Sun Yunshan prit une profonde inspiration, recula de quelques pas et fit un profond salut à Wang Lin. Il leva la tête, les yeux brillants d'excitation, et déclara: « Frère Wang, les mots ne sauraient exprimer ma gratitude pour ce que vous avez fait pour moi. Si un jour je peux retourner sur la planète Tian Yun, je vous rendrai assurément ce bienfait! »
 
-« Frère Sun, ne soyez pas ainsi. » Wang Lin secoua la tête et ajouta: « En réalité, même si vous n'étiez pas apparu, j'aurais dû me rendre à cette union de culture de toute façon. Cet Ancêtre a déjà été provoqué deux fois; si je n'agis pas, il y aura une troisième et une quatrième fois. Cela ne s'arrêterait jamais! »
+« Frère Sun, ne soyez pas ainsi. » Wang Lin secoua la tête et ajouta: « En réalité, même si vous n'étiez pas apparu, j'aurais dû me rendre à cette union de culture de toute façon. Cet Ancêtre m'a déjà provoqué deux fois; si je n'agis pas, il y aura une troisième et une quatrième fois. Cela ne s'arrêterait jamais! »
 
 « Frère Wang, quoi qu'il en soit, je m'en souviendrai! » La voix de Sun Yunshan était empreinte d'une sincérité profonde.
 
@@ -30,7 +30,7 @@ Quant à Sun Yunshan, il se tenait aux côtés de Wang Lin. Il était très inqu
 
 Il avait quelques spéculations concernant la graine céleste. Cependant, il ne pourrait les confirmer qu'après avoir rencontré ce soi-disant Ancêtre du Royaume Céleste.
 
-Un vieil homme chétif était assis en position de lotus au cœur d'une tour, profondément enfouie dans le miasme. Trois femmes étaient assises face à lui. Toutes trois étaient d'une grande beauté, et l'une d'elles n'était autre que la petite sœur de Sun Yunshan, Sun Ruonan.
+Un vieil homme chétif était assis en position de lotus au cœur d'un château, profondément enfoui dans le miasme. Trois femmes étaient assises face à lui. Toutes trois étaient d'une grande beauté, et l'une d'elles n'était autre que la petite sœur de Sun Yunshan, Sun Ruonan.
 
 Des volutes de gaz rose s'échappaient de la bouche et du nez des trois femmes. Ce gaz formait de merveilleuses illusions qui dansaient autour du vieil homme.
 
@@ -76,7 +76,7 @@ Un chemin rectiligne menant au château se libéra devant lui.
 
 L'un des spectateurs s'exclama: « Un Gardien Céleste! » On ne savait s'il l'avait fait exprès ou s'il était réellement stupéfait.
 
-Wang Lin resta impassible et daigna même pas regarder l'assaillant. Il fit un pas en avant et commença à marcher vers le château. Bien que sa vitesse fût modérée, elle força tout le monde à plisser les yeux. À cet instant, pour ces cultivateurs, contempler Wang Lin revenait à contempler les Grands Anciens de leurs propres sectes. Cette aura et cette sérénité n'étaient pas l'apanage d'un cultivateur ordinaire!
+Wang Lin resta impassible et ne daigna même pas regarder l'assaillant. Il fit un pas en avant et commença à marcher vers le château. Bien que sa vitesse fût modérée, elle força tout le monde à plisser les yeux. À cet instant, pour ces cultivateurs, contempler Wang Lin revenait à contempler les Grands Anciens de leurs propres sectes. Cette aura et cette sérénité n'étaient pas l'apanage d'un cultivateur ordinaire!
 
 Seuls ceux possédant une certaine confiance en leur propre culture pouvaient émaner une telle présence.
 
@@ -90,7 +90,7 @@ Dégager une telle sensation signifiait que Wang Lin possédait son propre Dao. 
 
 En vérité, tous les cultivateurs possèdent un Dao, mais le condenser sous une forme corporelle est une tâche extrêmement ardue.
 
-« Il... il a déjà atteint ce niveau... » L'homme en bleu fut envahi par une profonde mélancolie. À cet instant, il en oublia la graine dans son corps. Sa seule pensée était de comparer le Wang Lin d'autrefois — un sauvage issu d'une planète de culture déclinante comme Suzaka, moqué par tous — et l'homme qu'il était devenu: un être doté de son propre Dao, digne d'être considéré comme un grand maître de sa génération.
+« Il... il a déjà atteint ce niveau... » L'homme en bleu fut envahi par une profonde mélancolie. À cet instant, il en oublia la graine dans son corps. Sa seule pensée était de comparer le Wang Lin d'autrefois — un sauvage issu d'une planète de culture déclinante comme Suzaku, moqué par tous — et l'homme qu'il était devenu: un être doté de son propre Dao, digne d'être considéré comme un grand maître de sa génération.
 
 Tandis que Wang Lin continuait d'avancer, l'ombre se rapprochait rapidement. Lorsqu'elle fut à trente-trois mètres, l'assaillant déclencha divers sorts liés aux bêtes. Ces sortilèges se transformèrent en créatures féroces qui ouvrirent leurs mâchoires pour dévorer Wang Lin.
 

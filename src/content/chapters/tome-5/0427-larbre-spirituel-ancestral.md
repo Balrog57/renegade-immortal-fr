@@ -14,29 +14,29 @@ Un immense cadavre s'extirpa du cercueil dans un fracas de grincements. Ce corps
 
 De gigantesques asticots s'agitaient encore à l'intérieur de la chair, rendant la vision profondément répugnante.
 
-Cependant, la tête du cadavre était remarquablement bien conservée, et entre ses sourcils, une hache violette se détachait nettement.
+Cependant, la tête du cadavre était remarquablement bien conservée, et entre ses sourcils, une marque de hache violette se détachait nettement.
 
-C'est alors qu'une voix calme retentit au loin: « Cinquième ancêtre du Clan de l'Immortel Déchu, ce vieil homme Chu Yunfei est venu pour combattre! »
+C'est alors qu'une voix calme retentit au loin: « Cinquième ancêtre du Clan des Immortels Délaissés, ce vieil homme Chu Yunfei est venu pour combattre! »
 
 Dès que cette voix atteignit leurs oreilles, un fracas assourdissant retentit à l'extérieur du nuage noir. Peu après, une pression colossale surgit et pulvérisa la masse sombre.
 
-À 3,3 kilomètres de là se tenait un cultivateur Ascendant de la Secte de la Jade Céleste, dont le regard brillait comme l'éclair. Derrière lui se trouvait une légion de cultivateurs au regard glacial, empreints d'une intention meurtrière.
+À 3,3 kilomètres de là se tenait un cultivateur Ascendant de la Secte du Jade Céleste, dont le regard brillait comme l'éclair. Derrière lui se trouvait une légion de cultivateurs au regard glacial, empreints d'une intention meurtrière.
 
 Le regard du cinquième ancêtre se glaça. Il agita sa main droite et ordonna: « Tuez! »
 
-Sur cet ordre, tous les membres du Clan de l'Immortel Déchu chargèrent, déclenchant le combat.
+Sur cet ordre, tous les membres du Clan des Immortels Délaissés chargèrent, déclenchant le combat.
 
 Chu Yunfei arriva aux côtés du cercueil, lui asséna un coup de paume et tonna: « Secte des Cadavres, vous cherchez la mort! »
 
-Avant que la main de Chu Yunfei ne puisse frapper, le cinquième ancêtre tendit le bras et attira le cadavre géant vers les membres du clan qui effectuaient leurs offrandes.
+Avant que la main de Chu Yunfei ne puisse frapper, le cinquième ancêtre tendit le bras, saisit le cadavre géant à distance et le jeta vers le centre, là où les membres du clan effectuaient leurs offrandes.
 
 Dans un fracas sourd, l'immense corps s'écrasa au sol, créant une onde de choc qui souleva un épais nuage de poussière. Sous la force de la paume de Chu Yunfei, le cercueil avait été réduit en cendres.
 
 Le cinquième ancêtre lança promptement: « Activez l'Arbre de la Réincarnation! » Puis, il chargea vers Chu Yunfei et agita la main. Des nuages noirs surgirent aussitôt pour les envelopper, lui et son adversaire.
 
-Des éclairs jaillissaient de l'intérieur des nuages noirs, accompagnés d'ondes de choc provoquées par l'usage de l'énergie spirituelle céleste. Quiconque était pris dans ces ondes était instantanément réduit en poussière.
+Des lueurs de trésors magiques fulguraient à l'intérieur des nuages noirs, accompagnées d'ondes de choc provoquées par l'usage de l'énergie spirituelle céleste. Quiconque était pris dans ces ondes était instantanément réduit en poussière.
 
-Alors que le cinquième ancêtre s'élançait, l'un des Anciens bondit par-dessus les membres du clan pour atterrir sur le cadavre géant. Il semblait ignorer la présence des asticots sur la chair; sa main droite tendue fit apparaître une sphère de lumière dorée de la taille d'un poing.
+Alors que le cinquième ancêtre s'élançait, un vieillard à huit feuilles du clan bondit par-dessus les membres du clan pour atterrir sur le cadavre géant. Il semblait ignorer la présence des asticots sur la chair; sa main droite tendue fit apparaître une sphère de lumière dorée de la taille d'un poing.
 
 À cet instant, les yeux d'un cultivateur au stade intermédiaire de la Transformation de l'Âme s'illuminèrent. Il esquiva son adversaire pour charger l'homme à la lumière dorée en criant: « Lâche cette lumière! » et projeta une épée volante.
 
@@ -52,7 +52,7 @@ Chu Yunfei, qui affrontait le cinquième ancêtre, fronça les sourcils en recul
 
 Les cultivateurs environnants chargèrent tous vers la créature.
 
-Cependant, les membres du Clan de l'Immortel Déchu se jetèrent sur leur passage, faisant fi de leur propre vie. Certains étaient même prêts à s'autodétruire pour barrer la route aux assaillants.
+Cependant, les membres du Clan des Immortels Délaissés se jetèrent sur leur passage, faisant fi de leur propre vie. Certains étaient même prêts à s'autodétruire pour barrer la route aux assaillants.
 
 La lueur dorée ne cessait de croître. À cet instant, le cadavre du Démon Géant commença à se rétracter. La lumière dorée ressemblait à une plante puisant ses nutriments directement dans la terre.
 
@@ -68,7 +68,7 @@ L'expression de Chu Yunfei changea radicalement alors qu'il tentait de reculer p
 
 Le cinquième ancêtre ricana en chargeant vers lui. Voyant que la situation était hors de contrôle, Chu Yunfei décida de ne plus lutter et hurla en s'enfuyant: « Repli! »
 
-Les cultivateurs qui combattaient le Clan de l'Immortel Déchu poussèrent des soupirs de déception et battirent en retraite.
+Les cultivateurs qui combattaient le Clan des Immortels Délaissés poussèrent des soupirs de déception et battirent en retraite.
 
 Alors que les membres du clan s'apprêtaient à les poursuivre, le cinquième ancêtre ordonna: « Ne les poursuivez pas! Protégez l'Arbre Spirituel Ancestral de la Réincarnation! »
 
@@ -84,7 +84,7 @@ Le visage de l'Ancien Sima devint grave. Il frappa son sac de stockage et en sor
 
 Il plaça soigneusement le tatouage à l'intérieur avant de pousser un soupir de soulagement et de ranger la boîte. Il rit ensuite: « Le cinquième ancêtre est d'un pragmatisme exemplaire. J'espère que les autres ancêtres en feront autant. »
 
-« Puisque mon Clan de l'Immortel Déchu a fait une promesse à votre Secte des Cadavres, nous ne reviendrons pas sur notre engagement! » rétorqua froidement le cinquième ancêtre.
+« Puisque mon Clan des Immortels Délaissés a fait une promesse à votre Secte des Cadavres, nous ne reviendrons pas sur notre engagement! » rétorqua froidement le cinquième ancêtre.
 
 Sima rit, les yeux brillants, et ajouta soudain: « Je transmettrai un message du Maître de la Secte des Cadavres. Dans ma secte, nous possédons encore un cadavre de Démon Géant qui a autrefois abattu nombre de vos chamans à neuf feuilles. Son corps a déjà atteint le stade intermédiaire d'Ascendant. Si cela vous intéresse, contactez-nous à tout moment! » Sur ces mots, il ne prit même pas le temps d'attendre une réponse et disparut rapidement.
 
@@ -100,32 +100,32 @@ Dès que l'Arbre Spirituel Ancestral de la Réincarnation commença sa croissanc
 
 Il absorba tous les nutriments destinés à l'arbre, provoquant l'effondrement du précieux germe de l'Arbre Spirituel Ancestral de la Réincarnation.
 
-Cette scène stupéfiante laissa tous les membres du Clan de l'Immortel Déchu sans voix. Le quatrième ancêtre, furieux, dut sacrifier des tatouages pour finalement localiser Situ Nan.
+Cette scène stupéfiante laissa tous les membres du Clan des Immortels Délaissés sans voix. Le quatrième ancêtre, furieux, dut sacrifier des tatouages pour finalement localiser Situ Nan.
 
 Situ Nan ricana avec arrogance face au quatrième ancêtre et disparut, ne laissant derrière lui qu'une voix portée par le vent: « Merde, c'était infect! Si j'avais su que c'était aussi dégueulasse, je ne l'aurais pas mangé! »
 
-Les cheveux du quatrième ancêtre blanchirent instantanément et ses yeux devinrent si injectés de sang que des larmes de sang menaçaient de couler. Il poussa un rugissement et chargea pour poursuivre Situ Nan. Ce dernier n'avait pas seulement dévoré un Arbre de la Réincarnation, mais un Esprit Ancestral!
+Les yeux du quatrième ancêtre, un vieillard aux cheveux blancs, devinrent si injectés de sang que des larmes de sang menaçaient de couler. Il poussa un rugissement et chargea pour poursuivre Situ Nan. Ce dernier n'avait pas seulement dévoré un Arbre de la Réincarnation, mais un Esprit Ancestral!
 
-C'était l'un des cinq Esprits Ancestraux que le Clan de l'Immortel Déchu avait nourri pendant des dizaines de milliers d'années. Une fois qu'un Esprit Ancestral est mature et combiné à un sort spécial, il peut invoquer un corps spirituel depuis le vide. Ce corps fusionne alors avec l'Esprit pour créer un chaman à dix feuilles!
+C'était l'un des cinq Esprits Ancestraux que le Clan des Immortels Délaissés avait nourri pendant des dizaines de milliers d'années. Une fois qu'un Esprit Ancestral est mature et combiné à un sort spécial, il peut invoquer un corps spirituel depuis le vide. Ce corps fusionne alors avec l'Esprit pour créer un chaman à dix feuilles!
 
 Mais un Esprit Ancestral venait d'être dévoré sous ses yeux. Sa rage atteignit les sommets de la folie.
 
 « Je vais te tuer! » hurla le quatrième ancêtre en poursuivant frénétiquement Situ Nan.
 
-Situ Nan s'échappait à une vitesse prodigieuse tout en riant: « La méthode de la première génération de Suzaku est un peu sans gêne, mais ce vieux homme l'apprécie. Plus tard, je transmettrai cette méthode à Wang Lin pour que nous la pratiquions ensemble, mais avec son niveau actuel, il ne pourrait pas la supporter. Une fois que j'aurai un corps et digéré le pouvoir de l'Esprit Ancestral, je ferai bouillir ce petit chien fou. Cela réduira considérablement mon temps de récupération! J'en tirerai profit personnellement en éliminant un chaman dont la puissance est comparable à celle d'un cultivateur Ascendant; on peut dire que je n'oublie pas la bonté de la première génération de Suzaku! »
+Situ Nan s'échappait à une vitesse prodigieuse tout en riant: « La méthode de la première génération de Suzaku est un peu sans gêne, mais ce vieil homme l'apprécie. Quand j'aurai un corps, je transmettrai cette méthode à Wang Lin pour que nous dévorions ensemble, tous les deux, mais avec son niveau actuel, il ne pourrait pas la supporter! »
 
 « Je vais te tuer! » Un rugissement féroce, semblant sortir d'un cœur déchiré, retentit derrière Situ Nan. La haine qui émanait de ce cri était indicible.
 
 Wang Lin avait déjà entendu le rugissement au loin. Il rangea immédiatement la bête moustique et s'envola rapidement sur le côté plutôt que de rester immobile à attendre Situ Nan.
 
-Lorsque le Sens Divin de Situ Nan se déploya, il localisa Wang Lin et se téléporta vers lui. Apparaissant à ses côtés, il dit précipitamment: « Tu es trop lent; je vais te porter. Il y a un chien fou qui nous talonne. Une fois que ce vieux homme aura un corps et aura digéré le pouvoir de l'Esprit Ancestral, je ferai vraiment bouillir ce petit chien fou! »
+Lorsque le Sens Divin de Situ Nan se déploya, il localisa Wang Lin et se téléporta vers lui. Apparaissant à ses côtés, il dit précipitamment: « Tu es trop lent; je vais te porter. Il y a un chien fou qui nous talonne. Une fois que ce vieil homme aura un corps et aura digéré le pouvoir de l'Esprit Ancestral, je ferai vraiment bouillir ce petit chien fou! »
 
 Sur ces mots, il saisit Wang Lin et s'élança à toute allure.
 
-La vitesse de Situ Nan était fulgurante. En un clin d'œil, lui et Wang Lin avaient quitté le continent Suzaku pour mettre le cap sur le pôle Nord.
+La vitesse de Situ Nan était fulgurante. En un clin d'œil, lui et Wang Lin avaient quitté le continent Suzaku pour mettre le cap sur la Petite Terre des Flammes du Nord.
 
-Le quatrième ancêtre du Clan de l'Immortel Déchu semblait résolu à ne pas lâcher la trace de Situ Nan.
+Le quatrième ancêtre du Clan des Immortels Délaissés semblait résolu à ne pas lâcher la trace de Situ Nan.
 
 Pendant sa fuite, Situ Nan ne montrait aucune crainte; il ralentissait même parfois pour permettre au quatrième ancêtre de le rattraper.
 
-« Ce vieux homme a dévoré leur Esprit Ancestral et, après ma fusion avec ce corps, je dévorerai aussi ce petit chien fou. Cela accélérera grandement ma récupération! Je serai le seul bénéficiaire en éliminant un chaman d'une puissance équivalente à celle d'un Ascendant; ainsi, on pourra dire que je n'ai pas oublié la bienveillance de la première génération de Suzaku! » rit Situ Nan.
+« Ce vieil homme a dévoré leur Esprit Ancestral et, après ma fusion avec ce corps, je dévorerai aussi ce petit chien fou. Cela accélérera grandement ma récupération! Je serai le seul bénéficiaire en éliminant un chaman d'une puissance équivalente à celle d'un Ascendant; ainsi, on pourra dire que je n'ai pas oublié la bienveillance de la première génération de Suzaku! » rit Situ Nan.

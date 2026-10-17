@@ -22,21 +22,21 @@ Wang Lin réfléchit un instant avant de mémoriser le symbole, puis cessa d'y p
 
 « Elle possède la Pilule de l'Âme Sanguine; si je tentais une attaque surprise, elle ne ferait que se régénérer. Il serait difficile de l'éliminer... »
 
-Sept jours plus tard, une autre plateforme apparut au bout du Chemin du Dragon Vénéré. Cette plateforme était de taille identique à la précédente et, tout comme elle, une statue en trônait au centre.
+Sept jours plus tard, une autre plateforme apparut au bout du Chemin du Dragon Sacré. Cette plateforme était de taille identique à la précédente et, tout comme elle, une statue en trônait au centre.
 
-L'apparence de cette statue était presque indiscernable de la première. La seule différence résidait dans le troisième œil mi-clos qui ornaient son front.
+L'apparence de cette statue était presque indiscernable de la première. La seule différence résidait dans le troisième œil mi-clos qui ornait son front.
 
 Au bout du chemin, Yao Xixue se retourna pour dévisager Wang Lin. Bien qu'elle n'ait pas prononcé un mot, ses intentions étaient explicites par ses actes.
 
 Wang Lin n'était pas homme à traîner les pieds, et ce n'était pas le moment de la confronter, du moins pas avant d'avoir percé tous les secrets de ce lieu.
 
-D'un seul pas, il bondit par-dessus Yao Xixue pour atterrir directement sur la plateforme. Dès qu'il eut touché le sol, il ferma les yeux. Le sceau de vie apparut instantanément sur son front, scellant sa vision.
+D'un seul pas, il bondit par-dessus Yao Xixue pour atterrir directement sur la plateforme. Dès qu'il eut touché le sol, il ferma les yeux. Le sceau de vie se condensa instantanément sur ses yeux, scellant sa vision.
 
 Une fois cela fait, il avança sur la plateforme, les yeux clos par le sceau de vie. C'était une expérience pour Wang Lin; il voulait voir si le symbole doré pouvait percer le sceau de vie.
 
 Le symbole doré ne parvint pas à le traverser, mais au moment même où Wang Lin atterrit, la statue trembla. Elle ouvrit les yeux et fixa violemment Wang Lin avant de charger vers lui dans un rugissement.
 
-Le sceau de vie se détacha immédiatement de ses yeux pour recouvrir son corps. Simultanément, Wang Lin recula de plusieurs pas et contourna la statue tel un dragon s'enroulant autour d'une proie.
+Le sceau de vie se détacha immédiatement de ses yeux pour recouvrir son corps. Simultanément, Wang Lin recula de plusieurs pas et se mit à tournoyer autour de la statue tel un dragon nageant.
 
 Alors que la statue rugissait, elle se lança à la poursuite de Wang Lin.
 

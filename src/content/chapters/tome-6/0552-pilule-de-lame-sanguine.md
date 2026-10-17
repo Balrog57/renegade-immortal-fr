@@ -20,7 +20,7 @@ Un sentiment de mépris l'envahit, et sa voix devint naturellement plus glaciale
 
 Wang Lin ne fut pas affecté par son ton et répondit calmement: « Les trésors ou les sorts m'importent peu. Le mieux serait de les convertir en davantage de jades célestes! »
 
-Le mépris dans le cœur de Yao Xixue s'intensifia et elle déclara: « La grotte de sang de mon père regorge de jades célestes. Je vous donnerai un jeton et, une fois que vous aurez quitté la Terre de l'Esprit Démon, vous pourrez aller les chercher vous-même! »
+Le mépris dans le cœur de Yao Xixue s'intensifia et elle déclara: « La grotte de sang de mon père regorge de jades célestes. Je vous donnerai un jeton et, une fois que vous aurez quitté la Terre des Esprits Démoniaques, vous pourrez aller les chercher vous-même! »
 
 Wang Lin hocha la tête: « Très bien, mais cette affaire est périlleuse, je dois encore y réfléchir. »
 
@@ -40,7 +40,7 @@ Ces symboles scintillaient selon une fréquence étrange qui s'accordait parfait
 
 Wang Lin demanda d'un ton sérieux: « Qu'est-ce que c'est? »
 
-Yao Xixue ne cacha pas son mépris: « Vous ne savez même pas ce que c'est? Cela ne m'étonne guère, puisque vous venez de devenir le disciple de l'Omniscient. C'est une chose unique à mon père, l'Ancêtre de Sang. On l'appelle la Pilule de l'Âme Sanguine! »
+Yao Xixue ne cacha pas son mépris: « Vous ne savez même pas ce que c'est? Cela ne m'étonne guère, puisque vous venez de devenir le disciple de l'Omniscient. C'est une chose unique à mon père, l'Ancêtre Sanguin. On l'appelle la Pilule de l'Âme Sanguine! »
 
 « La Pilule de l'Âme Sanguine! » C'était la première fois que Wang Lin en entendait parler, mais son expression resta imperturbable. Il ignorait que si les cultivateurs de Tian Yun entendaient cela, ils deviendraient tous fous de rage ou d'envie.
 
@@ -68,7 +68,7 @@ En la tenant, Wang Lin ressentit un puissant lien de sang. C'était comme si ell
 
 Wang Lin prit une profonde inspiration, leva la tête vers Yao Xixue et dit d'un ton solennel: « Donnez-moi les jades célestes! »
 
-Sans un mot, Yao Xixue sortit un sac de rangement, le lança à Wang Lin et déclara: « Voici assez de jades pour que vous atteigniez le stade avancé de la Transformation de l'Âme. Je vous donnerai le reste à notre retour! Dans trois jours, venez me trouver dans la Montagne Ancienne à minuit! »
+Sans un mot, Yao Xixue sortit un sac de rangement, le lança à Wang Lin et déclara: « Voici assez de jades pour que vous atteigniez le stade avancé de la Transformation de l'Âme. Je vous donnerai le reste à notre retour! Dans trois jours, venez me trouver au Mont Gu à minuit! »
 
 Wang Lin réfléchit un instant. Puis, il répondit lentement: « Je viendrai. »
 
@@ -76,7 +76,7 @@ Yao Xixue esquissa un sourire et partit. Elle ne craignait pas que Wang Lin s'em
 
 Le regard de Wang Lin resta fixé sur Yao Xixue jusqu'à ce qu'elle disparaisse au loin. Il détourna les yeux et se mit à méditer.
 
-« Cette femme est d'une insouciance déconcertante... Elle ne craint pas que je rompe ma promesse. Pourtant, il doit y avoir une raison à cette désinvolture. Je suppose qu'elle se fiche éperdument des jades célestes. Pour pouvoir en distribuer autant d'un coup, son père, l'Ancêtre de Sang, doit en posséder une quantité immense. »
+« Cette femme est d'une insouciance déconcertante... Elle ne craint pas que je rompe ma promesse. Pourtant, il doit y avoir une raison à cette désinvolture. Je suppose qu'elle se fiche éperdument des jades célestes. Pour pouvoir en distribuer autant d'un coup, son père, l'Ancêtre Sanguin, doit en posséder une quantité immense. »
 
 « Cependant, cette Pilule de l'Âme Sanguine est étrange. Si elle est aussi exceptionnelle qu'elle le prétend, elle ne peut être que d'une rareté extrême. Elle doit être comparable à un véritable sortilège céleste! »
 
@@ -90,15 +90,15 @@ Une brume noire jaillit rapidement de l'étendard et prit la forme humaine. C'é
 
 Dès son apparition, Cao Yidou se prostra au sol et dit respectueusement: « Salutations, Maître! »
 
-Wang Lin ne perdit pas de temps: « Connais-tu l'Ancêtre de Sang? »
+Wang Lin ne perdit pas de temps: « Connais-tu l'Ancêtre Sanguin? »
 
-À la mention du nom d'« Ancêtre de Sang », l'expression de Cao Yidou changea instantanément. Il lui fallut un long moment pour reprendre contenance avant de répondre: « Je sais que la renommée de l'Ancêtre de Sang est connue de chaque cultivateur sur la planète Tian Yun! La rumeur dit qu'il a défié l'Omniscient sept fois et que, bien qu'il ait perdu à chaque fois, sa culture était plus puissante à chaque nouveau combat. On raconte aussi qu'il serait le troisième cultivateur le plus puissant de la planète Tian Yun après l'Omniscient et Ling Tianhou. Bien que ce ne soit qu'une rumeur, cela montre l'immensité de sa puissance! »
+À la mention du nom d'« Ancêtre Sanguin », l'expression de Cao Yidou changea instantanément. Il lui fallut un long moment pour reprendre contenance avant de répondre: « Je sais que la renommée de l'Ancêtre Sanguin est connue de chaque cultivateur sur la planète Tian Yun! La rumeur dit qu'il a défié l'Omniscient sept fois et que, bien qu'il ait perdu à chaque fois, sa culture était plus puissante à chaque nouveau combat. On raconte aussi qu'il serait le troisième cultivateur le plus puissant de la planète Tian Yun après l'Omniscient et Ling Tianhou. Bien que ce ne soit qu'une rumeur, cela montre l'immensité de sa puissance! »
 
 Wang Lin réfléchit un instant: « As-tu entendu parler de la Pilule de l'Âme Sanguine? »
 
 « La Pilule de l'Âme Sanguine!!! » Cao Yidou s'emballa immédiatement. Son excitation était plus grande que lorsqu'il avait espéré un corps de Transformation de l'Âme de la part de Wang Lin.
 
-« Maître, cette pilule est considérée comme l'un des trois trésors suprêmes de la planète Tian Yun! Elle possède le pouvoir de défier les cieux et de changer le destin en permettant aux cultivateurs de renaître des morts! Elle n'appartient qu'à l'Ancêtre de Sang; nul ne sait comment il a pu en obtenir autant! » Cao Yidou parlait de plus en plus vite, surexcité.
+« Maître, cette pilule est considérée comme l'un des trois trésors suprêmes de la planète Tian Yun! Elle possède le pouvoir de défier les cieux et de changer le destin en permettant aux cultivateurs de renaître des morts! Elle n'appartient qu'à l'Ancêtre Sanguin; nul ne sait comment il a pu en obtenir autant! » Cao Yidou parlait de plus en plus vite, surexcité.
 
 Wang Lin ouvrit sa main droite, où la pilule de cire émettait un étrange scintillement. « Sais-tu ce que c'est? »
 
@@ -118,7 +118,7 @@ Cao Yidou semblait ne pas l'avoir entendu. Pour lui seul, la pilule comptait. Il
 
 En voyant son état, Wang Lin fronça les sourcils et laissa échapper un reniflement glacial. Ce souffle pénétra l'âme de Cao Yidou comme un seau d'eau glacée, le ramenant brusquement à la raison.
 
-Surpris par la question, il secoua amèrement la tête: « Pas élevée, sinon la Secte des Corps ne m'aurait pas envoyé sur la planète Suzaku pour posséder un corps. »
+Surpris par la question, il secoua amèrement la tête: « Pas élevée, sinon la Secte des Cadavres ne m'aurait pas envoyé sur la planète Suzaku pour posséder un corps. »
 
 Les yeux de Wang Lin s'illuminèrent: « Si ton statut n'est pas élevé, comment peux-tu connaître autant de choses sur la Pilule de l'Âme Sanguine, au point de savoir différencier le vrai du faux? »
 
@@ -128,4 +128,4 @@ Wang Lin hocha la tête et, d'un geste de l'étendard, rappela Cao Yidou à l'in
 
 « Si cet objet est si précieux, pourquoi sa méthode d'identification est-elle aussi répandue et acceptée comme vérité? Il doit y avoir une intention cachée derrière tout cela! »
 
-« L'Ancêtre de Sang... pas étonnant qu'il soit un vieux monstre ayant cultivé pendant si longtemps. D'un seul geste, il a dissipé le danger lié à la possession d'un trésor aussi rare. Si j'avais été lui, j'aurais agi de même! » Alors que Wang Lin serrait la pilule dans sa main, son regard devint d'une clarté absolue.
+« L'Ancêtre Sanguin... pas étonnant qu'il soit un vieux monstre ayant cultivé pendant si longtemps. D'un seul geste, il a dissipé le danger lié à la possession d'un trésor aussi rare. Si j'avais été lui, j'aurais agi de même! » Alors que Wang Lin serrait la pilule dans sa main, son regard devint d'une clarté absolue.

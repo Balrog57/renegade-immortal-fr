@@ -80,7 +80,7 @@ Dès lors, parmi les huit chefs de régiment proches de Sima Yan — à l'except
 
 Bien qu'il n'ait émis aucun ordre depuis sa nomination, sa majesté grandissait inexorablement, nourrie par le sang versé.
 
-Dans la Cité Démoniaque Antique, on comptait au total seize camps militaires. Tous portaient des armures noires, seules leurs insignes variaient légèrement. En ce moment même, dans le troisième camp, Yao Xixue cultivait silencieusement à l'intérieur d'une demeure.
+Dans la Cité du Démon Antique, on comptait au total seize camps militaires. Tous portaient des armures noires, seules leurs insignes variaient légèrement. En ce moment même, dans le troisième camp, Yao Xixue cultivait silencieusement à l'intérieur d'une demeure.
 
 Tard dans la nuit, Yao Xixue ouvrit les yeux. Son regard était d'une clarté éclatante. De l'autre côté de la fenêtre, la lune de la Terre des Esprits Démoniaques diffusait une lueur pourpre. Ce soir marquait l'ascension semi-annuelle du Démon Pourpre. La légende voulait que lors de cette ascension, les cieux et la terre entrent en communion.
 
@@ -128,7 +128,7 @@ Il montrait rarement son visage, mais sa prestance grandissait de jour en jour, 
 
 Au cours des mois passés, Hu Pao s'était senti comme un poisson dans l'eau au sein du camp militaire. Sa personnalité extravertie avait fait que, malgré quelques frictions initiales, les tensions s'étaient dissipées avec le temps. Ses interactions avec les différentes unités de l'armée s'étaient intensifiées.
 
-Cela était particulièrement vrai pour une chef d'équipe nommée Xu You. Dès qu'il l'eut aperçue, Hu Pao fut frappé de stupeur; depuis lors, il était éperdument amoureux d'elle.
+Cela était particulièrement vrai pour une chef de régiment nommée Xu You. Dès qu'il l'eut aperçue, Hu Pao fut frappé de stupeur; depuis lors, il était éperdument amoureux d'elle.
 
 De son côté, Treize restait assis dans la pagode, cultivant toute la journée tel un gardien immuable. Il manifestait une indifférence totale envers quiconque, hormis Wang Lin.
 
@@ -140,7 +140,7 @@ Les symboles environnants accélérèrent leur rotation. Après un instant, ils 
 
 Une fois le dernier symbole absorbé, la sphère de sang se contracta rapidement. Elle ne redevint pas une simple goutte, mais prit la forme d'un corps magnifique.
 
-Ce processus fut bref et s'acheva en cinq respirations à peine. La boule de sang disparut pour laisser place à un corps féminin. Cette femme était d'une beauté saisissante, dotée de courbes parfaites; sa silhouette captivante était absolument idéale.
+Ce processus fut bref et s'acheva en cinq respirations à peine. La boule de sang disparut pour laisser place à un corps féminin entièrement nu. Cette femme était d'une beauté saisissante, dotée de courbes parfaites; sa silhouette captivante était absolument idéale.
 
 C'était Yao Xixue!
 

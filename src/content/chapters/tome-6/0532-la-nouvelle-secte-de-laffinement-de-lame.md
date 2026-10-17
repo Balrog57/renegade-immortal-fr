@@ -32,7 +32,7 @@ Ce feu vert était la flamme vitale du fantôme céleste, son attaque la plus pu
 
 À ses yeux, ce fouet avait été conçu spécifiquement pour traquer les fantômes célestes. Même s'il devait mourir, il se devait de détruire cet artefact. Dans ses souvenirs, il n'avait entendu parler que d'un seul trésor semblable, mais celui-ci avait disparu depuis longtemps de ce royaume et ne devrait plus exister.
 
-Il était résolu à anéantir ce étrange trésor conçu pour les chasser; c'est pourquoi, malgré sa faiblesse, il engagea sa flamme vitale.
+Il était résolu à anéantir cet étrange trésor conçu pour les chasser; c'est pourquoi, malgré sa faiblesse, il engagea sa flamme vitale.
 
 Au moment où le feu fut projeté, l'expression de Wang Lin changea. Il savait combien le fantôme céleste était puissant et il hésita, mais ce moment représentait la plus grande faiblesse de la créature, raison pour laquelle il était venu la capturer.
 
@@ -44,7 +44,7 @@ C'est alors que des craquements résonnèrent provenant du fouet. Un rayon de lu
 
 Mais ce simple éclat suffit à faire rétrécir les yeux de Wang Lin.
 
-En une fraction de seconde, la lumière dorée éteignit les flammes vertes. Elles ne s'étouffèrent pas lentement; c'était comme si une main gigantesque s'était abattue pour les écraser instantanément.
+En une fraction de seconde, la lumière dorée éteignit les flammes vertes. Elles ne s'étouffèrent pas lentement; c'était comme si une main invisible s'était abattue pour les écraser instantanément.
 
 Une fois le feu éteint, le fantôme céleste afficha une expression de stupéfaction, comme s'il ne pouvait croire ce qui venait de se produire. Il poussa un cri strident avant de s'enfuir à toute allure.
 
@@ -68,13 +68,13 @@ Trois jours plus tard, Wang Lin aperçut la vallée au loin. À cet instant, la 
 
 Wang Lin connaissait très bien cette sensation: elle provenait du drapeau de restriction!
 
-Lorsqu'il était parti, il avait emporté le drapeau de restriction. Grâce à son aide, les habitants de la vallée étaient protégés des vagues d'énergie spirituelle démoniaque.
+Lorsqu'il était parti, il avait sorti le drapeau de restriction pour l'associer à la formation. Grâce à cela, les habitants de la vallée étaient protégés des vagues d'énergie spirituelle démoniaque.
 
 Il fendit l'air comme un éclair et arriva rapidement devant la vallée. D'un seul pas, il franchit la formation. Ayant déjà brisé cette barrière une fois et possédant le drapeau à l'intérieur, on pouvait dire que Wang Lin faisait ce qu'il voulait de cette formation.
 
 Lorsqu'il apparut dans la vallée, il vit les habitants. Ils étaient tous rassemblés au centre pour écouter Ouyang Hua.
 
-Ouyang Hua aperçut immédiatement Wang Lin et son visage s'illumina de joie. Il passa devant la foule et s'inclina respectueusement vers lui: « Je salue votre retour, Très Haut Céleste! »
+Ouyang Hua aperçut immédiatement Wang Lin et son visage s'illumina de joie. Il passa devant la foule et s'inclina respectueusement vers lui: « Je salue votre retour, Suprême Céleste! »
 
 Il n'y avait aucune trace d'irrespect en lui. Il avait vu Wang Lin partir avec un autre étranger, et le voilà revenu seul. Cela ne pouvait signifier qu'une chose: Wang Lin avait tué l'autre étranger!
 
@@ -82,11 +82,11 @@ Selon la logique d'Ouyang Hua, dès que deux étrangers se rencontraient, c'éta
 
 « La partie la plus profonde de la vallée est une zone interdite. N'y allez pas! » Après avoir lancé cet avertissement, Wang Lin disparut sous les yeux de tous pour s'enfoncer dans les profondeurs de la vallée.
 
-Ouyang Hua afficha un sourire d'extase. Avec le Très Haut Céleste pour tenir le fort, leur sécurité était assurée! De plus, cela faciliterait grandement l'expansion du clan!
+Ouyang Hua afficha un sourire d'extase. Avec le Suprême Céleste pour tenir le fort, leur sécurité était assurée! De plus, cela faciliterait grandement l'expansion du clan!
 
 Pensant ainsi, une pointe de fanatisme brilla dans ses yeux. Il se tourna vers les villageois et cria: « Personne n'est autorisé à pénétrer dans les profondeurs de la vallée! Surveillez bien vos enfants; ne transgressez pas la loi tribale! »
 
-Les villageois hochèrent la tête, mais certains affichaient des mines contrariées. L'un d'eux marmonna: « Pourquoi ne pouvons-nous pas y aller? C'est le seul endroit agréable de toute la vallée. »
+Les villageois hochèrent la tête, mais certains affichaient des mines contrariées. L'un d'eux marmonna: « Pourquoi ne pouvons-nous pas y aller? C'est le seul endroit frais de toute la vallée. »
 
 Ouyang Hua le fixa du regard et tonna: « C'est la loi tribale! À partir d'aujourd'hui, cela devient une règle absolue, et quiconque la violera sera banni pour ne devoir compter que sur lui-même! »
 
@@ -100,13 +100,13 @@ Ouyang Hua hocha la tête avec détermination.
 
 Wang Lin, quant à lui, était assis en position du lotus dans les profondeurs de la vallée. S'il avait décidé de rester ici, c'était parce qu'il avait d'autres projets. Pour s'implanter durablement dans la Terre des Esprits Démoniaques, il lui fallait une base, de la puissance et des exploits militaires!
 
-Il devait se rendre à l'Ancienne Cité Démoniaque, mais avant cela, des préparatifs s'imposaient.
+Il devait se rendre à la Grande Muraille Antique, mais avant cela, des préparatifs s'imposaient.
 
 Créer sa propre assise au sein de l'Ancienne Cité Démoniaque serait ardu. De plus, selon les souvenirs de Lou Yun, le manoir du général de l'aile gauche abritait de nombreux experts. Ces gens étaient les habitants originels des lieux. Leur culture et leurs sorts étaient intrinsèquement liés à l'énergie spirituelle démoniaque.
 
-Bien que Wang Lin n'eût jamais rencontré de cultivateur utilisant cette énergie, Lou Yun, elle, en avait côtoyé, et l'ancêtre de celle-ci avait interagi avec ce genre d'individus durant une longue période.
+Bien que Wang Lin n'eût jamais rencontré de cultivateur utilisant cette énergie, Lou Yun, lui, en avait côtoyé, et l'ancêtre de celui-ci avait interagi avec ce genre d'individus durant une longue période.
 
-S'il n'avait pas eu accès aux souvenirs de Lou Yun, Wang Lin serait allé à l'Ancienne Cité Démoniaque sans hésiter, mais il avait désormais changé d'avis.
+S'il n'avait pas eu accès aux souvenirs de Lou Yun, Wang Lin serait allé à la Grande Muraille Antique sans hésiter, mais il avait désormais changé d'avis.
 
 « Plutôt que de rejoindre le manoir du général de l'aile gauche, je préfère rester ici et instruire les habitants afin qu'ils obéissent à mes ordres. Je leur enseignerai des sorts pour que, d'ici de nombreuses années, je dispose d'une force qui ne réponde qu'à moi. »
 

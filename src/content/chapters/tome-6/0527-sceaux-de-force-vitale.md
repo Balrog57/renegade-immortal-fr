@@ -34,7 +34,7 @@ Wang Lin ne prit même pas la peine de lui répondre. Tandis que l'homme parlait
 
 Simultanément, la lame demi-lune le suivit de près, telle un éclair.
 
-En voyant cette énergie d'épée, l'homme en robe noire recula aussitôt et hurla: « Ainsi, c'est un cultivateur de la Secte de l'Épée Da Lou! Tu connais les règles ici; remets le cristal et je ne te ferai aucun mal! »
+En voyant cette énergie d'épée, l'homme en robe noire recula aussitôt et hurla: « Ainsi, c'est un cultivateur de la Secte de l'Épée Da Luo! Tu connais les règles ici; remets le cristal et je ne te ferai aucun mal! »
 
 Alors que l'énergie d'épée approchait, l'homme en robe noire leva son épée pour la parer. Il fut repoussé de plusieurs pas, mais l'énergie d'épée finit par s'effondrer.
 
@@ -42,7 +42,7 @@ Cependant, au moment même où elle se dissipait, un craquement retentit provena
 
 En contemplant son épée volante brisée, le regard de l'homme en robe noire devint glacial.
 
-« Tu oses endommager mon épée volante?! Aujourd'hui, même si tu es un membre de la Secte de l'Épée Da Lou, tu mourras! » Sa main traça un sceau et une flamme noire jaillit de sa paume.
+« Tu oses endommager mon épée volante?! Aujourd'hui, même si tu es un membre de la Secte de l'Épée Da Luo, tu mourras! » Sa main traça un sceau et une flamme noire jaillit de sa paume.
 
 L'homme cria: « Flamme d'Extinction Terrestre, consume-le jusqu'au néant! » Il pointa l'avant et la flamme noire s'élança. En plein vol, elle se fragmenta en d'innombrables petites étincelles qui pleuvent sur Wang Lin.
 
@@ -94,7 +94,7 @@ Quant à la silhouette, après quelques pas, l'énergie démoniaque autour d'ell
 
 Au moment où l'énergie se sépara, la silhouette fit un pas et disparut sans laisser de trace.
 
-« C'est mauvais! » L'homme en robe noire n'hésita pas et recula précipitamment. À l'instant même de son retrait, un éclair argenté jaillit et un pouce noir s'abattit là où il se trouvait.
+« C'est mauvais! » L'homme en robe noire n'hésita pas et recula précipitamment. À l'instant même de son retrait, une lueur argentée jaillit, pareille à une pluie de lumière stellaire, et un pouce apparut dans le vide pour s'abattre là où il se trouvait.
 
 Tout cela se produisit avec une rapidité fulgurante; on pourrait dire que cela ne prit qu'un instant.
 
@@ -102,7 +102,7 @@ La silhouette suivit immédiatement la pression du pouce. Il leva la tête et re
 
 « Tu ne pourras pas esquiver le prochain! »
 
-« Tu n'es pas un membre de la Secte de l'Épée Da Lou! Tu es le nouveau disciple de l'Omniscient, le septième disciple de la Division Pourpre, Wang Lin! » lança froidement l'homme en robe noire. « Ce que tu as utilisé est probablement le sort interdit, le Doigt de la Mort, qui t'a rendu célèbre lors de la célébration de l'anniversaire! »
+« Tu n'es pas un membre de la Secte de l'Épée Da Luo! Tu es le nouveau disciple de l'Omniscient, le septième disciple de la Division Pourpre, Wang Lin! » lança froidement l'homme en robe noire. « Ce que tu as utilisé est probablement le sort interdit, le Doigt de la Mort, qui t'a rendu célèbre lors de la célébration de l'anniversaire! »
 
 L'homme en robe noire était extrêmement agacé. Il avait entendu parler de Wang Lin et avait même vu son visage sur un morceau de jade. Après tout, les disciples de l'Omniscient étaient des personnalités suivies par tous sur la planète Tian Yun.
 

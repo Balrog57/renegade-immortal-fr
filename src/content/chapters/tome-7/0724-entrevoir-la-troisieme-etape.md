@@ -40,17 +40,17 @@ Il ne pouvait en parler à personne, et il serait de toute façon incapable de l
 
 Même s'il fallait renoncer à la planète Tian Yun, ou abandonner tous leurs trésors magiques et leurs sorts. L'Omniscient et les siens n'hésiteraient pas un instant pour tenter de rechercher le Dao ainsi!
 
-Car cette quête du Dao permettrait d'entrevoir cette mystérieuse troisième étape que des dizaines de milliers de cultivateurs s'efforçaient de conquérir et pour laquelle ils languissaient!
+Car cette quête du Dao permettrait d'entrevoir cette mystérieuse troisième étape qu'ils s'efforçaient de conquérir depuis des dizaines de milliers d'années et pour laquelle ils languissaient!
 
-*Ceux qui cherchent le Dao comprennent à l'aube et meurent au crépuscule...*
+*Ceux qui entendent le Dao naissent à l'aube et meurent au crépuscule...*
 
-*Ceux qui chercheent le Dao comprennent dans la mort...*
+*Ceux qui cherchent le Dao oublient la vie et connaissent la mort...*
 
 Wang Lin ne connaissait pas encore la valeur réelle de la Perle Défiant le Ciel, mais le simple aperçu qu'il en avait eu le bouleversait profondément. C'était une expérience qu'il n'oublierait jamais.
 
 Cette quête du Dao n'avait pas augmenté son niveau de culture, mais elle avait affiné son Dao. Auparavant, lorsque Wang Lin s'était tenu devant la porte, il avait ressenti un profond sentiment d'effroi au plus profond de son âme.
 
-C'était dû à la différence de niveau, comme l'apparence des humains aux yeux d'une fourmi.
+C'était dû à la différence de niveau, comme un humain qui regarde une fourmi : leurs états d'esprit ne peuvent qu'être très différents.
 
 Bien que Wang Lin ne fût pas au même niveau d'existence que la porte et qu'il restât une fourmi en comparaison, il était une fourmi qui avait entrevu la troisième étape!
 
@@ -100,9 +100,9 @@ Il ne comprenait pas la nature de ce regard, mais celui-ci contenait une force m
 
 Son rythme cardiaque atteignit un seuil critique, comme s'il allait exploser.
 
-Tout le sang de son corps circulait frénétiquement, au même rythme que son énergie d'origine. Il était totalement horrifié; il avait l'impression qu'il s'effondrerait sous ce regard s'il ne faisait pas circuler son énergie d'origine avec acharnement!
+Tout le sang de son corps circulait frénétiquement, au même rythme que son énergie originelle. Il était totalement horrifié; il avait l'impression qu'il s'effondrerait sous ce regard s'il ne faisait pas circuler son énergie originelle avec acharnement!
 
-« Quelle puissance est-ce là?! » L'homme aux cheveux noirs était incapable de bouger d'un pouce. L'énergie d'origine dans ses méridiens circulait follement. Même si cette énergie se dissipait ou était gaspillée, il ne pouvait plus s'en soucier. Sa bouche était sèche et son corps était trempé de sueur depuis longtemps. Pourtant, il ne pouvait tout simplement pas détacher ses yeux de ce regard démoniaque.
+« Quelle puissance est-ce là?! » L'homme aux cheveux noirs était incapable de bouger d'un pouce. L'énergie originelle dans ses méridiens circulait follement. Même si cette énergie se dissipait ou était gaspillée, il ne pouvait plus s'en soucier. Sa bouche était sèche et son corps était trempé de sueur depuis longtemps. Pourtant, il ne pouvait tout simplement pas détacher ses yeux de ce regard, comme un fou.
 
 Avec sa culture, c'était la première fois de sa vie qu'il ressentait une chose aussi terrifiante. Il n'avait pas été aussi effrayé, même lorsqu'il avait rencontré le Seigneur du Temple Céleste du Tonnerre.
 
@@ -114,15 +114,15 @@ Cet homme était comme les sphères de lumière du rêve. Cependant, au lieu de 
 
 L'individu se désintégrait couche après couche, sans s'arrêter.
 
-La terreur dans les yeux de l'homme aux cheveux noirs atteignit son paroxysme. Il n'avait jamais connu une telle crise de vie ou de mort. Dès l'instant où le regard se posa sur lui, il sentit son âme originelle brûler. L'énergie d'origine dans son corps semblait avoir perdu tout contrôle pour former une flamme invisible!
+La terreur dans les yeux de l'homme aux cheveux noirs atteignit son paroxysme. Il n'avait jamais connu une telle crise de vie ou de mort. Dès l'instant où le regard se posa sur lui, il sentit son âme originelle brûler. L'énergie originelle dans son corps semblait avoir perdu tout contrôle pour former une flamme invisible!
 
 Le regard de l'autre contenait un pouvoir terrifiant auquel il ne pouvait résister. C'était comme si les cieux lui ordonnaient de mourir... de mourir... Il se sentait comme une fourmi, et un sentiment d'effroi absolu envahissait tout son être.
 
 Non seulement lui, mais la Bête de Tonnerre sous ses pieds ressentit cela encore plus violemment. Elle poussa des cris misérables et son corps commença à se dissiper à une vitesse visible, telle de la poussière retournant à la terre...
 
-Tout cela ne dura qu'un instant. La trouble dans les yeux de Wang Lin disparut; il prit alors une profonde inspiration et referma les yeux.
+Tout cela ne dura qu'un instant. La trace de quête du Dao dans les yeux de Wang Lin disparut; il prit alors une profonde inspiration et referma les yeux.
 
-Le corps de l'homme aux cheveux noirs faillit s'effondrer lorsqu'il fut libéré de ce pouvoir terrifiant. Il était trempé de sueur et plus de la moitié de son énergie d'origine avait disparu. Son âme originelle avait rétréci d'une taille et il était extrêmement affaibli. En fixant Wang Lin, la terreur l'envahit totalement.
+Le corps de l'homme aux cheveux noirs faillit s'effondrer lorsqu'il fut libéré de ce pouvoir terrifiant. Il était trempé de sueur et plus de la moitié de son énergie originelle avait disparu. Son âme originelle avait rétréci d'une taille et il était extrêmement affaibli. En fixant Wang Lin, la terreur l'envahit totalement.
 
 « Trop terrifiant!!! Ceci... Quel genre de regard était-ce? À quel niveau de culture se trouve-t-il?! » L'homme aux cheveux noirs haletait, le corps tremblant et le visage livide. Il regrettait d'être venu ici. S'il n'était pas venu, il n'aurait pas eu à subir ce regard atroce.
 

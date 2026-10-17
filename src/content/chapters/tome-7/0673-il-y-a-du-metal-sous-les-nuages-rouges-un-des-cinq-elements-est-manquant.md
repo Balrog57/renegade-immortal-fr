@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 673 - There is Metal Under the Red Clouds, Five Elements Missing One
 slug: il-y-a-du-metal-sous-les-nuages-rouges-un-des-cinq-elements-est-manquant
 ---
-« Malheureusement, ils présentent trop de défauts et ne contiennent pas beaucoup d'élément métal. Autrement, ces pierres à feu ne seraient pas moins puissantes que des trésors pseudo-célestes de haut niveau. Si elles étaient un peu plus grandes, elles pourraient rivaliser avec un trésor céleste de qualité inférieure! » Wang Lin regarda les pierres à feu avec une pointe de regret dans les yeux.
+« Malheureusement, elles présentent trop de défauts et ne contiennent pas beaucoup d'élément métal. Autrement, ces pierres à feu ne seraient pas moins puissantes que des trésors pseudo-célestes de haut niveau. Si elles étaient un peu plus grandes, elles pourraient rivaliser avec un trésor céleste de qualité inférieure! » Wang Lin regarda les pierres à feu avec une pointe de regret dans les yeux.
 
 Bien que cette paire de pierres à feu se soit formée naturellement, elle contenait trop d'impuretés. Si elles avaient été raffinées, elles ne représenteraient probablement même pas dix pour cent de leur taille actuelle.
 
@@ -42,7 +42,7 @@ Si cela avait été le seul cas, cela ne l'aurait pas autant troublé. Ce qui at
 
 « Sur la planète Yun Xia, j'ai découvert une veine de métal à flamme. J'en ai pris deux morceaux... »
 
-La lueur mystérieuse dans ses yeux brillait comme un phare. Il fixa la pierre et murmura: « Une veine de métal à flamme... une veine... Pas étonnant qu'il ait été traqué jusqu'à être gravement blessé. Quiconque la découvre s'empresse de s'en emparer et d'étouffer toute information à ce sujet. »
+La lueur mystérieuse dans ses yeux brillait comme un phare. Il fixa la pierre et murmura: « Une veine de pierres à feu de l'élément métal... une veine... Pas étonnant qu'il ait été traqué jusqu'à être gravement blessé. Quiconque la découvre s'empresse de s'en emparer et d'étouffer toute information à ce sujet. »
 
 « Cela confirme que les trois n'ont pas examiné cette pierre, sinon ils ne m'auraient pas laissé entrer ici... Bien sûr, je ne peux exclure l'éventualité que quelque chose d'autre se cache derrière tout cela. »
 
@@ -70,19 +70,19 @@ La pierre de jade en main, Wang Lin commença à réfléchir. Durant ces dix jou
 
 Ce jour-là, Wang Lin se leva et sortit de la maison. Il disparut pour réapparaître à des dizaines de milliers de kilomètres de la ville, avant de foncer droit vers l'atmosphère.
 
-À cet instant précis, l'ancêtre de la famille Ran, le Sage Xiaoyaozi, et Sun Xi apparurent devant lui.
+À cet instant précis, l'ancêtre de la famille Ran, Xiaoyao Sanren, et Sun Xi apparurent devant lui.
 
 L'expression de l'ancêtre de la famille Ran était sombre alors qu'il regardait Wang Lin et demanda: « Partez-vous, Compagnon Cultivateur Xu? »
 
-L'expression du Sage Xiaoyaozi était différente; il dissimulait manifestement sa colère. Seul Sun Xi affichait un sourire amer. Lorsqu'il avait entendu Wang Lin réclamer la carte, il avait eu un mauvais pressentiment, mais il n'imaginait pas que ce Xu Mu ait réellement l'intention de partir.
+L'expression de Xiaoyao Sanren était différente; il dissimulait manifestement sa colère. Seul Sun Xi affichait un sourire amer. Lorsqu'il avait entendu Wang Lin réclamer la carte, il avait eu un mauvais pressentiment, mais il n'imaginait pas que ce Xu Mu ait réellement l'intention de partir.
 
 Wang Lin les regarda froidement et dit calmement: « Je ne briserai pas ma promesse. Ce voyage durera au maximum un an, ou peut-être seulement quelques mois. »
 
-S'ils ne lui avaient pas donné toutes ces pierres célestes, Wang Lin n'aurait même pas pris la peine de s'expliquer.
+S'ils ne lui avaient pas donné tous ces jades célestes, Wang Lin n'aurait même pas pris la peine de s'expliquer.
 
 Après avoir entendu l'explication de Wang Lin, l'ancêtre de la famille Ran hésita: « J'ignore quelle urgence retient le Compagnon Cultivateur Xu. Nous pourrions peut-être nous charger d'une ou deux de ces affaires à votre place. »
 
-Le Sage Xiaoyaozi ajouta d'un ton sérieux: « Ne nous en veuillez pas, Compagnon Cultivateur Xu. Nous vous avons tout donné, et moins de quinze jours plus tard, vous voulez déjà quitter la planète Ran Yun. Nous ne pouvons que nourrir des soupçons. »
+Xiaoyao Sanren ajouta d'un ton sérieux: « Ne nous en veuillez pas, Compagnon Cultivateur Xu. Nous vous avons tout donné, et moins de quinze jours plus tard, vous voulez déjà quitter la planète Ran Yun. Nous ne pouvons que nourrir des soupçons. »
 
 « Compagnon Cultivateur Xu, je crois en votre intégrité, mais cette affaire... » Sun Xi eut un sourire amer.
 
@@ -94,23 +94,23 @@ Les visages des trois autres changèrent également. Ils levèrent les yeux vers
 
 À cet instant, à l'extérieur de la planète Ran Yun, Huan Dong approchait rapidement. Ses yeux étaient froids et empreints d'arrogance alors qu'il fonçait droit sur la planète.
 
-« Maîtresse m'a confié cette affaire; je dois donc le faire proprement pour qu'elle remarque mon mérite! Tous les impliqués seront éliminés! » Le fanatisme dans les yeux de Huan Dong s'intensifiait.
+« Mademoiselle m'a confié cette affaire; je dois donc le faire proprement pour qu'elle remarque mon mérite! Tous les impliqués seront éliminés! » Le fanatisme dans les yeux de Huan Dong s'intensifiait.
 
 Il se transforma en un rayon de lumière arc-en-ciel et plongea dans l'atmosphère de la planète Ran Yun telle une météorite. Sa descente était d'une arrogance suprême. Il déploya son sens divin avec frénésie, y insufflant même de l'énergie spirituelle céleste pour envelopper la planète. Cette scène prodigieuse donnait l'impression de voir un dieu descendre parmi les hommes.
 
 À cet instant, tous les cultivateurs de Ran Yun ressentirent cette aura puissante. Une aura particulièrement hautaine, comme si elle considérait le monde comme une colonie de fourmis en l'arpentant.
 
-« Je suis Huan Dong, membre de second rang de la famille Huan de la planète des Mille Illusions. Que tous les cultivateurs Ascendants de la planète Ran Yun viennent me voir sans tarder! » Sa voix froide, chargée d'arrogance, tonna comme le tonnerre à travers la planète. Tous les cultivateurs sous le stade Ascendant furent choqués par ce cri; certains, de bas niveau, crachèrent même du sang sous l'effet du choc.
+« Je suis Huan Dong, garde de deuxième rang de la famille Huan de la planète principale des Mille Illusions. Que tous les cultivateurs Ascendants de la planète Ran Yun viennent me voir sans tarder! » Sa voix froide, chargée d'arrogance, tonna comme le tonnerre à travers la planète. Tous les cultivateurs sous le stade Ascendant furent choqués par ce cri; certains, de bas niveau, crachèrent même du sang sous l'effet du choc.
 
-Le jeune homme sous le rocher était l'un d'entre eux. Il était en pleine culture lorsqu'il fut frappé par le sens divin de Huan Dong infusé d'énergie céleste. Son cœur fut endommagé, la faisant cracher du sang et l'affaiblissant instantanément.
+La jeune femme sous le rocher était l'une d'entre eux. Elle était en pleine culture lorsqu'il fut frappé par le sens divin de Huan Dong infusé d'énergie céleste. Son cœur fut endommagé, la faisant cracher du sang et l'affaiblissant instantanément.
 
-Beaucoup de cultivateurs subissaient le même sort sur Ran Yun. L'ancêtre de la famille Ran, le Sage Xiaoyaozi et Sun Xi devinrent soudainement livides.
+Beaucoup de cultivateurs subissaient le même sort sur Ran Yun. L'ancêtre de la famille Ran, Xiaoyao Sanren et Sun Xi devinrent soudainement livides.
 
 Les mots « famille Huan » furent comme une épée invincible perçant leurs cœurs, faisant vaciller leurs expressions.
 
 « Ils sont arrivés... La famille Huan... est arrivée... » murmura Sun Xi avec amertume. Il regarda Wang Lin avec un regard empreint de désespoir, mais qui contenait aussi une lueur d'espoir.
 
-L'ancêtre de la famille Ran en était de même, fixant Wang Lin du même regard que le Sage Xiaoyaozi.
+L'ancêtre de la famille Ran en était de même, fixant Wang Lin du même regard que Xiaoyao Sanren.
 
 L'expression de Wang Lin resta imperturbable, mais ses yeux révélèrent une pointe de froideur.
 
@@ -124,4 +124,4 @@ Pour qu'un cultivateur atteigne le stade Ascendant, son domaine doit fusionner a
 
 Son domaine était l'élément métal. Le métal représentait l'invincibilité. Son domaine bougeait au rythme de ses sorts et sa main s'illumina. À cet instant, il semblait que cette lumière avait remplacé celle du ciel ou qu'elle en avait absorbé toute la clarté. Utilisant la puissance de cette lumière, il pressa sa main vers le bas.
 
-L'expression de Wang Lin resta de marbre. La foudre traversa ses yeux et se propagea sur tout son corps. Il ressemblait à une divinité céleste régnant sur toute chose. Il pointa un doigt et le Doigt de la Mort jaillit. Sa puissance avait été multipliée plusieurs fois; ce doigt contenait une foudre qui dépassait de loin l'entendement humain. Quiconque l'observait avec attention aurait eu le sentiment de faire face à une tribulation divine de foudre.
+L'expression de Wang Lin resta de marbre. La foudre traversa ses yeux et se propagea sur tout son corps. Il ressemblait à un immortel maîtrisant la foudre. Il pointa un doigt et le Doigt de la Mort jaillit. Sa puissance avait été multipliée plusieurs fois; ce doigt contenait une foudre dense d'éclairs. Quiconque l'observait avec attention aurait eu le sentiment de faire face à une tribulation divine de foudre.

@@ -34,7 +34,7 @@ L'homme leva la main droite et la femme l'aida promptement à se redresser.
 
 Les larmes de la femme commencèrent à couler. « Oui, elle reviendra bientôt... » dit-elle.
 
-« Je regrette ma décision d'alors. Je n'aurais pas dû laisser ce taoïste l'emporter. En un clin d'œil, vingt ans ont passé et je ne sais absolument pas comment elle va... » L'homme semblait avoir vieilli de plusieurs années.
+« Je regrette ma décision d'alors. Je n'aurais pas dû laisser ce taoïste l'emporter. En un clin d'œil, près de vingt ans ont passé et je ne sais absolument pas comment elle va... » L'homme semblait avoir vieilli de plusieurs années.
 
 La femme essuya ses larmes et murmura: « Ne t'inquiète pas, notre fille a une bonne fortune; elle est certainement en sécurité. »
 
@@ -82,7 +82,7 @@ Wang Lin s'éloigna.
 
 Petit Blanc poussa quelques grognements devant la maison de Zhou Ru. Ses grands yeux fixaient l'intérieur avec une profonde réticence. Peu après, il poussa un rugissement puissant avant de bondir vers le ciel et de disparaître dans un éclat de lumière blanche.
 
-Ce rugissement terrifia les villageois, mais lorsqu'ils sortirent, ils ne trouvèrent rien. Cependant, tout le bétail du village n'osa plus quitter ses enclos pendant un mois. Chaque nuit, leurs corps tremblaient violemment, comme s'ils étaient traumatisés.
+Ce rugissement terrifia les villageois, mais lorsqu'ils sortirent, ils ne trouvèrent rien. Cependant, tout le bétail du village n'osa plus quitter ses enclos pendant un mois. Toute la journée, leurs corps tremblaient violemment, comme s'ils étaient traumatisés.
 
 Pays de Chu.
 
@@ -96,7 +96,7 @@ Tie Yan avait atteint la Formation de l'Âme, et le pays de Chu était devenu un
 
 « Tie Yan est là! » Le vieil homme joignit les mains et se tint respectueusement. Son cœur débordait d'admiration pour Wang Lin. Sur la planète Suzaku, le nom de ce dernier était une légende.
 
-Wang Lin, également connu sous le nom de Ceng Niu, avait tranché le bras de Papillon Rouge, tué Qian Feng, surpris Liu Mei, forcé Zi Xin à battre en retraite et, d'un seul mot, avait fait de Zhou Wutai le 15e Suzaku.
+Wang Lin, également connu sous le nom de Ceng Niu, avait tranché le bras de Papillon Rouge, tué Qian Feng, surpris Liu Mei, forcé Zi Xin à battre en retraite, décliné le titre de Suzaku et, d'un seul mot, avait fait de Zhou Wutai le 15e Suzaku.
 
 Tous ces récits s'étaient propagés parmi les cultivateurs de la planète Suzaku; presque personne n'ignorait ses exploits.
 
@@ -168,4 +168,4 @@ Un jour auparavant, Wang Zhuo avait senti un appel et s'était rendu ici. En arr
 
 Il savait que Wang Lin ne cachait pas sa présence et que l'appel qu'il ressentait venait de lui.
 
-C'est pourquoi il était venu, et c'est aussi pour cela qu'il avait convoqué toute la famille Wang. Peu importe leurs occupations, il les avait fait intercepter et avait ordonné à des cultivateurs de les conduire ici.
+C'est pourquoi il était venu, et c'est aussi pour cela qu'il avait rassemblé tous les descendants directs de la famille Wang. Peu importe leurs occupations, il les avait fait interrompre de force, et des cultivateurs les avaient accueillis et conduits ici.

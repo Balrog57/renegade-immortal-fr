@@ -56,9 +56,9 @@ Alors que l'énergie spirituelle céleste affluait dans son corps, son teint cha
 
 Une aura démoniaque monstrueuse émanait de cette flamme. Cette aura libéra un éclat pourpre qui illumina toute la zone.
 
-C'était comme si un seigneur démon venait de naître. Wang Lin était désormais enveloppé d'une aura démoniaque. Toute l'énergie spirituelle céleste se rassemblait sur son doigt pour servir de combustible à la flamme démoniaque. Ce processus ne lui causait aucune douleur; au contraire, il éprouvait un sentiment de confort et une addiction profonde.
+C'était comme si un seigneur démon venait de naître. Wang Lin était désormais enveloppé d'une aura démoniaque. Toute l'énergie spirituelle céleste de son corps se rassemblait sur son doigt pour s'y inverser et se changer en flamme démoniaque. Ce processus ne lui causait aucune douleur; au contraire, il éprouvait un sentiment de confort et une addiction profonde.
 
-Bientôt, la flamme pourpre dans sa main devint de plus en plus intense. Comparée à celle qu'il utilisait trois mois auparavant, elle était plusieurs fois plus vaste.
+Bientôt, la flamme pourpre dans sa main devint de plus en plus intense. Comparée à celle qu'il utilisait trois mois auparavant, l'aura qui s'en dégageait était plusieurs fois plus puissante.
 
 Wang Lin pointa son doigt vers l'avant. À cet instant, il perça la force située à une dizaine de centimètres au-dessus de sa tête et traversa l'écran de lumière argentée.
 
@@ -104,11 +104,11 @@ De loin, toute la Division Pourpre semblait recouverte par cette couche de nuage
 
 Les convives de la Division Pourpre provenaient de diverses sectes de la planète Tian Yun. Parmi eux se trouvaient des individus à haut niveau de culture, mais en petit nombre. Ces sectes étaient considérées comme les plus faibles de la planète et ne pouvaient séjourner dans la Division Pourpre que pour la durée des festivités.
 
-Sur les nuages surplombant la Division Pourpre, le frère aîné Zhao Xingsha occupait naturellement la place d'honneur. À sa droite siégeaient le Deuxième Frère, puis le Troisième Frère, suivi de la Quatrième Sœur, au stade avancé de la Transformation de l'Âme. Après elle, trois sièges restaient vides.
+Sur les nuages surplombant la Division Pourpre, le frère aîné Zhao Xingsha occupait naturellement la place d'honneur. À sa droite siégeaient le Deuxième Frère, puis le Troisième Frère Bai Wei, suivi de la Quatrième Sœur, au stade avancé de la Transformation de l'Âme. Après elle, trois sièges restaient vides.
 
 La Cinquième Sœur était en train de subir une punition et se trouvait en culture recluse; le Sixième Frère était parti en aventure sans être revenu; et le Septième Frère, Wang Lin, était absent. Voilà pourquoi les sièges étaient vacants.
 
-À la gauche de Zhao Xingsha siégeaient six Anciens, vêtus de diverses étoffes. Ces six hommes étaient tous des chefs de sectes de la planète Tian Yun. Le plus faible était au début du stade Ascendant, tandis que le plus puissant atteignait le sommet du stade avancé de l'Ascendance.
+À la gauche de Zhao Xingsha siégeaient six Anciens, vêtus de diverses étoffes. Ces six hommes étaient les grands anciens de six sectes de la planète Tian Yun. Le plus faible était au début du stade Ascendant, tandis que le plus puissant avait atteint la grande perfection du stade avancé de l'Ascendant.
 
 Malgré cela, leurs sectes n'étant pas très puissantes, ils ne pouvaient prétendre qu'à ces places.
 

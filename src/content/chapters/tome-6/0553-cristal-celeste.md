@@ -10,11 +10,11 @@ Pour un homme de la stature de Cao Yidou, connaître cela était déjà étrange
 
 Par conséquent, Wang Lin put immédiatement confirmer que tout ceci n'était qu'un complot de l'Ancêtre Sanguin!
 
-« En combinant le détachement de Yao Xixue et la réponse de Cao Yidou, je suis certain qu'il existe un moyen de distinguer les véritables Pilules d'Âme Sanguine des fausses. Cependant, je crains que, hormis l'Ancêtre Sanguin et sa fille, personne d'autre ne le sache! » Les yeux de Wang Lin brillèrent d'une lueur de sagesse.
+« En combinant le détachement de Yao Xixue et la réponse de Cao Yidou, je suis certain qu'il existe un moyen de distinguer les véritables Pilules de l'Âme Sanguine des fausses. Cependant, je crains que, hormis l'Ancêtre Sanguin et sa fille, personne d'autre ne le sache! » Les yeux de Wang Lin brillèrent d'une lueur de sagesse.
 
 « Cette pilule est fausse! Si la vraie pilule peut leur permettre de vivre une fois de plus, alors une fausse pilule les enverra droit à la mort! Yao Xixue, puisque tu es si vicieuse, ne me reproche pas d'être impitoyable! » Wang Lin regarda la pilule de cire dans sa main. Il s'apprêtait à l'écraser, mais une idée lui vint soudainement et il la rangea dans son sac de rangement.
 
-L'une des principales raisons pour lesquelles Wang Lin avait pu survivre si longtemps et devenir aussi puissant était sa ruse. À l'époque où il était au stade de la Formation du Noyau, le Seigneur Démon de l'Extrême Huitième avait dit un jour que cet enfant était impitoyable, audacieux, décisif et froid. Il était aussi très courageux, réfléchi, déterminé et rusé comme un renard.
+L'une des principales raisons pour lesquelles Wang Lin avait pu survivre si longtemps et devenir aussi puissant était sa ruse. À l'époque où il était au stade de la Formation du Noyau, le Seigneur Démon des Huit Extrêmes avait dit un jour que cet enfant était impitoyable, audacieux, décisif et froid. Il était aussi très courageux, réfléchi, déterminé et rusé comme un renard.
 
 Ces mots décrivaient parfaitement la véritable nature de Wang Lin.
 
@@ -42,7 +42,7 @@ La quantité d'énergie spirituelle contenue dans ce cristal céleste représent
 
 L'absorption se poursuivit.
 
-Trois jours plus tard, une nouvelle ascension du démon violet eut lieu. Yao Xixue se tenait sur l'ancienne montagne, à 500 kilomètres du camp militaire. Une lumière violette baignait le sol, créant une atmosphère profondément démoniaque.
+Trois jours plus tard, une nouvelle ascension du Démon Pourpre eut lieu. Yao Xixue se tenait sur le Mont Gu, à 500 kilomètres du camp militaire. Une lumière violette baignait le sol, créant une atmosphère profondément démoniaque.
 
 Le regard de Yao Xixue se tournait occasionnellement vers l'horizon, trahissant une certaine anxiété.
 
@@ -60,7 +60,7 @@ La main de Yao Xixue traça un sceau tandis qu'elle murmurait une incantation. P
 
 Simultanément, les statues s'animèrent et chacune prit place en sept positions distinctes. Un éclair de lumière rouge sang jaillit, et elles se fondirent dans le sol.
 
-Une fois les statues intégrées au sol, une force mystérieuse enveloppa l'ancienne montagne entière. Wang Lin vit clairement que le symbole n'était qu'un catalyseur et que la véritable puissance émanait des sept statues.
+Une fois les statues intégrées au sol, une force mystérieuse enveloppa le Mont Gu entier. Wang Lin vit clairement que le symbole n'était qu'un catalyseur et que la véritable puissance émanait des sept statues.
 
 Cette force était invisible; si Wang Lin n'avait pas été à moins de 330 mètres d'elle, il ne l'aurait pas remarquée.
 
@@ -74,11 +74,11 @@ Yao Xixue dit froidement: « Inutile de chercher. À moins d'avoir le niveau de 
 
 Wang Lin rétracta son sens divin et admira grandement cette formation. Il demanda: « Cette formation a-t-elle été créée par votre père, l'Ancêtre Sanguin? »
 
-« C'est exact! » En répondant, Yao Xixue toucha son sac de rangement, et une boussole rouge sang apparut dans sa main. Elle calcula la position, la posa au sol, se tourna vers Wang Lin et déclara: « Souvenez-vous de notre accord! Lorsque l'ascension du démon violet atteindra son apogée, un rayon de lumière rouge sang émanera de la boussole. Cela ne durera qu'un souffle; vous devrez donc me suivre de très près! »
+« C'est exact! » En répondant, Yao Xixue toucha son sac de rangement, et une boussole rouge sang apparut dans sa main. Elle calcula la position, la posa au sol, se tourna vers Wang Lin et déclara: « Souvenez-vous de notre accord! Lorsque l'ascension du Démon Pourpre atteindra son apogée, un rayon de lumière rouge sang émanera de la boussole. Cela ne durera qu'un souffle; vous devrez donc me suivre de très près! »
 
 Wang Lin acquiesça en silence.
 
-Yao Xixue réfléchit et ajouta: « À notre retour, je vous donnerai le reste des jades célestes et le jeton de sang! De plus, je vous transmettrai la méthode correcte pour utiliser la Pilule d'Âme Sanguine! »
+Yao Xixue réfléchit et ajouta: « À notre retour, je vous donnerai le reste des jades célestes et le jeton de sang! De plus, je vous transmettrai la méthode correcte pour utiliser la Pilule de l'Âme Sanguine! »
 
 Au moment où elle parlait, la lumière violette de la lune atteignit son zénith. Pour les mortels, c'était comme si le chien céleste dévorait la lune. La lueur violette se propagea instantanément, recouvrant la terre entière.
 
@@ -92,13 +92,13 @@ Dès que les deux furent entrés, la lumière rouge disparut sans laisser de tra
 
 La lueur violette s'estompa progressivement jusqu'à disparaître totalement.
 
-L'ascension biannuelle du démon violet venait de s'achever.
+L'ascension biannuelle du Démon Pourpre venait de s'achever.
 
 Wang Lin avait expérimenté les tableaux de transfert trop souvent pour être déstabilisé par l'inconfort. En pénétrant dans la lumière rouge sang, il comprit immédiatement qu'il s'agissait d'un transfert ponctuel.
 
 Cela signifiait que quelqu'un avait placé un point de transmission à l'endroit désigné par Yao Xixue. Tant qu'on pouvait accéder à ce point, on pouvait atteindre ce lieu depuis n'importe où.
 
-Cependant, il était évident qu'il fallait se trouver à l'intérieur du Domaine de l'Esprit Démon pour que le transfert réussisse.
+Cependant, il était évident qu'il fallait se trouver à l'intérieur de la Terre des Esprits Démoniaques pour que le transfert réussisse.
 
 Après le bref inconfort dû au tableau de transfert, Wang Lin vit des traînées de sang défiler rapidement sous ses pieds, formant une sorte de formation sanglante.
 

@@ -114,7 +114,7 @@ Auto-destruction! L'auto-destruction d'un cultivateur Ascendant! La puissance de
 
 La puissance mystérieuse du Fruit de l'Ascension Céleste emplissait son esprit. Il était déjà frappé par la folie et son âme originelle brûlait. Les quatre gouttes de liquide céleste commençaient à bouillir sous l'effet de cette combustion de l'âme originelle.
 
-La silhouette de Wang Lin, telle une météorite, chargea le vieil homme. Voyant l'expression de ce dernier, il continua de fuir!
+La silhouette de Wang Lin, telle une météorite, chargea le vieil homme, dont le visage changeait et qui ne cessait de reculer!
 
 « Explose! » Les flammes autour du corps de Wang Lin s'intensifièrent brutalement. Il fixa le vieil homme alors que son propre corps était soudainement anéanti par l'énergie spirituelle céleste qu'il contenait. Son âme originelle fut détruite en même temps que son corps, créant une onde de choc inimaginable.
 
@@ -134,7 +134,7 @@ Une armure, dont il manquait un protège-poignet, flottait silencieusement dans 
 
 « Tu oses détruire ma tour démoniaque! Même si tu as un lien avec lui, je te tuerai! »
 
-La tour démoniaque était un outil essentiel fournissant l'énergie démoniaque nécessaire pour permettre au Sens Divin contenu dans l'armure de se propager. Sans elle, il ne pourrait plus couvrir la majeure partie du Territoire de l'Esprit Démon comme auparavant!
+La tour démoniaque était un outil essentiel fournissant l'énergie démoniaque nécessaire pour permettre au Sens Divin contenu dans l'armure de se propager. Sans elle, il ne pourrait plus couvrir la majeure partie de la Terre des Esprits Démoniaques comme auparavant!
 
 Une formation noire fut mise à nu sur le sol là où la tour trônait autrefois. Une personne y était assise en position de lotus. Ses longs cheveux flottaient au vent et des tatouages dorés et violets ornaient son corps.
 

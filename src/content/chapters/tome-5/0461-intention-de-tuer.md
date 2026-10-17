@@ -18,13 +18,13 @@ Si Qian Feng demandait l'aide de Wang Lin, c'était par nécessité. Il était c
 
 Avec Wang Lin à leurs côtés, les chances de succès des trois étaient désormais nettement accrues.
 
-Qian Feng ne sous-estimait pas Wang Lin simplement parce qu'il était au stade initial de la Transformation de l'Âme. En réalité, au fond de lui, il considérait que Wang Lin était un adversaire digne de ce nom. Il savait également que le drapeau d'âme aux un milliard d'âmes que possédait Wang Lin pouvait l'anéantir instantanément, et il le redoutait profondément.
+Qian Feng ne sous-estimait pas Wang Lin simplement parce qu'il était au stade initial de la Transformation de l'Âme. En réalité, au fond de lui, il considérait que Wang Lin était un adversaire digne de ce nom. Il savait également que le drapeau des âmes d'un milliard que possédait Wang Lin pouvait l'anéantir instantanément, et il le redoutait profondément.
 
-C'est pour cette raison qu'il avait utilisé Papillon Rouge pour retarder Wang Lin: afin de pouvoir s'emparer du Cristal de Planète de Culture sans avoir à l'affronter. Cependant, après être arrivé à la montagne spirituelle, il réalisa que plusieurs obstacles se dressaient encore avant d'atteindre le cristal.
+C'est pour cette raison qu'il avait utilisé Papillon Rouge pour retarder Wang Lin: afin de pouvoir s'emparer du Cristal de la Planète de Culture sans avoir à l'affronter. Cependant, après être arrivé à la montagne spirituelle, il réalisa que plusieurs obstacles se dressaient encore avant d'atteindre le cristal.
 
 Il ne voyait plus Wang Lin comme un faible, contrairement à leur première rencontre; désormais, il le considérait comme son égal, même si, au fond de son cœur, une puissante fierté subsistait.
 
-Selon lui, si Wang Lin n'avait pas possédé ce drapeau d'âme aux un milliard d'âmes, il n'aurait jamais pu être comparé à lui.
+Selon lui, si Wang Lin n'avait pas possédé ce drapeau des âmes d'un milliard, il n'aurait jamais pu être comparé à lui.
 
 Après avoir entendu la réponse de Wang Lin, Qian Feng réfléchit un instant et dit: « Cher cultivateur Ceng, nous deux irons en premier, puis ma jeune sœur de discipline prendra le relais. Qu'en pensez-vous? »
 
@@ -56,11 +56,11 @@ Lorsque Wang Lin avait vu Yun Quezi et le vieil homme contenir l'attaque, il n'e
 
 Face à cette puissance, son âme originelle commença à trembler, montrant des signes d'instabilité. Non seulement cela, mais chaque partie de son corps semblait écrasée par d'innombrables montagnes.
 
-Cette sensation ne lui était pas étrangère; c'était exactement la même pression qu'il avait ressentie au niveau du filon spirituel sous la Secte du Affinement de l'Âme, si ce n'est que celle-ci était des milliers de fois plus intense.
+Cette sensation ne lui était pas étrangère; c'était exactement la même pression qu'il avait ressentie au niveau du filon spirituel sous la Secte de l'Affinement de l'Âme, si ce n'est que celle-ci était des centaines, voire des milliers de fois plus intense.
 
 Avant même que l'énergie de l'épée ne le percute, le sang commença déjà à s'écouler du coin de la bouche de Wang Lin, mais son regard ne montrait aucun signe de défaite.
 
-En remarquant l'état de Wang Lin, Qian Feng marqua une pause pour réfléchir. Devait-il saisir cette opportunité pour tuer Ceng Niu et s'emparer du drapeau d'âme aux un milliard d'âmes, ou devait-il aider à résister à l'énergie de l'épée?
+En remarquant l'état de Wang Lin, Qian Feng marqua une pause pour réfléchir. Devait-il saisir cette opportunité pour tuer Ceng Niu et s'emparer du drapeau des âmes d'un milliard, ou devait-il aider à résister à l'énergie de l'épée?
 
 Cette idée traversa son esprit et il prit sa décision: il tuerait Wang Lin et prendrait le drapeau. Avec cet artefact, il disposerait de toute la puissance nécessaire pour repousser l'attaque de l'épée.
 
@@ -84,7 +84,7 @@ Le sens divin de Zhou Yi, au stade initial de l'Ascendance, émana de la pagode.
 
 L'homme en armure dorée devint grave, mais au lieu d'attaquer Wang Lin, il fixa Qian Feng. Privée de l'interception par le sens divin de niveau Ascendant, l'énergie de l'épée s'abattit sur le corps de Qian Feng.
 
-L'expression de Qian Feng changea radicalement. Il n'eut même pas le temps de se demander pourquoi l'attaque avait ignoré Wang Lin pour se diriger vers lui. Dans un rugissement, il frappa son sac de rangement et en sortit un poinçon rouge. Une lumière rouge éclatante jaillit de l'objet et fonça vers l'énergie de l'épée.
+L'expression de Qian Feng changea radicalement. Il n'eut même pas le temps de se demander pourquoi l'attaque avait ignoré Wang Lin pour se diriger vers lui. Dans un rugissement, il frappa son sac de rangement et en sortit un poinçon rouge. Des éclairs éclatants jaillirent de l'objet et foncèrent vers l'énergie de l'épée.
 
 Le visage de Wang Lin affichait une pointe de dérision. Lorsqu'il avait vu le vieil homme et le singe résister à l'attaque, il avait senti que quelque chose clochait. Il en avait conclu que l'homme en armure dorée avait jugé que les deux étaient un groupe et n'avait envoyé qu'une seule vague d'énergie.
 
@@ -96,7 +96,7 @@ C'était précisément pour cela que Wang Lin avait refusé le plan initial où 
 
 C'est pourquoi il avait décidé d'avancer seul. Malgré ses soupçons, Qian Feng était tombé dans le piège.
 
-En réalité, même si Qian Feng n'avait pas accepté son plan ou n'avait pas proposé la coopération, Wang Lin l'aurait affronté seul de toute façon. Il ne croyait pas que Qian Feng laisserait passer une telle chance de le tuer s'il se trouvait en position de force. Certes, il aurait été plus difficile d'attirer Qian Feng à moins de trente-trois mètres, mais Wang Lin avait un plan B et était sûr à 80 % de réussir à l'approcher.
+En réalité, même si Qian Feng n'avait pas accepté son plan ou n'avait pas proposé la coopération, Wang Lin l'aurait affronté seul de toute façon. Il ne croyait pas que Qian Feng s'abstiendrait de l'attaquer par surprise alors que lui-même affronterait la menace de l'épée. Certes, il aurait été plus difficile d'attirer Qian Feng à moins de trente-trois mètres, mais Wang Lin avait un plan B et était sûr à 80 % de réussir à l'approcher.
 
 La proposition de Qian Feng de travailler ensemble n'avait fait que confirmer les soupçons de Wang Lin: le cultivateur n'avait pas pu résister à ses pulsions et abandonnait toute idée de coopération. Il comptait utiliser l'excuse de « l'aide pour contrer l'épée » pour se rapprocher, sans réaliser que Wang Lin avait déjà tout lu en lui.
 
@@ -110,6 +110,6 @@ En voyant Liu Mei approcher, le regard de Wang Lin devint glacial et il s'élan�
 
 Dès que la distance fut franchie, l'homme en armure dorée, les yeux graves, abattit son épée deux fois de suite, envoyant une vague d'énergie vers Wang Lin et une autre vers Liu Mei.
 
-Une intention meurtrière embrasa les yeux de Wang Lin. Il cessa sa course vers la mer et se téléporta à moins de trente-trois mètres de Liu Mei au moment même où l'énergie de l'épée se refermait sur elle.
+Une intention meurtrière embrasa les yeux de Wang Lin. Il cessa sa course vers la mer et se téléporta à moins de trente-trois mètres de Liu Mei au moment même où l'énergie de l'épée allait le frapper.
 
 L'expression de Liu Mei se décomposa. Elle semblait avoir compris. Bien qu'incertaine, elle avait deviné le stratagème derrière les mouvements de Wang Lin. Elle s'apprêtait à se téléporter pour que Wang Lin se retrouve au-dessus d'elle, faisant de lui le seul rempart face à l'impact dévastateur de l'épée.

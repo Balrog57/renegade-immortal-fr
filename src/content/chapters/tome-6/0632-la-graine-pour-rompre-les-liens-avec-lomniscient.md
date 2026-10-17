@@ -10,9 +10,9 @@ Wu Ma, qui se tenait aux côtés de Chen Long, affichait une expression abattue 
 
 Chen Long laissa poindre une expression amère. Des Douze Épées, outre Mo Yang qui était mort, et Zi Shu et Hai Zhu qui étaient restés à l'extérieur, les neuf autres membres avaient tous suivi Cupidité jusqu'à cet Abîme des Marées.
 
-Cupidité avait affirmé qu'après avoir observé les lieux pendant un certain temps, il en était conclu que le plus grand trésor de la Terre des Esprits Démoniaques se trouvait dans cet Abîme des Marées. Tous, à l'exception de Chen Long, avaient été tentés par ses paroles.
+Cupidité avait affirmé qu'après avoir observé les lieux pendant un certain temps, il en avait conclu que le plus grand trésor de la Terre des Esprits Démoniaques se trouvait dans cet Abîme des Marées. Tous, à l'exception de Chen Long, avaient été tentés par ses paroles.
 
-Ils avaient personnellement vu d'innombrables trésors et objets exotiques, capables de rendre n'importe qui fou de rage, être aspirés dans cette Terre des Esprits Démoniaques au niveau de la Mer des Esprits Démoniaques Orientale.
+Ils avaient personnellement vu d'innombrables trésors et objets exotiques, capables de rendre n'importe qui fou de rage, être aspirés dans cette Terre des Esprits Démoniaques lors des marées au-delà de la Mer de l'Est.
 
 On pouvait dire que leur but, outre l'obtention de l'héritage du démon ancien, était de s'emparer de ces objets.
 
@@ -30,7 +30,7 @@ Chen Long savait que même en rassemblant toute l'énergie des épées, ils ne p
 
 « Cela ne peut plus durer! » Chen Long prit une profonde inspiration, se redressa et fixa Cupidité du regard.
 
-Son geste fit immédiatement se lever les quatre autres disciples de la Secte de la Grande Épée Lou. Ils se positionnèrent pour encercler Cupidité.
+Son geste fit immédiatement se lever les quatre autres disciples de la Secte de l'Épée Da Luo. Ils se positionnèrent pour encercler Cupidité.
 
 L'expression de Cupidité demeura sombre tandis qu'il laissait échapper un rire rauque.
 
@@ -46,21 +46,21 @@ Le regard de Chen Long se posa un instant sur l'œuf. Après tout ce temps, il a
 
 Cependant, rien ne garantissait qu'il s'agissait bien de ce que Cupidité avait trouvé.
 
-« Petits insolents, ce vieil homme ignorera votre manque de respect une fois, par égard pour la dignité de votre maître. Mais si cela se reproduit, ne me blâmez pas d'être impitoyable. Humph, lorsque j'ai commencé ma culture, vous n'étiez même pas nés. Aucun de ceux qui osent me parler ainsi ne survit! » Les yeux de Cupidité devinrent glacials. Bien que sa voix fût douce, elle résonna dans les oreilles des disciples de la Secte de la Grande Épée Lou comme un tonnerre rugissant. Hormis Chen Long, tous les autres reculèrent instinctivement.
+« Petits insolents, ce vieil homme ignorera votre manque de respect une fois, par égard pour la dignité de votre maître. Mais si cela se reproduit, ne me blâmez pas d'être impitoyable. Humph, lorsque j'ai commencé ma culture, vous n'étiez même pas nés. Aucun de ceux qui osent me parler ainsi ne survit! » Les yeux de Cupidité devinrent glacials. Bien que sa voix fût douce, elle résonna dans les oreilles des disciples de la Secte de l'Épée Da Luo comme un tonnerre rugissant. Hormis Chen Long, tous les autres reculèrent instinctivement.
 
-Chen Long baissa la tête, une lueur d'intention meurtrière traversant son regard. Il dit respectueusement: « Veuillez ne pas nous en tenir rigueur, Aîné. Le junior était simplement impatient. Après tout, nous sommes piégés ici depuis près de cent ans. »
+Chen Long baissa la tête, une lueur d'intention meurtrière traversant son regard. Il dit respectueusement: « Veuillez ne pas nous en tenir rigueur, Senior. Le junior était simplement impatient. Après tout, nous sommes piégés ici depuis près de cent ans. »
 
 Cupidité ferma les yeux et répondit lentement: « Pourquoi tant de hâte? Au plus tard, votre maître arrivera dans cent ans pour vous secourir tous. »
 
 Chen Long se rassit en position du lotus et commença à réfléchir. Il avait déjà remarqué une anomalie chez Cupidité. Ce dernier semblait vouloir rester ici plutôt que de partir; il devait y avoir une raison à cela!
 
-Tandis que les disciples de la Secte de la Grande Épée Lou étaient en conflit avec Cupidité, Wang Lin se précipitait vers la sortie de l'Abîme des Marées dans le Pays Démoniaque du Feu. Il avait déjà entendu parler de cet endroit par Yao Xixue.
+Tandis que les disciples de la Secte de l'Épée Da Luo étaient en conflit avec Cupidité, Wang Lin se précipitait vers la sortie de l'Abîme des Marées dans le Pays des Démons de Feu. Il avait déjà entendu parler de cet endroit par Yao Xixue.
 
 Selon elle, le jeton qui faisait rougir les yeux même de personnes comme l'Omniscient se trouvait dans les profondeurs de l'Abîme des Marées.
 
-Wang Lin savait également que Cupidité et les disciples de la Secte de la Grande Épée Lou avaient mystérieusement disparu il y a cent ans, et que leur localisation était inconnue. Il avait l'audacieuse conjecture que le groupe de Cupidité s'était aussi rendu à l'Abîme des Marées.
+Wang Lin savait également que Cupidité et les disciples de la Secte de l'Épée Da Luo avaient mystérieusement disparu il y a cent ans, et que leur localisation était inconnue. Il avait l'audacieuse conjecture que le groupe de Cupidité s'était aussi rendu à l'Abîme des Marées.
 
-Si le groupe de Cupidité en sortait, ce ne serait pas un problème. Cependant, s'ils étaient toujours à l'intérieur, Wang Lin devait préparer soigneusement la sortie du Pays Démoniaque du Feu pour couvrir ses arrières.
+Si le groupe de Cupidité en sortait, ce ne serait pas un problème. Cependant, s'ils étaient toujours à l'intérieur, Wang Lin devait préparer soigneusement la sortie du Pays des Démons de Feu pour couvrir ses arrières.
 
 Utilisant une technique de téléportation de grande envergure, il se déplaçait très rapidement vers la sortie de l'Abîme des Marées.
 
@@ -88,7 +88,7 @@ Il prit une profonde inspiration. La froideur et l'intention meurtrière dans se
 
 Wang Lin ne pouvait déterminer si la scène survenue dans cet espace mystérieux était réelle ou illusoire. Cependant, avec sa compréhension de l'Art du Massacre Céleste, il sentait que ce n'était pas un mirage!
 
-Il se remémora l'état mystérieux dans lequel il s'était trouvé. C'était comme si le temps lui-même s'était figé sur son corps, lui permettant de comprendre instantanément un sort jusqu'à sa perfection. Cela avait approfondi sa maîtrise de la technique.
+Il se remémora l'état mystérieux dans lequel il s'était trouvé. C'était comme si le temps lui-même s'était abattu sur son corps, lui permettant de comprendre instantanément un sort jusqu'à sa perfection. Cela avait approfondi sa maîtrise de la technique.
 
 Ceux qui étaient dotés par les cieux pouvaient même créer leur propre sort dans cet état mystérieux. En multipliant les simulations, ils pouvaient affiner le sort d'innombrables fois pour atteindre un état de quasi-perfection.
 
@@ -114,14 +114,14 @@ Wang Lin ferma les yeux. Lorsqu'il les rouvrit, son regard était d'une clarté 
 
 « Je suis un peu paranoïaque à ce sujet, je ne peux donc pas porter de jugement définitif. L'Omniscient a été bienveillant envers moi, et c'était mon propre choix d'apprendre l'Art du Massacre Céleste, mais il semblait m'y pousser... Je devrai observer cela avec prudence à l'avenir. Cependant, l'Omniscient est trop puissant. Si je ne possède pas la force nécessaire, je ne peux pas lui laisser deviner que je suis au courant de tout cela... Quant à l'Art du Massacre Céleste, je devrai l'étudier minutieusement pour y trouver une faille! »
 
-Wang Lin resta à la sortie de l'Abîme des Marées dans le Pays Démoniaque du Feu pendant plusieurs jours. Il ne plaça aucune restriction ou sceau puissant. Au contraire, il fit l'inverse en laissant quelques restrictions simples mais extrêmement bien dissimulées.
+Wang Lin resta à la sortie de l'Abîme des Marées dans le Pays des Démons de Feu pendant plusieurs jours. Il ne plaça aucune restriction ou sceau puissant. Au contraire, il fit l'inverse en laissant quelques restrictions simples mais extrêmement bien dissimulées.
 
 Ces restrictions n'avaient aucun pouvoir offensif, mais elles pouvaient servir à traquer autrui. Si quelqu'un en sortait, la restriction laisserait une empreinte sur lui que Wang Lin pourrait détecter. À moins d'un niveau de culture extrêmement élevé, il serait impossible pour quiconque de repérer cette trace.
 
-Une fois cela accompli, Wang Lin chassa toute distraction et s'envola vers le Pays Démoniaque de l'Eau. Il allait pénétrer dans l'Abîme des Marées de ce pays et consacrer tous ses efforts à la recherche de Zhou Yi!
+Une fois cela accompli, Wang Lin chassa toute distraction et s'envola vers le Pays des Démons de l'Eau. Il allait pénétrer dans l'Abîme des Marées de ce pays et consacrer tous ses efforts à la recherche de Zhou Yi!
 
 Zhou Yi était son bienfaiteur, Wang Lin se devait de le sauver!
 
-« Outre le sauvetage du senior Zhou Yi, il y a aussi... la Richesse... » En se téléportant, les yeux de Wang Lin s'illuminèrent. Il se souvenait distinctement avoir vu la Richesse passer devant lui lors de la phase des marées... Plusieurs jours plus tard, dans la partie occidentale du Pays Démoniaque de l'Eau, en un lieu nommé la Mer des Nuages. Cet endroit était voilé de nuages une grande partie de l'année. Au fond de cette mer de nuages, une faille s'étirait sur d'innombrables kilomètres. C'était l'une des entrées de l'Abîme des Marées!
+« Outre le sauvetage du senior Zhou Yi, il y a aussi... la Richesse... » En se téléportant, les yeux de Wang Lin s'illuminèrent. Il se souvenait distinctement avoir vu la Richesse passer devant lui lors de la phase des marées... Plusieurs jours plus tard, dans la partie occidentale du Pays des Démons de l'Eau, en un lieu nommé la Mer des Nuages. Cet endroit était voilé de nuages une grande partie de l'année. Au fond de cette mer de nuages, une faille s'étirait sur d'innombrables kilomètres. C'était l'une des entrées de l'Abîme des Marées!
 
 Quatre cultivateurs, deux hommes et deux femmes, se tenaient à l'orée de la mer des nuages et scrutaient l'intérieur!

@@ -46,7 +46,7 @@ Wang Lin vit personnellement une bête démoniaque géante à corne unique, éme
 
 Au moment où elle le traversa, Wang Lin prit une profonde inspiration. Il se retourna soudainement et scruta attentivement la lumière rouge pour tenter d'apercevoir autant de trésors que possible.
 
-« Terre Métallique Céleste... Liquide Exquis... Pierre d'Encre... Corne de Ling Xi... » Wang Lin n'en eut qu'un aperçu fugace, mais son cœur rata un battement. Tous ces éléments étaient d'excellents matériaux pour raffiner les trésors des anciens dieux.
+« Terre Métallique Céleste... Liquide Exquis... Pierre d'Encre... Corne de Ling Xi... » Wang Lin n'en eut qu'un aperçu fugace, mais son cœur rata un battement. Tous ces éléments figuraient, dans les souvenirs de l'ancien dieu Tu Si, parmi les assez bons matériaux de raffinage.
 
 « Il y a aussi... c'est... c'est... » Les yeux de Wang Lin devinrent soudainement graves alors qu'il fixait un rayon de lumière rouge au loin. À l'intérieur de ce rayon se trouvait une épée massive.
 
@@ -76,7 +76,7 @@ Cette scène stupéfiante attira immédiatement les regards de tous les cultivat
 
 Ce dernier était si rapide qu'il dépassa tous les cultivateurs en un instant pour charger dans la Mer des Esprits Démoniaques de l'Est.
 
-Si sa vitesse seule n'était pas extraordinaire, c'est que la lumière rouge empêchait tout recours au Sens Divin ou à la vision directe. Tous les sorts tentant d'en sonder le contenu étaient bloqués, rendant impossible toute observation de ce qui s'y trouvait. Elle était si bien dissimulée qu'elle fit même changer d'expression l'Omniscient et Ling Tianhou.
+Si seule sa vitesse avait été en cause, passe encore, mais le plus étrange était que la lumière rouge empêchait tout recours au Sens Divin ou à la vision directe. Tous les sorts tentant d'en sonder le contenu étaient bloqués, rendant impossible toute observation de ce qui s'y trouvait. Elle était si bien dissimulée qu'elle fit même changer d'expression l'Omniscient et Ling Tianhou.
 
 Lorsque le Sens Divin de Wang Lin toucha la lumière rouge, ce fut comme s'il s'était retrouvé piégé dans un labyrinthe; il s'effondra instantanément. S'il n'avait pas été assez décisif pour le retirer immédiatement, il aurait certainement été blessé par cet effondrement.
 

@@ -24,13 +24,13 @@ De plus, il y avait la Montagne Céleste. En raison d'une fissure, l'extraction 
 
 Quant à la couronne fusionnée avec la rose bleue du Papillon Rouge, Wang Lin l'avait étudiée longuement sans parvenir à en percer les secrets.
 
-Ces trois trésors étaient des acquisitions récentes. Tout en les raffinant, Wang Lin prit le temps de les combiner avec les visions obtenues sur le chemin vers la troisième étape. Il sortit alors quelques trésors magiques ordinaires de son sac.
+Ces trois trésors étaient des acquisitions récentes. Tout en les raffinant, Wang Lin prit le temps de les combiner avec les visions obtenues sur le chemin vers la troisième étape. Il sortit alors de son sac un trésor magique d'apparence ordinaire.
 
-L'un d'eux était le Fouet des Âmes!
+C'était le Fouet des Âmes!
 
 Ce fouet l'avait suivi pendant longtemps; sa puissance présentait des avantages et des inconvénients évidents. Auparavant, Wang Lin ne lui accordait que peu d'importance, mais désormais, il s'y intéressait de près.
 
-Wang Lin observa le Fouet des Âmes dans sa main et murmura: « Parmi tous mes trésors, en termes d'intelligence, il ne peut égaler l'épée céleste ou la lame Demi-Lune. En termes de défense, il n'égale ni le drapeau des un milliard d'âmes, ni l'Écran des Montagnes et des Rivières. En termes de capacités, il ne vaut pas la Montagne Céleste ou le Char de Guerre Divin. Pourtant, c'est le seul trésor qui contient l'aura de la troisième étape que j'ai aperçue. Cet objet est véritablement étrange! »
+Wang Lin observa le Fouet des Âmes dans sa main et murmura: « Parmi tous mes trésors, en termes de tranchant, il ne peut égaler l'épée céleste ou la lame Demi-Lune. En termes de défense, il n'égale ni l'Étendard des Mille Millions d'Âmes, ni l'Écran des Montagnes et des Rivières. En termes de capacités, il ne vaut pas la Montagne Céleste ou le Char de Guerre Divin. Pourtant, c'est le seul trésor qui contient l'aura de la troisième étape que j'ai aperçue. Cet objet est véritablement étrange! »
 
 Ce fouet semblait tout à fait ordinaire, mais le fantôme céleste avait presque perdu la raison en le voyant, comme s'il le reconnaissait.
 
@@ -38,7 +38,7 @@ Ce fouet semblait tout à fait ordinaire, mais le fantôme céleste avait presqu
 
 Son domaine avait progressivement évolué du domaine de la vie et de la mort vers le domaine du karma. Ce domaine était d'une immensité telle que Wang Lin n'en avait touché que la pointe de l'iceberg, mais il pouvait déjà en ressentir toute la majesté.
 
-« Ma compréhension actuelle du domaine du karma est insuffisante pour créer une entité réelle, telle que la rivière des enfers. Cependant, après avoir entrevu le chemin vers la troisième étape, j'ai acquis un nouvel éclairage... »
+« Ma compréhension actuelle du domaine du karma est insuffisante pour créer une entité réelle, comme le rouleau illusoire de la vie, de la mort et de la réincarnation. Cependant, après avoir entrevu le chemin vers la troisième étape, j'ai acquis un nouvel éclairage... »
 
 Alors que sa main droite caressait le Fouet des Âmes, son regard s'illumina de plus en plus.
 

@@ -60,7 +60,7 @@ Le noyau bleu se mit à pivoter, émettant des éclats de lumière azurée. Tel 
 
 Le sort « Invoque le Vent » était trop vicieux. Une fois introduit dans l'organisme, il était presque impossible de l'expulser. S'il le laissait pénétrer à nouveau, les blessures d'autrefois se réveilleraient instantanément!
 
-« Maudit soit! Comment cet homme peut-il connaître "Invoque le Vent"?! Je dois compter sur le trésor que Maître m'a offert! » L'homme à la robe noire était plongé dans une profonde mélancolie. Tandis que le noyau bleu résistait au vent noir, il s'éloignait rapidement.
+« Maudit soit! Comment cet homme peut-il connaître "Invoque le Vent"?! Je dois compter sur le trésor que Maître m'a offert! » Le visage de l'homme à la robe noire était extrêmement sombre. Tandis que le noyau bleu résistait au vent noir, il s'éloignait rapidement.
 
 Wang Lin, les yeux empreints de soif de sang, fixa l'homme. Il sortit sans hésiter le Char de Guerre Divin. Dans un éclat de lumière aux cinq couleurs, le papillon multicolore apparut.
 
@@ -102,11 +102,11 @@ Le regard déterminé, il serra les dents. Il recula près du cercueil et murmur
 
 En parlant, sa tête percuta le cercueil et le couvercle s'ouvrit. Dès l'ouverture, la chair du jeune homme à l'intérieur commença à se dissiper, comme si elle ne pouvait survivre au contact du monde extérieur. Un instant plus tard, tout avait disparu; il ne restait absolument rien dans le cercueil!
 
-« Long Daozi, tu as brisé la loi céleste et as été puni par l'Empereur Céleste. Même Maître ne peut te sauver. Je n'ai pu que sauver ton crâne et sceller ton âme originelle à l'intérieur pour garder ce cercueil. Ton maître avait prévu une grande catastrophe pour le Royaume Céleste; quitter ce lieu pourrait être une bénédiction.
+« Long Daozi, tu as brisé la loi céleste et as été puni par l'Empereur Céleste. Moi non plus, ton maître, je ne peux te sauver. Je n'ai pu que sauver ton crâne et sceller ton âme originelle à l'intérieur pour garder ce cercueil. En observant le ciel la nuit, j'ai prévu une grande catastrophe pour le Royaume Céleste; quitter ce lieu pourrait être une bénédiction.
 
-Ce cercueil est un trésor de l'ancien Royaume Céleste, obtenu par ton maître au péril de sa vie. Il s'appelle le Cercueil Évitant les Cieux.
+Ce cercueil est un trésor de l'ancien Royaume Céleste, obtenu par moi au péril de ma vie. Il s'appelle le Cercueil Évitant les Cieux.
 
-Sache qu'avant que ton maître ne devienne un être céleste, j'avais un fils. Ton maître lui devait tant qu'il n'a pu préserver qu'une trace de son âme. Lorsque je suis devenu un être céleste, j'ai sacrifié tout mon temps et mes opportunités de culture pour trouver ce Cercueil Évitant les Cieux. J'y ai placé son fragment d'âme afin qu'un jour, il puisse reconstituer son corps et s'éveiller.
+Sache qu'avant que je ne devienne un être céleste, j'avais un fils. Je lui devais tant que je n'ai pu prélever qu'une trace de son âme. Une fois devenu un être céleste, j'ai sacrifié tout mon temps et mes opportunités de culture pour trouver ce Cercueil Évitant les Cieux. J'y ai placé son fragment d'âme afin qu'un jour, il puisse reconstituer son corps et s'éveiller.
 
 Lorsqu'il s'éveillera, tu le reconnaîtras comme ton maître et tu ne le trahiras jamais. En même temps, tu pourras utiliser ce cercueil pour reformer ton corps et recouvrer ta culture! »
 

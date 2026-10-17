@@ -10,7 +10,7 @@ Zhao Xingsha leva soudain la tête, et l'illusion d'un démon géant apparut au-
 
 Le démon était massif et musclé, et de faibles lignes bleues luisaient sur son corps vaporeux. Sa main gigantesque, dont les ongles ressemblaient à des épées, témoignait de la nature anormale de cette créature.
 
-À cet instant, les yeux du démon étaient clos, mais sa tête oscillait d'avant en arrière comme s'il pouvait s'éveiller à tout moment.
+À cet instant, les yeux du démon étaient clos, mais sa tête tournait légèrement comme s'il pouvait s'éveiller à tout moment.
 
 Plus le regard descendait depuis la tête, plus l'illusion devenait indistincte. En dessous se tenait Zhao Xingsha, le visage livide. Il était manifeste que le fardeau de ce sortilège n'était pas léger.
 
@@ -26,7 +26,7 @@ Un vieil homme aux côtés de Jiang Tianzun déclara d'un ton grave: « Camarade
 
 Jiang Tianzun réfléchit un instant avant de répondre: « C'est très similaire! »
 
-Bien que les âmes primaires projetées par Wang Lin aient aperçu le démon, elles furent tout de même aspirées vers Zhao Xingsha.
+Bien que les âmes primaires libérées par Wang Lin aient aperçu le démon, elles se ruèrent tout de même sur Zhao Xingsha.
 
 Les yeux de Zhao Xingsha brillèrent d'une lueur mystérieuse alors qu'il levait la main pour pointer le vide. Dans un mouvement synchronisé, l'illusion géante au-dessus de lui suivit son geste. La main du démon s'éleva lentement et pointa également le néant, à l'instar de Zhao Xingsha.
 
@@ -44,7 +44,7 @@ Les yeux de Wang Lin se glacèrent. D'une simple pensée, le drapeau des âmes a
 
 Au moment où Wang Lin récupéra ses âmes, le démon au-dessus de Zhao Xingsha laissa échapper un rugissement terrassant. Ses yeux s'ouvrirent brusquement, révélant un regard capable de faire vaciller le cœur de n'importe quelle forme de vie. Son regard était d'une froideur absolue, plus glaçant encore que celui de ceux qui avaient cultivé l'insensibilité, et il perçait les os plus profondément que celui de ceux ayant tranché toute émotion.
 
-Wang Lin n'avait contemplé un tel regard que chez le messager des cieux!
+Wang Lin n'avait contemplé un tel regard que chez le messager des cieux, incarné en Dieu Ancien!
 
 Une fois ses yeux ouverts, cette immense illusion démoniaque leva sa main droite vers Wang Lin. Simultanément, Zhao Xingsha leva également la sienne, comme si son corps ne lui appartenait plus.
 
@@ -64,13 +64,13 @@ Le démon géant afficha une expression mystérieuse, puis plongea sa main dans 
 
 À l'écho de cette voix, le démon manifesta une expression de lutte avant de pousser un soupir et de relâcher la bête spirituelle. Le corps de celle-ci se rétracta instantanément pour ne devenir qu'un rayon de lumière verte, retournant ainsi vers Zhao Xingsha.
 
-Le symbole sur le front de Zhao Xingsha fulgura violemment encore quelques fois avant de commencer à s'effacer. Ce dernier cracha une large traînée de sang pour contenir la contre-attaque de son propre pouvoir. Il fixa ensuite Wang Lin en affichant un sourire sinistre.
+Le symbole sur le front de Zhao Xingsha fulgura violemment encore quelques fois avant de commencer à s'effacer. Ce dernier cracha une gorgée de sang en s'efforçant de contenir la contre-attaque de son propre pouvoir. Il fixa ensuite Wang Lin en affichant un sourire sinistre.
 
-Une fois libérée, la bête spirituelle ne lutta pas et ne rugit pas. Elle jeta un regard à Zhao Xingsha avant de regagner le char de guerre et de reprendre sa forme de cercle de bronze.
+Une fois libérée, la bête spirituelle ne lutta pas et ne rugit pas. Elle jeta un regard à Zhao Xingsha avant de regagner le char de guerre et de reprendre sa forme de piège à bêtes.
 
-À ce moment-là, un nuage rouge apparut à l'horizon. Une masse de nuages pourpres commença à s'agglutiner jusqu'à prendre la forme d'un vieil homme vêtu d'une robe rouge. Le visage de l'individu était d'un rouge ardent, il exhalait une forte odeur de vin et portait une grande gourde dans son dos. Apparaissant ainsi, il laissa échapper un rot, roula des yeux et réprimanda: « Pourquoi vous disputez-vous tous? Si vous ne vous battiez pas, comment ce vieil homme aurait-il été envoyé par l'Omniscient, ce vieux sac d'os, pour vous punir? Je n'en étais qu'à la moitié de ma dégustation! »
+À ce moment-là, un nuage rouge apparut à l'horizon. Une masse de nuages rouges commença à s'agglutiner jusqu'à prendre la forme d'un vieil homme vêtu d'une robe rouge. Le visage de l'individu était d'un rouge ardent, il exhalait une forte odeur de vin et portait une grande gourde dans son dos. Apparaissant ainsi, il laissa échapper un rot, roula des yeux et réprimanda: « Pourquoi vous disputez-vous tous? Si vous ne vous battiez pas, comment ce vieil homme aurait-il été envoyé par l'Omniscient, ce vieux sac d'os, pour vous punir? Je n'en étais qu'à la moitié de ma dégustation! »
 
-L'expression de Wang Lin resta calme tandis qu'il saisissait le cercle de bronze. Il se dirigea vers la troisième table vide, après celle de la Quatrième Sœur. C'était sa place.
+L'expression de Wang Lin resta calme tandis qu'il saisissait le piège à bêtes. Il se dirigea vers la troisième table vide, après celle de la Quatrième Sœur. C'était sa place.
 
 D'un revers de manche, il s'assit.
 
@@ -88,7 +88,7 @@ Jiang Tianzun regarda Chi Lie et répondit avec respect: « Senior est trop mode
 
 À peine eut-il fini de parler que d'autres s'empressèrent de l'imiter. Bientôt, presque tous les cultivateurs présents exprimèrent la même opinion.
 
-Chi Lie rit en secouant la tête: « Ne faites pas trop de compliments à ces deux disciples indisciplinés. Demain, mon frère aîné, l'Omniscient, enseignera le Dao. Tout le monde, j'ai encore des affaires importantes à régler, je prends donc congé. »
+Chi Lie rit en secouant la tête: « Ne faites pas trop de compliments à ces quelques disciples indisciplinés. Demain, mon frère aîné, l'Omniscient, enseignera le Dao. Tout le monde, j'ai encore des affaires importantes à régler, je prends donc congé. »
 
 Sur ce, Chi Lie s'élança, emportant Zhao Xingsha dans sa main. Il s'évapora tel un nuage rouge vers l'horizon.
 
@@ -102,7 +102,7 @@ Le combat précédent avait prouvé que Wang Lin pouvait éliminer aisément le 
 
 De plus, le Septième Frère n'était même pas intervenu personnellement; il s'était contenté d'utiliser ses trésors magiques. Bien que l'issue du combat fût incertaine si la lutte avait persisté, les propos de Chi Lie révélaient l'importance capitale de ce Septième Frère pour l'Omniscient.
 
-Autrement, pourquoi Zhao Xingsha avait-il été emmené tandis que le Septième Frère recevait des paroles élogieuses?
+Autrement, pourquoi seul Zhao Xingsha avait-il été emmené, sans que l'on demande de comptes pour la mort du Deuxième Frère, tandis que le Septième Frère recevait des paroles presque apaisantes laissant entendre l'intérêt qu'on lui portait?
 
 Les cultivateurs deviennent plus rusés avec l'âge, et les invités de cette célébration n'étaient pas de simples gens. À leurs yeux, Wang Lin allait indubitablement devenir un véritable disciple; se lier d'amitié avec lui dès maintenant serait un atout précieux pour l'avenir.
 
@@ -112,6 +112,6 @@ Wang Lin chassa ses pensées et salua l'assemblée avec un sourire. Souhaitant s
 
 Le dernier jour du festival de sept jours, les célébrations de la Division Violette atteignirent leur apogée alors que Wang Lin, remplaçant Zhao Xingsha, devint le centre de l'attention et but avec tout le monde.
 
-Quant à Bai Wei et la Quatrième Sœur, peu de gens vinrent à leur rencontre. En comparaison, elles paraissaient bien solitaires.
+Quant à Bai Wei et la Quatrième Sœur, peu de gens vinrent à leur rencontre. En comparaison, leur côté paraissait bien vide.
 
 À mesure que la nuit approchait, les invités commencèrent à se disperser. Wang Lin, une coupe de vin à la main, trinqua avec Jiang Tianzun. Une fois ce dernier parti, le regard de Wang Lin se tourna vers la Quatrième Sœur.

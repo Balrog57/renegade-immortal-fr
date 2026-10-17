@@ -26,7 +26,7 @@ Il suivait Wang Lin depuis de nombreuses années et connaissait parfaitement son
 
 Des hymnes de combat résonnèrent de l'épée céleste. Une épée est, par essence, l'arme la plus fière de toutes. Pourtant, en cet instant, le chant qui s'en dégageait était empreint d'une impureté sinistre.
 
-Après l'apparition du bras osseux noir, celui-ci griffa une nouvelle fois Wang Lin, tandis que la Brise du Démon Céleste soufflait doucement vers lui.
+Après l'apparition du bras osseux noir, celui-ci griffa une nouvelle fois Wang Lin, tandis que le Vent Démoniaque Céleste soufflait doucement vers lui.
 
 Wang Lin était prêt; ses yeux devinrent glacials et son cœur de massacre se manifesta. D'un geste vif, il abattit l'épée céleste pour projeter un rayon d'énergie, tandis que l'arme elle-même s'élançait dans les airs sous la forme d'un dragon d'acier.
 
@@ -54,25 +54,25 @@ L'énergie spirituelle démoniaque emplit cette zone, érigeant une véritable p
 
 De nouveaux symboles apparurent sur le protège-poignet et se mirent à émettre le son d'une cloche. Ce son semblait émaner du bracelet lui-même, mais il résonnait comme s'il provenait des cieux, envahissant l'espace sur 3,3 kilomètres à la ronde.
 
-Tout cela se produisit en un instant. Ce son était d'innombrables fois plus puissant que la Brise du Démon Céleste; la clarté que Wang Lin maintenait grâce à son cœur de massacre commença immédiatement à vaciller.
+Tout cela se produisit en un instant. Ce son était d'innombrables fois plus puissant que le Vent Démoniaque Céleste; la clarté que Wang Lin maintenait grâce à son cœur de massacre commença immédiatement à vaciller.
 
 Le visage de Wang Lin s'assombrit et, d'un bond, il atteignit les airs. Sa main traça un sceau avant de se transformer en une paume qui s'abattit sur le protège-poignet.
 
-Au contact de sa paume, une flamme démoniaque monstrueuse jaillit du bracelet. Cette flamme prit la forme d'une ombre de la taille d'un poing, dotée d'une unique corne et d'une noirceur absolue. Une fois apparue, elle afficha un sourire de mépris avant d'ouvrir la bouche pour éclater d'un rire tonitruant!
+Au contact de sa paume, une flamme démoniaque monstrueuse jaillit du bracelet. Cette flamme prit la forme d'une ombre de la taille d'un poing, dotée d'une unique corne et d'une noirceur absolue. Une fois apparue, elle afficha un sourire de mépris avant d'ouvrir la bouche pour pousser un hurlement strident!
 
 L'âme originelle de Wang Lin trembla, mais son regard se fit plus glacial encore. Sa main droite ne faiblit pas et il pressa le protège-poignet avec force.
 
-À cet instant, l'ombre noire laissa échapper un nouveau rire dément, bien plus intense que le précédent. Cette onde sonore provoqua des déflagrations qui résonnèrent entre Wang Lin et l'objet.
+À cet instant, l'ombre noire laissa échapper un nouveau hurlement strident, bien plus intense que le précédent. Cette onde sonore provoqua des déflagrations qui résonnèrent entre Wang Lin et l'objet.
 
-Les ondes de choc n'étaient qu'un effet secondaire; la véritable attaque visait son âme originelle. Sous l'effet de ce rire démoniaque, l'âme originelle de Wang Lin commença une fois de plus à s'échapper de son corps.
+Les ondes de choc n'étaient qu'un effet secondaire; la véritable attaque visait son âme originelle. Sous l'effet de ce hurlement démoniaque, l'âme originelle de Wang Lin commença une fois de plus à s'échapper de son corps.
 
 Et son cœur de massacre était sur le point de s'effondrer!
 
-L'ombre sur le protège-poignet afficha un rictus sinistre et rit de nouveau comme une folle!
+L'ombre sur le protège-poignet afficha un rictus sinistre et hurla de nouveau!
 
 Wang Lin se mordit la langue. Plutôt que de reculer, il chargea et saisit le protège-poignet. L'énergie spirituelle céleste de son corps jaillit alors avec frénésie dans l'objet.
 
-Dès que l'énergie céleste pénétra le bracelet, le rire démoniaque s'interrompit. Cependant, l'ombre noire disparut également pour s'engouffrer dans le corps de Wang Lin par sa main droite, se transformant en vagues d'énergie démoniaque qui chargèrent son âme originelle.
+Dès que l'énergie céleste pénétra le bracelet, le son démoniaque se dissipa. Cependant, l'ombre noire disparut également pour s'engouffrer dans le corps de Wang Lin par sa main droite, se transformant en vagues d'énergie démoniaque qui chargèrent son âme originelle.
 
 La Danse Démoniaque de la Confusion!
 
@@ -102,7 +102,7 @@ Les yeux de Wang Lin étaient injectés de sang et les veines de son front bomb�
 
 Wang Lin laissa échapper un rugissement sourd qui résonna à travers toute la terre. Une ombre noire fut alors expulsée de son corps par sa main droite!
 
-Cependant, cette ombre était d'une obstination extrême. Alors qu'elle n'était que partiellement sortie, elle se mit à rire et lutta pour réintégrer le corps de Wang Lin.
+Cependant, cette ombre était d'une obstination extrême. Alors qu'elle n'était que partiellement sortie, elle se mit à hurler et lutta pour réintégrer le corps de Wang Lin.
 
 L'expression de Wang Lin devint féroce tandis que l'effet mystérieux du fruit emplissait son être. Cela lui conférait une puissance inimaginable; et si la douleur était atroce, elle s'accompagnait d'un plaisir intense!
 

@@ -13,7 +13,7 @@ Au cœur du brouillard violet, les yeux de Cupidité s'entrouvrirent, laissant �
 
 Depuis son entrée dans l'Abîme des Marées, il avait commencé à élaborer ses propres plans. L'un d'eux nécessitait l'intégration d'une formation. Cependant, il était soudainement tombé sur les bêtes moustiques. D'abord surpris, il en fut ensuite extatique.
 
-Cupidité n'avait jamais eu de demeure fixe; il dérivait sans cesse parmi les étoiles, suivant la trace des trésors. C’était de là que venait le dicton: « Partout où va Cupidité, les trésors suivent ».
+Cupidité n'avait jamais eu de demeure fixe; il dérivait sans cesse parmi les étoiles, suivant la trace des trésors. C’était de là que venait le dicton: « Cupidité ne va pas là où il n'y a pas de trésor ».
 
 Il avait parcouru tant de lieux au cours de sa vie qu'il avait déjà aperçu ces bêtes moustiques par le passé!
 
@@ -31,17 +31,17 @@ Toutes les bêtes moustiques étaient en hibernation. Le cœur de Cupidité nour
 
 Il finit par localiser la bête reine des moustiques. Lorsque les aiguilles transpercèrent la reine, il s'échappa immédiatement de la fissure.
 
-C’est à ce moment précis que le groupe de Chen Long fut soudainement piégé par les moustiques! Quant au brouillard violet, il faisait partie intégrante du domaine de Cupidité!
+C’est à ce moment précis que le groupe de Chen Long fut soudainement piégé par les moustiques! Quant au brouillard violet, c'était aussi l'élément le plus crucial du plan de Cupidité!
 
-Cupidité observa les disciples de la Secte de l'Épée Da Lou et ricana intérieurement.
+Cupidité observa les disciples de la Secte de l'Épée Da Luo et ricana intérieurement.
 
-« Parmi les disciples du vieil homme Ling Tianhou, à part Chen Long, tous ne sont que des déchets! Ce vieil homme est venu trois fois dans l'Abîme des Marées depuis mon arrivée dans la Terre de l'Esprit Démonique. J'ai enfin déterminé que ce brouillard violet renferme le jeton qui a attiré le regard de Ling Tianhou et de l'Omniscient!
+« Parmi les disciples du vieil homme Ling Tianhou, à part Chen Long, tous ne sont que des déchets! Depuis mon arrivée dans la Terre des Esprits Démoniaques, je suis venu seul trois fois dans l'Abîme des Marées. J'ai enfin déterminé que ce brouillard violet renferme le jeton qui a attiré le regard de Ling Tianhou et de l'Omniscient!
 
-« Cependant, ce jeton est un peu étrange. D'après mes observations, il n'apparaît qu'à certains moments et semble nécessiter des sacrifices... » Le regard de Cupidité balaya indistinctement les disciples de la Secte de l'Épée Da Lou, y compris Chen Long.
+« Cependant, ce jeton est un peu étrange. D'après mes observations, il n'apparaît qu'à certains moments et semble nécessiter des sacrifices... » Le regard de Cupidité balaya indistinctement les disciples de la Secte de l'Épée Da Luo, y compris Chen Long.
 
 « Si je n'étais pas inquiet de l'énergie d'épée qui réside dans leurs corps, j'aurais déjà capturé ces cinq petits. Je les aurais alors amenés à se sacrifier volontairement, au lieu de rester piégé ici avec eux pendant cent ans à attendre qu'ils succombent à l'anxiété! »
 
-Wang Lin, debout sur l'épée céleste, s'approchait lentement du brouillard violet depuis l'autre côté. Peu après, il détecta la brume au loin. Ce brouillard était si dense qu'il en paraissait presque solide. Il bloquait totalement le passage; à moins de le traverser, ils ne pourraient atteindre la sortie du Pays du Démon de Feu.
+Wang Lin, debout sur l'épée céleste, s'approchait lentement du brouillard violet depuis l'autre côté. Peu après, il détecta la brume au loin. Ce brouillard était si dense qu'il en paraissait presque solide. Il bloquait totalement le passage; à moins de le traverser, ils ne pourraient atteindre la sortie du Pays des Démons de Feu.
 
 « Wang Lin, mon sens divin d'épée ne peut toujours pas pénétrer ce brouillard violet. Il est très étrange, mais tu peux être rassuré: les personnes piégées à l'intérieur ne peuvent pas te détecter avec leur sens divin », transmit la voix de Zhou Yi depuis l'intérieur de l'épée céleste.
 
@@ -75,9 +75,9 @@ Alors qu'il volait, Zhou Yi envoya soudainement un message par sens divin:
 
 « C'est eux! » Wang Lin reconnut immédiatement leur identité.
 
-À cet instant précis, le vieil homme assis au centre ouvrit soudainement les yeux. Une lueur dorée s'en échappa tandis qu'il hurlait: « Quel est ce cultivateur? Ce vieil homme s'appelle Cupidité! »
+À cet instant précis, le vieil homme assis au centre ouvrit soudainement les yeux. Un éclat aigu s'en échappa tandis qu'il hurlait: « Quel est ce cultivateur? Ce vieil homme s'appelle Cupidité! »
 
-Le cri de Cupidité fit changer brusquement d'expression les disciples de la Secte de l'Épée Da Lou, qui se levèrent d'un bond. Cependant, Chen Long resta immobile, un éclat mystérieux dans le regard. Si l'on regardait de plus près, on y devinerait une pointe de joie!
+Le cri de Cupidité fit changer brusquement d'expression les disciples de la Secte de l'Épée Da Luo, qui se levèrent d'un bond. Cependant, Chen Long resta immobile, un éclat mystérieux dans le regard. Si l'on regardait de plus près, on y devinerait une pointe de joie!
 
 Zhou Yi ramena le sens divin de Wang Lin et disparut dans la brume. L'expression de Cupidité était mécontente et il laissa échapper un reniflement froid. Il frappa son sac de rangement, mais après avoir hésité, il ne sortit aucun trésor magique.
 
@@ -85,7 +85,7 @@ Le sens divin de l'inconnu était extrêmement étrange, ce qui le rendait incer
 
 Avant de comprendre les capacités de son adversaire, Cupidité ne voulait pas provoquer l'ennemi, d'autant qu'il était encore blessé. Sa culture originale était au stade Yin Illusoire, mais il n'était désormais qu'au sommet du stade Ascendant tardif. Durant toutes ces années, il n'avait pas réussi à retrouver son apogée.
 
-Cela ne signifiait pas que Situ Nan était infiniment puissant, mais plutôt que si un cultivateur du stade Yin Illusoire perdait sa culture, il lui faudrait bien plus d'efforts pour la recouvrer que pour l'atteindre! Après tout, les stades Yin Illusoire et Corporel Yang sont des étapes cruciales, comme le moment où le papillon s'extrait de son cocon.
+Cela ne signifiait pas que Situ Nan était si puissant, mais plutôt que si un cultivateur du stade Yin Illusoire perdait sa culture, il lui faudrait bien plus d'efforts pour la recouvrer que pour l'atteindre! Après tout, les stades Yin Illusoire et Corporel Yang sont des étapes cruciales, comme le moment où le papillon s'extrait de son cocon.
 
 Même pour Situ Nan, sans la force mystérieuse qui le nourrissait à l'intérieur de la Perle Défiant le Ciel et sans son talent prodigieux, il n'aurait jamais pu retrouver sa culture.
 
@@ -93,13 +93,13 @@ Cependant, bien que celle de Cupidité soit limitée au sommet du stade Ascendan
 
 Zhou Yi ramena le sens divin de Wang Lin et ils retrouvèrent leurs corps respectifs.
 
-« Parmi les six, cinq sont des disciples de la Secte de l'Épée Da Lou, et le dernier... s'appelle Cupidité! » Wang Lin n'en dit pas plus sur lui.
+« Parmi les six, cinq sont des disciples de la Secte de l'Épée Da Luo, et le dernier... s'appelle Cupidité! » Wang Lin n'en dit pas plus sur lui.
 
-« La Secte de l'Épée Da Lou! Oui, je me demande pourquoi cela me semble si familier... La Secte de l'Épée Da Lou!! Wang Lin, que comptes-tu faire? » La voix froide de Zhou Yi résonna depuis l'épée céleste.
+« La Secte de l'Épée Da Luo! Oui, je me demande pourquoi cela me semble si familier... La Secte de l'Épée Da Luo!! Wang Lin, que comptes-tu faire? » La voix froide de Zhou Yi résonna depuis l'épée céleste.
 
-Wang Lin réfléchit un instant et répondit: « Aîné, ne trouvez-vous pas cela étrange... Le niveau de culture de ce Cupidité est très élevé, et tous les disciples de Ling Tianhou possèdent une parcelle de son énergie d'épée. Je sais aussi qu'ils ont disparu il y a environ cent ans. En tenant compte de tout cela, je suis sûr à quatre-vingts pour cent que, s'ils n'ont pas été piégés ici pendant un siècle, ils doivent avoir une raison de rester!
+Wang Lin réfléchit un instant et répondit: « Senior, ne trouvez-vous pas cela étrange... Le niveau de culture de ce Cupidité est très élevé, et tous les disciples de Ling Tianhou possèdent une parcelle de son énergie d'épée. Je sais aussi qu'ils ont disparu il y a environ cent ans. En tenant compte de tout cela, je suis sûr à quatre-vingts pour cent que, s'ils n'ont pas été piégés ici pendant un siècle, ils doivent avoir une raison de rester!
 
-« De plus, Aîné, avez-vous remarqué l'éclair de joie dans les yeux de l'un des disciples? J'ai vérifié sa culture: il est au début du stade Ascendant. Parmi tous ceux qui ont atteint ce stade, lequel n'est pas extrêmement rusé? Comment aurait-il pu laisser paraître une telle joie... Ce sourire était manifestement un signal! »
+« De plus, Senior, avez-vous remarqué l'éclair de joie dans les yeux de l'un des disciples? J'ai vérifié sa culture: il est au début du stade Ascendant. Parmi tous ceux qui ont atteint ce stade, lequel n'est pas extrêmement rusé? Comment aurait-il pu laisser paraître une telle joie... Ce sourire était manifestement un signal! »
 
 Wang Lin esquissa un léger sourire, une lueur de sagesse brillant dans ses yeux. Il analysa: « Ce disciple est intéressant. Il utilise cette joie pour nous signifier qu'ils ne sont pas alliés à Cupidité. C'est un appel à l'aide. »
 

@@ -20,9 +20,9 @@ Diverses scènes défilèrent devant ses yeux avant de s'arrêter enfin sur le v
 
 Wang Lin poussa un soupir et caressa la tête de Wang Ping. Ses yeux étaient calmes. Il avait transcendé la vie et la mort, il avait percé les mystères de la réincarnation. Ces choses n'étaient pour lui que de la fumée; il les avait vues, mais elles ne s'ancreraient pas dans son cœur.
 
-La tombe de Sun Tai se trouvait à l'arrière du village de la Lune Tombée. Tous ceux qui mouraient au village y étaient enterrés.
+La tombe de Sun Tai se trouvait à l'arrière du village de la Lune Déchue. Tous ceux qui mouraient au village y étaient enterrés.
 
-Wang Ping sculpta la sépulture et y grava: « Tombe de Sun Tai, inscrite par son petit-fils Wang Ping ».
+Wang Ping grava la stèle: « Tombe de Sun Tai », signée de son petit-fils adoptif Wang Ping.
 
 Lorsque Wang Ping avait douze ans, Sun Tai l'avait adopté comme son petit-fils. Wang Lin ne s'y était pas opposé. Sun Tai était, après tout, plus âgé que lui et avait l'âge d'être le grand-père de Wang Ping.
 
@@ -32,7 +32,7 @@ La tombe de Sun Tai ne contenait pas de corps. Ce dernier s'était déjà transf
 
 Wang Ping, à seize ans, était devenu encore plus beau. En comparaison avec lui, Wang Lin semblait vieilli.
 
-Le passage du temps avait effacé l'apparence de Wang Lin et, avec elle, l'intérêt des femmes du village pour un éventuel mariage. Cependant, à mesure que Wang Ping grandissait, cet intérêt se reporta sur lui.
+Le passage du temps avait effacé l'apparence de Wang Lin et, avec elle, l'intérêt de la dame de la famille Zhang pour les entremises de mariage. Cependant, à mesure que Wang Ping grandissait, cet intérêt se reporta sur lui.
 
 Pourtant, Wang Ping ressemblait beaucoup à son père. Bien qu'il fût beau, il agissait toujours avec un calme extrême. Normalement, il ne disait pas grand-chose, mais une lueur de sagesse brillait dans ses yeux.
 
@@ -94,7 +94,7 @@ Wang Ping resta plongé dans ses pensées. Après un long moment, il poussa un s
 
 Son père n'avait pas manifesté sa majesté, mais dans le cœur de Wang Ping, elle était d'une puissance insurmontable. Il ne pouvait que se soumettre à la volonté de son père et mener une vie ordinaire.
 
-« Hormis la culture, je peux te donner tout le reste du monde! » Après que Wang Ping eut pris ses médicaments et s'était couché, la voix de Wang Lin flotta doucement vers lui.
+« Hormis la culture, je peux te donner tout le reste du monde! » Après que Wang Ping eut pris ses médicaments et se fut couché, la voix de Wang Lin flotta doucement vers lui.
 
 Wang Ping ferma les yeux et garda le silence.
 
@@ -108,9 +108,9 @@ Cette année-là, Wang Ping avait dix-neuf ans. Il était devenu un jeune homme 
 
 Son apparence ressemblait de plus en plus à celle de Liu Mei.
 
-À l'inverse, Wang Lin s'était encore vieilli. Dix-neuf années avaient laissé des marques profondes sur ses traits.
+À l'inverse, Wang Lin avait encore vieilli. Dix-neuf années avaient laissé des marques profondes sur ses traits.
 
-La dix-neuvième année après son arrivée au village de la Lune Tombée, il fit ses bagages et partit avec Wang Ping.
+La dix-neuvième année après son arrivée au village de la Lune Déchue, il fit ses bagages et partit avec Wang Ping.
 
 Lors de leur départ, tous les amis d'enfance de Wang Ping vinrent leur dire adieu. La plupart étaient des filles, et leurs regards vers Wang Ping étaient empreints de ressentiment.
 

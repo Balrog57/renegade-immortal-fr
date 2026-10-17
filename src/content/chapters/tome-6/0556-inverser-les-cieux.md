@@ -32,41 +32,41 @@ Le symbole disparut au sein de cette lueur écarlate.
 
 L'expression de Yao Xixue était d'une extrême sévérité. Elle venait de consommer 10 % des jades de sang qui étaient censés lui durer des centaines d'années. Au moment où le symbole avait été projeté vers elle, elle avait eu l'impression de faire face à un adversaire de la génération de son père.
 
-« Wang Lin! » cria Yao Xixue en écrasant un dernier jade de sang. Une fois le symbole disparu, elle se précipita vers la plateforme, en direction de Wang Lin.
+« Wang Lin! » cria Yao Xixue, un jade de sang à la main. Une fois le symbole disparu, elle se précipita vers la plateforme, en direction de Wang Lin.
 
 L'expression de Wang Lin demeura sereine. Alors que Yao Xixue s'approchait, son regard se fit glacial; il toucha son sac de rangement pour en sortir l'épée céleste et la tint devant lui. Il déclara calmement: « Compagnon cultivateur Yao, ce symbole doré est apparu trop soudainement pour que je puisse le contrôler. Si vous souhaitez vous battre avec moi pour cette raison, alors je me ferai un plaisir de vous divertir! »
 
 Le visage de Yao Xixue s'assombrit et une intention meurtrière perça son regard. Elle pensa: « Puisque cet homme est arrivé jusqu'ici, il n'a aucune chance de survivre à moins de pouvoir briser tous les sceaux. Si je me bats avec lui ici, ce serait une perte d'opportunité! »
 
-Elle lança froidement: « Une seule fois! » Sur ces mots, elle bondit par-dessus Wang Lin et atterrit sur le Chemin du Dragon Révéré pour atteindre la plateforme suivante.
+Elle lança froidement: « Que cela ne se reproduise pas! » Sur ces mots, elle bondit par-dessus Wang Lin et atterrit sur le Chemin du Dragon Sacré pour atteindre la plateforme suivante.
 
 Wang Lin rangea son épée céleste et suivit avec loisir. Il observa Yao Xixue devant lui, le cœur loin d'être apaisé.
 
-« Un simple symbole à trois traits est déjà si puissant... D'après Yao Xixue, il y a un total de 18 couches. Si chaque couche possède un symbole, cela signifie qu'il y en a 18 au total. Quelle sera la puissance d'un symbole à 18 traits... Qu'est-ce que ce symbole exactement? Pourrait-il s'agir d'un sort céleste?! » Wang Lin prit une profonde inspiration et tenta de tracer à nouveau le symbole à trois traits. Hélas, l'énergie spirituelle céleste en son corps ne bougea pas, et le symbole disparut aussi vite qu'il était apparu, dépourvu de toute la puissance précédente.
+« Un simple symbole à trois traits est déjà si puissant... D'après Yao Xixue, il y a un total de 18 couches. Si chaque couche possède un symbole, cela signifie qu'il y en a 18 au total. Si je trace ces 18 symboles, quelle sera leur puissance... Qu'est-ce que ce symbole exactement? Pourrait-il s'agir d'un sort céleste?! » Wang Lin prit une profonde inspiration et tenta de tracer à nouveau le symbole à trois traits. Hélas, l'énergie spirituelle céleste en son corps ne bougea pas, et le symbole disparut aussi vite qu'il était apparu, dépourvu de toute la puissance précédente.
 
 Wang Lin fronça légèrement les sourcils et se mit à réfléchir.
 
 Plusieurs jours passèrent, et la troisième plateforme apparut. Cette fois, Yao Xixue chargea directement la plateforme.
 
-La statue sur la plateforme était identique à la précédente. Mais au lieu d'un troisième œil, elle tenait désormais une longue épée dans sa main!
+La statue sur la plateforme était identique à la précédente. Mais en plus du troisième œil, elle tenait désormais une longue épée dans sa main!
 
 Yao Xixue n'utilisa pas de sceau. Cette fois, elle n'hésita pas à déployer ses propres capacités pour combattre la statue de pierre.
 
 Wang Lin observa froidement Yao Xixue. Ses sorts étaient tous basés sur le sang; la plupart du temps, un éclat écarlate précédait l'apparition de sa magie.
 
-Cette bataille contre la statue ne laissait place à aucun suspense. Avec la culture de Yao Xixue, le combat prit fin en la durée d'un demi-encens. Cependant, bien que la statue de pierre se soit effondrée, aucun symbole doré n'en était sorti. Son visage s'assombrit et elle frappa le sol avec mépris, réduisant les débris de la statue en poussière.
+Cette bataille contre la statue ne laissait place à aucun suspense. Avec la culture de Yao Xixue, le combat prit fin en la durée d'un demi-encens. Cependant, bien que la statue de pierre se soit effondrée, aucun symbole doré n'en était sorti. Son visage s'assombrit et elle frappa violemment le sol du pied, réduisant les débris de la statue en poussière.
 
 Les yeux de Wang Lin se plissèrent tandis qu'il songeait: « Se pourrait-il que le symbole ne fusionne avec le corps qu'une fois la restriction de la statue brisée? »
 
 Yao Xixue ne daigna même pas regarder Wang Lin; elle franchit rapidement la plateforme et continua sa progression.
 
-Le temps s'écoula rapidement, et en un clin d'œil, un mois passa. Durant ce mois, Wang Lin n'avait pas eu à grand-chose faire, car Yao Xixue ne lui avait laissé aucune opportunité d'agir. Après avoir tenté l'expérience deux fois sans obtenir de symbole doré, elle réalisa que sa méthode était erronée. En repensant à ce que Wang Lin avait fait, elle commença à comprendre.
+Le temps s'écoula rapidement, et en un clin d'œil, un mois passa. Durant ce mois, Wang Lin n'avait pas eu grand-chose à faire, car Yao Xixue ne lui avait laissé aucune opportunité d'agir. Après avoir tenté l'expérience deux fois sans obtenir de symbole doré, elle réalisa que sa méthode était erronée. En repensant à ce que Wang Lin avait fait, elle commença à comprendre.
 
 Elle redoutait énormément ces symboles dorés et, pour empêcher Wang Lin de les obtenir, elle décida de faire tout le travail elle-même. Elle ne brisait plus les statues, mais utilisait les jades de sang pour les sceller. C'était la méthode qu'elle avait employée lors de ses trois dernières visites.
 
 Ce jour-là, après avoir scellé la onzième statue et atteint la plateforme contenant la douzième, l'expression de Yao Xixue devint grave. Elle tourna un regard vers Wang Lin et dit: « Compagnon cultivateur Wang, ce douzième sceau est très différent des précédents; il nécessite que nous travaillions ensemble pour le briser. C'est la raison pour laquelle je vous ai demandé de venir! »
 
-Wang Lin acquiesça. La plateforme devant eux était radicalement différente des précédentes. Elle ne faisait que la moitié de la taille habituelle et, au centre, il n'y avait aucune statue de pierre, mais une porte de pierre gigantesque! De plus, il n'y avait aucun autre Chemin du Dragon Révéré que celui sur lequel ils se tenaient.
+Wang Lin acquiesça. La plateforme devant eux était radicalement différente des précédentes. Elle ne faisait que la moitié de la taille habituelle et, au centre, il n'y avait aucune statue de pierre, mais une porte de pierre gigantesque! De plus, il n'y avait aucun autre Chemin du Dragon Sacré que celui sur lequel ils se tenaient.
 
 Des caractères flous étaient gravés sur la porte de pierre. Lorsqu'ils se chevauchaient, ils évoquaient presque un visage humain.
 

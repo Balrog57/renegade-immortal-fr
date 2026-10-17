@@ -8,7 +8,7 @@ slug: retrouvailles-avec-ling-tianhou
 ---
 Les yeux de Wang Lin s'illuminèrent. Tous les autres en firent autant, fixant l'Omniscient d'un regard intense pour la suite du récit.
 
-L'Ancien Sun réfléchit un instant, puis poussa un soupir et agita la main. « Très bien, votre attitude est tout aussi étrange. Si vous avez quelque chose à dire, dites-le. »
+L'Ancien Sun réfléchit un instant, puis poussa un soupir et agita la main. « Soit, vieil Omniscient, ton caractère a toujours été étrange. Si tu veux le dire, dis-le donc. »
 
 L'Omniscient sourit. « Au cours des innombrables années où l'Alliance de Culture a existé, elle n'a souffert qu'une seule fois, et c'était à cause de cet homme. Ce n'était pas un événement majeur. Il fut la seule personne que j'aie jamais rencontrée à avoir atteint la troisième étape. Hélas, il ne fit qu'une brève apparition avant de disparaître sans laisser de trace. »
 
@@ -30,7 +30,7 @@ Alors que tout le monde attendait la démonstration, un rugissement tonitruant d
 
 En voyant cela, les puissants cultivateurs observèrent la scène avec calme. Une quantité infinie d'énergie d'épée émanait de l'horizon; on pourrait dire qu'elle recouvrait entièrement le ciel. Les rayons d'énergie provoquaient des ondes de choc soniques en s'approchant.
 
-Wang Lin n'avait vu cela qu'une seule fois auparavant, dans le Royaume Céleste, lorsque la femme en robe blanche à l'intérieur de la pagode s'était éveillée pour appeler toutes les épées célestes. Le Royaume Céleste tout entier avait été alors entouré d'épées.
+Wang Lin n'avait vu cela qu'une seule fois auparavant, dans le Royaume Céleste, lorsque la femme en robe blanche à l'intérieur de la pagode s'était éveillée pour appeler les âmes d'épée des épées célestes de la pluie. Le Royaume Céleste tout entier avait été alors entouré d'épées.
 
 L'expression de l'Omniscient resta sereine tandis qu'il scrutait le lointain.
 
@@ -50,7 +50,7 @@ Sur la planète Tian Yun, qu'il s'agisse de la puissance individuelle ou de cell
 
 Ling Tianhou afficha une expression sombre sur son visage émacié tandis que les innombrables épées flottant derrière lui libéraient des vagues d'hymnes d'épée. Il cria de sa voix la plus forte: « Disciples! Sortez et saluez le senior Omniscient! »
 
-À la suite de cet ordre, les hymnes d'épée devinrent encore plus puissants. Enfin, une série de déflagrations retentit alors que les épées volantes se transformaient l'une après l'autre en gaz. À ce moment précis, un nuage de brume verte enveloppa la zone derrière Ling Tianhou. La brume semblait recouvrir le ciel entier, altérant ses couleurs.
+À la suite de cet ordre, les hymnes d'épée devinrent encore plus puissants. Enfin, une série de déflagrations retentit alors que les épées volantes se transformaient l'une après l'autre en brume. À ce moment précis, un nuage de brume verte enveloppa la zone derrière Ling Tianhou. La brume semblait recouvrir le ciel entier, altérant ses couleurs.
 
 Simultanément, d'innombrables paires d'yeux glacials apparurent une à une au sein de cette brume. Lorsque celle-ci se dissipa, d'innombrables disciples se tenaient soudainement sur des épées volantes derrière le Saint de l'Épée Ling Tianhou. Ces disciples étaient vêtus de noir et portaient chacun une épée antique dans le dos. Leurs regards étaient aussi perçants que la foudre alors qu'ils fixaient l'Omniscient.
 
@@ -76,13 +76,13 @@ L'Omniscient sourit doucement tandis que sa main droite traçait un autre sceau,
 
 Le ciel ressemblait désormais à une mer déchaînée, et une pression céleste descendit silencieusement d'en haut. Sous la force de cette pression, les visages de nombreux cultivateurs environnants pâlirent. Ils se précipitèrent au sol pour s'asseoir en position du lotus afin de cultiver.
 
-Alors que Wang Lin scrutait le ciel, l'énergie spirituelle céleste dans son corps devint chaotique. Une force mystérieuse semblait descendre des cieux, faisant trembler son corps de manière incontrôlable. Seule l'énergie spirituelle céleste métallique, générée après trois cycles, n'était pas affectée et circulait calmement.
+Alors que Wang Lin scrutait le ciel, l'énergie spirituelle céleste dans son corps devint chaotique. Une force mystérieuse semblait descendre des cieux, faisant trembler son corps de manière incontrôlable. Seule l'énergie spirituelle céleste métallique de son bras gauche, générée après trois cycles, n'était pas affectée et circulait calmement.
 
 Wang Lin envoya une commande pour libérer cette énergie métallique dans son corps. Il la contrôla avec précision pour qu'elle ne touche pas l'énergie spirituelle ordinaire lors de sa circulation. Après un cycle complet, ses tremblements se stabilisèrent en grande partie. Bien que son visage fût toujours pâle, il parvint à rester droit.
 
-Quant à Bai Wei, il tint bon un moment avant de pousser un soupir et de descendre au sol pour cultiver. Dans toute la Division Pourpre, à l'exception de Wang Lin, seule la Quatrième Sœur observait calmement le ciel. Aucun des disciples ordinaires de la Division Pourpre ne pouvait supporter la pression et ils s'étaient tous posés.
+Quant à Bai Wei, il tint bon un moment avant de pousser un soupir et de descendre au sol pour cultiver. Dans toute la Division Violette, à l'exception de Wang Lin, seule la Quatrième Sœur observait calmement le ciel. Aucun des disciples ordinaires de la Division Violette ne pouvait supporter la pression et ils s'étaient tous posés.
 
-Ce n'était pas seulement la Division Pourpre; presque tous les disciples ordinaires des autres divisions avaient également dû atterrir. Seuls ceux possédant une culture puissante parvenaient à peine à rester en l'air. Cependant, aucun des disciples principaux des six autres divisions ne tomba. Certains affichaient un visage aussi pâle que celui de Wang Lin, mais ils parvenaient à résister.
+Ce n'était pas seulement la Division Violette; presque tous les disciples ordinaires des autres divisions avaient également dû atterrir. Seuls ceux possédant une culture puissante parvenaient à peine à rester en l'air. Cependant, aucun des disciples principaux des six autres divisions ne tomba. Certains affichaient un visage aussi pâle que celui de Wang Lin, mais ils parvenaient à résister.
 
 L'expression de Wang Lin revint à la normale une fois que l'énergie spirituelle céleste métallique eut achevé son troisième cycle. La Quatrième Sœur se retourna et lui lança un regard significatif, sans dire un mot.
 

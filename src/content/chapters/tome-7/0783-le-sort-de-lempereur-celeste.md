@@ -24,7 +24,7 @@ Au sommet du pavillon, après le premier éclat, quatre autres rayons de lumièr
 
 « Cinq rayons de lumière... Cette personne est en réalité entrée au cinquième étage! » Le cultivateur Lu, privé de son corps, observa les cinq faisceaux avec un air d'incrédulité.
 
-« Il semblerait que nous ayons sous-estimé le compagnon cultivateur Xu. Il est absolument au sommet du stade Corporel Yang, et peut-être même à demi-pas du stade Scruteur du Nirvana. Il a tout juste atteint les critères pour accéder au cinquième étage! » Les yeux du cultivateur nommé Xu s'illuminèrent.
+« Il semblerait que nous ayons sous-estimé le compagnon cultivateur Xu. Il est absolument au sommet du stade Corporel Yang, et peut-être même à demi-pas du stade Scruteur du Nirvana. Il a tout juste atteint les critères pour accéder au cinquième étage! » Les yeux du cultivateur nommé Song s'illuminèrent.
 
 Le cultivateur Chen reprit lentement: « S'il était au stade Scruteur du Nirvana, il lui serait impossible d'entrer dans le Royaume Céleste du Tonnerre, à moins que... »
 
@@ -110,7 +110,7 @@ Lorsque sa vision se clarifia, son esprit vacilla en découvrant son environneme
 
 Il n'y avait que le vide autour de lui, et derrière lui se dressait un arbre immense. La moitié de l'arbre était jaune et, au gré d'une brise, le bruissement des feuilles résonnait dans l'espace.
 
-Wang Lin baissa les yeux et constata qu'il portait une robe de taoïste. Il était entré dans la peinture; il était devenu ce garçon.
+Wang Lin baissa les yeux et constata qu'il portait une robe de daoïste. Il était entré dans la peinture; il était devenu ce garçon.
 
 La scène était d'une étrangeté absolue. Wang Lin se redressa et leva les yeux vers le ciel. Dans le coin supérieur droit, des traces d'encre noire marquaient l'azur. Ces marques étaient les mots qu'il avait lus de l'extérieur:
 
@@ -126,7 +126,7 @@ Soudain, tout le vacarme cessa lorsqu'une silhouette s'avança. Cette figure ét
 
 L'être flotta dans les airs et prit place. Un sourire sembla éclairer son visage tandis qu'une voix claire résonnait:
 
-« Aujourd'hui, Maître Xiaoyaozi peindra l'ouverture du Pavillon des Collections. Le seigneur céleste m'a commandé cette peinture et m'a invité à assister à l'œuvre; j'ai donc pris la liberté d'inviter mes chers compagnons célestes pour écouter mon prêche sur le Dao pendant que la peinture s'accomplit. Voici le Dao que je connais! »
+« Aujourd'hui, Maître Xiaoyaozi peindra la première ouverture du Pavillon des Collections. Le seigneur céleste m'a commandé cette peinture et m'a invité à assister à l'œuvre; j'ai donc pris la liberté d'inviter mes chers compagnons célestes pour écouter mon prêche sur le Dao pendant que la peinture s'accomplit. Voici le Dao que je connais! »
 
 Tandis qu'il parlait, l'être leva la main droite et un vent rugissant surgit. Ce vent devint noir et recouvrit le firmament. En balayant le ciel, il se mua en neuf dragons noirs. Les rugissements de ces créatures et leur aura colossale firent changer la couleur du ciel. Alors que le vent noir déferlait, les neuf dragons crachèrent des rafales glaciales. Cette puissance inimaginable donnait l'impression que la vie humaine n'était qu'une flamme vacillante; quiconque serait touché par ce vent mourrait instantanément!
 
@@ -142,7 +142,7 @@ Sous l'effet de cette voix, l'âme originelle de Wang Lin sembla se transformer 
 
 « Invoquer le Vent! »
 
-Simultanément, une force titanesque émana de ces trois caractères. L'âme originelle de Wang Lin se reforma et fut projetée vers l'extérieur. Sa vision devint floue alors qu'il quittait la peinture pour retomber dans son propre corps, gisant au sol.
+Simultanément, une force titanesque émana de ces deux caractères. L'âme originelle de Wang Lin se reforma et fut projetée vers l'extérieur. Sa vision devint floue alors qu'il quittait la peinture pour retomber dans son propre corps, gisant au sol.
 
 Le corps de Wang Lin trembla lorsqu'il rouvrit les yeux. Son regard était empreint d'effroi, et ces mots résonnaient encore en lui.
 

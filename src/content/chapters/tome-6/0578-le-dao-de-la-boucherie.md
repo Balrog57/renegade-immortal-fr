@@ -92,11 +92,11 @@ Le front du jeune homme était couvert de sueur. Il prit une grande inspiration 
 
 À cet instant, le bateau disparut définitivement à l'horizon et la musique de la cithare s'éteignit pour Wang Lin. Ce dernier se leva et se tourna vers le jeune homme. Il ouvrit soudainement les yeux, laissant apparaître une lueur rouge au fond de ses pupilles. Alors, une aura de boucherie jaillit de son regard comme une lame acérée!
 
-*Rumble rumble rumble!*
+*Grondement sourd, grondement sourd!*
 
 Ce fut comme si d'innombrables éclairs frappaient soudainement l'esprit du jeune homme! Comme si de véritables tonnerres éclataient au-dessus de la rivière paisible! Une intention meurtrière monstrueuse jaillit des yeux de Wang Lin, perçant instantanément l'énergie spirituelle céleste et démoniaque du jeune homme pour s'imprimer dans son esprit. Son corps se raidit comme s'il avait été frappé par la foudre et ses membres se mirent à trembler de manière incontrôlable.
 
-« Ceci... c'est... » Le cœur du jeune homme s'emballa et son cuir chevelu devint engourdi. Il ressentit une douleur fulgurante entre ses sourcils, comme si un sabre lui transperçait le front.
+« Ceci... c'est... » Le cœur du jeune homme s'emballa et son cuir chevelu devint engourdi. Il ressentit une douleur fulgurante entre ses sourcils, comme si une lame acérée lui transperçait le front.
 
 Il entendait distinctement ses battements de cœur s'accélérer tandis que son esprit semblait sur le point de s'effondrer. Puis son corps devint glacial, comme s'il se retrouvait face à un ennemi, totalement vulnérable.
 

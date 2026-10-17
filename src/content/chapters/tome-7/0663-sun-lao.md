@@ -88,13 +88,13 @@ L'expression de Wang Lin resta neutre lorsqu'il répondit d'un ton calme: « Oh?
 
 L'homme fut extrêmement surpris par le calme olympien de Wang Lin. Il avait rencontré de nombreux cultivateurs et, en dehors des vieux monstres, très peu pouvaient rester aussi sereins sous la pression du pavillon.
 
-« Il y a deux règles d'entrée et une règle de sortie dans mon Pavillon du Trésor Intégral. Ceux qui sont en dessous du stade de l'Âme Naissante ne peuvent entrer! Ceux qui ne possèdent pas cent mille cristaux spirituels de haute qualité ne peuvent entrer! Et ceux qui n'effectuent aucune transaction ne peuvent sortir! »
+« Il y a deux règles d'entrée et une règle de sortie dans mon Pavillon du Trésor Intégral. Ceux qui sont en dessous du stade de l'Âme Naissante ne peuvent entrer! Ceux qui ne possèdent pas cent mille pierres spirituelles de haute qualité ne peuvent entrer! Et ceux qui n'effectuent aucune transaction ne peuvent sortir! »
 
 Wang Lin fronça légèrement les sourcils.
 
-L'homme d'âge moyen, remarquant sa réaction, demanda soudainement: « Le compagnon cultivateur possède-t-il ces cent mille cristaux spirituels? »
+L'homme d'âge moyen, remarquant sa réaction, demanda soudainement: « Le compagnon cultivateur possède-t-il ces cent mille pierres spirituelles? »
 
-Wang Lin ne possédait pas beaucoup de cristaux dans son sac de rangement. Après tout, depuis qu'il avait atteint le stade de la Formation de l'Âme, il utilisait principalement des jades célestes.
+Wang Lin ne possédait pas beaucoup de pierres spirituelles dans son sac de rangement. Après tout, depuis qu'il avait atteint le stade de la Formation de l'Âme, il utilisait principalement des jades célestes.
 
 L'homme sourit: « Le compagnon cultivateur ne remplit pas les conditions pour entrer. Et même si vous entriez, je crains que vous ne puissiez satisfaire la condition pour repartir. Veuillez vous retirer. »
 

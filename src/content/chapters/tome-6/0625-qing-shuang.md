@@ -12,7 +12,7 @@ Sans attendre que le vieil homme finisse sa phrase, Wang Lin fronça les sourcil
 
 Le vieil homme poussa un cri, mais il était impuissant; comme son corps était entravé par le Filet de Capture Céleste, il ne pouvait tout simplement pas esquiver. Ses yeux, emplis de terreur, lancèrent une supplication précipitée: « Je vais parler! Je vais parler! »
 
-Wang Lin ne s'arrêta pas, mais alors qu'il allait presser sa main droite, son expression changea légèrement et il suspendit son geste. À l'extérieur de la tour, un passage se fendit soudainement dans le nuage noir surplombant le Clan des Affineurs d'Âmes, et le chant d'une lame perça le ciel.
+Wang Lin ne s'arrêta pas, mais alors qu'il allait presser sa main droite, son expression changea légèrement et il suspendit son geste. À l'extérieur de la tour, un passage se fendit soudainement dans le nuage noir surplombant la Tribu de l'Affinement de l'Âme, et le chant d'une lame perça le ciel.
 
 La lame noire se déplaçait avec la rapidité de l'éclair et fondit sur la tour en un instant. Xu Liguo se trouvait à l'intérieur de la lame noire, tenant le pinceau en main. Il pénétra immédiatement dans la tour avec une expression mielleuse et s'exclama rapidement: « Maître, le Petit Xu a capturé le trésor pour vous, mais je suis épuisé! Maître, vous n'imaginez pas à quelle vitesse ce trésor fuyait! »
 
@@ -24,7 +24,7 @@ Wang Lin ignora Xu Liguo et la lame en croissant. Il tint le pinceau et ferma le
 
 À cet instant, une lueur dorée jaillit de la pointe du pinceau. Cette lumière devint de plus en plus éclatante à mesure que l'énergie spirituelle céleste de Wang Lin y pénétrait. Finalement, l'éclat illumina la tour entière. De loin, on aurait dit que la tour émettait un flux d'or pur.
 
-À ce moment précis, tous les membres du Clan des Affineurs d'Âmes témoignèrent de leur piété en se prosternant face à la tour.
+À ce moment précis, tous les membres de la Tribu de l'Affinement de l'Âme témoignèrent de leur piété en se prosternant face à la tour.
 
 Les yeux du vieil homme, capturé par le Filet de Capture Céleste, se rétractèrent de stupeur en voyant l'éclat aveuglant que dégageait le pinceau dans la main de Wang Lin. Un goût amer lui monta à la gorge. Lorsqu'il avait saisi le pinceau autrefois, une lumière dorée avait également surgi. Mais en comparant cet éclat à celui qui se trouvait devant lui, l'un était comme le soleil, tandis que l'autre n'était qu'une vulgaire luciole.
 
@@ -44,7 +44,7 @@ Au moment où ce symbole fut achevé, l'énergie spirituelle céleste dans le co
 
 Aux yeux de Xu Liguo et du vieil homme, ce symbole à trois traits dégageait une sensation de perfection absolue. C'était comme si le Dao céleste avait été gravé sur le symbole même.
 
-Des ondes de lumière dorée s'échappèrent du symbole, franchirent les murs de la tour et remplacèrent l'éclat de la pointe du pinceau. La lumière dorée enveloppa le ciel et la terre. Le nuage noir qui formait l'étendard spirituel se dissipa instantanément, révélant un ciel d'un bleu limpide!
+Des ondes de lumière dorée s'échappèrent du symbole, franchirent les murs de la tour et remplacèrent l'éclat de la pointe du pinceau. La lumière dorée enveloppa le ciel et la terre. Le nuage noir qui formait l'Étendard de l'Âme se dissipa instantanément, révélant un ciel d'un bleu limpide!
 
 Les yeux de Wang Lin brillaient d'un éclat doré. Sa main s'immobilisa dans les airs après avoir tracé le troisième trait.
 
@@ -78,7 +78,7 @@ Le vieillard marmonna: « J'ai obtenu au total deux sacs de rangement. L'un d'eu
 
 Le regard de Wang Lin se fit sévère: « Qui a volé ce sac? »
 
-« Un couple de cultivateurs. Heureusement, j'avais séparé les deux sacs et imprimé mon propre sens divin sur le second. Sinon, ils auraient tout emporté. » Les yeux du vieil homme devinrent encore plus ternes, mais une trace de haine y apparut en évoquant cet incident. C'était manifestement un coup terrible pour lui.
+« Un couple de cultivateurs. Heureusement, j'avais séparé les deux sacs et imprimé mon propre sens divin sur celui que je pouvais ouvrir. Sinon, ils auraient tout emporté. » Les yeux du vieil homme devinrent encore plus ternes, mais une trace de haine y apparut en évoquant cet incident. C'était manifestement un coup terrible pour lui.
 
 C'était naturel: quiconque vient de s'emparer d'un immense trésor pour se le voir arracher aussitôt ne pourrait oublier ce sentiment d'avoir touché les cieux avant de sombrer dans l'abîme.
 
@@ -116,4 +116,4 @@ Le sens divin de Wang Lin pénétra dans l'objet, et à cet instant, son express
 
 Ce jade enregistrait l'usage de trois trésors célestes et d'un véritable sort céleste!!!
 
-« Qin Shuang, tu viens de devenir une Générale Céleste du Royaume des Cieux Pluvieux, et en tant que ton père, voici mon cadeau. Ces trois trésors célestes ont été créés de mes propres mains. Quant au sort céleste, bien qu'il ne soit pas de rang supérieur, il est fort intéressant. Je suis certain que tu l'apprécieras... »
+« Qing Shuang, tu viens de devenir Seigneur Céleste du Royaume Céleste de la Pluie, et en tant que ton père, voici mon cadeau. Ces trois trésors célestes ont été créés de mes propres mains. Quant au sort céleste, bien qu'il ne soit pas de rang supérieur, il est fort intéressant. Je suis certain que tu l'apprécieras... »

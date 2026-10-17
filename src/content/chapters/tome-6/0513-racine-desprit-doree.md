@@ -6,31 +6,31 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 513 - Golden Spirit Root
 slug: racine-desprit-doree
 ---
-Wang Lin pressa le Fruit Doré contre son front, et celui-ci s'enfonça en lui. Après un moment, il afficha une expression de déception et relâcha sa main.
+Wang Lin pressa le Fruit d'Or Brillant contre son front, et celui-ci s'enfonça en lui. Après un moment, il afficha une expression de déception et relâcha sa main.
 
-« J'ai été trop impatient. Comment l'achèvement de la perle défiant le ciel pourrait-il être aussi simple? Sept cents ans de culture, et malgré ma chance, je n'ai pu compléter que quatre des éléments. Chaque accomplissement était semé d'embûches, je suppose que l'achèvement de ce dernier élément métallique ne sera pas non plus une mince affaire... Je me demande seulement si cette Racine d'Esprit Dorée aura un quelconque effet. »
+« J'ai été trop impatient. Comment l'achèvement de la Perle Défiant le Ciel pourrait-il être aussi simple? Sept cents ans de culture, et malgré ma chance, je n'ai pu compléter que quatre des éléments. Chaque accomplissement était semé d'embûches, je suppose que l'achèvement de ce dernier élément métallique ne sera pas non plus une mince affaire... Je me demande seulement si cette Racine d'Esprit Dorée aura un quelconque effet. »
 
-Wang Lin soupira intérieurement, puis il tendit la main et environ un tiers des Fruits Dorés s'envolèrent dans les airs.
+Wang Lin soupira intérieurement, puis il tendit la main et environ un tiers des Fruits d'Or Brillants s'envolèrent dans les airs.
 
-Le moustique poussa un cri de joie alors qu'il aspirait bruyamment tous les Fruits Dorés. À cet instant, une lumière dorée jaillit soudainement autour de lui et brilla intensément à neuf reprises avant de revenir à la normale.
+Le moustique poussa un cri de joie alors qu'il aspirait bruyamment tous les Fruits d'Or Brillants. À cet instant, une lumière dorée jaillit soudainement autour de lui et brilla intensément à neuf reprises avant de revenir à la normale.
 
-Voyant que le moustique semblait rassasié, Wang Lin cessa de cueillir des fruits. Sa main droite traça un sceau et projeta un rayon d'énergie spirituelle. Cette énergie se posa sur les fleurs, les faisant émettre une lueur dorée si éblouissante qu'elle en était aveuglante.
+Voyant que le moustique semblait en vouloir encore, Wang Lin cessa de cueillir des fruits. Sa main droite traça un sceau et projeta un rayon d'énergie spirituelle. Cette énergie se posa sur les fleurs, les faisant émettre une lueur dorée si éblouissante qu'elle en était aveuglante.
 
-Les yeux de Wang Lin s'illuminèrent. Loin de reculer, il frappa son sac de rangement et en sortit une grande quantité de jades. Il imprégna chaque jade de son Sens Divin et en plaça un aux pieds de chaque fleur.
+Les yeux de Wang Lin s'illuminèrent. Loin de reculer, il frappa son sac de rangement et en sortit une grande quantité de jades. Pensif, il grava rapidement des inscriptions sur chaque jade, puis les plaça à côté des fleurs.
 
 Non loin de là, la femme nommée Qian Qin observait Wang Lin avec confusion. Elle ne comprenait pas pourquoi il ne ramassait pas les fruits, mais semblait plutôt mettre en place une formation.
 
-« Serait-il nécessaire d'utiliser une formation pour récolter le Fruit Doré? » L'incompréhension dans les yeux de Qian Qin s'accentua.
+« Serait-il nécessaire d'utiliser une formation pour récolter le Fruit d'Or Brillant? » L'incompréhension dans les yeux de Qian Qin s'accentua.
 
 Après avoir posé le dernier jade, l'expression pensive de Wang Lin disparut, remplacée par une clarté absolue.
 
 « Selon les souvenirs de l'Ancien Dieu, ce n'est qu'une fois que le fruit a poussé naturellement, mûri naturellement et fané naturellement que la Racine d'Esprit Dorée se forme.
 
-Cependant, je n'ai pas le temps d'attendre. Le délai nécessaire pour que les fruits se fanent complètement est aléatoire; cela peut prendre des jours comme des années. Je ne peux pas me permettre d'attendre, je dois donc utiliser ce sort issu de la mémoire de Tu Si!
+Cependant, je n'ai pas le temps d'attendre. Le délai nécessaire pour que les fruits se fanent complètement est aléatoire; cela peut prendre des jours comme des années. Je ne peux pas me permettre d'attendre, je dois donc me rabattre sur ce procédé de compromis issu de la mémoire de Tu Si!
 
 Un Ancien Dieu utilise les os d'une bête démoniaque, mais moi j'utilise du jade, l'effet ne sera donc peut-être pas aussi puissant... » Wang Lin se sentait impuissant face à cela. Compte tenu de la puissance des Anciens Dieux, tous les matériaux qu'ils utilisaient étaient les meilleurs.
 
-Il agita faiblement sa main, puis la leva pour former un geste très étrange. Ce geste n'était pas le sceau d'un cultivateur, mais une technique issue de la mémoire de l'Ancien Dieu Tu Si servant de catalyseur. C'était le geste pour activer la formation.
+Il secoua légèrement la tête, puis leva la main gauche pour former un geste très étrange. Ce geste n'était pas le sceau d'un cultivateur, mais une technique issue de la mémoire de l'Ancien Dieu Tu Si servant de catalyseur. C'était le geste pour activer la formation.
 
 Wang Lin murmura: « Meurs! »
 
@@ -42,41 +42,41 @@ Cette scène fit froncer les sourcils de Wang Lin. Même Qian Qin, au loin, fut 
 
 Pourtant, malgré l'explosion du jade, la lumière jaune ne disparut pas; elle devint au contraire plus intense. En explosant, le jade projeta cette lumière vers un autre morceau de jade.
 
-S'ensuivit une série d'explosions. À la quasi-instant même où la lumière jaune touchait un jade, celui-ci volait en éclats.
+S'ensuivit une série d'explosions. Presque à l'instant où la lumière jaune touchait un jade, celui-ci s'effondrait en cendres.
 
 Wang Lin fronça encore plus les sourcils. Après plusieurs respirations, la lumière jaune devint de plus en plus puissante. Elle était désormais dorée, identique à la couleur des fleurs.
 
 La lumière dorée enveloppa toutes les fleurs, les faisant lentement rétrécir comme si elles s'apprêtaient à se détacher de leurs tiges.
 
-Non seulement les fleurs, mais même les Fruits Dorés commencèrent à se rétracter et à se faner lentement. Les tiges subissaient le même sort; c'était comme si tout était consumé par une chaleur intense.
+Non seulement les fleurs, mais même les Fruits d'Or Brillants commencèrent à se rétracter et à se faner lentement. Les tiges subissaient le même sort; c'était comme si tout était consumé par une chaleur intense.
 
 Cette scène fit pousser au moustique une série de cris lugubres, révélant un profond sentiment de tristesse. S'il n'avait pas eu une immense confiance en Wang Lin, il serait déjà descendu pour s'emparer des fruits.
 
-Quant à Qian Qin, son cœur se serra en contemplant les Fruits Dorés se flétrir. Elle éprouvait une douleur lancinante face à ce déclin.
+Quant à Qian Qin, son cœur se serra en contemplant les Fruits d'Or Brillants se flétrir. Elle éprouvait une douleur lancinante face à ce déclin.
 
 L'expression de Wang Lin restait impassible, mais ses yeux étaient d'un sérieux extrême tandis qu'il fixait silencieusement le déclin des fruits. L'atmosphère de la vallée devint pesante.
 
 Il ne fallut pas longtemps pour que tous les pétales dorés tombent. Cependant, ils ne tombaient pas comme des fleurs ordinaires; ils se transformaient en un liquide doré qui fusionnait avec le sol.
 
-Après les pétales vinrent les Fruits Dorés. Ils fondirent également en gouttes de liquide doré qui s'imprégnèrent dans la terre.
+Après les pétales vinrent les Fruits d'Or Brillants. Ils fondirent également en gouttes de liquide doré qui s'imprégnèrent dans la terre.
 
 Enfin, ce furent les tiges. Tout ce processus dura la moitié d'un bâtonnet d'encens. Passé ce délai, il ne restait plus rien au sol.
 
 Le moustique poussa un cri de détresse. Sa tête s'affaissa et il commença à errer tristement dans les airs.
 
-Les yeux de Wang Lin s'illuminèrent alors qu'il marchait vers l'endroit où se trouvaient autrefois les Fruits Dorés. En regardant le sol, ses yeux brillèrent soudain d'un éclat vif. Il s'accroupit et plongea lentement sa main droite dans la terre. Un sourire apparut sur ses lèvres lorsqu'il retira sa main, emportant avec elle un objet qui rayonnait comme le soleil.
+Les yeux de Wang Lin s'illuminèrent alors qu'il marchait vers l'endroit où se trouvaient autrefois les Fruits d'Or Brillants. En regardant le sol, ses yeux brillèrent soudain d'un éclat vif. Il s'accroupit et plongea lentement sa main droite dans la terre. Un sourire apparut sur ses lèvres lorsqu'il retira sa main, emportant avec elle un objet qui rayonnait comme le soleil.
 
-Il avait extrait un objet mystérieux ressemblant à un ginseng doté de quatre racines filamenteuses, brillant d'un éclat solaire. Sa simple vue procurait une sensation de chaleur intense.
+Il avait extrait un objet mystérieux de la taille d'un pouce, ressemblant à un ginseng doté de quatre racines filamenteuses, brillant d'un éclat solaire. Sa simple vue procurait une sensation de chaleur intense.
 
 Wang Lin pensa secrètement: « Une Racine d'Esprit Dorée à quatre filaments! Si je l'avais laissée se former naturellement, elle aurait pu atteindre au moins cinq filaments! »
 
 Le moustique dans le ciel était totalement stupéfait en fixant la racine dans la main de Wang Lin. Un tel regard ne s'était jamais manifesté dans ses yeux depuis sa naissance; un regard empreint d'une pointe de folie.
 
-Qian Qin avait également la bouche bée devant la racine, l'esprit totalement embrumé. À cet instant, elle comprit enfin que sa pensée précédente n'était que pure ignorance: la véritable utilité de ce Fruit Doré était de récolter ses racines.
+Qian Qin avait également la bouche bée devant la racine, l'esprit totalement embrumé. À cet instant, elle comprit enfin que sa pensée précédente n'était que pure ignorance: la véritable utilité de ce Fruit d'Or Brillant était de récolter ses racines.
 
 Wang Lin arracha un filament et le pressa contre son front. Peu après, son expression changea.
 
-Cet objet était plus efficace que le Fruit Doré et pouvait augmenter légèrement l'élément métallique de la perle défiant le ciel. Cependant, la quantité restait dérisoire. Il calcula que même en absorbant la racine entière, cela n'augmenterait l'élément métallique que de 10 %.
+Cet objet était plus efficace que le Fruit d'Or Brillant et pouvait augmenter légèrement l'élément métallique de la Perle Défiant le Ciel. Cependant, la quantité restait dérisoire. Il calcula que même en absorbant la racine entière, cela n'augmenterait l'élément métallique que de 10 %.
 
 Il soupira, arracha un autre filament et le lança vers la bête moustique, dont les yeux brûlaient encore de cette folie et de ce désir, bien qu'elle se soit retenue de fondre sur lui.
 
@@ -98,7 +98,7 @@ La main droite de Wang Lin s'étendit et le cocon doré fut rangé dans son sac 
 
 À l'apparition de cette lueur, elle se transforma en une gigantesque grenouille de tonnerre qui atterrit avec un bruit sourd. Ses yeux étaient empreints de paresse.
 
-Toutefois, cette léthargie disparut instantanément lorsqu'elle vit les deux filaments dans les yeux de Wang Lin. Le regard paresseux se mua en un regard d'une intensité absolue.
+Toutefois, cette léthargie disparut instantanément lorsqu'elle vit les deux filaments dans la main de Wang Lin. Le regard paresseux se mua en un regard d'une intensité absolue.
 
 Wang Lin eut un léger sourire, puis il arracha un filament et le lança vers la grenouille de tonnerre.
 
@@ -114,10 +114,10 @@ Qian Qin fut saisie de stupeur et attrapa machinalement le filament qui flottait
 
 Lorsqu'elle tourna la tête, l'homme nommé Wang Lin s'était déjà volatilisé.
 
-Qian Qin resta là un long moment avant de ranger le filament. Elle rejoignit sa compagne de secte, puis poussa un soupir et quitta précipitamment les lieux.
+Qian Qin resta là un long moment avant de ranger le filament. Elle alla auprès de son condisciple, le contempla un instant, poussa un soupir, puis se changea en un long arc-en-ciel et quitta rapidement les lieux.
 
 Le corps de Wang Lin se déplaçait comme l'éclair. Il ne lui fallut pas longtemps pour franchir une chaîne de montagnes et pénétrer dans les profondeurs de cette terre.
 
-C'est là que le court Ancien de la Secte de l'Épée Da Lou était assis en position du lotus sur un arbre gigantesque, le visage extrêmement pâle. À environ trois centimètres de ses sourcils flottait une lame en croissant de lune.
+C'est là que le petit Ancien de la Secte de l'Épée Da Lou était assis en position du lotus sur un arbre gigantesque, le visage extrêmement pâle. À environ trois centimètres de ses sourcils flottait une lame en croissant de lune.
 
 À environ trois centimètres au-dessus de sa tête, l'épée céleste dérivait également. Bien qu'immobile, elle dégageait une puissante énergie d'épée.

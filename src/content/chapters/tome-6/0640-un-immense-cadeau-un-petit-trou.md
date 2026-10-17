@@ -6,11 +6,11 @@ bookTitle: Arriving on Tian Yun
 en: "Chapter 640 - Grand Gift! Small hole!"
 slug: un-immense-cadeau-un-petit-trou
 ---
-Xu Liguo fut stupéfait. Ses yeux s'écarquillèrent et il demanda prudemment: « Euh... Senior, qu'est-ce que cette intention d'épée ancienne? »
+Xu Liguo fut stupéfait. Ses yeux roulèrent dans leurs orbites et il demanda prudemment: « Euh... Senior, qu'est-ce que cette intention d'épée ancienne? »
 
 Zhou Yi esquissa un léger sourire et répondit: « Ressens-le, et tu sauras! » Sur ces mots, sa main droite s'élança et saisit aussitôt Xu Liguo. Un rayon de lumière jaillit de ses yeux pour se projeter dans ceux de Xu Liguo.
 
-Le corps de Xu Liguo trembla et son regard s'emplit de confusion. À cet instant, il sentit distinctement une quantité infinie d'informations pénétrer directement en lui depuis le vide. Il eut l'impression que son Âme Naissante quittait son corps, comme lorsqu'il était encore un cultivateur de l'Âme Naissante.
+Le corps de Xu Liguo trembla et son regard s'emplit de confusion. À cet instant, il sentit distinctement une quantité infinie d'informations pénétrer directement en lui depuis le vide. Il eut l'impression que son Âme Naissante quittait son corps, comme à l'époque où, avant de devenir un démon, il était encore un cultivateur de l'Âme Naissante.
 
 Il se perdit progressivement au milieu de ces informations.
 
@@ -30,7 +30,7 @@ Ce coup fit émettre à l'épée céleste un bourdonnement féroce, et un gaz é
 
 Wang Lin s'exclama: « Senior Zhou Yi, vous... » Il ne s'attendait pas à ce que Zhou Yi agisse ainsi!
 
-« Désormais, il n'y aura plus que trois Épées Célestes de la Pluie! Quant à cette épée, elle t'appartient désormais. Que ce soit l'esprit d'épée qui me succédera, moi-même, ou l'esprit d'épée qui viendra après moi, nous n'aurons plus le droit de contrôler cette épée! »
+« Désormais, il n'y aura plus que trois Épées Célestes de la Pluie! Quant à cette épée, elle t'appartient désormais. Que ce soit l'esprit d'épée d'avant ou l'esprit d'épée des Épées Célestes de la Pluie qui viendra après moi, aucun n'aura plus le droit de contrôler cette épée! »
 
 Une fois son discours achevé, Zhou Yi lança l'épée céleste vers Wang Lin.
 
@@ -58,11 +58,11 @@ Dans le Royaume Céleste, seuls ceux atteignant le rang du Seigneur Céleste pou
 
 Zhou Yi laissa échapper un soupir. Puis son corps devint flou et il pénétra dans l'épée céleste.
 
-« Je peux sentir l'aura du dernier esprit d'épée des Épées Célestes de la Pluie au fond de l'Abîme des Marées. Voici mon troisième cadeau pour toi. Allons-y! » L'épée céleste dans laquelle se trouvait Zhou Yi brilla et plongea vers les profondeurs de l'abîme.
+« Je peux sentir l'aura du précédent esprit d'épée des Épées Célestes de la Pluie au fond de l'Abîme des Marées. Voici mon troisième cadeau pour toi. Allons-y! » L'épée céleste dans laquelle se trouvait Zhou Yi brilla et plongea vers les profondeurs de l'abîme.
 
 Wang Lin remit Xu Liguo, qui était toujours dans un état second, absorbant l'héritage, à l'intérieur de l'épée céleste et poursuivit Zhou Yi.
 
-« L'aura du dernier esprit d'épée des Épées Célestes de la Pluie? Pourrait-il... pourrait-il s'agir de la Richesse?! » Le cœur de Wang Lin trembla.
+« L'aura du précédent esprit d'épée des Épées Célestes de la Pluie? Pourrait-il... pourrait-il s'agir de la Richesse?! » Le cœur de Wang Lin trembla.
 
 Zhou Yi menait la marche, et avec son énergie d'épée qui fendait l'air, tous les obstacles s'écartaient. Ils arrivèrent directement au fond de l'Abîme des Marées. L'endroit consistait en un immense corridor sinueux débouchant sur un gouffre sans fin. Il était si profond que même le Sens Divin ne pouvait en atteindre le fond.
 

@@ -37,9 +37,9 @@ Après avoir tué Sima Yan, Wang Lin tourna son regard vers l'homme costaud qui 
 
 Wang Lin fit un pas et se retrouva devant l'homme costaud. Il demanda froidement: « Où est Treize?! »
 
-L'homme en armure noire fixa Wang Lin, réfléchit un instant, puis dit: « Parles-tu du barbare que Sima Yan a gaspillé il y a six mois? Si c'est lui que tu cherches, me questionner est inutile.
+L'homme en armure noire fixa Wang Lin, réfléchit un instant, puis dit: « Parles-tu du barbare que Sima Yan a estropié il y a six mois? Si c'est lui que tu cherches, me questionner est inutile.
 
-« Le général démon a ordonné de rassembler des individus dotés de corps robustes. Ce barbare avait toute son énergie spirituelle démoniaque concentrée dans sa chair et utilisait une méthode mystérieuse pour raffiner son corps. Voyant qu'il répondait aux exigences du général démon, je l'ai soigné pour l'offrir au général!
+« Il y a de nombreuses années, le général démon a ordonné de rassembler des individus dotés de corps robustes. Ce barbare avait toute son énergie spirituelle démoniaque concentrée dans sa chair et utilisait une méthode mystérieuse pour raffiner son corps. Voyant qu'il répondait aux exigences du général démon, je l'ai soigné pour l'offrir au général!
 
 « Commandant Wang, si vous avez des capacités, ne faites pas le fier ici. Osez-vous interroger le seigneur général démon vous-même? Soyez rassuré, je ne mentirai jamais sur les affaires concernant le général démon! » L'homme costaud regarda Wang Lin avec un sourire moqueur.
 
@@ -67,7 +67,7 @@ Il y avait six portes entre le camp militaire et le palais du général démon. 
 
 L'intérieur comme l'extérieur de chacune des six portes étaient étroitement gardés, et le palais entier était entouré d'une formation empêchant toute téléportation.
 
-Wang Lin apparut devant la sixième porte. Celle-ci mesurait plus de trente mètres de haut et était reliée au mur extérieur, parcouru par des restrictions scintillantes.
+Wang Lin apparut devant la sixième porte. Celle-ci mesurait environ 33 mètres de haut et était reliée au mur extérieur, parcouru par des restrictions scintillantes.
 
 Dès l'apparition de Wang Lin, un garde près de la porte poussa un cri.
 
@@ -101,7 +101,7 @@ Il ne marqua aucun temps d'arrêt; il forma un sceau, activa l'énergie spiritue
 
 Dans un grand fracas, la cinquième porte explosa. L'impact puissant projeta les fragments de la porte dans toutes les directions comme une tempête déchaînée.
 
-Derrière la cinquième porte, des dizaines de milliers de soldats démons, ayant déjà appris qu'une intrusion était en cours, se précipitèrent. Au moment de l'effondrement de la porte, plus de dix mille soldats poussèrent des rugissements et, simultanément, leur énergie spirituelle démoniaque fusionna de manière mystérieuse, créant une masse d'énergie extrêmement oppressante!
+Derrière la cinquième porte, plus de dix mille soldats démons, ayant déjà appris qu'une intrusion était en cours, se précipitèrent. Au moment de l'effondrement de la porte, plus de dix mille soldats poussèrent des rugissements et, simultanément, leur énergie spirituelle démoniaque fusionna de manière mystérieuse, créant une masse d'énergie extrêmement oppressante!
 
 À l'instant où la cinquième porte vola en éclats, cette énergie spirituelle démoniaque jaillit avec fureur.
 
@@ -111,7 +111,7 @@ Peu après, trois rayons d'énergie d'épée jaillirent des fourreaux tels trois
 
 Une série d'explosions résonna dans toute la zone, donnant l'impression que le sol même tremblait.
 
-Le corps de Wang Lin se déplaça comme un éclair vers la porte, l'épée céleste ouvrant la voie devant lui. Les dizaines de milliers de soldats démons formèrent un mur d'énergie spirituelle démoniaque pour l'empêcher de progresser.
+Le corps de Wang Lin se déplaça comme un éclair vers la porte, l'épée céleste ouvrant la voie devant lui. Les soldats démons, plus de dix mille, formèrent un mur d'énergie spirituelle démoniaque pour l'empêcher de progresser.
 
 Les yeux de Wang Lin s'illuminèrent et il sortit le drapeau des restrictions. D'un geste sec, d'innombrables restrictions s'en échappèrent telles des dragons noirs, tournoyant autour de lui.
 
@@ -189,11 +189,11 @@ Le sort meurtrier suprême que Situ Nan lui avait enseigné. Le sort le plus pui
 
 « Il est vrai que la Terre des Esprits Démoniques repose sur la puissance militaire. Si j'avais des centaines de milliers de soldats au stade de la Formation du Noyau, même un cultivateur Ascendant s'inclinerait!
 
-« Si j'avais des millions de soldats au stade de la Formation du Noyau, des commandants et un général au niveau de culture du commandant en chef, je pourrais combattre un cultivateur Ascendant de fin de stade!
+« Si j'avais dix millions de soldats au stade de la Formation du Noyau, des commandants et un général au niveau de culture du commandant en chef, je pourrais combattre un cultivateur Ascendant de fin de stade!
 
 « Il en irait de même si j'avais le pouvoir d'un empereur démoniaque avec des centaines de millions de soldats, des généraux démons et quelques commandants. Je ne craindrais même pas ceux qui ont atteint le stade Yin et Yang! »
 
-Wang Lin soupira face à cette armée et aux cinq anciens dont la puissance égalait celle de cultivateurs au sommet de la Transformation de l'Âme. Il leva alors son petit doigt droit et traça lentement un cercle!
+Wang Lin soupira face à cette armée et aux cinq anciens dont la puissance égalait celle de cultivateurs au stade avancé de la Transformation de l'Âme. Il leva alors son petit doigt droit et traça lentement un cercle!
 
 « Inframonde! »
 

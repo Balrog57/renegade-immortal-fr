@@ -62,7 +62,7 @@ Le Saint de l'Épée Ling Tianhou, transformé en un rayon d'énergie d'épée, 
 
 Bien que cette planète ne puisse rivaliser avec Tian Yun, elle était bien plus grande que les cinq satellites de cette dernière. Elle possédait également une énergie spirituelle dense, idéale pour les cultivateurs.
 
-C'est lui qui y avait établi la Secte de la Grande Épée! Et il l'avait nommée Da Lou!
+C'est lui qui y avait établi la Secte de la Grande Épée! Et il l'avait nommée Da Luo!
 
 Ling Tianhou se déplaçait à une vitesse fulgurante, traversant l'atmosphère de la planète pour rejoindre son lieu de culture solitaire situé dans sa partie orientale.
 
@@ -104,4 +104,4 @@ Ce n'est qu'une fois l'Art du Massacre Céleste parvenu à sa pleine maîtrise e
 
 « Enfin, il y a cette grande épée que j'ai aperçue à l'extérieur de la Mer des Esprits Démoniaques de l'Est. Elle était presque identique à la Richesse d'autrefois... » L'éclat dans les yeux de Wang Lin s'intensifia.
 
-« La Richesse possède un sortilège pour contrôler l'épée céleste. Si c'est véritablement elle, alors si je peux la retrouver et apprendre sa technique de contrôle, la puissance de l'épée céleste sera multipliée de plusieurs fois... »
+« La Richesse renferme la technique de l'âme de l'épée. Si c'est véritablement elle, alors une fois cette épée retrouvée et la technique de l'âme de l'épée apprise, la puissance de l'épée céleste sera multipliée de plusieurs fois... »

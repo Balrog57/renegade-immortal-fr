@@ -31,7 +31,7 @@ Sa fabrication exigeait des matériaux et des méthodes de raffinage exceptionne
 
 Wang Lin dit simplement: « C'est exact; c'est précisément ce que je recherche. Existe-t-il un magasin qui en vende? » Voyant que le jeune homme connaissait l'objet, les dix pierres d'esprit de haute qualité n'étaient pas gaspillées.
 
-Li Dannan prit une expression tourmentée. Il hésita un instant et dit: « Aîné, je n'en ai entendu parler que par autrui: quelqu'un en vend au marché libre, mais le prix est exorbitant. Hormis pour accélérer légèrement les objets volants, cet article n'a aucune autre utilité, de sorte que personne ne l'a jamais acheté. Plus tard, le vendeur l'a confié au stand d'un ami. Si l'Aîné le souhaite, je peux vous y conduire. Cependant, c'est extrêmement cher; si l'Aîné cherche des matériaux, ne serait-il pas préférable d'opter pour autre chose? »
+Li Dannan prit une expression tourmentée. Il hésita un instant et dit: « Aîné, je n'en ai entendu parler que par autrui: quelqu'un en vend au marché libre, mais le prix est exorbitant. Hormis pour accélérer légèrement les épées volantes, cet article n'a aucune autre utilité, de sorte que personne ne l'a jamais acheté. Plus tard, le vendeur l'a confié au stand d'un ami. Si l'Aîné le souhaite, je peux vous y conduire. Cependant, c'est extrêmement cher; si l'Aîné cherche des matériaux, ne serait-il pas préférable d'opter pour autre chose? »
 
 Wang Lin répondit d'un ton calme: « J'en ai un usage précis. Montre-moi le chemin! »
 
@@ -49,7 +49,7 @@ Tout en marchant, Li Dannan expliqua à Wang Lin les règles du marché libre. N
 
 Wang Lin observait chaque personne que Li Dannan désignait.
 
-Peu après, ils arrivèrent devant un large stand. Li Dannan joignit les mains et dit: « Senior Zhang, vous souvenez-vous de moi? »
+Peu après, ils arrivèrent, à l'arrière du marché, devant un large stand. Li Dannan joignit les mains et dit: « Senior Zhang, vous souvenez-vous de moi? »
 
 Le propriétaire du stand était un homme au visage rubicond. Il regarda Li Dannan en souriant: « Petit garnement, quel trésor de mon étal a attiré ton attention? » Alors qu'il parlait, son regard balaya nonchalamment Wang Lin, mais ses yeux se figèrent instantanément et ses pupilles se rétractèrent.
 
@@ -77,7 +77,7 @@ Wang Lin examina la pierre de bois du vide. Après avoir confirmé qu'il s'agiss
 
 « Aîné... » L'expression du vieil homme était devenue lugubre.
 
-Mais avant qu'il ne puisse achever sa phrase, cinq pierres d'esprit blanc laiteux apparurent devant lui.
+Mais avant qu'il ne puisse achever sa phrase, cinq pierres d'esprit en forme de losange, émettant une lueur blanche, apparurent devant lui.
 
 Le vieil homme reconnut immédiatement que ces cinq pierres étaient de qualité supérieure. Il les rangea prestement et scruta les alentours avec précaution. Constatant que peu de gens avaient remarqué l'échange, il poussa un soupir de soulagement.
 
@@ -99,7 +99,7 @@ Li Dannan répondit promptement: « L'Aîné l'ignore peut-être, mais la plupar
 
 « Quant à ceux qui s'en inquiètent, ils peuvent confier leurs objets à un stand de confiance pour qu'ils soient vendus, puis revenir une fois la transaction terminée. Cela évite bien des ennuis inutiles.
 
-« On peut même payer pour engager des gardes auprès du seigneur de la ville. Cependant, depuis longtemps, le commerce est intrinsèquement risqué; tout dépend donc du destin. »
+« On peut même payer pour engager des gardes auprès du seigneur de la ville. Cependant, de tout temps, trop de gens perdent la raison par cupidité; le commerce comporte donc des risques, et tout dépend du destin. »
 
 Wang Lin sourit. Il se sentait étranger dans ce lieu, mais n'est-ce pas ainsi que les choses allaient toujours? Dans la Mer des Démons, il avait été traqué à cause du fourneau de pilules.
 

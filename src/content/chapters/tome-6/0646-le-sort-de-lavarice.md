@@ -32,7 +32,7 @@ Le cuir chevelu de Cupidité devint engourdi. Il forma un sceau et les Sept Aigu
 
 Wang Lin prit une profonde inspiration et recula. Son index droit pointa soudainement Cupidité, et un Doigt de la Mort fut projeté vers lui.
 
-Au loin, tous les moustiques entourant Chen Long s'étaient écartés, et son regard était devenu glacial. Sans aucune hésitation, sa main droite forma un sceau et l'épée géante derrière lui s'envola. Un dragon noir aux yeux intelligents apparut en poussant un rugissement, projetant un rayon d'énergie d'épée directement vers Cupidité.
+Au loin, tous les moustiques entourant Chen Long s'étaient écartés, et son regard était devenu glacial. Sans aucune hésitation, sa main droite forma un sceau et l'épée géante derrière lui s'envola. Un dragon noir aux yeux chargés d'une aura maléfique apparut en poussant un rugissement, projetant un rayon d'énergie d'épée directement vers Cupidité.
 
 Bien qu'ils n'eussent jamais coopéré auparavant, le fait d'avoir atteint un tel niveau de culture prouvait leur grande perspicacité. Leur synchronisation était parfaite: leurs deux attaques barraient la route de retraite de Cupidité!
 
@@ -52,7 +52,7 @@ S'il parvenait à s'échapper, nul ne pourrait l'arrêter, qu'il décide de comb
 
 Chen Long hurla: « Wang Lin, nous ne devons pas nous retenir! Unissons nos forces pour tuer ce vieux voleur. Sinon, nous périrons tous les deux! » Il cracha une bouchée d'essence de sang originelle sur son épée. L'arme se mit à trembler et des fissures apparurent sur toute sa surface. Des éclats de métal commencèrent à s'écailler comme si l'épée muait.
 
-Les fragments qui tombaient étaient imprégnés de soif de sang. Ils reformèrent une fois de plus le dragon noir, chargéant avec une puissance décuplée par rapport à auparavant.
+Les fragments qui tombaient étaient imprégnés de soif de sang. Ils reformèrent une fois de plus le dragon noir, chargeant avec une puissance plusieurs fois supérieure à celle d'auparavant.
 
 Les yeux de Wang Lin brillèrent et il toucha l'espace entre ses sourcils de sa main droite. Une immense quantité d'énergie de massacre jaillit et se concentra sur son bout de doigt. L'énergie de massacre se condensa rapidement: un million devint cent mille, cent mille devinrent mille, et mille ne devinrent plus qu'un seul filament!
 
@@ -102,7 +102,7 @@ Grâce à l'appui de l'âme de la montagne, Cupidité parvint enfin à échapper
 
 À cet instant précis, le brouillard violet qui se contractait sans cesse était sur le point de disparaître. Il s'était réduit de 330 mètres à 3,3 mètres, formant une sphère dense de brume pourpre.
 
-Aucun son ne s'échappait encore de la sphère, mais Wang Lin savait qu'une personne vivante s'y trouvait: un disciple de la Secte de l'Épée Da Lou!
+Aucun son ne s'échappait encore de la sphère, mais Wang Lin savait qu'une personne vivante s'y trouvait: un disciple de la Secte de l'Épée Da Luo!
 
 Dans un bruit sourd, la sphère de 3,3 mètres se rétracta à nouveau pour n'atteindre plus que 2,3 mètres!
 
@@ -124,6 +124,6 @@ Les regards de Wang Lin et de Chen Long se fixèrent sur le jeton à cet instant
 
 Chen Long chargea immédiatement vers l'objet. Personne n'osait utiliser la téléportation à proximité de la sortie; la pression y était trop intense, et quiconque tenterait de se téléporter risquerait d'être piégé dans le vide!
 
-Les yeux de Wang Lin devinrent froids et il s'élança simultanément. Sa main forma un sceau tandis que l'énergie spirituelle céleste en son sein bouillonnait. Il préparait le sort d'Arrêt.
+Les yeux de Wang Lin devinrent froids et il s'élança simultanément. Sa main forma un sceau et il mit rapidement en œuvre le sort d'Arrêt.
 
 « Vous, juniors, osez! » À cet instant même, un rugissement furieux retentit de la horde de bêtes moustiques.

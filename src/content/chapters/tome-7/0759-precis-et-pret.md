@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 759 - Precise and Ready
 slug: precis-et-prêt
 ---
-Wang Lin tenait le pinceau et ferma lentement les yeux. Après un long moment, il les ouvrit soudainement et sa main commença à écrire en suivant le texte. Il percevait progressivement une trace de ce que ressentait l'être céleste.
+Wang Lin tenait le pinceau et ferma lentement les yeux. Après un long moment, il les ouvrit soudainement et sa main commença à écrire en suivant le texte. Il percevait progressivement une trace de ce que ressentait ce Céleste, jadis assis en ce lieu.
 
 Son esprit s'empressa tandis qu'il écrivait; c'était un sentiment mêlant hésitation et confusion. Cette aura persistait encore dans cette pièce, même aujourd'hui.
 
@@ -26,7 +26,7 @@ Il demanda: « Il devrait y avoir d'autres trésors magiques ou des jades dans c
 
 Wang Lin secoua la tête. « Le frère Li peut les chercher. » Après avoir lu le contenu du papier, son cœur était hanté par les mystères de l'effondrement du Royaume Céleste.
 
-En particulier, après avoir découvert la seconde vallée, Wang Lin sentait que même s'il restait des trésors, ils seraient très rares. Car le trésor le plus important, l'os de bête, lui avait déjà été pris!
+En particulier, après avoir découvert la seconde vallée, Wang Lin sentait que même s'il restait des trésors, ils seraient très rares. Car le trésor le plus important, l'os de bête, avait déjà été emporté par lui!
 
 Cet os de bête était manifestement le trésor brisé mentionné dans la note qui était en cours de raffinage.
 
@@ -40,7 +40,7 @@ Wang Lin fut très stupéfait par cela, mais en considérant la nature des restr
 
 Au cours de ce mois, Li Yuan avait placé des restrictions sur tous les points d'effondrement qu'il avait calculés à l'intérieur de l'espace de stockage. Il semblait même plus investi que Wang Lin dans le projet de comploter contre l'Ancêtre Sanguin.
 
-Chaque fois qu'il pensait à la manière dont ses restrictions pourraient aider à tuer un dieu, Li Yuan en perdait presque le souffle. Bien qu'il fût extrêmement vigilant, il possédait une faiblesse flagrante: sa confiance aveugle dans les restrictions de sa propre famille.
+Chaque fois qu'il pensait à la manière dont ses restrictions pourraient aider à tuer un dieu, la respiration de Li Yuan s'accélérait. Bien qu'il fût extrêmement vigilant, il possédait une faiblesse flagrante: sa confiance aveugle dans les restrictions de sa propre famille.
 
 De plus, il avait réfléchi aux conséquences si l'Ancêtre Sanguin ne mourait pas, et prit ainsi sa décision. Il n'apporterait qu'une aide secrète sans participer directement. Une fois ses arrangements terminés, il décida de se séparer de Wang Lin. Après tout, cette affaire était trop vaste, même s'il avait une dette envers lui.
 

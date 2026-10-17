@@ -8,7 +8,7 @@ slug: yao-bingyun
 ---
 Des ondulations apparurent dans une zone étoilée et lumineuse du Système Stellaire de Luotian. Les pas de Wang Lin étaient chancelants et son visage était pâle. La bataille contre Yao Changdong avait été trop périlleuse; s'il avait été un tant soit peu imprudent, il serait déjà mort.
 
-« Yao Changdong était digne d'un véritable cultivateur du stade initial de l'Éclaireur du Nirvana. L'écart entre nous était immense! Cependant, si j'avais moi-même atteint le stade de l'Éclaireur du Nirvana, le tuer n'aurait pas été difficile. » Le regard de Wang Lin devint féroce. Il ne pouvait pas rester fusionné avec le monde trop longtemps. Dès qu'il réapparut, il s'élança rapidement. Après quelques respirations, il se fondit à nouveau dans le monde sans la moindre hésitation.
+« Yao Changdong était digne d'un véritable cultivateur du stade initial du Scruteur du Nirvana. L'écart entre nous était immense! Cependant, si j'avais moi-même atteint le stade du Scruteur du Nirvana, le tuer n'aurait pas été difficile. » Le regard de Wang Lin devint féroce. Il ne pouvait pas rester fusionné avec le monde trop longtemps. Dès qu'il réapparut, il s'élança rapidement. Après quelques respirations, il se fondit à nouveau dans le monde sans la moindre hésitation.
 
 « Pour l'instant, je dois trouver un endroit pour me rétablir. Une fois guéri, j'irai causer encore plus de problèmes à la famille Yao! »
 
@@ -24,7 +24,7 @@ Ce sort céleste scellait les sens de l'âme originelle. Les yeux ne peuvent plu
 
 À travers les âges, de nombreux membres de la famille Yao avaient péri en tentant de maîtriser ce sort; ainsi, peu à peu, de moins en moins de personnes osaient l'entreprendre.
 
-Yao Bingyun était restée dans cet état, s'adonnant à une culture en isolement pendant cinq cents ans sur la planète de glace de la famille Yao.
+Yao Bingyun était restée dans cet état, s'adonnant à une culture en isolement pendant cinq cents ans sur la planète de glace, l'une des terres interdites de la famille Yao.
 
 À sa sortie de méditation, elle était devenue plus froide encore, telle un bloc de glace éternelle. Partout où elle allait, elle laissait un frisson dans son sillage. Sa vie était entièrement dévouée au Dao et sa détermination était incommensurable!
 
@@ -52,7 +52,7 @@ L'autre était un cultivateur Corporel Yang. Il se trouvait dans un état bien p
 
 Cette série de nouvelles réveilla brutalement le souvenir de Xu Mu dans l'esprit des cultivateurs du Système Stellaire de Luotian!
 
-Presque simultanément, la fuite de la nouvelle selon laquelle Yao Changdong, un Éclaireur du Nirvana au stade initial, avait été tué par Xu Mu, déchira le ciel. Cela déclencha une tempête qui balaya tout le Système Stellaire de Luotian!
+Presque simultanément, la fuite de la nouvelle selon laquelle Yao Changdong, un Scruteur du Nirvana au stade initial, avait été tué par Xu Mu, déchira le ciel. Cela déclencha une tempête qui balaya tout le Système Stellaire de Luotian!
 
 Sous l'Ordre Céleste de la famille Yao, celui qui était envoyé pour tuer était devenu la proie. Au-delà de la stupéfaction des cultivateurs, cela gravait encore plus profondément le nom de « Xu Mu » dans les mémoires.
 
@@ -74,7 +74,7 @@ Le temps s'écoulait lentement. Bien que la compréhension de Yao Bingyun fût p
 
 À l'instant même où elle apparut, Wang Lin — qu'elle avait verrouillé par son Sens Divin tout en étant fusionné avec le monde — disparut.
 
-Yao Bingyun gardait un visage impassible. Sa main effleura une sacoche d'où surgit immédiatement un petit miroir. Sa main gauche traça un sceau, comme si elle pressentait quelque chose. Un court instant plus tard, elle se fusionna à son tour avec le monde.
+Yao Bingyun gardait un visage impassible. Sa main effleura une sacoche d'où surgit immédiatement un petit miroir. Sa main gauche traça un sceau, comme pour effectuer une déduction. Après s'être reposée un court instant, elle se fusionna à son tour avec le monde.
 
 La silhouette de Wang Lin apparut près d'une planète de culture abandonnée, à la frontière des Domaines Occidental et Nordique. Lorsqu'il émergea, son visage était livide. Après tout, il avait été gravement blessé et contraint à une fuite effrénée. De plus, la fusion prolongée avec le monde avait aggravé ses blessures. À cet instant, ses yeux s'illuminèrent; après avoir constaté que sa poursuivante avait été totalement distancée, il poussa un soupir de soulagement.
 
@@ -92,7 +92,7 @@ Un instant plus tard, ses yeux brillèrent alors qu'il saisissait une autre âme
 
 Il fit circuler l'énergie dans son corps et poursuivit son absorption. Après douze heures et quatre âmes originelles, une puissante vague d'énergie originelle déferla en lui. Il ouvrit les yeux, empreints d'une intention meurtrière, puis sa main droite fit apparaître de nombreuses sacoches de rangement.
 
-Ces sacs appartenaient aux personnes qu'il avait éliminées. Sans perdre un instant, Wang Lin effaça le Sens Divin de chacun d'eux et en extrayit tous les trésors. Il les broya tous pour fusionner le liquide obtenu et l'injecter en Ta Shan.
+Ces sacs appartenaient aux personnes qu'il avait éliminées. Sans perdre un instant, Wang Lin effaça le Sens Divin de chacun d'eux et en extraya tous les trésors. Il les broya tous pour fusionner le liquide obtenu et l'injecter en Ta Shan.
 
 Ces sacs regorgeaient de divers trésors qui, à cet instant, servaient uniquement à réparer le corps de Ta Shan.
 

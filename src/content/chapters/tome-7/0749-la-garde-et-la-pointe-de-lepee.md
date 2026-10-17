@@ -30,7 +30,7 @@ Li Yuan réfléchit un instant avant de sourire. « Seulement les 18 Pruniers Re
 
 « Voici la méthode des 13 Pruniers Restrictifs. Je te donnerai naturellement les cinq restants après que nous serons entrés dans la montagne. »
 
-Wang Lin attrapa le jade et l'examina. Bien que son expression fût neutre, son cœur se mit à battre la chamade. Il n'y avait aucune incantation à l'intérieur, seulement 13 grandes statues et un total de 13 fleurs de prunier.
+Wang Lin attrapa le jade et l'examina. Bien que son expression fût neutre, son cœur se mit à battre la chamade. Il n'y avait aucune incantation à l'intérieur, seulement 13 grandes statues et un total de 13 fleurs de prunier, sous les pieds de chacune des statues. Elles s'accordaient entre elles de façon extrêmement subtile, avec un naturel parfait, et recelaient une certaine loi.
 
 Du début à la fin, la femme nommée Ge était restée silencieuse, comme si rien de tout cela ne la concernait. Elle contemplait la montagne devant elle, plongée dans une sorte de transe.
 
@@ -50,7 +50,7 @@ Cette pression fit vaciller et trembler la montagne entière. Un grondement rés
 
 Bien que l'on ne puisse toujours pas voir le sommet, il était évident que celui-ci s'était considérablement abaissé.
 
-« Alors, qu'advient-il de celui qui entreprend le chemin vers le sommet? Sans le moyen de briser la restriction, on peut parcourir toute la montagne sans jamais percer les nuages! » Li Yuan se retourna et regarda Wang Lin avec un sourire qui n'en était pas un.
+« Même si l'on atteignait le sommet de cette montagne, et alors? Sans la bonne méthode pour briser la restriction, on peut fouiller toute la montagne sans jamais percer les brumes de ses profondeurs! » Li Yuan se retourna et regarda Wang Lin avec un sourire qui n'en était pas un.
 
 « Frère Xu, avez-vous des questions? »
 

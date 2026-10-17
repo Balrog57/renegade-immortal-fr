@@ -26,7 +26,7 @@ Dans l'esprit des membres de la tribu, la tour centrale était leur terre sacré
 
 Chaque jour, en plus de renforcer l'empreinte sur le démon dispersé, il créait d'innombrables restrictions qu'il plaçait sur le drapeau des restrictions. Au cours de ces dix dernières années, Wang Lin avait continué à déduire toujours plus de restrictions, s'approchant lentement du seuil de 9 999 ensembles.
 
-Le drapeau aux cent millions d'âmes avait été libéré par Wang Lin depuis longtemps, et les cent millions de fragments d'âmes couvraient le ciel au-dessus de la Tribu de Raffinement des Âmes. Les gémissements des fragments d'âmes pouvaient être entendus toute la journée, devenant ainsi le symbole unique de la tribu.
+L'étendard des âmes avait été libéré par Wang Lin depuis longtemps, et les cent millions de fragments d'âmes couvraient le ciel au-dessus de la Tribu de Raffinement des Âmes. Les gémissements des fragments d'âmes pouvaient être entendus toute la journée, devenant ainsi le symbole unique de la tribu.
 
 Wang Lin passa également beaucoup de temps à étudier les cinq sceaux du Char de Guerre Anti-Dieux. Lorsqu'il n'était qu'au stade intermédiaire de la Transformation de l'Âme, il pouvait à peine relâcher le premier sceau. Désormais, au stade Ascendant, il pouvait l'activer avec aisance. Cependant, cela ne suffisait pas; il voulait pouvoir briser le second sceau.
 
@@ -38,11 +38,11 @@ Il faut dire que ce Char Anti-Dieux provenait du Royaume Céleste. Ses créateur
 
 L'intérêt de Wang Lin pour ce second sceau grandit considérablement lorsqu'il découvrit que la bête acquerrait le pouvoir de la foudre.
 
-Le sortilège de vent, de pluie, de tonnerre et de foudre utilisé par le vieillard sous la tour noire était extrêmement puissant. Chaque fois que Wang Lin y pensait, son cœur tremblait. L'élément le plus redoutable de ce sort était la foudre noire; sans elle, sa puissance serait grandement affaiblie!
+Le sortilège de vent, de pluie, de tonnerre et de foudre utilisé par le vieillard du stade Ascendant avancé sous la tour des démons était extrêmement puissant. Chaque fois que Wang Lin y pensait, son cœur tremblait. L'élément le plus redoutable de ce sort était la foudre noire; sans elle, sa puissance serait grandement affaiblie!
 
 Wang Lin était confiant quant à l'ouverture du second sceau. Cependant, après avoir analysé la foudre, il réalisa que si le second sceau était levé, le piège à bêtes s'effondrerait sous la force de la créature!
 
-Le piège à bêtes lui avait été confié par un ancien cultivateur sous les ordres de Tu Si, en guise de paiement pour son aide. Cet objet s'était révélé très utile à Wang Lin au cours de ces centaines d'années, particulièrement pour le Char de Guerre Anti-Dieux, car il lui permettait d'utiliser le char même lorsque son niveau de culture n'était pas assez élevé!
+Le piège à bêtes lui avait été confié par un ancien cultivateur sous les ordres de Tuo Sen, en guise de paiement pour son aide. Cet objet s'était révélé très utile à Wang Lin au cours de ces centaines d'années, particulièrement pour le Char de Guerre Anti-Dieux, car il lui permettait d'utiliser le char même lorsque son niveau de culture n'était pas assez élevé!
 
 Mais maintenant que le niveau de culture de Wang Lin avait augmenté et que davantage de sceaux étaient ouverts, cet objet ne pouvait plus contrôler l'esprit de la bête!
 
@@ -84,7 +84,7 @@ Le corps de Wang Lin ne bougea pas; il fit une nouvelle fois un mouvement de la 
 
 Les deux mains de Wang Lin commencèrent à tracer des formes dans le vide, faisant apparaître deux symboles de sang. À ce moment précis, toute la lumière noire pénétra le corps de Wang Lin et se précipita vers son âme originelle. Un sourire narquois apparut sur les lèvres de Wang Lin et une lueur dorée jaillit de ses yeux.
 
-« Âme originelle, sors! » rugit Wang Lin tandis que ses yeux s'assombrissaient. Son âme originelle s'envola alors, saisissant la bête spirituelle par le cou.
+« Âme originelle, sors! » rugit Wang Lin tandis que ses yeux se fermaient légèrement. Son âme originelle s'envola alors, saisissant la bête spirituelle par le cou.
 
 Les deux symboles de sang volèrent rapidement et furent captés par la main gauche de l'âme originelle de Wang Lin. Il les pressa ensuite fermement entre les sourcils de la bête. Le corps de la créature trembla, puis une aura encore plus puissante jaillit. Cette fois, elle parvint inopinément à se libérer de l'âme originelle de Wang Lin.
 

@@ -22,7 +22,7 @@ Le fragment sur lequel ils se trouvaient n'était pas très vaste. Vu de loin, l
 
 Personne ne se trouvait dans un rayon de cinq mille kilomètres autour d'eux. Leurs deux silhouettes paraissaient bien solitaires en ce lieu.
 
-Li Yuan hocha la tête et sourit. « J'admire votre compréhension des restrictions, Frère Xu. Au cours des dernières semaines, chaque fois que j'ai évoqué un sujet, vous avez su en saisir l'essentiel. » Li Yuan prit une poignée de terre et la glissa dans son sac de rangement. Il ajouta ensuite: « Le frère Xu devrait également prendre un peu de cette terre de restriction. Une fois que nous aurons quitté le Royaume Céleste du Tonnerre, sa nature pourrait changer en sortant de cet environnement céleste. Si tel est le cas, ce sera un excellent matériau pour fabriquer la boussole de restriction une fois de retour à la famille Li. »
+Li Yuan hocha la tête et sourit. « J'admire votre compréhension des restrictions, Frère Xu. Au cours des dernières semaines, chaque fois que j'ai évoqué un sujet, vous avez su en saisir l'essentiel. » Li Yuan prit une poignée de terre et la glissa dans son sac de rangement. Il ajouta ensuite: « Le frère Xu devrait également prendre un peu de cette terre de restriction. Une fois que nous aurons quitté le Royaume Céleste du Tonnerre, sa nature pourrait changer en sortant de cet environnement céleste. Si tel est le cas, ce sera l'un des matériaux pour fabriquer la boussole de restriction une fois de retour à la famille Li. »
 
 « Merci infiniment, Frère Li! » Wang Lin sourit légèrement en s'accroupissant pour prendre une poignée de terre à son tour.
 
@@ -54,9 +54,9 @@ Wang Lin eut un léger sourire: « La maîtrise des restrictions du Frère Li es
 
 « Chacune des quatre anciennes restrictions devient un sortilège surpuissant lorsqu'elle est cultivée à son apogée. Qu'il s'agisse des êtres célestes, des démons qui trônent en haut ou des bêtes mortelles en bas, tous peuvent être scellés! »
 
-« La Restriction du Prunier est une déclinaison de la Restriction d'Annihilation. Cependant, elle a été diffusée à l'extérieur, et c'est ainsi que le monde profane en a découvert l'existence. » Li Yuan parlait avec une assurance profonde.
+« La Restriction des Dix-huit Pruniers est une déclinaison de la Restriction d'Annihilation. Cependant, elle a été diffusée à l'extérieur, et c'est ainsi que le monde profane en a découvert l'existence. » Li Yuan parlait avec une assurance profonde.
 
-Wang Lin regarda Li Yuan et dit: « Avec la puissance de la Restriction d'Annihilation, il doit y avoir énormément de personnes qui la recherchent dans le Système Stellaire de le Luotian... »
+Wang Lin regarda Li Yuan et dit: « Avec la puissance de la Restriction d'Annihilation, il doit y avoir énormément de personnes qui la recherchent dans le Système Stellaire de Luotian... »
 
 Li Yuan eut un sourire désabusé et hocha la tête. « Je ne veux pas vous mentir, Frère Xu. Durant les innombrables années où la famille Li a souffert sous l'empreinte d'esclave, la Restriction d'Annihilation a été transmise à l'extérieur de la famille à sept reprises! Et chaque fois, c'était par nécessité ultime. »
 

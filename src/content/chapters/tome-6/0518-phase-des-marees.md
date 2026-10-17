@@ -40,15 +40,15 @@ Les yeux du Saint de l'Épée Ling Tianhou brillèrent d'une lueur mystérieuse 
 
 « Je me demande ce qui sera attiré ici cette fois... » Un éclat de lumière aux sept couleurs traversa les yeux sereins de l'Omniscient.
 
-À cet instant, tous les cultivateurs ayant déjà eu le privilège de voir la Mer des Esprits Démoniaques de l'Est s'ouverture fixèrent intensément l'orifice de la source.
+À cet instant, tous les cultivateurs ayant déjà eu le privilège de voir la Mer des Esprits Démoniaques de l'Est s'ouvrir fixèrent intensément l'orifice de la source.
 
 Cette colonne verte ressemblait à un pilier soutenant l'espace lui-même. Elle continuait de s'élever, s'étirant jusqu'à la limite de la portée du Sens Divin.
 
-À ce moment précis, Wang Lin afficha une expression de choc. Tandis que la colonne verte gagnait en longueur, une pression semblable à la puissance des cieux commença lentement à s'en dégager.
+À ce moment précis, Wang Lin afficha une expression de choc. Tandis que la colonne verte gagnait en longueur, une pression d'innombrables fois plus dense que la puissance des cieux commença lentement à s'en dégager.
 
-Cette infime fraction de la puissance céleste fit ressentir à Wang Lin le poids de cent mille montagnes s'abattant sur lui. Des craquements résonnèrent dans son corps, comme si celui-ci allait se briser à tout instant.
+Cette infime parcelle de pression fit ressentir à Wang Lin le poids de cent mille montagnes s'abattant sur lui. Des craquements résonnèrent dans son corps, comme si celui-ci allait se briser à tout instant.
 
-« Quelle puissance! » Les yeux de Wang Lin trahirent une détermination inflexible. Un gaz gris apparut entre ses sourcils avant de se transformer en un tatouage qui recouvrit rapidement son corps. Grâce à cela, la pression atteignit un seuil qu'il pouvait supporter.
+« Quelle puissance! » Les yeux de Wang Lin trahirent une détermination inflexible. Un gaz gris apparut entre ses sourcils avant de se transformer en un symbole qui recouvrit rapidement son corps. Grâce à cela, la pression atteignit un seuil qu'il pouvait supporter.
 
 Si Wang Lin parvenait à tenir, il était évident que de nombreux cultivateurs environnants étaient dans une situation bien pire. Leurs visages étaient d'une pâleur extrême et ils étaient contraints de reculer. Sans leurs Anciens ou leurs maîtres pour contenir la pression pour eux, beaucoup se seraient effondrés et auraient péri!
 
@@ -64,7 +64,7 @@ La lueur verte disparaissait lentement, supplantée par le rouge. Ce n'était pa
 
 Quant à la distance exacte parcourue par cette lumière rouge, seuls quelques individus privilégiés pouvaient l'estimer.
 
-Certaines planètes désertiques, pourtant éloignées de la planète Tian Yun, furent recouvertes par ce rayonnement. Même la lointaine planète Suzaku fut affectée. L'actuel Suzaku, Zhou Wutai, était en pleine culture lorsqu'il ouvrit les yeux pour découvrir que le ciel était devenu entièrement rouge.
+Certaines planètes sauvages, pourtant éloignées de la planète Tian Yun, furent recouvertes par ce rayonnement. Même la lointaine planète Suzaku fut affectée. L'actuel Zhu Quezi, Zhou Wutai, était en pleine culture lorsqu'il ouvrit les yeux pour découvrir que le ciel était devenu entièrement rouge.
 
 Plus loin encore, d'autres planètes furent enveloppées par cette clarté.
 

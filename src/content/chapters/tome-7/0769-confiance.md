@@ -50,7 +50,7 @@ Toutefois, l'âme originelle de Wang Lin était imprégnée d'énergie originell
 
 L'Ancêtre Sanguin devait mourir. Si cet homme ne mourait pas, alors ce serait lui qui périrait. Wang Lin le comprenait parfaitement, et c'est pourquoi il était prêt à retenir l'Ancêtre Sanguin dans les nuages à tout prix, afin de l'éliminer en utilisant la puissance de la rétribution divine!
 
-Cependant, la rétribution divine était sur le point de se dissiper et n'était plus aussi puissante qu'auparavant. Pourtant, chaque éclair tombant sur l'Ancêtre Sanguin le faisait frissonner. La moitié de la force tyrannique de la rétribution divine le blessait, tandis que l'autre moitié était absorbée par Wang Lin.
+Cependant, la rétribution divine était sur le point de se dissiper et n'était plus aussi puissante qu'auparavant. Pourtant, chaque éclair tombant sur l'Ancêtre Sanguin le faisait frissonner. La force tyrannique de la rétribution divine le blessait d'un côté, tandis qu'une partie était absorbée par l'âme originelle de Wang Lin pour devenir sa propre force.
 
 Le grondement du tonnerre continua de descendre et les nuages se dissipèrent rapidement. Une puissance dévastatrice commença à se former au sein des nuages qui s'évanouissaient. Alors que le dernier éclair se formait, il aspira instantanément tous les nuages restants et s'abattit dans un fracas assourdissant.
 
@@ -74,7 +74,7 @@ Les nuages se dissipèrent complètement et la rétribution divine disparut.
 
 L'âme originelle de Wang Lin ramena les restes du corps de l'Ancêtre Sanguin vers le fragment. Ce fragment ne mesurait plus qu'environ 330 mètres de large; il ne ressemblait plus à un débris, mais plutôt à un immense sceau.
 
-Lorsque son énergie originelle revint dans son corps, ses yeux s'ouvrirent et une aura puissante gonfla en lui. Il prit une profonde inspiration et rangea le corps de sang. Simultanément, il regarda le sceau sous ses pieds. Ses yeux brillèrent et il frappa le sol de la main.
+Lorsque son âme originelle réintégra son corps, ses yeux s'ouvrirent et une aura puissante gonfla en lui. Il prit une profonde inspiration et rangea le corps de sang. Simultanément, il regarda le sceau sous ses pieds. Ses yeux brillèrent et il frappa le sol de la main.
 
 Le fragment trembla immédiatement, puis commença à rétrécir jusqu'à atteindre la taille d'un grain de sable avant d'être dévoré par Wang Lin. Il s'envola ensuite dans le vide en riant.
 
@@ -82,7 +82,7 @@ Le fragment trembla immédiatement, puis commença à rétrécir jusqu'à attein
 
 Hormis quelques rares individus, personne ne pouvait rivaliser avec Wang Lin dans le Royaume Céleste du Tonnerre.
 
-Avec ses sorts et ses trésors magiques actuels — comme ce Fragment de Royaume Céleste et les os de bête — même s'il ne pouvait pas l'emporter face à quelqu'un venant tout juste d'entrer au second niveau, il en avait désormais la capacité.
+Avec ses sorts et ses trésors magiques actuels — comme ce Fragment de Royaume Céleste et les os de bête — face à un cultivateur du début du stade Scruteur du Nirvana venant tout juste d'entrer au second niveau, l'issue resterait incertaine, mais il avait désormais les moyens de se battre.
 
 La pression liée à sa fuite du Système Stellaire de l'Alliance vers le Système Stellaire de Tout-Ciel disparut totalement. Le Sens Divin de Wang Lin s'étendit et il se dirigea rapidement vers la direction prise par l'Ancêtre Sanguin.
 
@@ -102,9 +102,9 @@ Même l'Omniscient n'aurait pu imaginer que son disciple, issu d'une planète se
 
 De nombreuses blessures d'épée couvraient son corps, la plus choquante étant celle sur son abdomen. Même son âme originelle était blessée et montrait des signes d'effondrement. S'il n'avait pas bénéficié des sorts de sa famille, il serait déjà mort.
 
-Une aura de mort emplissait le corps de Li Yuan. Il afficha un sourire amer et une expression de résignation. Il voulait contre-attaquer, mais l'adversaire possédait un miroir ancien capable de briser les restrictions. De plus, il avait aidé Wang Lin en utilisant sa restriction mentale, laquelle ne s'était pas encore rétablie. À moins de créer une distance importante, il ne pourrait pas se cacher rapidement.
+Une aura de mort emplissait le corps de Li Yuan. Il afficha un sourire amer et une expression de résignation. Il voulait contre-attaquer, mais l'adversaire possédait un miroir ancien capable de briser les restrictions. De plus, il avait aidé Wang Lin en utilisant sa restriction du cœur, laquelle ne s'était pas encore rétablie. À moins de créer une distance importante, il ne pourrait pas se cacher rapidement.
 
-« Seule une famille possédant des héritages du Royaume Céleste peut avoir un miroir ancien capable de briser les restrictions. Si ma famille Li était encore puissante, ces gens ne seraient que des clowns, mais maintenant... Hélas, Frère Xu, je ne pourrai pas tenir ma promesse de vous donner la restriction mentale... Ce n'est pas mon souhait! »
+« Seule une famille possédant des héritages du Royaume Céleste peut avoir un miroir ancien capable de briser les restrictions. Si ma famille Li était encore puissante, ces gens ne seraient que des clowns, mais maintenant... Hélas, Frère Xu, je ne pourrai pas tenir ma promesse de vous donner la restriction du cœur... Ce n'est pas mon souhait! »
 
 « Cousin, cet homme possède vraiment beaucoup de trésors, et ils sont très puissants. J'aime énormément cette épée céleste. » Derrière Li Yuan, trois personnes le poursuivaient avec désinvolture.
 

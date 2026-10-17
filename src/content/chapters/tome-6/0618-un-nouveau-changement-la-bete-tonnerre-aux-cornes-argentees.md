@@ -8,7 +8,7 @@ slug: un-nouveau-changement-la-bete-tonnerre-aux-cornes-argentees
 ---
 Wang Lin fixait l'animal spirituel. Après que le troisième symbole sanguin eut été imprimé sur lui, l'aura qu'il dégageait terrifiait même Wang Lin.
 
-Le corps de la bête tremblait violemment et la lumière rouge dans ses yeux devenait de plus en plus intense. Cette lueur était si puissante qu'elle s'étendait sur près d'un mètre hors de ses orbites.
+Le corps de la bête tremblait violemment et la lumière rouge dans ses yeux devenait de plus en plus intense. Cette lueur était si puissante qu'elle s'étendait sur près d'un mètre hors de ses orbites. Son corps, haut de 330 mètres et pareil à une petite montagne, se mit à rétrécir rapidement sous des grondements sourds et confus, tandis que des craquements s'échappaient sans cesse de l'intérieur.
 
 Wang Lin observait la bête avec calme. Malgré sa sérénité apparente, son regard était perçant. Le jade contenant les instructions pour lever les sceaux de la bête en parlait précédemment.
 
@@ -68,7 +68,7 @@ Wang Lin tendit sa main droite et le Char de Guerre Divin fut rangé dans son sa
 
 Wang Lin fit un pas en avant et se téléporta dans la tour.
 
-« La raison pour laquelle les cultivateurs Ascendants du stade avancé sont si puissants est qu'ils sont déjà au terme de la première étape! Surtout ceux qui atteignent le sommet de ce stade; ils sont considérés comme l'apogée de cette première étape. Seuls des êtres de niveau similaire peuvent rivaliser avec eux en combat. Ce ne sont pas des adversaires que les cultivateurs du stade intermédiaire peuvent espérer surmonter... à moins de posséder un trésor défiant les cieux, comme l'énergie de l'épée de Ling Tianhou, ou la quatrième âme du drapeau aux un milliard d'âmes! »
+« La raison pour laquelle les cultivateurs Ascendants du stade avancé sont si puissants est qu'ils sont déjà au terme de la première étape! Surtout ceux qui atteignent le sommet de ce stade; ils sont considérés comme l'apogée de cette première étape. Seuls des êtres de niveau similaire peuvent rivaliser avec eux en combat. Ce ne sont pas des adversaires que les cultivateurs du stade intermédiaire peuvent espérer surmonter... à moins de posséder un trésor défiant les cieux, comme l'énergie de l'épée de Ling Tianhou, ou la quatrième âme de l'étendard des âmes! »
 
 « Et même ainsi, cette quatrième âme a été capturée par Zhu Quezi, et le Maître Dun Tian est mort... »
 
@@ -76,13 +76,13 @@ Wang Lin fit un pas en avant et se téléporta dans la tour.
 
 Wang Lin s'assit en position du lotus dans la tour et médita.
 
-« Si j'ai plus d'un million de filaments d'énergie de massacre, le drapeau aux un milliard d'âmes, le Char de Guerre Divin et la rivière des enfers... Pourrais-je vaincre un cultivateur Ascendant du stade avancé... » Wang Lin songeait en silence.
+« Si j'ai plus d'un million de filaments d'énergie de massacre, l'étendard du milliard d'âmes, le Char de Guerre Divin et la rivière des enfers... Pourrais-je vaincre un cultivateur Ascendant du stade avancé... » Wang Lin songeait en silence.
 
 « Je n'en suis pas sûr... Cependant, avec l'énergie de l'épée de Ling Tianhou, si un cultivateur Ascendant du stade avancé me provoque réellement, je n'aurai d'autre choix que d'utiliser l'une de ces énergies d'épée! » Le regard de Wang Lin devint glacial.
 
 « Désormais, je vais devoir affiner correctement les trois épées obtenues parmi les Douze Épées. Ces trois lames ont été gaspillées par leurs anciens propriétaires. Je les ai étudiées une fois auparavant, et il semble qu'une autre capacité y soit cachée. Cependant, cette capacité nécessite une attaque combinée pour être activée. » Wang Lin frappa son sac de rangement, et les trois épées de Mo Yang, Zi Shu et Hai Zhu s'envolèrent.
 
-Ces trois épées dégageaient une aura spirituelle féroce. Wang Lin cracha une bouffée d'énergie originelle qui se transforma en une brume verte enveloppant les lames. Il ferma ensuite les yeux pour se concentrer sur leur affinement.
+Ces trois épées dégageaient une aura spirituelle féroce. Wang Lin cracha une bouffée d'énergie de l'âme originelle qui se transforma en une brume verte enveloppant les lames. Il ferma ensuite les yeux pour se concentrer sur leur affinement.
 
 En un clin d'œil, trois mois passèrent. Ce jour-là, plusieurs rayons de lumière apparurent dans le ciel, à 50 000 kilomètres du Clan de l'Affinement des Âmes. Leur cible était clairement le Clan de l'Affinement des Âmes!
 

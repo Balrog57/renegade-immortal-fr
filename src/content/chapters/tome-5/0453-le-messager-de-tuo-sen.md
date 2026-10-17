@@ -24,15 +24,15 @@ Il pressa le fragment d'âme de Li Muwan contre son front et le plaça dans la P
 
 Puis, il prit une profonde inspiration et s'envola lentement vers l'horizon.
 
-En volant, ses yeux s'illuminèrent soudainement et il tourna son regard vers une chaîne de montagnes effondrée. Le vieil homme voûté se trouvait sur un amas de gravats, mais seule la moitié de son corps était présente. Sa faible âme d'origine luttait pour quitter son enveloppe.
+En volant, ses yeux s'illuminèrent soudainement et il tourna son regard vers une chaîne de montagnes effondrée. Le vieil homme voûté se trouvait sur un amas de gravats, mais seule la moitié de son corps était présente. Sa faible âme originelle luttait pour quitter son enveloppe.
 
-Lors de la calamité qui venait de se produire, il avait perdu la moitié de son corps ainsi que son âme d'origine tatouée.
+Lors de la calamité qui venait de se produire, il avait perdu la moitié de son corps ainsi que son âme originelle tatouée.
 
 Au moment où le regard de Wang Lin se posa sur lui, les yeux du vieil homme révélèrent une panique totale. Il quitta précipitamment son corps et tenta de s'échapper.
 
-Le regard de Wang Lin devint glacial. Il laissa échapper un reniflement méprisant et poursuivit rapidement le vieillard. L'âme d'origine du vieil homme étant extrêmement faible, ce n'était pas tant une course qu'une simple poursuite, mais soudain, une faille apparut silencieusement devant lui.
+Le regard de Wang Lin devint glacial. Il laissa échapper un reniflement méprisant et poursuivit rapidement le vieillard. L'âme originelle du vieil homme étant extrêmement faible, ce n'était pas tant une course qu'une simple poursuite, mais soudain, une faille apparut silencieusement devant lui.
 
-Le vieil homme poussa un cri déchirant et tenta de reculer, mais il était trop tard. Son âme d'origine entière fut engloutie par la faille ovale et, lorsque celle-ci disparut, l'âme du vieillard s'évanouit avec elle.
+Le vieil homme poussa un cri déchirant et tenta de reculer, mais il était trop tard. Son âme originelle entière fut engloutie par la faille en arc et, lorsque celle-ci disparut, l'âme du vieillard s'évanouit avec elle.
 
 Wang Lin s'arrêta brusquement. Il réfléchit en silence, puis leva la tête pour scruter l'horizon. Après ce cycle d'effondrement, la Tombe de Suzaku était devenue extrêmement instable. S'il commettait la moindre erreur, il pourrait mourir; il commença donc à hésiter.
 
@@ -52,9 +52,9 @@ L'individu réfléchit un moment, puis ses yeux s'illuminèrent avant qu'il ne s
 
 Ses yeux devinrent froids alors qu'il murmurait: « Je me demande comment va mon vieil ami, le Saint de l'Épée Ling Tianhou, sur la planète Tian Yun. Je devrais aller le voir. Peut-être pourrai-je lui demander de m'aider à régler mon compte avec Situ Nan et à découvrir l'emplacement de cette perle mystérieuse. »
 
-À cet instant précis, ses yeux brillèrent, puis il regarda au loin et déclara: « Même à l'époque, tu aimais cacher ta tête tout en laissant dépasser ta queue. Ça fait longtemps, Po Jun! »
+À cet instant précis, ses yeux brillèrent, puis il regarda au loin et déclara: « Même à l'époque, tu aimais te cacher, tête comme queue. Ça fait longtemps, Po Jun! »
 
-Un rire rauque résonna dans le vide. Peu après, le ciel s'obscurcit. Une masse colossale d'eau de mer apparut dans les airs et s'approcha telle une charge de dix mille cavaliers.
+Un rire rauque résonna dans le vide. Peu après, le ciel s'obscurcit. Une masse colossale d'eau de mer apparut dans les airs et s'approcha en rugissant, avec une force écrasante.
 
 Un homme vêtu d'une robe bleue se tenait au sommet des vagues et avançait pas à pas.
 
@@ -78,7 +78,7 @@ Dans la mer de sang, aux profondeurs des terres du Dieu Ancien, sur l'unique pil
 
 « Au fil des ans, je pouvais sentir un pouvoir mystérieux croître au cœur de cette planète. Ce pouvoir ressemble à la croissance d'un jeune Dieu Ancien; c'est ce que vos cultivateurs appellent le Cristal de Planète de Culture. Je peux utiliser cet objet pour briser mon sceau, puis employer une technique d'échange d'âme pour quitter ce lieu. »
 
-« Je devrai remercier Tu Si. Lorsqu'il a choisi cet endroit pour diviser sa conscience, certains indigènes l'ont élevé au rang de dieu. Tout cela est consigné dans ce dernier cristal de connaissance. Tu Si leur a répondu en leur offrant les anciens lieux sacrificiels du Dieu Ancien. »
+« Je devrai remercier Tu Si. Lorsqu'il a choisi cet endroit pour diviser sa conscience, certains indigènes l'ont élevé au rang de dieu. Tout cela est consigné dans ce dernier cristal de connaissance. Tu Si leur a répondu et leur a fait établir les lieux sacrificiels du Dieu Ancien. »
 
 « Bien que des éons aient passé et que cette race indigène ait disparu, le dernier bastion du Clan des Immortels Délaissés est le dernier des anciens lieux sacrificiels du Dieu Ancien. Si je m'y rends, je pourrai utiliser certains de mes sorts. »
 
@@ -90,7 +90,7 @@ Tuo Sen leva la tête et éclata de rire. Son rire emplissait toute la mer de sa
 
 Ses yeux brillaient d'un rouge intense. Cette lueur semblait bien plus épaisse que le sang de la mer elle-même.
 
-« Wang Lin, le jour où je, Tuo Sen, m'échapperai est proche! Une fois que je t'aurai dévoré, je serai un Dieu Ancien, un Dieu Ancien à huit étoiles! À ce moment-là, qui dans ce système pourra rivaliser avec moi?! »
+« Wang Lin, le jour où je, Tuo Sen, m'échapperai est proche! Une fois que je t'aurai dévoré, je serai un Dieu Ancien, un Dieu Ancien à huit étoiles! À ce moment-là, qui dans ce ciel étoilé pourra rivaliser avec moi?! »
 
 Alors que Tuo Sen riait, des petits cris s'élevèrent de la mer de sang. Deux petits singes apparurent et se glissèrent aux côtés de Tuo Sen.
 
@@ -102,7 +102,7 @@ Lorsque le petit singe poussa un cri, le vieil homme marqua une pause et regarda
 
 « Il est là! » Le vieil homme s'apprêtait à bouger quand le singe sur son épaule laissa échapper un grognement.
 
-Mais le vieillard hésita un instant avant de se retourner. Son objectif était le centre de la Tombe de Suzaku.
+Mais le vieillard hésita un instant avant de faire demi-tour et de partir. Son objectif était le centre de la Tombe de Suzaku.
 
 Tandis que le vieil homme s'éloignait, le petit singe scruta devant lui et ses yeux rougeoyèrent.
 

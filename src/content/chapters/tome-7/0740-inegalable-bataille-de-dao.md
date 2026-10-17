@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 740 - Peerless, Battle of Dao
 slug: inegalable-bataille-de-dao
 ---
-Les paroles de Xu Fenghan furent interrompues par la disparition du javelot.
+Les paroles de Xu Fenghan furent interrompues par la dissipation de la lance du dragon d'encre.
 
 Alors que sa silhouette élancée émergeait de la poussière, son visage était pâle et son état quelque peu pitoyable. Ses yeux étaient froids, empreints d'une intention meurtrière dévastatrice.
 
@@ -20,7 +20,7 @@ Cependant, il ne pouvait que blesser, et non tuer, un cultivateur de l'étape Yi
 
 Wang Lin fixait la flamme de lotus démoniaque qui surplombait la tête de Xu Fenghan.
 
-Xu Fenghan prit une profonde inspiration, pointa le ciel de sa main droite et dit d'un ton sinistre: « Même si tu possèdes cette marionnette, grâce au Dao de mon lotus démoniaque formé lors de mon passage à l'étape Yin Illusoire, tu seras réduit en cendres! »
+Xu Fenghan prit une profonde inspiration, pointa le ciel de sa main droite et dit d'un ton sinistre: « Même si tu possèdes cette marionnette, sous le lotus démoniaque formé par mon Dao lors de mon passage à l'étape Yin Illusoire, tu seras réduit en cendres! »
 
 « Dao du Lotus Démoniaque, première rotation! »
 
@@ -50,7 +50,7 @@ Xu Fenghan hurla: « Flamme démoniaque, brûle! » Le vortex de flammes se dét
 
 Le vortex tournait à une vitesse folle, générant un vent chargé d'une chaleur intense. Cette tempête se referma rapidement sur Wang Lin.
 
-Les yeux de Wang Lin projetèrent un éclat doré. Cette bataille était son premier combat mortel depuis qu'il avait atteint le sommet de la phase tardive de l'Ascendant. Alors que les flammes démoniaques approchaient, Wang Lin leva la main et cria: « Deuxième capacité, Condensation de l'Âme du Fleuve! »
+Les yeux de Wang Lin lancèrent un éclat perçant. Cette bataille était son premier combat mortel depuis qu'il avait atteint le sommet de la phase tardive de l'Ascendant. Alors que les flammes démoniaques approchaient, Wang Lin leva la main et cria: « Deuxième capacité, Condensation de l'Âme du Fleuve! »
 
 La rivière des enfers trembla instantanément et tout le ressentiment qu'elle contenait se condensa. Ce ressentiment était d'une puissance inouïe; il s'agissait de toute la rancœur que Wang Lin avait recueillie auprès des mortels de la planète Qing Lin. Tous ces griefs fusionnèrent pour former une masse de douleur monstrueuse.
 

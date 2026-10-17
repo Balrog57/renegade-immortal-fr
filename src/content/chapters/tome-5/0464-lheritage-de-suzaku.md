@@ -14,7 +14,7 @@ Wang Lin serra les dents et tendit la main pour saisir le cristal afin de l'éje
 
 Surpris un instant, ses yeux s'illuminèrent et il reprit sa fuite sans aucune hésitation.
 
-Mais à cet instant précis, une puissance mystérieuse émanant du cristal pénétra le bras de Wang Lin. Cette énergie traversa son corps jusqu'à son cerveau, où elle explosa en une avalanche d'informations.
+Mais à cet instant précis, une puissance mystérieuse émanant du cristal pénétra le bras de Wang Lin. Cette énergie traversa son corps jusqu'à son cerveau, où elle explosa avec fracas.
 
 D'étranges symboles apparurent un à un dans son esprit.
 
@@ -90,7 +90,7 @@ Parallèlement à la lumière rouge, les symboles quittèrent l'esprit de Wang L
 
 En ressentant ce symbole, Wang Lin comprit.
 
-Pour extraire son fragment d'âme du Cristal de la Planète de Culture, il fallait en échanger une vie. La seule autre option consistait à attendre que son fragment soit absorbé par l'une de ces formes de vie, puis à se battre pour le récupérer. Toutefois, trouver son propre fragment parmi l'océan infini de fragments dans la tombe de Suzaku était une chose qui ne pouvait être forcée; cela dépendait uniquement de la chance.
+Pour extraire son fragment d'âme du Cristal de la Planète de Culture, il fallait en échanger une vie. La seule autre option consistait à attendre que son fragment soit absorbé par l'une de ces formes de vie, puis à tuer cette créature pour le récupérer. Toutefois, trouver son propre fragment parmi l'océan infini de fragments était une chose qui ne pouvait être forcée; cela dépendait uniquement de la chance.
 
 À cet instant, le corps de Wang Lin émergea de la mer. Yun Quezi le suivait de près, tandis que le petit singe possédé par Tuo Sen avait disparu sans laisser de trace.
 
@@ -112,7 +112,7 @@ La poupée de bronze absorba tout le sang. Elle commença alors à émettre une 
 
 Yun Quezi s'arrêta brusquement et fixa la poupée d'un regard sombre.
 
-D'une voix pesante, Yunque dit: « Zhu Quezi! »
+D'une voix pesante, Yun Quezi dit: « Zhu Quezi! »
 
 Au moment où il prononça ces mots, le corps de Qian Feng se mit à trembler violemment et des filaments de lumière blanche s'échappèrent de ses orifices, hors de son contrôle. Cette lumière fut aussitôt absorbée par la poupée de bronze.
 
@@ -126,7 +126,7 @@ Le Zhu Quezi actuel n'était plus aussi vieux, mais il paraissait plus vibrant d
 
 Zhu Quezi pressa soudainement le cristal contre son front, et celui-ci fusionna avec son corps.
 
-L'expression d'Yun Quezi était lugubre. Il laissa échapper un reniflement méprisant et agita la main. Un à un, des tatouages apparurent, dégageant une aura terrifiante.
+L'expression d'Yun Quezi était lugubre. Il laissa échapper un reniflement méprisant et agita la main. Un à un, des glyphes apparurent, dégageant une aura terrifiante.
 
 Zhu Quezi éclata de rire, puis, dans un mouvement brusque, son corps émit une immense quantité de brume rouge. Cette brume se propagea violemment, enveloppant Yun Quezi ainsi que tout ce qui se trouvait dans un rayon de cinq kilomètres.
 
@@ -138,4 +138,4 @@ Zhu Quezi ne remarqua pas qu'en se propageant, la brume rouge avait permis au pe
 
 À l'extérieur du périmètre, les cinq autres personnes observaient la scène. Il s'agissait de Qian Feng, Liu Mei, Zhou Wutai, Zi Xin et, enfin, Wang Lin.
 
-Les yeux de Wang Lin étaient empreints d'une intention meurtrière. Sa main s'étira et le drapeau des mille millions d'âmes apparut dans sa paume. Il fixa Qian Feng et Liu Mei et déclara d'un ton lent: « Acceptez votre mort! »
+Les yeux de Wang Lin étaient empreints d'une intention meurtrière. Sa main s'étira et le drapeau des âmes d'un milliard apparut dans sa paume. Il fixa Qian Feng et Liu Mei et déclara d'un ton lent: « Acceptez votre mort! »

@@ -14,7 +14,7 @@ Le temps s'écoula rapidement et, en un clin d'œil, des mois passèrent. À mes
 
 Une fois arrivés sur place, ils ne virent plus aucun autre cultivateur. L'endroit était plongé dans une obscurité totale et ne laissait présager aucune présence.
 
-Suspendu dans le vide, Wang Lin observa attentivement les environs. Dans les souvenirs du membre de la famille Yao, le fragment scellé contenant le Pavillon des Collections se trouvait précisément ici!
+Suspendu dans le vide, Wang Lin observa attentivement les environs. Dans les souvenirs du vieillard de la famille Yao, le fragment scellé contenant le Pavillon des Collections se trouvait précisément ici!
 
 Wang Lin demanda: « Frère Li, percevez-vous une anomalie en ce lieu? »
 
@@ -66,7 +66,7 @@ Le corps de Wang Lin apparut sur le fragment avec la rapidité de la foudre. Dè
 
 Dès que son Sens Divin se propagea, il verrouilla le pavillon central. À cet instant, l'un des quatre individus sur le pavillon ouvrit les yeux. Il lança un regard glacial vers l'horizon, puis disparut.
 
-Wang Lin se déplaça avec une célérité extrême pour charger directement vers le pavillon. Une ondulation d'énergie originelle apparut devant lui, et un homme en sortit. C'était un quadragénaire vêtu d'une robe noire. Son visage était empreint de froideur et, dès qu'il fut visible, il forma un sceau et l'écrasa vers le bas.
+Wang Lin se déplaça avec une célérité extrême pour charger directement vers le pavillon. Une ondulation d'énergie originelle apparut devant lui, et un homme en sortit. C'était un homme d'âge mûr vêtu d'une robe noire. Son visage était empreint de froideur et, dès qu'il fut visible, il forma un sceau et l'écrasa vers le bas.
 
 « Je vous observe depuis longtemps. Pour avoir violé ce lieu interdit, mourez! »
 
@@ -142,8 +142,8 @@ Les yeux du cultivateur furent envahis par la panique et sa main droite devint i
 
 Bien qu'il eût amputé son propre bras, la grisaille ne disparut pas et se propagea depuis sa main gauche. Ses yeux étaient remplis de désespoir alors qu'il serrait les dents. Au moment où le gris recouvrit presque tout son corps, son âme originelle s'échappa, abandonnant son enveloppe charnelle.
 
-Au moment où l'âme partait, son corps entier se mua en une statue de pierre sans la moindre trace de vitalité. Dans les airs, seule restait son âme originelle affaiblie.
+Au moment où l'âme partait, toute son âme originelle se mua en une statue de pierre sans la moindre trace de vitalité. Dans les airs, seule restait son âme originelle, solitaire et désolée.
 
 Les environs étaient tombés dans un silence de mort...
 
-« Je vais vous poser une question à tous les quatre: suis-je qualifié? » Le regard de Wang Lin se posa sur les deux cultivateurs qui résistaient encore au sceau, et sa voix était glaciale.
+« Je vais vous poser une question à vous tous: suis-je qualifié? » Le regard de Wang Lin se posa sur les deux cultivateurs qui résistaient encore au sceau, et sa voix était glaciale.

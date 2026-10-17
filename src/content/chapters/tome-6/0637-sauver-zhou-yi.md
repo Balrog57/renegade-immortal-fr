@@ -18,21 +18,21 @@ Puis Zhou Yi devint l'esprit de l'Épée Céleste de la Pluie, mais l'âme rési
 
 Son cœur mourut et son énergie d'épée perdit toute vitalité. Utilisant son corps comme esprit de l'épée, il traqua Ling Tianhou à travers le vide et jura de le tuer! Lui, à cet instant précis, cherchait la mort car son unique attachement à la vie s'était envolé...
 
-Wang Lin avait été témoin de la cruauté du monde de la culture tout au long de sa vie. Presque chacun cachait des desseins obscurs dans son cœur. Seules quelques personnes méritaient qu'il se souvienne d'elles... Situ Nan, Dun Tian [1. Chef de la Secte du Affinement de l'Âme], Chi Hu [2. Membre du Clan du Démon Géant qui s'était lié d'amitié avec Wang Lin dans le royaume céleste], Zhou Yi...
+Wang Lin avait été témoin de la cruauté du monde de la culture tout au long de sa vie. Presque chacun cachait des desseins obscurs dans son cœur. Seules quelques personnes méritaient qu'il se souvienne d'elles... Situ Nan, Dun Tian, Chi Hu, Zhou Yi...
 
 À l'époque, il n'était qu'au stade de la Formation de l'Âme. Devant Zhou Yi, il n'était qu'un humble junior, mais aujourd'hui, Wang Lin atteignait le stade Ascendant!
 
 Il poussa un profond soupir et s'élança dans la brèche!
 
-Bien qu'il sût que certains chemins étaient périlleux, en tant qu'homme conscient, il y avait des choses qu'il se devait d'accomplir!
+Bien qu'il sût que certains chemins étaient périlleux, en tant qu'homme habité par une obsession, il y avait des choses qu'il se devait d'accomplir!
 
-Autrefois, lorsqu'il sauva Treize, il combattit seul le général démon. Aujourd'hui, pour sauver Zhou Yi, il ne s'arrêterait pas, même si le Saint de l'Épée Ling Tianhou le surveillait de son Sens Divin!
+Autrefois, lorsqu'il sauva Treize, il combattit seul le général démon. Aujourd'hui, pour sauver Zhou Yi, il ne s'arrêterait pas, même si le Sens Divin du Saint de l'Épée Ling Tianhou y subsistait!
 
 Au moment où il pénétra dans la brèche, le Sens Divin laissé par le Saint de l'Épée Ling Tianhou se précipita sur lui avec une nature tyrannique. L'attaque du Sens Divin sembla se solidifier à mesure qu'elle approchait.
 
 Ce Sens Divin tyrannique était comme une épée acérée capable de percer les cieux, et elle fondit directement sur Wang Lin.
 
-La défense la plus externe de Wang Lin, l'étendard de l'âme, poussa un rugissement alors que cent millions de fragments d'âmes se rassemblaient pour former un bouclier afin de parer l'épée.
+La défense la plus externe de Wang Lin, le drapeau de l'âme, poussa un rugissement alors que cent millions de fragments d'âmes se rassemblaient pour former un bouclier afin de parer l'épée.
 
 Cependant, le Sens Divin de Ling Tianhou était trop puissant! Le bouclier formé par les cent millions de fragments fut transpercé par l'épée, qui continua sa course vers Wang Lin.
 
@@ -40,15 +40,15 @@ Cependant, le Sens Divin de Ling Tianhou était trop puissant! Le bouclier form�
 
 Dans la vie d'un homme, il y a des choses qu'il doit faire. Si on ne les fait pas, alors même si l'on vit dix mille ans, on ne verra en regardant en arrière que du chaos!
 
-La détermination de Wang Lin se mua en résolution et il fit un autre pas. À cet instant, l'intention d'épée issue du Sens Divin de Ling Tianhou se referma sur lui.
+La détermination de Wang Lin se mua en résolution et il fit un autre pas. À cet instant, l'épée formée par le Sens Divin de Ling Tianhou gagna en puissance et fondit sur lui.
 
 Sans un mot, Wang Lin agita sa main droite et des symboles dorés se condensèrent instantanément autour de lui. L'intention d'épée frappa le corps de Wang Lin. Des éclairs blancs bondissaient entre les insectes gravés sur les symboles dorés entourant son corps. Il fit un nouveau pas en avant, sans la moindre hésitation!
 
-Plus de la moitié des insectes autour de lui se figèrent et tombèrent des symboles dorés. Wang Lin agita ses manches et les ramassa dans sa sacoche de rangement.
+Plus de la moitié des insectes autour de lui se figèrent et tombèrent des symboles dorés. Wang Lin agita ses manches et les ramassa dans son sac de rangement.
 
 Ce pas déclencha un Sens Divin plusieurs fois plus intense que le précédent. Une série de rugissements tonitruants résonna dans la brèche de la falaise. Les innombrables échos fusionnèrent pour sonner comme la colère des cieux voulant la mort de tout intrus!
 
-Les fragments d'âmes de l'étendard de l'âme furent incapables de les bloquer. Ils furent brisés une fois de plus et l'attaque frappa directement l'armure démoniaque.
+Les fragments d'âmes du drapeau de l'âme furent incapables de les bloquer. Ils furent brisés une fois de plus et l'attaque frappa directement l'armure démoniaque.
 
 À cet instant, l'énergie démoniaque de l'armure s'effondra et Wang Lin sentit une force inimaginable percuter son corps. Il eut la sensation que s'il ne reculait pas, il s'écroulerait et mourrait sur le coup!
 
@@ -56,23 +56,23 @@ Cependant, un sentiment n'était qu'un sentiment; grâce à sa maîtrise de soi,
 
 Wang Lin n'avait pas encore totalement solidifié l'empreinte sur ce démon dispersé, il ne l'avait donc pas raffiné en son second esprit originel. Après sa libération, une âme démoniaque noire à corne unique jaillit du front de Wang Lin. Elle sortit en riant, un rire empreint d'énergie démoniaque. Ses yeux étaient emplis de confusion alors qu'elle tentait de dévorer l'énergie d'épée de Ling Tianhou.
 
-Au moment où l'âme démoniaque apparut, une énergie démoniaque jamais vue par Wang Lin jaillit sans fin de l'armure. Cette énergie fut absorbée par le démon, faisant lentement prendre un aspect corporel à son corps.
+Au moment où l'âme démoniaque apparut, une énergie démoniaque jamais vue par Wang Lin jaillit sans fin de l'armure. Cette énergie fut absorbée par le démon, faisant aussitôt prendre un aspect corporel à son corps.
 
 Il dévora le Sens Divin de Ling Tianhou, puis une aura violente explosa en lui. Un domaine tyrannique commença à ravager l'intérieur de son corps. Le démon poussa un rugissement, et une pointe de clarté apparut dans son expression tourmentée.
 
 À cet instant précis, l'esprit originel de Wang Lin trembla en percevant l'instabilité de l'âme démoniaque. Sans hésiter, il projeta un fragment de Sens Divin dans l'âme démoniaque pour activer l'empreinte. Bien que celle-ci ne fût pas stable, elle avait été gravée durant les cent dernières années.
 
-Une fois activée, l'âme démoniaque fut immédiatement aspirée dans le corps de Wang Lin. Le son était étouffé, comme quelqu'un récitant un sortilège. Même l'armure démoniaque entourant Wang Lin sembla affectée, se transformant en une brume noire et perdant sa consistance solide. Wang Lin la remit rapidement dans sa sacoche de rangement. Il fit aussitôt un autre pas, et cette fois, il avança de trente-trois mètres!
+Une fois activée, l'âme démoniaque fut immédiatement aspirée dans le corps de Wang Lin. Même l'armure démoniaque entourant Wang Lin sembla affectée, se transformant en filaments noirs et perdant sa consistance solide. Wang Lin la remit rapidement dans son sac de rangement. Il fit aussitôt un autre pas, et cette fois, il avança de trente-trois mètres!
 
 Cependant, un troisième Sens Divin, encore plus intense que les précédents, jaillit des profondeurs de la brèche. Il gronda comme le tonnerre et semblait même porter la voix de Ling Tianhou.
 
-Le son était étouffé, tel le murmure d'un incantatoire.
+Cette voix, basse, était comme une incantation murmurée.
 
-L'étendard de l'âme n'était pas assez puissant pour résister, et l'armure démoniaque avait disparu. Il ne restait que les cent mille sceaux de vie. Au moment où l'impact du troisième Sens Divin survint, les cent mille sceaux de vie se mirent à gonfler rapidement jusqu'à atteindre un million. Profitant de cette expansion soudaine, ils purent bloquer le Sens Divin de Ling Tianhou. Cependant, en un instant, le million de sceaux s'effondra.
+Le drapeau de l'âme n'était pas assez puissant pour résister, et l'armure démoniaque avait disparu. Il ne restait que les cent mille sceaux de vie. Au moment où l'impact du troisième Sens Divin survint, les cent mille sceaux de vie se mirent à gonfler rapidement jusqu'à atteindre un million. Profitant de cette expansion soudaine, ils purent bloquer le Sens Divin de Ling Tianhou. Cependant, en un instant, le million de sceaux s'effondra.
 
-Les veines du visage de Wang Lin saillirent alors qu'il poussait un rugissement et frappait sa sacoche de rangement. Le Char de Guerre Divin s'en échappa et se transforma en la Bête de Tonnerre!
+Les veines du visage de Wang Lin saillirent alors qu'il poussait un rugissement et frappait son sac de rangement. Le Char de Guerre Divin s'en échappa et se transforma en la Bête de Tonnerre!
 
-La bête poussa un cri, rejoignit Wang Lin et percuta le Sens Divin. Le tonnerre entourant la bête commença à crépiter.
+La bête poussa un cri, surgit devant Wang Lin et percuta le Sens Divin. Le tonnerre entourant la bête commença à crépiter.
 
 Le corps de la Bête de Tonnerre libéra une quantité massive d'éclairs tout en étant repoussé par le Sens Divin de Ling Tianhou.
 
@@ -82,13 +82,13 @@ Wang Lin fit un pas en avant et activa le Doigt de la Mort dans sa main. L'éner
 
 Les lueurs noires créées par les Doigts de la Mort s'élancèrent comme des flèches, laissant des ondulations derrière elles lorsqu'elles frappèrent le Sens Divin de Ling Tianhou.
 
-Wang Lin fit un autre pas et pointa à nouveau vers l'avant. Le Doigt Démoniaque apparut, et l'énergie spirituelle céleste dans son corps jaillit. Grâce aux quatre gouttes de liquide céleste obtenues autrefois, bien qu'il n'utilisât aucun jade céleste, son énergie spirituelle semblait infinie, à l'instar de l'énergie de massacre.
+Wang Lin fit un autre pas et pointa à nouveau vers l'avant. Le Doigt Démoniaque apparut, et l'énergie spirituelle céleste dans son corps jaillit. Grâce aux quatre gouttes de liquide céleste obtenues autrefois, bien qu'il n'utilisât aucun jade céleste, son énergie spirituelle semblait infinie, à l'instar des sceaux de vie.
 
 À cet instant, l'énergie spirituelle céleste dans son corps se mua en énergie démoniaque et, grâce au démon dispersé, cette énergie était d'une pureté extrême. Cette puissance jaillit du doigt de Wang Lin.
 
 Ce ne fut pas un seul coup, mais dix!
 
-Peu après, Wang Lin leva la main droite et la rivière des enfers apparut. Il fit plusieurs pas supplémentaires tandis que tous ses sorts se manifestaient pour bombarder le Sens Divin de Ling Tianhou.
+Peu après, Wang Lin leva la main droite et la rivière des enfers apparut. Il marcha dessus et fit plusieurs pas supplémentaires tandis que tous ses sorts se manifestaient pour bombarder le Sens Divin de Ling Tianhou.
 
 Wang Lin sentait toujours que sa puissance était insuffisante, et ses yeux devinrent froids. Le million de sceaux de vie se transformèrent tous en énergie de massacre; seul celui caché dans son esprit originel resta intact. Ils fusionnèrent en un seul filament d'énergie de massacre et chargèrent!
 
@@ -98,7 +98,7 @@ Quant à l'énergie d'épée de Ling Tianhou, Wang Lin n'était pas assez stupid
 
 Tous les sorts entrèrent soudainement en collision avec le Sens Divin de Ling Tianhou. Au même moment, la Bête de Tonnerre poussa un rugissement fracassant et se transforma en un rayon de foudre. Elle chargea directement le Sens Divin de Ling Tianhou, portée par les sortilèges de Wang Lin.
 
-Une série de sons étouffés émana de l'entrée de l'Abîme des Marées, dans le Pays des Démons Aquatiques. Le sol tremblait sans cesse, comme traversé par de puissantes ondes sonores.
+Une série de sons étouffés émana de l'entrée de l'Abîme des Marées, dans le Pays des Démons de l'Eau. Le sol tremblait sans cesse, comme traversé par de puissantes ondes sonores.
 
 À cet instant, même Murong Zhuo, qui se trouvait plus profondément dans l'Abîme des Marées, ressentit les fluctuations terrifiantes au-dessus de lui. Quant aux deux femmes à ses côtés, elles levèrent rapidement les yeux, le regard empreint de terreur.
 
@@ -108,14 +108,14 @@ La puissante ondulation continua de se propager le long des parois de l'Abîme d
 
 Les couloirs au fond de l'Abîme des Marées formaient un carré avec un trou noir au centre, menant vers l'inconnu.
 
-Une épée massive était plantée à mi-chemin dans le mur d'un couloir. Au moment où l'onde sonore atteignit l'épée, celle-ci se desserra légèrement.
+Une épée massive était à moitié enfoncée dans le sol d'un couloir. Au moment où l'onde sonore atteignit l'épée, celle-ci se desserra légèrement.
 
-L'onde se propagea loin en résonnant dans le corridor. À cet instant, à la sortie du Pays des Démons de Feu, là où Cupidité et les disciples de la Secte de l'Épée Da Lou étaient piégés par les bêtes moustiques et le brouillard noir, Cupidité ouvrit soudainement les yeux, le regard brillant.
+L'onde se propagea loin en résonnant dans le corridor. À cet instant, à la sortie du Pays des Démons de Feu, là où Cupidité et les disciples de la Secte de l'Épée Da Luo étaient piégés par les bêtes moustiques et le brouillard noir, Cupidité ouvrit soudainement les yeux, le regard brillant.
 
 « L'aura de Ling Tianhou! Serait-il arrivé plus tôt... Non, bien que cette aura appartienne à Ling Tianhou, ce n'en est qu'une partie... En plus de la sienne, il y a une autre aura... Cette seconde aura m'est inconnue, mais pour apparaître à un moment pareil, serait-ce à cause du jeton... »
 
-Cupidité sembla nonchalant alors qu'il balaya les disciples de la Secte de l'Épée Da Lou du regard avant de refermer les yeux.
+Cupidité sembla nonchalant alors qu'il balaya les disciples de la Secte de l'Épée Da Luo du regard avant de refermer les yeux.
 
 Lorsque les ondulations arrivèrent ici, elles étaient déjà très faibles. Hormis Cupidité, personne d'autre ne s'en aperçut.
 
-Dans la Secte de l'Épée Da Lou, Ling Tianhou, vêtu d'une robe de taoïste et en pleine méditation, ouvrit soudainement les yeux...
+Dans la Secte de l'Épée Da Luo, Ling Tianhou, vêtu d'une robe de daoïste et en pleine méditation, ouvrit soudainement les yeux...

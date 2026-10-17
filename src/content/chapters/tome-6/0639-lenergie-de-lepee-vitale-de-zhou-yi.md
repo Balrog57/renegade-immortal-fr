@@ -23,13 +23,13 @@ Cette énergie d'épée se dissipa, mais se reforma en une sphère de lumière q
 
 « Tu devrais partir... » Zhou Yi ne regarda toujours pas Wang Lin. Il referma les yeux.
 
-L'âme originelle de Wang Lin avait subi de graves blessures pour parvenir jusqu'ici, et il n'avait désormais même plus la force de s'enfuir. Son âme originelle n'était plus que de la taille d'un nourrisson, et son corps autrefois cristallin était devenu trouble.
+L'âme originelle de Wang Lin avait subi de graves blessures pour parvenir jusqu'ici, et il n'avait désormais même plus la force de quitter son corps. Son âme originelle n'était plus que de la taille d'un nourrisson, et son corps autrefois cristallin était devenu trouble.
 
 Il avait utilisé tous ses sorts et toutes ses ressources pour atteindre ce point, car Zhou Yi était son bienfaiteur. Pourtant, après tant d'efforts, il ne reçut que ces trois mots simples de la part de Zhou Yi.
 
 « Tu devrais partir... »
 
-Wang Lin esquissa un sourire épais et moqueur. Ce sourire n'était pas destiné à autrui, mais à lui-même.
+Wang Lin esquissa un profond sourire moqueur. Ce sourire n'était pas destiné à autrui, mais à lui-même.
 
 « Votre cœur est déjà mort, je n'aurais effectivement pas dû venir! » Wang Lin secoua la tête et se détourna pour partir. Dès l'instant où il était entré ici et avait perdu six parties de son âme originelle, il avait déjà remboursé sa dette envers Zhou Yi.
 
@@ -37,7 +37,7 @@ Wang Lin esquissa un sourire épais et moqueur. Ce sourire n'était pas destiné
 
 Durant les centaines d'années où il fut scellé par Ling Tianhou, il était resté dans un état de confusion constante. Il avait connaissance de l'invasion du démon antique, mais ne souhaitait pas l'arrêter. Cependant, la lumière dorée représentait son amour pour Ting Er, et il ne voulait pas s'en défaire.
 
-Après avoir soupiré, Zhou Yi leva sa main droite, devenue totalement violette, et fit claquer ses doigts. Un rayon de lumière dorée apparut soudainement, chargé d'une énergie d'épée extrêmement puissante. C'était la même énergie qui avait plongé Ling Tianhou dans un tel état pitoyable. C'était l'énergie vitale de l'Épée Céleste de la Pluie! Zhou Yi ne possédait plus que 99 rayons de cette énergie d'épée!
+Après avoir soupiré, Zhou Yi leva sa main droite, devenue totalement violette, et donna une chiquenaude vers l'avant. Un rayon de lumière dorée apparut soudainement, chargé d'une énergie d'épée extrêmement puissante. C'était la même énergie qui avait plongé Ling Tianhou dans un tel état pitoyable. C'était l'énergie vitale de l'Épée Céleste de la Pluie! Zhou Yi ne possédait que 99 rayons de cette énergie d'épée!
 
 Lorsqu'il chassait Ling Tianhou, il avait consommé la majeure partie de son énergie vitale. Il ne lui restait désormais plus que quatre rayons!
 
@@ -89,7 +89,7 @@ Le Zhou Yi actuel semblait avoir oublié que Ting Er n'était qu'un fragment d'�
 
 « Dispersez-vous! » Ses yeux s'illuminèrent et le gaz violet qui l'entourait entama immédiatement une lutte désespérée pour répliquer. Cependant, cela fut vain et le gaz fut promptement expulsé du corps de Zhou Yi. Bientôt, toute la brume violette fut chassée et la vaste nuée disparut à travers la formation au sol.
 
-Zhou Yi était l'esprit de l'Épée Céleste de la Pluie. Si l'ancien démon du Pays des Démons Aquatiques venait en personne, Zhou Yi n'aurait peut-être aucune chance, car il ne lui restait que trois énergies d'épée vitales.
+Zhou Yi était l'esprit de l'Épée Céleste de la Pluie. Si l'ancien démon du Pays des Démons de l'Eau venait en personne, Zhou Yi n'aurait peut-être aucune chance, car il ne lui restait que trois énergies d'épée vitales.
 
 Cependant, expulser simplement l'énergie spirituelle démoniaque de l'ancien démon n'était pas une tâche difficile pour lui.
 
@@ -101,7 +101,7 @@ En tant qu'esprit de l'Épée Céleste de la Pluie, son corps se transforma en u
 
 Au même moment, les trois dernières sphères de lumière s'envolèrent dans les airs. Elles se changèrent en sens divin et foncèrent sur Zhou Yi.
 
-Un ricanement glacial émana de l'épée et un rayon de l'énergie vitale de Zhou Yi jaillit. Un bruit assourdissant résonna soudainement dans tout le Gouffre des Marées, comme si cette énergie d'épée féroce voulait trancher l'abîme lui-même.
+Un reniflement froid émana de l'épée et un rayon de l'énergie vitale de Zhou Yi jaillit. Un bruit assourdissant résonna soudainement dans tout l'Abîme des Marées, comme si cette énergie d'épée féroce voulait trancher l'abîme lui-même.
 
 Les trois sphères de lumière furent instantanément brisées et dévorées par Zhou Yi. Quant aux projections des quatre épées au sol, elles furent également pulvérisées par l'énergie vitale. La formation s'effondra avec les épées.
 
@@ -121,9 +121,9 @@ Wang Lin acquiesça. Il saisit la pagode et la rangea dans son sac de rangement.
 
 Le regard de Zhou Yi se posa sur Wang Lin avec une pointe de gratitude. Il dit: « Atteindre ce stade en seulement quelques centaines d'années est digne de félicitations! »
 
-Wang Lin soupira et répondit: « Grâce au Senior pour le Cristal d'Ascension. Sinon... » Wang Lin secoua la tête sans poursuivre.
+Wang Lin soupira et répondit: « Grâce au Senior pour le Cristal Ascendant. Sinon... » Wang Lin secoua la tête sans poursuivre.
 
-« Le Cristal d'Ascension était ta récompense pour avoir veillé sur Ting Er, nul besoin de me remercier. Si quelqu'un doit exprimer sa gratitude, c'est moi... Je ne pensais pas que nous nous reverrions après tant de siècles. Avec le recul, si tu n'avais pas été aussi déterminé à me trouver, nous ne nous serions pas rencontrés aujourd'hui. » Voyant que Wang Lin voulait répliquer, Zhou Yi leva la main pour le faire taire. Il réfléchit un instant et demanda: « Wang Lin, je me souviens qu'il y avait deux épées célestes dans la pagode... As-tu toujours l'autre? »
+« Le Cristal Ascendant était ta récompense pour avoir veillé sur Ting Er, nul besoin de me remercier. Si quelqu'un doit exprimer sa gratitude, c'est moi... Je ne pensais pas que nous nous reverrions après tant de siècles. Avec le recul, si tu n'avais pas été aussi déterminé à me trouver, nous ne nous serions pas rencontrés aujourd'hui. » Voyant que Wang Lin voulait répliquer, Zhou Yi leva la main pour le faire taire. Il réfléchit un instant et demanda: « Wang Lin, je me souviens qu'il y avait deux épées célestes dans la pagode... As-tu toujours l'autre? »
 
 Wang Lin frappa son sac de rangement, et l'épée céleste où se trouvait Xu Liguo s'envola.
 

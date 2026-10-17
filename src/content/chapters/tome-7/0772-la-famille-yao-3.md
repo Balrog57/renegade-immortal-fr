@@ -6,13 +6,13 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 772 - Yao Family (3)
 slug: la-famille-yao-3
 ---
-Le jeune homme esquissa un léger sourire et dit: « Il va bientôt mourir, mais cet homme est plutôt doué pour avoir tenu treize jours. Les cultivateurs qui l'ont précédé n'ont tenu que huit jours! Vieux Oncle, attrape-moi un cultivateur de l'Yin Illusoire la prochaine fois, afin que je puisse jouer un peu plus longtemps. De cette façon, mes vers d'âme octaires mûriront plus vite. »
+Le jeune homme esquissa un léger sourire et dit: « Il va bientôt mourir, mais cet homme est plutôt doué pour avoir tenu treize jours. Les cultivateurs qui l'ont précédé n'ont tenu que huit jours! Oncle Chou, attrape-moi un cultivateur de l'Yin Illusoire la prochaine fois, afin que je puisse jouer un peu plus longtemps. De cette façon, mes vers dévoreurs d'âmes à huit faces mûriront plus vite. »
 
 L'expression du vieil homme resta neutre lorsqu'il répondit: « D'accord! » C'était un mot très simple, mais empreint d'une immense confiance.
 
-À côté du jeune homme, la belle femme cligna des yeux et sourit. « Cousin, combien d'épées cet homme possède-t-il encore? »
+À côté du jeune homme, la belle femme cligna des yeux et sourit. « Cousin, cet homme a encore quelques épées sur lui. »
 
-Le jeune homme rit et passa son bras autour de la taille de la femme. « Laisse tomber, ces neuf épées sont toutes à toi! Sans parler de ces neuf épées, il n'y a rien dans le Royaume Céleste du Tonnerre que je ne puisse obtenir si je le décide. Une fois que nous aurons extrait la source de ces épées de son âme originelle, nous pourrons faire un voyage là-bas. »
+Le jeune homme rit et passa son bras autour de la taille de la femme. « Je ne l'oublie pas, ces neuf épées sont toutes à toi! Sans parler de ces neuf épées, il n'y a rien dans le Royaume Céleste du Tonnerre que je ne puisse obtenir si je le décide. Une fois que nous aurons extrait la source de ces épées de son âme originelle, nous pourrons faire un voyage là-bas. »
 
 La femme sourit, affichant un regard charmeur. Sa voix était séduisante lorsqu'elle dit: « Puisque le cousin est un membre de la famille Yao, tu peux naturellement tout obtenir. »
 
@@ -38,7 +38,7 @@ Li Yuan frappa son sac de rangement et les trois épées restantes s'envolèrent
 
 « Impudent! » Le jeune homme ricana. Sa main droite s'avança et une main de sang apparut instantanément devant lui. D'une seule pression, il captura les trois épées volantes.
 
-Le visage de Li Yuan devint féroce. À l'instant où le jeune homme saisit les lames, Li Yuan forma un sceau de sa main droite et l'écrasa entre ses sourcils. Un rayon de lumière noire, aussi épais qu'un bras, jaillit de son front. Cette lumière se divisa immédiatement en d'innombrables lignes et, tandis que ses mains traçaient des sceaux, elles formèrent une restriction.
+Le visage de Li Yuan devint féroce. À l'instant où le jeune homme saisit les lames, Li Yuan forma un sceau de sa main gauche et l'écrasa entre ses sourcils. Un rayon de lumière noire, aussi épais qu'un bras, jaillit de son front. Cette lumière se divisa immédiatement en d'innombrables lignes et, tandis que ses mains traçaient des sceaux, elles formèrent une restriction.
 
 Dès leur apparition, ces restrictions se divisèrent en dix-huit segments qui entourèrent instantanément Li Yuan. Ce dernier cracha une large bouffée de sang qui vint s'écraser sur les restrictions.
 
@@ -54,7 +54,7 @@ Instantanément, les restrictions furent enserrées par l'énergie originelle et
 
 Le vieil homme frappa son sac de rangement pour faire apparaître un miroir antique et le pointa vers les lignes noires. Un éclair jaillit. C'était comme si le monde entier s'était obscurci, toute la lumière semblant se concentrer autour du miroir ancien. Les lignes noires s'effondrèrent aussitôt.
 
-Le corps de Li Yuan trembla et il cracha une nouvelle bouchée de sang. Il était imprégné d'une aura de mort. Il murmura: « Ce n'est pas que la restriction de ma famille Li soit défaillante, c'est que j'ai trop utilisé mon cœur de restriction pour aider le Frère Xu. Après cela, je n'ai pas eu le temps de le restaurer. Comment ce miroir brisé a-t-il pu arrêter les restrictions?! Cependant, le Frère Xu a énormément aidé ma famille, je ne le regrette pas! Si je dois mourir, alors je mourrai! »
+Le corps de Li Yuan trembla et il cracha une nouvelle bouchée de sang. Il était imprégné d'une aura de mort. Il murmura: « Ce n'est pas que la restriction de ma famille Li soit défaillante, c'est que j'ai trop épuisé ma restriction du cœur en aidant le Frère Xu et je n'ai pas eu le temps de la restaurer. Sinon, avec une restriction du cœur intacte, ce miroir antique briseur de restrictions n'aurait jamais réussi! Seulement, le Frère Xu a énormément aidé ma famille, je ne le regrette pas! Si je dois mourir, alors je mourrai! »
 
 Li Yuan esquissa un sourire misérable. À ce moment, le vieil homme s'avança et lui décocha un coup de pied sans même le regarder. Un craquement sinistre retentit alors que Li Yuan recrachait du sang avant de s'effondrer au sol, le regard éteint. Ce coup avait dispersé toute l'énergie spirituelle céleste restante dans son corps, le laissant incapable de riposter.
 
@@ -62,13 +62,13 @@ Li Yuan esquissa un sourire misérable. À ce moment, le vieil homme s'avança e
 
 Le jeune homme avait tout juste réussi à saisir les trois épées grâce à la perte de connexion de Li Yuan avec celles-ci. Il les récupéra et les tendit directement à la femme à ses côtés.
 
-Il fit un pas en avant, un sourire narquois aux lèvres: « Voyons exactement où tu as trouvé ces épées célestes! » Sa main droite s'abattit pour écraser Li Yuan.
+Il fit un pas en avant, un sourire narquois aux lèvres: « Voyons exactement où tu as trouvé ces épées célestes! » Sa main droite s'abaissa vers le crâne de Li Yuan.
 
 « Dépêche-toi, cousin », sourit la femme en observant la scène, ses yeux brillant d'un charme envoûtant tandis qu'elle jouait avec l'épée céleste dans sa main.
 
 Quant au vieil homme, son expression demeurait aussi calme que d'ordinaire.
 
-Mais soudain, alors que la main du jeune homme nommé Yao s'apprêtait à percuter Li Yuan, une ondulation apparut brusquement à ses côtés! Le visage du vieil homme, jusque-là imperturbable, changea radicalement. Il chargea en avant et hurla: « Jeune Maître, reculez! »
+Mais soudain, alors que la main du jeune homme nommé Yao s'apprêtait à se poser sur Li Yuan, une ondulation apparut brusquement à ses côtés! Le visage du vieil homme, jusque-là imperturbable, changea radicalement. Il chargea en avant et hurla: « Jeune Maître, reculez! »
 
 Le jeune homme fut pris de surprise.
 
@@ -92,7 +92,7 @@ Il ressemblait désormais à un être de sang flottant dans les airs, son corps 
 
 L'énergie originelle ne s'arrêta pas et continua sa rage dévastatrice. Chaque muscle fut détruit pouce par pouce et tous ses organes internes furent instantanément broyés!
 
-Et ce n'était pas fini. L'énergie originelle était d'une puissance si incommensurable qu'il était impossible de la mesurer. Après avoir ravagé les fondements internes, elle se précipita vers sa tête. Son crâne s'effondra avec son cerveau. À cet instant précis, la chair du jeune homme nommé Yao se désintégra totalement!
+Et ce n'était pas fini. L'énergie originelle était d'une puissance si incommensurable qu'il était impossible de la mesurer. Après avoir ravagé les organes internes, elle se précipita vers sa tête. Son crâne s'effondra avec son cerveau. À cet instant précis, la chair du jeune homme nommé Yao se désintégra totalement!
 
 Alors qu'il n'était qu'à mi-chemin de sa chute, son corps s'effondra, se désintégra et se dissipa.
 

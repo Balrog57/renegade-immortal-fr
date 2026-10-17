@@ -18,27 +18,27 @@ Wang Lin leva lentement la tête. Lorsqu'il se redressa, ses yeux projetèrent u
 
 « J'en ai accompli un tiers... » Les yeux de Wang Lin se posèrent sur Du Tian, assis dans un coin.
 
-Du Tian ouvrit les yeux et sourit: « Bien. Maintenant, suis-moi, je vais t'emmener voler quelques jades célestes. Bien que la guerre plonge tout dans le chaos, rien ne pourra arrêter cette tradition de ma Secte du Raffinement des Âmes. »
+Du Tian ouvrit les yeux et sourit: « Bien. Maintenant, suis-moi, je vais t'emmener voler quelques jades célestes. Bien que la guerre plonge tout dans le chaos, rien ne pourra arrêter cette tradition de ma Secte de l'Affinement de l'Âme. »
 
 Du Tian rit en déchirant l'espace devant lui, créant un vortex noir dans lequel il s'engouffra.
 
 Wang Lin esquissa un léger sourire et le suivit dans le vortex.
 
-Lorsqu'ils réapparurent, ils se trouvaient déjà dans le ciel, au-dessus de la Secte du Raffinement des Âmes. Du Tian, les mains derrière le dos, volait en avant sur un nuage.
+Lorsqu'ils réapparurent, ils se trouvaient déjà dans le ciel, au-dessus de la Secte de l'Affinement de l'Âme. Du Tian, les mains derrière le dos, volait en avant sur un nuage.
 
 En suivant tranquillement Du Tian, Wang Lin sentit à quel point l'énergie spirituelle céleste avait transformé son corps.
 
 Il ne restait plus beaucoup d'énergie spirituelle dans son organisme; la majeure partie avait été convertie en énergie spirituelle céleste. Cependant, il devait saturer son corps de cette essence pour atteindre le stade de la Transformation de l'Âme, ce qui exigeait encore une quantité immense de jades célestes.
 
-À l'ouest de Pilu se trouvait un essaim. C'était une terre de mort où l'on ne pouvait apercevoir aucune âme vivante dans un rayon de 10 000 kilomètres.
+À l'ouest de Pilu se trouvait un marais. C'était une terre de mort où l'on ne pouvait apercevoir aucune âme vivante dans un rayon de 10 000 kilomètres.
 
-Cet endroit était un sanctuaire pour les insectes. De nombreux spécimens venimeux y proliféraient, au point que même certains cultivateurs n'osaient s'en approcher.
+Cet endroit était un paradis pour les insectes. De nombreux spécimens venimeux y proliféraient, au point que même certains cultivateurs n'osaient s'en approcher.
 
 On pouvait souvent y voir d'immenses nuées d'insectes en mouvement; ils étaient les rois de ces lieux.
 
-D'autres types de bêtes venimeuses cohabitaient au sein de l'essaim, mais elles ne pouvaient rivaliser avec les insectes; elles passaient donc la majeure partie de leur temps à l'abri des nuées et n'en sortaient que rarement.
+D'autres types de bêtes venimeuses cohabitaient au sein du marais, mais elles ne pouvaient rivaliser avec les insectes; elles passaient donc la majeure partie de leur temps dans les profondeurs du marais et n'en sortaient que rarement.
 
-Tous les cultivateurs de Pilu savaient qu'il ne fallait pas poser le pied dans cet essaim. Ce n'était pas seulement par crainte du danger, mais parce que cette terre était le domaine de la Secte des Insectes Démoniaques.
+Tous les cultivateurs de Pilu savaient qu'il ne fallait pas poser le pied dans ce marais. Ce n'était pas seulement par crainte du danger, mais parce que cette terre était le domaine de la Secte des Insectes Démoniaques.
 
 La Secte des Insectes Démoniaques était située dans un marais.
 
@@ -50,13 +50,13 @@ Les disciples n'avaient guère de sens de la camaraderie. Leur méthode de cultu
 
 Ce jour-là, deux silhouettes apparurent dans le ciel, à la lisière du marais. L'une était âgée, l'autre jeune. Le vieil homme portait une robe noire, ses cheveux étaient gris et sa silhouette très maigre. Les mains derrière le dos, il affichait un regard froid et dégageait une aura qui faisait fuir les insectes par pure terreur.
 
-À ses côtés se tenait un jeune homme vêtu de blanc, dont les cheveux flottaient négligemment dans son dos. Bien qu'il ne fût pas d'une beauté frappante, il possédait une aura singulière. Ses yeux étaient d'une clarté telle qu'un seul regard pouvait ébranler l'âme d'un homme.
+À ses côtés se tenait un jeune homme vêtu de blanc, dont les cheveux flottaient négligemment dans son dos. Bien qu'il ne fût pas d'une beauté frappante, il possédait une aura singulière. Ses yeux étaient d'une clarté telle qu'un seul regard suffisait à sonder le cœur d'un homme.
 
 Il s'agissait de Du Tian et Wang Lin.
 
-Du Tian semblait parfaitement connaître les lieux, car il avait conduit Wang Lin directement ici. Il regarda le marais en contrebas et soupira: « Ceng Niu, même s'ils se cachent tous comme des rats, ne méprise pas les membres de la Secte des Insectes Démoniaques. Je peux te dire que ces gens ont dû être extrêmement riches dans leurs vies antérieures. Lorsque mon maître m'a amené ici, la quantité de jades célestes que nous avons volés était presque trois fois supérieure à ce que nous avions pris aux autres sectes. »
+Du Tian semblait parfaitement connaître les lieux, car il avait conduit Wang Lin directement ici. Il regarda le marais en contrebas et soupira: « Ceng Niu, même s'ils se cachent tous comme des rats, ne méprise pas les membres de la Secte des Insectes Démoniaques. Je peux te dire que ces gens étaient tous des rats dans leur vie antérieure. Lorsque mon maître m'a amené ici, la quantité de jades célestes que nous avons volés était presque le triple de celle d'une secte ordinaire. »
 
-Sur ces mots, il tendit la main vers le vide et le Drapeau d'Âmes du Milliard d'Âmes apparut dans sa paume. Dès qu'il s'en saisit, l'aura de Du Tian changea radicalement. Il fixa le marais et agita le drapeau. D'innombrables fragments d'âmes s'envolèrent instantanément pour couvrir la zone. Le ciel changea de teinte et le temps sembla se suspendre.
+Sur ces mots, il tendit la main vers le vide et le drapeau d'âmes d'un milliard apparut dans sa paume. Dès qu'il s'en saisit, l'aura de Du Tian changea radicalement. Il fixa le marais et agita le drapeau. D'innombrables fragments d'âmes s'envolèrent instantanément pour couvrir la zone. Le ciel changea de teinte et le temps sembla se suspendre.
 
 Tout le secteur fut enveloppé par des fragments d'âmes qui émettaient des gémissements fantomatiques incessants. Les ondes sonores de ces lamentations se propagèrent dans tout le marais, n'étant pas moins puissantes que les attaques de trésors magiques.
 
@@ -66,27 +66,27 @@ Les yeux de Du Tian s'illuminèrent et il hurla: « Rats de la Secte des Insecte
 
 En entendant cela, Wang Lin ne put s'empêcher de rire. Existait-il vraiment une règle pour le vol de jades célestes?
 
-Wang Lin ignorait que la Secte du Raffinement des Âmes avait coutume d'agir ainsi en chefs. Lorsque le maître de Du Tian l'avait emmené ici, il avait tenu les mêmes propos, et la rumeur disait que le maître de son propre maître avait fait de même.
+Wang Lin ignorait que la Secte de l'Affinement de l'Âme avait pris l'habitude de se montrer despotique. Lorsque le maître de Du Tian l'avait emmené ici, il avait tenu les mêmes propos, et la rumeur disait que le maître de son propre maître avait fait de même.
 
 En somme, il y avait bel et bien une tradition en la matière.
 
-Quelques rugissements de colère jaillirent de l'essaim avant que deux individus n'envolent vers eux. Les fragments d'âmes tentèrent de les barrer la route, mais furent repoussés par leur aura.
+Quelques rugissements de colère jaillirent du marais avant que deux individus ne s'envolent vers eux. Les fragments d'âmes tentèrent de leur barrer la route, mais furent repoussés par leur aura.
 
 Cependant, les deux connaissaient la manœuvre; ils se contentèrent de repousser les fragments sans les blesser.
 
-L'un était un vieil homme vêtu d'une robe violette, entouré de deux scorpions rouge sang. Il cria brusquement: « Vieux fantôme Du Tian, il n'y a plus de jades célestes! »
+L'un était un vieil homme vêtu d'une robe violette, avec deux mille-pattes rouge sang enroulés autour des oreilles. Il cria brusquement: « Vieux fantôme Du Tian, il n'y a plus de jades célestes! »
 
-L'autre était une vieille femme portant une robe de palais. Bien que son visage fût marqué par les rides, ses yeux brillaient d'éclat. Elle toussa pour couper la parole au vieil homme et, fixant Du Tian, déclara: « Vieux fantôme Du Tian, nous ne pouvons rien vous donner. Lors de l'attaque du Clan des Immortels Délaissés, j'ai été gravement blessée et il m'a fallu une immense quantité de jades célestes pour m'en remettre. Compte tenu de l'avenir, nous n'avons rien à vous céder. »
+L'autre était une vieille femme vêtue d'une robe de lin grossier. Bien que son visage fût marqué par les rides, ses yeux brillaient d'éclat. Elle toussa pour couper la parole au vieil homme et, fixant Du Tian, déclara: « Vieux fantôme Du Tian, nous ne pouvons rien vous donner. Lors de l'attaque du Clan des Immortels Délaissés, j'ai été gravement blessée et j'ai utilisé des jades célestes pour me soigner; je ne suis remise qu'en grande partie. Compte tenu de l'avenir, nous n'avons rien à vous céder. »
 
 Le regard de Du Tian se fit sérieux et se posa sur la vieille femme. Il pointa son front, libérant l'aura de mort qu'il contenait jusque-là. Sa voix était rauque: « Yan Hong, il me reste moins de deux ans à vivre. »
 
 La vieille femme trembla et son expression vacilla.
 
-Le visage du vieil homme à la robe violette se renfrogna et il grommela: « Vous, les gens de la Secte du Raffinement des Âmes, vous êtes tous des fous. Quand votre espérance de vie touche à sa fin, vous sortez le Drapeau d'Âmes du Milliard d'Âmes pour voler les autres... »
+Le visage du vieil homme à la robe violette se renfrogna et il grommela: « Vous, les gens de la Secte de l'Affinement de l'Âme, vous êtes tous des fous. Quand votre espérance de vie touche à sa fin, vous sortez le drapeau d'âmes d'un milliard pour voler les autres... »
 
 Du Tian rit: « C'est exact. Il ne me reste que deux ans, alors je ne crains plus la mort. Donnez-moi les jades et je partirai. Si vous refusez, je ne me battrai pas, mais je m'efforcerai d'anéantir tous les insectes venimeux de ce marais. »
 
-Le vieil homme à la robe violette eut un rire colérique et s'apprêta à répliquer quand la vieille femme l'interrompit par une quinte de toux: « Vieux fantôme, pourquoi agir ainsi? Non seulement nous deux pouvons anéantir votre Secte du Raffinement des Âmes, mais ce junior à vos côtés mourra à coup sûr. »
+Le vieil homme à la robe violette eut un rire colérique et s'apprêta à répliquer quand la vieille femme l'interrompit par une quinte de toux: « Vieux fantôme, pourquoi agir ainsi? Sans parler de la vengeance que nous deux pourrions exercer contre votre Secte de l'Affinement de l'Âme, ce junior à vos côtés mourra à coup sûr. »
 
 Wang Lin esquissa un léger sourire et, d'un geste de la main droite, fit jaillir son épée céleste. Il y injecta une parcelle d'énergie spirituelle céleste. Bien qu'il n'ait pas encore atteint le stade de la Transformation de l'Âme, il pouvait déjà manipuler un peu de cette essence.
 
@@ -116,4 +116,4 @@ Posséder un trésor céleste change radicalement la donne pour un expert de la 
 
 Par ailleurs, il existe des trésors intermédiaires entre les types spirituel et céleste. Ils peuvent être activés par les deux énergies et, bien qu'ils ne tirent pas totalement parti de la puissance céleste, ils surpassent largement les trésors purement spirituels. On les appelle des faux trésors célestes.
 
-Le Drapeau d'Âmes du Milliard d'Âmes et le Drapeau de Restriction sont considérés comme de tels faux trésors célestes.
+Le drapeau d'âmes d'un milliard et le Drapeau de Restriction sont considérés comme de tels faux trésors célestes.

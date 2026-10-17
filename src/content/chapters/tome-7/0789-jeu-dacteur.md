@@ -14,7 +14,7 @@ En un instant, Wang Lin était devenu le centre de toutes les attentions.
 
 L'expression de Wang Lin s'assombrit lorsqu'il réalisa que tous ses chemins de fuite avaient été bloqués par l'homme aux cheveux blancs.
 
-Ce sceau était invisible à l'œil nu, mais son sens divin percevait des lames acérées émanant de toutes les directions. Peu importe où il allait, c'était comme s'il se heurtait à une lame tranchante.
+Ce verrouillage était invisible à l'œil nu, mais son sens divin percevait des lames acérées émanant de toutes les directions. Peu importe où il allait, c'était comme s'il se heurtait à une lame tranchante.
 
 Même la téléportation était impossible; il était totalement pris au piège.
 
@@ -26,7 +26,7 @@ Tous les poils sur le corps de Wang Lin se hérissèrent. Sentant le péril, il 
 
 Instantanément, un vent noir apparut sur la main droite de Wang Lin. Un instant plus tard, il s'étira et se propagea comme s'il avait supplanté tout ce qui existait au monde.
 
-Dès son apparition, le vent noir balaya immédiatement la zone. Wang Lin se trouvait au cœur de cette tempête noire alors qu'il se retournait brusquement. Ses yeux étaient d'un noir profond et ses cheveux flottaient sauvagement dans les rafales. À cet instant, il ne ressemblait plus à un être céleste, mais plutôt à un démon!
+Dès son apparition, le vent noir balaya immédiatement la zone. Wang Lin se trouvait au cœur de cette tempête noire alors qu'il se retournait brusquement. Ses yeux dégageaient une lueur sinistre et ses cheveux flottaient sauvagement dans les rafales. À cet instant, il ne ressemblait plus à un être céleste, mais plutôt à un démon!
 
 Son regard fut comme une épée s'abattant sur l'homme aux cheveux blancs qui approchait.
 
@@ -38,7 +38,7 @@ L'homme aux cheveux blancs fut surpris. Ses yeux brillèrent d'une lueur étrang
 
 Wang Lin ne répondit pas. Sa main forma un sceau et l'énergie originelle dans son corps jaillit avec frénésie. Puis le vent noir chargea l'homme aux cheveux blancs. Les cinq fissures spatiales tremblèrent et ralentirent immédiatement au passage du vent noir.
 
-Simultanément, le souffle du dragon noir s'élança vers l'homme aux cheveux blancs. Pour la première fois, un sérieux manifeste apparut dans les yeux de l'homme aux cheveux blancs alors qu'il contemplait le dragon formé par le vent noir. Ses deux mains formèrent un sceau et il hurla: « Effondrement des Terres! »
+Simultanément, le souffle du dragon noir s'élança vers l'homme aux cheveux blancs. Pour la première fois, un sérieux manifeste apparut dans les yeux de l'homme aux cheveux blancs alors qu'il contemplait le dragon formé par le vent noir. Ses deux mains formèrent un sceau et il hurla: « Terre Fendue! »
 
 Un son déchirant résonna immédiatement et une immense fissure apparut devant l'homme aux cheveux blancs, chargeant vers Wang Lin.
 
@@ -50,7 +50,7 @@ Le corps de Wang Lin recula rapidement tel un cerf-volant dont la ligne aurait r
 
 Le vent noir se dissipa et l'énorme fissure sembla être saisie par une main gigantesque, l'empêchant d'avancer. Peu après, la faille s'effondra et se désintégra.
 
-L'homme aux cheveux blancs poursuivit sa course, mais ses yeux se plissèrent instantanément en fixant l'éclair rouge projeté par Wang Lin. Son corps vacilla et, en un clin d'œil, il rattrapa la lumière rouge. Il s'en saisit et la pressa contre son œil rouge.
+L'homme aux cheveux blancs poursuivit sa course, mais ses yeux se plissèrent instantanément en fixant l'éclair rouge projeté par Wang Lin. Son corps vacilla et, en un clin d'œil, il rattrapa la lumière rouge. Il s'en saisit et la pressa dans son œil droit.
 
 Il était d'une rapidité inouïe. Après avoir capturé l'éclair rouge, il fit un pas et fusionna avec le monde. Lorsqu'il réapparut, il se trouvait derrière Wang Lin, qui reculait à vive allure.
 
@@ -136,7 +136,7 @@ L'apparence de cette âme était identique à celle du vieil homme mystérieux q
 
 Son corps ne portait aucune cicatrice, mais ses yeux étaient saturés d'intention meurtrière.
 
-« Le sort céleste de Bai Fan, l'épée céleste de Qing Shuang, le trésor du Maître Xiaoyaozi et le corps d'un être digne d'un Roi Céleste... Depuis mon éveil, tu es le cultivateur de Qi le plus puissant que j'aie rencontré. Tu es digne de porter un nom! »
+« Le sort céleste de Bai Fan, l'épée céleste de Qing Shuang, le trésor du Maître Xiaoyaozi et le corps d'un être digne d'un Roi Céleste... Depuis mon éveil, tu es le cultivateur de Qi le plus puissant que j'aie rencontré. Tu as le droit de dire ton nom! »
 
 L'apparence de cet homme ressemblait à celle du vieil homme aux cheveux blancs, mais il semblait bien plus jeune. Tandis qu'il parlait, sa main droite frappa la statue qui fondit instantanément pour former une lance noire qu'il tint fermement.
 

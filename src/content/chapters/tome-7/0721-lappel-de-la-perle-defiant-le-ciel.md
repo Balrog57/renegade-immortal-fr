@@ -114,7 +114,7 @@ Dans ce lac de tonnerre sans fin, les éclairs serpentaient comme des dragons, e
 
 La Bête du Tonnerre poussa un rugissement et regarda le lac avec hésitation. La puissance électrique était trop intense; même pour une créature de sa race, elle sentait qu'elle pourrait ne pas y résister.
 
-Wang Lin descendit de la bête. Ses yeux se rétrécirent, empreints de prudence. Il fit d'abord apparaître son gardien céleste pour assurer la surveillance des environs, puis il s'avança vers la lisière du lac. Il observa longuement avant de faire un premier pas.
+Wang Lin descendit de la bête. Ses yeux se rétrécirent, empreints de prudence. Il fit d'abord apparaître sa garde céleste pour assurer la surveillance des environs, puis il s'avança vers la lisière du lac. Il observa longuement avant de faire un premier pas.
 
 Dès que son pied toucha le sol, le tonnerre pénétra instantanément son corps par ses pieds, envahissant tout son être. Même Wang Lin en ressentit l'engourdissement. Il prit une profonde inspiration et fit un second pas.
 
@@ -134,4 +134,4 @@ Wang Lin s'adapta progressivement à cet environnement, le cœur encore empreint
 
 La bête portait une armure noire qui lui donnait un aspect extrêmement féroce. Un homme d'âge mûr était assis sur son dos. Ses cheveux flottaient derrière lui et, le visage impassible, il chargeait vers le champ d'astéroïdes.
 
-« Le Royaume Céleste du Tonnerre est sur le point de s'ouvrir. Je dois absorber davantage d'énergie originelle du lac de tonnerre... »
+« Le Royaume Céleste du Tonnerre est sur le point de s'ouvrir. Je dois absorber davantage d'énergie originelle dans la prison de tonnerre... »

@@ -10,7 +10,7 @@ slug: raffinement-pourpre
 
 Wang Lin resta assis devant la vallée, le regard glacial, et cracha le Drapeau des Âmes d'un Milliard. Alors que l'étendard de trente-trois mètres flottait dans les airs, des hurlements fantomatiques s'en échappèrent.
 
-Bien que le Drapeau des Âmes d'un Milliard ne contienne plus un milliard d'âmes, il demeurait le trésor emblématique de la Secte de la Affinement des Âmes. Puisque tous les habitants de la vallée pratiquaient le sortilège de raffinement des âmes, dès qu'ils aperçurent le drapeau, ils ressentirent une irrésistible envie de le vénérer.
+Bien que le Drapeau des Âmes d'un Milliard ne contienne plus un milliard d'âmes, il demeurait le trésor emblématique de la Secte de l'Affinement des Âmes. Puisque tous les habitants de la vallée pratiquaient le sort d'affinement des âmes, dès qu'ils aperçurent le drapeau, ils ressentirent une irrésistible envie de le vénérer.
 
 Wang Lin saisit le drapeau et, d'un revers de main, libéra les âmes primaires. Les six âmes primaires restantes, dont le Qilin, apparurent immédiatement pour encercler la zone de cinq kilomètres de large.
 
@@ -20,7 +20,7 @@ Simultanément, Wang Lin cracha du sang essentiel sur le drapeau. L'étendard s'
 
 Les regards des six âmes primaires projetèrent soudain une lueur spectrale et toutes recrachèrent un feu violet. Rapidement, la masse terrestre fut encerclée par ces flammes pourpres.
 
-Ces flammes étaient l'essence même de ces six âmes primaires, ce qui les rendait extrêmement puissantes. Tandis que les flammes rugissaient, des bruits de crépitements et de sifflements déchirèrent le silence sur cette étendue de terre.
+Ces flammes étaient l'essence même de ces six âmes primaires de la Transformation de l'Âme, ce qui les rendait extrêmement puissantes. Tandis que les flammes rugissaient, des bruits de crépitements et de sifflements déchirèrent le silence sur cette étendue de terre.
 
 Des cris de terreur se mêlaient au grondement du brasier. Après la durée d'une demi-baguette d'encens, seule la moitié du terrain subsistait, la terre restante étant devenue totalement rouge incandescente.
 
@@ -40,7 +40,7 @@ Le visage de Treize avait retrouvé un peu de couleur, mais il restait inconscie
 
 Tous les méridiens du corps de Treize étaient brisés; il ne pouvait donc absorber aucune de l'énergie spirituelle démoniaque présente ici, ce qui le rendait inapte à pratiquer les méthodes que Wang Lin connaissait.
 
-Treize ne pourrait pas cultiver tant que ses méridiens ne se seraient pas régénérés. Or, Wang Lin n'était pas en mesure de provoquer cela. Seules des pilules transcendantes pourraient obtenir un tel résultat.
+Treize ne pourrait pas cultiver tant que ses méridiens ne se seraient pas régénérés. Or, Wang Lin n'était pas en mesure de provoquer cela. Seules des pilules défiant le ciel pourraient obtenir un tel résultat.
 
 Après une réflexion approfondie, ses yeux s'illuminèrent. Il existait une méthode parmi toutes celles que Wang Lin connaissait que Treize pourrait pratiquer. Cependant, l'enjeu était si crucial que Wang Lin commença à montrer une certaine hésitation, un trait de caractère qu'il manifestait rarement.
 
@@ -56,7 +56,7 @@ De plus, un Dieu Ancien dévore l'énergie spirituelle céleste et l'énergie sp
 
 Après avoir mûri sa réflexion, Wang Lin secoua la tête et chassa cette pensée. L'énergie spirituelle céleste dans son corps disparut tandis que le cristal démoniaque libérait de l'énergie spirituelle démoniaque. À cet instant, il retrouva son état d'aura démoniaque.
 
-D'un mouvement de doigt aussi rapide que l'éclair, il pressa le front de Treize. L'énergie spirituelle démoniaque pénétra dans le corps de Treize et se mua en éclats de lumière dorée.
+D'un mouvement de doigt aussi rapide que l'éclair, il pressa le front de Treize. L'énergie spirituelle démoniaque pénétra dans le corps de Treize et se mua en éclats de lumière cristalline.
 
 Wang Lin leva la main droite et ferma les yeux pour cultiver.
 
@@ -68,11 +68,11 @@ Dès son réveil, il comprit immédiatement qu'il n'y avait plus une trace d'én
 
 Wang Lin n'avait toujours pas ouvert les yeux. Treize resta agenouillé un long moment avant de s'incliner trois fois. Puis, il partit sans même un regard en arrière.
 
-Ce n'est qu'une fois celui-ci parti que Wang Lin ouvrit les yeux et poussa un soupir. Parmi tous ces gens, Treize possédait le plus grand talent et une compréhension remarquable du drapeau des âmes. Sans ce sort, il aurait certainement accompli de grandes choses à l'avenir.
+Ce n'est qu'une fois celui-ci parti que Wang Lin ouvrit les yeux et poussa un soupir. Parmi tous ces gens, Treize possédait le plus grand talent et une compréhension remarquable du drapeau des âmes. Sans cet accident, il aurait certainement accompli de grandes choses à l'avenir.
 
 Treize retourna dans sa demeure. Il était l'un des rares habitants de la vallée sans femme ni enfant; il vivait donc seul. Il n'émanait de lui aucune aura de jeunesse, mais seulement celle d'un vieillard approchant du crépuscule de sa vie.
 
-Après un long moment, il s'assit en position de lotus et tenta de pratiquer le sortilège de raffinement des âmes. Cependant, à chaque tentative, des vagues de douleur déchiraient son corps. Une telle souffrance était au-delà de ce qu'un homme normal pouvait endurer.
+Après un long moment, il s'assit en position de lotus et tenta de pratiquer le sort d'affinement des âmes. Cependant, à chaque tentative, des vagues de douleur déchiraient son corps. Une telle souffrance était au-delà de ce qu'un homme normal pouvait endurer.
 
 Pourtant, il persévéra. À chaque échec, il recommençait, affrontant une douleur inimaginable.
 
@@ -122,7 +122,7 @@ Wang Lin tendit la main et déplaça la masse terrestre de cinq kilomètres vers
 
 « Ouvrez la formation! » Le regard de Wang Lin était impitoyable alors qu'il contemplait le terrain qui avait été raffiné jusqu'au bord de l'effondrement.
 
-Le vieillard en robe grise tremblait de tout son corps. Il n'avait jamais imaginé que Wang Lin tuerait si facilement l'homme en blanc. Sa puissance de culture était bien supérieure à ce qu'il avait supposé. Il abandonna instantanément toute idée de vengeance, n'osant offenser un être d'une telle force.
+Le vieillard en robe grise tremblait de tout son corps. Il n'avait jamais imaginé que Wang Lin tuerait si facilement l'homme en blanc. Sa puissance de culture était bien supérieure à ce qu'il avait supposé. Il abandonna instantanément toute idée d'aller rapporter l'affaire, n'osant offenser un être d'une telle force.
 
 À cet instant, que la formation soit ouverte ou non n'avait plus d'importance. Il poussa un soupir et traça un symbole de la main. Par ce geste, la formation protégeant la zone disparut.
 

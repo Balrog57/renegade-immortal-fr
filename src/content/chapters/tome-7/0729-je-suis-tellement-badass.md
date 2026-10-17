@@ -76,7 +76,7 @@ Shengong Hu ne l'arrêta pas, mais son regard devint glacial.
 
 Wang Lin demanda calmement: « Qu'est-ce qu'un parchemin d'appel? »
 
-Shengong Hu se retourna rapidement et répondit respectueusement: « Le parchemin d'appel est un jeton de communication du Temple Céleste du Tonnerre. Tout candidat au rang de messager reçoit un tel parchemin. Trois mois avant l'ouverture du Royaume Céleste du Tonnerre, le Hall Céleste du Tonnerre réorganisera ses messagers. Si des postes sont vacants, les candidats s'affronteront pour les obtenir. Avec la culture de Zhan Konglie, si rien n'intervient, je crains qu'il ne l'emporte cette fois! »
+Shengong Hu se retourna rapidement et répondit respectueusement: « Le parchemin d'appel est un jeton de communication du Temple Céleste du Tonnerre. Tout candidat au rang de messager reçoit un tel parchemin. Trois mois avant chaque ouverture du Temple Céleste du Tonnerre, le Temple réorganisera ses messagers. Si des postes sont vacants, les candidats s'affronteront pour les obtenir. Avec la culture de Zhan Konglie, si rien n'intervient, je crains qu'il ne l'emporte cette fois! »
 
 Wang Lin hocha légèrement la tête. Il ne dit plus rien et continua d'absorber le tonnerre pour le convertir en énergie originelle.
 
@@ -90,9 +90,9 @@ Il se leva et observa le tonnerre qui l'entourait. Ces dix années de contact lu
 
 Il bougea et quitta la partie centrale du lac de tonnerre pour se diriger vers la rive.
 
-Shengong Hu avait été renvoyé par Wang Lin trois ans auparavant. Bien que cet homme le vénérait, Wang Lin ne se sentait pas à l'aise en sa présence. Avant de partir, Shengong Hu lui avait laissé une fente de jade contenant un message.
+Shengong Hu avait été renvoyé par Wang Lin trois ans auparavant. Bien que cet homme le vénérait, Wang Lin ne se sentait pas à l'aise en sa présence. Avant de partir, Shengong Hu lui avait laissé un jade de transmission de voix contenant un message.
 
-La Bête du Tonnerre aux cornes d'argent s'approcha. Wang Lin monta sur elle, qui se transforma en un rayon de tonnerre pour s'envoler loin de là. Le garde céleste retourna une fois de plus dans l'ombre de Wang Lin.
+La Bête du Tonnerre aux cornes argentées s'approcha. Wang Lin monta sur elle, qui se transforma en un rayon de tonnerre pour s'envoler loin de là. Le garde céleste retourna une fois de plus dans l'ombre de Wang Lin.
 
 Grâce à dix ans d'absorption de tonnerre dans le lac, la vitesse de la Bête du Tonnerre avait augmenté. Elle traversa le champ d'astéroïdes et disparut parmi les étoiles.
 

@@ -52,9 +52,9 @@ Wang Lin fronça légèrement les sourcils et laissa échapper un reniflement fr
 
 Ce reniflement froid fit s'effondrer toute l'énergie de l'épée. L'arme de l'Empereur allait attaquer à nouveau, mais l'Empereur Démon tendit la main et la saisit.
 
-L'Empereur Démon Gu Yundun sourit: « Frère Wang, ma nièce est espiègle, c'était embarrassant. Cependant, bien qu'elle soit un esprit d'épée, elle n'est pas de nature telle. C'est la fille d'un bon ami de moi. En raison de certaines circonstances, elle a été transformée en esprit d'épée! » Il jeta un regard dédaigneux vers Xu Liguo. Ce simple regard fit trembler ce dernier comme s'il allait s'effondrer.
+L'Empereur Démon Gu Yundun sourit: « Frère Wang, ma nièce est espiègle, c'était embarrassant. Cependant, bien qu'elle soit un esprit d'épée, elle n'est pas de nature telle. C'est la fille d'un bon ami de moi. En raison de certaines circonstances, elle a été transformée en esprit d'épée! Pour moi, elle est comme ma propre enfant, et je ne tolère pas qu'un vaurien la tourmente de propos lubriques! » Il jeta un regard dédaigneux vers Xu Liguo. Ce simple regard fit trembler ce dernier comme s'il allait s'effondrer.
 
-Les pupilles de Wang Lin se contractèrent imperceptiblement. À cet instant précis, le cristal démoniaque à l'intérieur de l'Empereur Démon s'activa soudainement. L'énergie spirituelle démoniaque libérée n'était en rien inférieure à celle d'un cultivateur Ascendant au stade avancé!
+Les pupilles de Wang Lin se contractèrent imperceptiblement. À cet instant précis, le cristal démoniaque à l'intérieur de l'Empereur Démon s'activa soudainement. L'énergie spirituelle démoniaque libérée n'était en rien inférieure à celle d'un cultivateur Ascendant à la grande perfection du stade avancé!
 
 L'expression de Wang Lin devint sombre; il saisit Xu Liguo et le renvoya dans son sac de rangement. Puis, il joignit les mains: « C'était embarrassant, Frère Gu. Je suis venu vous demander où se trouve le Général Démon Mo Fei! »
 
@@ -92,7 +92,7 @@ L'homme d'âge moyen, dont les yeux étaient restés clos jusqu'alors, les ouvri
 
 Avant que quiconque ne puisse réagir, Wang Lin s'approcha dans un rugissement de tonnerre, survolant d'innombrables soldats démons. À côté du Commandant en Chef Céleste, les yeux des deux autres commandants s'illuminèrent.
 
-L'intention meurtrière des dix millions de démons hurlait dans le ciel, mais Wang Lin l'ignorait totalement. Pour tuer, il fallait le bon élan et agir avant que l'adversaire ne puisse réagir. S'il avait commencé par annoncer son identité ou sortir le jade de l'Empereur Démon, il aurait perdu l'avantage de la surprise, laissant au disciple de la Secte de l'Épée Da Lou l'opportunité d'utiliser l'énergie de l'épée de Ling Tianhou.
+L'intention meurtrière des dix millions de démons hurlait dans le ciel, mais Wang Lin l'ignorait totalement. Pour tuer, il fallait le bon élan et agir avant que l'adversaire ne puisse réagir. S'il avait commencé par annoncer son identité ou sortir le jade de l'Empereur Démon, il aurait perdu l'avantage de la surprise, laissant au disciple de la Secte de l'Épée Da Luo l'opportunité d'utiliser l'énergie de l'épée de Ling Tianhou.
 
 « J'ai reçu l'ordre de l'Empereur Démon de capturer et de tuer le Vice-Commandant Mo Fei. Vous autres, faites place! » hurla Wang Lin en lançant le jade de l'Empereur vers les deux commandants qui s'apprêtaient à intervenir.
 

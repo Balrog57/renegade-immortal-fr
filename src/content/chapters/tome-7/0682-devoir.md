@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 682 - Duty
 slug: devoir
 ---
-L'esprit tourmenté pouvait clairement entendre les paroles de Wang Lin, mais ses yeux étaient empreints de froideur et de chagrin. Il continuait de mordre le doigt de Wang Lin, comme s'il voulait que celui-ci ressente cent ans de ressentiment d'un seul coup.
+L'esprit tourmenté pouvait clairement entendre les paroles de Wang Lin, mais ses yeux étaient empreints de froideur et de chagrin. Il continuait de mordre le doigt de Wang Lin, comme s'il voulait que celui-ci ressente ces centaines d'années de ressentiment d'un seul coup.
 
 Wang Lin observa l'enfant un long moment avant de laisser échapper un soupir. Le ressentiment qui pénétrait son corps ne pouvait l'affecter; il lui suffisait de laisser le tonnerre en lui balayer le corps pour que tout soit dissipé.
 
@@ -34,7 +34,7 @@ Wang Lin murmura: « Oublie cela, ne parlons plus de cette affaire. L'ancêtre d
 
 Sun Xi répondit rapidement: « L'ancêtre de la famille Ran a créé un clone il y a des centaines d'années. Il a déjà quitté la planète Ran Yun. J'ignore où il se trouve, mais je pense qu'il ne court aucun danger. Quant à Zhao Chuanwen, bien qu'il n'ait pu affiner de clone, il possède un sort mystérieux capable de diviser son âme originelle. Je suppose qu'il a quitté la planète Ran Yun depuis longtemps. »
 
-Wang Lin réfléchit un instant et dit lentement: « Puisque j'ai reçu les jades célestes de vous trois, je ferai de mon mieux. Comme j'ignore où ils se trouvent, je protégerai leurs familles pendant un siècle et veillerai à ce qu'elles perdurent. De cette façon, j'aurai au moins accompli mon devoir. »
+Wang Lin réfléchit un instant et dit lentement: « Puisque j'ai reçu les jades célestes de vous trois, je ferai de mon mieux. Leur sort mis à part, je protégerai leurs familles pendant un siècle et veillerai à ce qu'elles perdurent. De cette façon, j'aurai au moins accompli mon devoir. »
 
 Un regard de gratitude apparut sur le visage de Sun Xi: « Frère Xu, je vous remercie en leur nom. » Puis il hésita un instant et ajouta: « Cependant, la famille Huan... »
 
@@ -98,7 +98,7 @@ La famille Qian comptait trois cultivateurs au second stade. Grâce à cette pui
 
 En termes de force pure, la famille Huan n'était plus assez puissante pour occuper la deuxième place. Cependant, sa lignée remontait à un être céleste du Royaume Céleste du Tonnerre. La rumeur voulait qu'avant l'effondrement de ce royaume, cet être céleste ait laissé un trésor d'héritage et un jade de protection familiale au siège de la famille. Ce jade contenait un sortilège divin, permettant à la lignée Huan de maintenir son rang malgré la disparition de ses ancêtres.
 
-Quant à la famille Xu, leur nature mystérieuse inspirait la crainte aux deux autres familles. Tous les indices suggéraient que la famille Xu entretenait des liens avec la célèbre famille Xu de la planète Dong Lin. Le prestige de cette dernière étant immense, la famille Xu s'était imposée comme une troisième force légitime sur Mille Illusions. Fort heureusement, elle restait très discrète et ne s'immisçait jamais dans les affaires planétaires, permettant aux trois forces de coexister en harmonie sans conflit majeur.
+Quant à la famille Xu, leur nature mystérieuse inspirait la crainte aux deux autres familles. Tous les indices suggéraient que la famille Xu entretenait des liens avec la célèbre planète Dong Lin du Système Stellaire de Luotian. Le prestige de cette dernière étant immense, la famille Xu s'était imposée comme une troisième force légitime sur Mille Illusions. Fort heureusement, elle restait très discrète et ne s'immisçait jamais dans les affaires planétaires, permettant aux trois forces de coexister en harmonie sans conflit majeur.
 
 Ce jour-là, l'un des trois ancêtres de la famille Qian ayant atteint le second stade, un vieillard au niveau Yin et Yang, quitta le siège familial pour s'élancer directement vers les étoiles.
 

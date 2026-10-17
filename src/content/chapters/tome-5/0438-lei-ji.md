@@ -10,7 +10,7 @@ Même après avoir entendu le mot « trésor », Wang Lin resta calme. Il avait 
 
 De plus, l'ancêtre fondateur du Clan des Démons Géants n'avait même pas précisé de quel trésor il s'agissait.
 
-Wang Lin observa les plantes sur la poitrine du géant, puis frappa son sac de contenance et le drapeau de restriction apparut.
+Wang Lin observa les plantes sur la poitrine du géant, puis frappa son sac de rangement et le drapeau de restriction apparut.
 
 Il n'avait pas utilisé le drapeau de restriction depuis qu'il avait obtenu le drapeau d'âme. C'était le moment idéal pour s'en servir.
 
@@ -86,7 +86,7 @@ Les yeux de Wang Lin s'illuminèrent. Il eut un rire froid et cessa de perdre so
 
 Une fois Wang Lin parti, le corps du géant trembla et poussa un rugissement.
 
-« Encore une demi-tige d'encens! Si cette personne avait continué à drainer mon sang jusqu'à ce qu'il n'en reste plus qu'une fraction, elle aurait certainement attiré la racine principale de mon corps. J'aurais alors pu libérer mon âme de cet enveloppe! »
+« Encore une demi-tige d'encens! Si cette personne avait continué à drainer mon sang jusqu'à ce qu'il n'en reste plus que moins d'un tiers, j'aurais certainement pu faire sortir la vigne ancestrale de mon corps. Une fois la vigne ancestrale sortie, j'aurais eu le moyen de libérer mon âme de cette enveloppe! »
 
 Le rugissement de l'homme était empreint de frustration. Ses yeux clos s'ouvrirent soudainement, deux lueurs plus éclatantes que la foudre jaillissant de ses pupilles.
 
@@ -100,12 +100,12 @@ Le géant poussa un rugissement amer: « Secte des Cadavres! Si moi, Lei Ji, par
 
 Le corps de Wang Lin réapparut à l'intérieur de la Secte des Cadavres. Il pointa l'air du doigt, faisant apparaître un fragment d'âme. C'était celui qu'il avait laissé dans la grotte avant de partir vérifier la situation. La grotte possédait une puissance mystérieuse qui restreignait grandement le Sens Divin, mais elle n'avait que peu d'effet sur les fragments d'âme.
 
-En voyant le fragment d'âme, Wang Lin eut un sourire satisfait. Puis, il s'élança et disparut de la Secte des Cadavres.
+En voyant le fragment d'âme, Wang Lin eut un rire froid. Puis, il s'élança et disparut de la Secte des Cadavres.
 
 Wang Lin apparut sur la plaine surplombant la Secte des Cadavres. Il regarda soudainement vers le nord et vit une vague gigantesque de gaz bleu déferler vers lui tel un tsunami. À l'intérieur de ce tsunami de brume, un garçon vêtu de rouge marchait dans cette direction.
 
 Ce garçon était très beau; son visage était aussi blanc que le jade et il avait une apparence très mignonne. Cependant, ses yeux abritaient une flamme farouche et dissimulée. Ce n'était pas dirigé contre Wang Lin, c'était simplement sa nature profonde.
 
-Il avançait pas à pas. Même le ciel et la terre semblaient trembler sous ses pieds. À mesure que le gaz bleu passait, l'herbe et les nuages se teintaient de bleu, créant une lueur azur éclatante.
+Il avançait pas à pas. Même le ciel et la terre semblaient trembler sous ses pieds. À mesure que le gaz bleu passait, l'herbe, les arbres et les nuages se changeaient en glace, et tout n'était plus que cristal d'un bleu éclatant.
 
 « Haha, Wang Lin, que penses-tu de ce nouveau corps pour ce vieux fou? »

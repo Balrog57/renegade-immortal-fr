@@ -8,9 +8,9 @@ slug: le-tambour-demoniaque
 ---
 « Merde de chien, punition divine et petit voyou, vous osez détruire la capitale de mon Royaume du Démon Céleste?! »
 
-« Maudits soyez-vous, maudits tous! Vous n'êtes que des sales gosses qui méritent de mourir, et cette punition divine mérite d'en voir plus long! »
+« Maudits, tous maudits! Toi, sale gosse, tu mérites de mourir, et cette punition divine plus encore! »
 
-« Haha, une punition divine? Magnifique! Mon ancêtre a survécu à une punition divine pour cultiver. Je veux voir quelle est la puissance de cette rétribution! »
+« Haha, une punition divine? Magnifique! Mon ancêtre est né de la punition divine et a cultivé en la traversant. Aujourd'hui, je veux voir quelle est la puissance de cette rétribution! »
 
 Des rugissements furieux jaillirent du sol. Puis, des grondements tonitruants montèrent des profondeurs, non moins puissants que le tonnerre de la punition divine.
 
@@ -24,7 +24,7 @@ Le nuage rouge dans le ciel s'agita violemment et descendit de près de dix cent
 
 Le sol de toute la capitale se brisa, et des gouttes de sang jaillirent des pores de tout le corps de Wang Lin. On entendait ses chairs et ses os craquer; il avait l'impression que d'innombrables montagnes géantes s'effondraient sur lui.
 
-Les jambes de Wang Lin restèrent droites alors que le sol sous lui s'effondrait. Ses membres s'enfoncèrent profondément dans la terre jusqu'à la hauteur des genoux.
+Les jambes de Wang Lin restèrent droites alors que le sol sous lui s'effondrait. Ses jambes s'enfoncèrent profondément dans la terre jusqu'à la hauteur des genoux.
 
 La pression de la puissance céleste pénétra directement son âme. C'était comme si une voix d'une majesté incomparable rugissait à l'intérieur de son esprit.
 
@@ -86,7 +86,7 @@ Les yeux de Wang Lin restaient grands ouverts. Même à cet instant, son regard 
 
 « La punition divine ne put détruire leurs corps, et la puissance céleste ne put les faire plier. Ils furent les premières formes de vie à cultiver tout en défiant les cieux... »
 
-« Après d'innombrables années, l'Ordre Ancestral se scinda! Ceux qui possédaient un pouvoir extrême s'appelèrent dieux anciens... Ceux qui marchaient sur la voie du massacre s'appelèrent démons anciens... Ceux qui maîtrisaient des sorts puissants s'appelèrent démons ancestraux! Ils furent les secondes formes de vie à cultiver tout en défiant les cieux! »
+« Après d'innombrables années, l'Ordre Ancestral se scinda! Ceux qui possédaient un pouvoir extrême s'appelèrent dieux anciens... Ceux qui marchaient sur la voie du massacre s'appelèrent diables anciens... Ceux qui maîtrisaient des sorts puissants s'appelèrent démons anciens! Ils furent les secondes formes de vie à cultiver tout en défiant les cieux! »
 
 Une voix faible résonnait dans l'esprit de Wang Lin. Bien que son corps se soit déjà effondré, son esprit était d'un calme absolu.
 

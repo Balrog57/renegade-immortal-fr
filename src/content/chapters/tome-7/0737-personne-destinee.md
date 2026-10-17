@@ -20,9 +20,9 @@ Toute la terre trembla violemment, comme si un dragon terrestre géant s'agitait
 
 Seul le cratère à la surface de la partie orientale du fragment témoignait de la réalité de ce qui venait de se produire.
 
-Une fumée verte s'échappait de la cavité. Sous l'effet du vent, elle se dissipait. Au fond du gouffre, on percevait des éclats de tonnerre circulant dans la terre et la surface était même calcinée.
+Une fumée verte s'échappait de la cavité. Sous l'effet du vent, elle se dissipait. Sur le bord du gouffre, des éclats de tonnerre circulaient dans la terre et le sol était même calciné par endroits.
 
-Ce trou était très profond, mais sa profondeur réelle demeurait inconnue. Tout au fond gissait Wang Lin. Le sang s'écoulait de ses orifices et de nombreuses parties de son corps étaient blessées par l'impact. Il était dans un état extrêmement pitoyable.
+Ce trou était très profond, mais sa profondeur réelle demeurait inconnue. Tout au fond gisait Wang Lin. Le sang s'écoulait de ses orifices et de nombreuses parties de son corps étaient blessées par l'impact. Il était dans un état extrêmement pitoyable.
 
 Bien que ce Royaume Céleste du Tonnerre fût plus stable que le Royaume Céleste de la Pluie, il se trouvait néanmoins au bord de l'effondrement. La seule différence résidait entre cinquante et cent pas [1. Cela implique qu'en termes de ratio, la différence est immense, mais dans une perspective plus large, elle reste minime].
 
@@ -34,7 +34,7 @@ Les yeux du vieil homme se plissèrent. Après un examen attentif, il marmonna: 
 
 « Cependant, l'endroit où il a atterri est assez intéressant! Peu importe, puisqu'il a été vu par ce vieil homme, cela signifie que nos destins sont liés! » Un regard d'intérêt brilla dans les yeux de l'homme. Il leva sa main droite et pressa le sol. Un rayon de lumière traversa rapidement la terre. Puis, le corps du vieil homme vacilla et disparut.
 
-Beaucoup de personnes avaient été liées par le destin à lui, mais chacune d'elles avait fini dans un état de grande impuissance.
+Au cours de sa vie, les personnes liées à lui par le destin n'avaient pas été nombreuses, mais chacune d'elles avait connu une fin pleine d'impuissance.
 
 Le temps passa lentement. Profondément enfoui sous terre, Wang Lin ouvrit lentement les yeux. Une douleur massive irradiait de tout son corps. Même son âme originelle ne fonctionnait pas correctement.
 

@@ -10,11 +10,11 @@ L'ombre de sang s'élança et chargea l'ombre démoniaque. Une épaisse énergie
 
 À l'extérieur des flammes, Wang Lin avait perdu une grande partie de son sang et était désormais très affaibli. Pourtant, le sort de lance de l'ombre démoniaque ne s'interrompit pas; il ne fut que momentanément freiné par les flammes avant de foncer sur lui.
 
-La lance se précipita vers Wang Lin. L'énergie de la boucherie se condensa au bout du doigt de Wang Lin, qui l'appliqua contre la pointe de la lance sans la moindre hésitation!
+La lance se précipita vers Wang Lin. L'énergie de massacre se condensa au bout du doigt de Wang Lin, qui l'appliqua contre la pointe de la lance sans la moindre hésitation!
 
-Une force explosive pénétra la main de Wang Lin depuis la lance et consuma l'énergie de la boucherie en lui avec frénésie. Simultanément, cette énergie de la boucherie pénétra la lance et commença à la détruire.
+Une force explosive pénétra la main de Wang Lin depuis la lance et consuma l'énergie de massacre en lui avec frénésie. Simultanément, cette énergie de massacre pénétra la lance et commença à la détruire.
 
-Une série d'explosions retentit, comme si le tonnerre résonnait entre Wang Lin et l'ancien démon. Alors que les un million de fils d'énergie de la boucherie étaient sur le point de s'effondrer, les yeux de Wang Lin s'illuminèrent. Il retira alors son doigt et recula de plusieurs mètres. L'énergie de la boucherie sur sa main bénéficia d'un bref répit, permettant à sa puissance infinie de refouler et de gonfler à nouveau, lui offrant ainsi une immédiate récupération.
+Une série d'explosions retentit, comme si le tonnerre résonnait entre Wang Lin et l'ancien démon. Alors que les un million de fils d'énergie de massacre étaient sur le point de s'effondrer, les yeux de Wang Lin s'illuminèrent. Il retira alors son doigt et recula de plusieurs mètres. L'énergie de massacre sur sa main bénéficia d'un bref répit, permettant à sa puissance infinie de refouler et de gonfler à nouveau, lui offrant ainsi une immédiate récupération.
 
 Le doigt de Wang Lin s'avança une fois de plus et frappa la lance alors qu'elle se refermait sur lui.
 
@@ -24,11 +24,11 @@ Le visage de Wang Lin était extrêmement pâle et, en raison de sa perte de san
 
 Il fonçait vers la Vallée Démoniaque, au centre de la capitale!
 
-La première étape consistait à briser l'écran démoniaque entourant la capitale. La deuxième consistait à s'approcher à moins de 165 mètres de l'ancien démon pour emprunter son aura et invoquer l'ombre de sang de Bei Lou. La troisième était de pénétrer dans le repaire de l'ancien démon pour s'emparer de l'objet dans lequel l'âme de ce dernier était piégée!
+La première étape consistait à briser l'écran démoniaque entourant la capitale. La deuxième consistait à s'approcher à moins de 165 mètres de l'ancien démon pour emprunter son aura et invoquer l'ombre de sang de Bei Luo. La troisième était de pénétrer dans le repaire de l'ancien démon pour s'emparer de l'objet dans lequel l'âme de ce dernier était piégée!
 
-Wang Lin n'avait aucune intention d'assister au combat entre les deux anciens démons à travers le brouillard. Il se déplaça tel un éclair et pénétra dans la terre sacrée du Pays du Démon de Feu: la Vallée Démoniaque!
+Wang Lin n'avait pas le loisir de regarder le combat entre les deux anciens démons dans l'écran démoniaque du ciel. Il se déplaça tel un éclair et pénétra dans la terre sacrée du Pays des Démons de Feu: la Vallée Démoniaque!
 
-La Vallée Démoniaque était d'un calme absolu. Dans les profondeurs de la vallée se dressait une statue gigantesque, saturée d'énergie spirituelle démoniaque. Des quantités massives de cette énergie s'élevaient vers le ciel, rejoignant le corps de l'ancien démon pour l'aider dans son combat contre Bei Lou.
+La Vallée Démoniaque était d'un calme absolu. Dans les profondeurs de la vallée se dressait une statue gigantesque, saturée d'énergie spirituelle démoniaque. Des quantités massives de cette énergie s'élevaient vers le ciel, rejoignant le corps de l'ancien démon pour l'aider dans son combat contre Bei Luo.
 
 Wang Lin fit un pas, puis s'arrêta brusquement. Une ondulation se propagea depuis la statue et, à mesure qu'elle s'étendait, l'énergie spirituelle démoniaque qui s'en échappait cessa de monter vers le ciel. Cette énergie fusionna pour former un avatar de l'ancien démon de la même taille que Wang Lin!
 
@@ -42,9 +42,9 @@ Wang Lin observa l'avatar et, après une courte réflexion, recula. Bien qu'il n
 
 « Ne voulais-tu pas la compréhension de l'héritage de l'ancien démon? Brise la statue et, lorsque je fusionnerai avec elle, j'emporterai ton sens divin avec moi. De ce fait, ce sera comme si tu avais obtenu deux héritages, ce qui te bénéficiera grandement. De plus, je t'ai déjà aidé à de nombreuses reprises et ne demande que cela en retour. Wang Lin, aide-moi! »
 
-La voix de Bei Lou résonna dans le cœur de Wang Lin. Il réfléchit un instant puis poussa un soupir. Au-delà de tous les avantages promis par Bei Lou, le simple fait qu'il l'ait aidé à traverser deux situations de vie ou de mort suffisait pour que Wang Lin agisse.
+La voix de Bei Luo résonna dans le cœur de Wang Lin. Il réfléchit un instant puis poussa un soupir. Au-delà de tous les avantages promis par Bei Luo, le simple fait qu'il l'ait aidé à traverser deux situations de vie ou de mort suffisait pour que Wang Lin agisse.
 
-Le regard de Wang Lin devint glacial et il concentra une partie de l'énergie de l'épée de Ling Tianhou sur son doigt. La lueur dorée de cette énergie fut libérée, illuminant toute la Vallée Démoniaque.
+Le regard de Wang Lin devint glacial et il fit passer l'une des énergies d'épée de Ling Tianhou sur son doigt. La lueur dorée de cette énergie fut libérée, illuminant toute la Vallée Démoniaque.
 
 L'avatar de l'ancien démon se fit sérieux. Il mobilisa ses deux mains et traça des formes dans les airs. Divers symboles démoniaques, exsudant une puissante énergie spirituelle, apparurent devant lui.
 
@@ -56,7 +56,7 @@ Le ciel fut recouvert d'énergie de l'épée, déchiquetant l'énergie spirituel
 
 Les symboles tracés par l'avatar de l'ancien démon brillèrent intensément. De fins éclairs noirs les reliaient pour former un filet, empêchant l'énergie de l'épée de Ling Tianhou de progresser.
 
-Cependant, l'ancien démon du Pays du Démon de Feu utilisait la majeure partie de son sens divin dans le combat contre Bei Lou; cet avatar qu'il avait laissé ici n'équivalait qu'à un cultivateur de la fin du stade Ascendant. Sans l'énergie de l'épée de Ling Tianhou, la bataille aurait été sans espoir. Mais avec elle, Wang Lin était invincible!
+Cependant, l'ancien démon du Pays des Démons de Feu utilisait la majeure partie de son sens divin dans le combat contre Bei Luo; cet avatar qu'il avait laissé ici n'équivalait qu'à un cultivateur de la fin du stade Ascendant. Sans l'énergie de l'épée de Ling Tianhou, la bataille aurait été sans espoir. Mais avec elle, Wang Lin était invincible!
 
 L'énergie de l'épée s'élança en libérant un éclat doré éblouissant. Dès que l'énergie toucha les symboles, ceux-ci s'effondrèrent un à un.
 
@@ -76,7 +76,7 @@ Une série de craquements retentit alors que des fissures lacéraient la statue,
 
 Un fracas assourdissant retentit: la statue s'effondra complètement!
 
-Au moment de l'effondrement, la main qui visait Wang Lin se dissipa, suivie immédiatement par un rugissement de frustration venu du ciel. Peu après, on entendit le choc de divers sorts. Les attaques de Bei Lou permettaient clairement à l'ancien démon de ne pas pouvoir importuner Wang Lin.
+Au moment de l'effondrement, la main qui visait Wang Lin se dissipa, suivie immédiatement par un rugissement de frustration venu du ciel. Peu après, on entendit le choc de divers sorts. Les attaques de Bei Luo empêchaient clairement l'ancien démon de s'occuper de Wang Lin.
 
 Alors que la statue s'écroulait, une immense vague d'énergie spirituelle démoniaque déferla. Au milieu de cette masse, Wang Lin aperçut un fragment d'os provenant de la main!
 
@@ -98,7 +98,7 @@ Ce jeune homme sortit également de la scène. Après avoir regardé Wang Lin, i
 
 Il y eut aussi des scènes où Wang Lin utilisait le Doigt de la Mort, le Doigt Démoniaque ou la rivière des enfers; tous ces "Wang Lin" utilisant ces divers sorts sortirent de leurs visions pour venir s'asseoir.
 
-Mais une autre scène choqua profondément l'esprit de Wang Lin. C'était un Wang Lin vêtu d'une robe grise. Un million de fils d'énergie de la boucherie l'entouraient, et chaque pas qu'il faisait semait la destruction.
+Mais une autre scène choqua profondément l'esprit de Wang Lin. C'était un Wang Lin vêtu d'une robe grise. Un million de fils d'énergie de massacre l'entouraient, et chaque pas qu'il faisait semait la destruction.
 
 Il sembla remarquer le regard de Wang Lin et se tourna vers lui. Ses yeux étaient entièrement gris!
 
@@ -110,8 +110,8 @@ Cependant, Wang Lin se ressaisit immédiatement et nota la différence!
 
 Les figures dans l'esprit de l'Omniscient étaient solides, comme de véritables personnes, rendant toute distinction impossible. Mais ses propres figures, elles, oscillaient entre le corporel et l'incorporel. Elles n'étaient ni totalement tangibles, ni purement illusoires.
 
-« Corporel et incorporel... Se pourrait-il que... soit-ce un sort qui se crée lorsqu'on atteint le sommet de la première étape, juste avant d'entrer dans le stade du Yin Illusoire et du Yang Corporel... J'ai pu expérimenter ce changement prématurément grâce à la compréhension de l'héritage de l'ancien démon... » Wang Lin prit une grande inspiration.
+« Corporel et incorporel... Se pourrait-il que... ce soit un sort qui se crée lorsqu'on atteint le sommet de la première étape et qu'on entre dans le stade du Yin Illusoire et du Yang Corporel... J'ai pu expérimenter ce changement prématurément grâce à la compréhension de l'héritage de l'ancien démon... » Wang Lin prit une grande inspiration.
 
-Il ne faisait que supputer, sans aucun moyen de connaître la vérité. Soudain, ces figures commencèrent à s'estomper jusqu'à disparaître totalement. Celle qui s'effaça le plus vite fut le Wang Lin en robe grise pratiquant l'Art Céleste de la Boucherie.
+Il ne faisait que supputer, sans aucun moyen de connaître la vérité. Soudain, ces figures commencèrent à s'estomper jusqu'à disparaître totalement. Celle qui s'effaça le plus vite fut le Wang Lin en robe grise pratiquant l'Art du Massacre Céleste.
 
-À cet instant, Wang Lin saisit une opportunité et son corps flotta vers l'avant. Il fusionna avec la figure à la robe grise utilisant l'Art Céleste de la Boucherie...
+À cet instant, Wang Lin saisit une opportunité et son corps flotta vers l'avant. Il fusionna avec la figure à la robe grise utilisant l'Art du Massacre Céleste...

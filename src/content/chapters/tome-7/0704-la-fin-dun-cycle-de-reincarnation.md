@@ -6,23 +6,23 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 704 - A Reincarnation Cycle Ends
 slug: la-fin-dun-cycle-de-reincarnation
 ---
-Une voix hideuse résonna. Au moment où le tonnerre du Dao descendit à l'intérieur du four, une flamme violette apparut. En un instant, une mer de flammes s'embrasa dans l'enceinte du chaudron. La combinaison du tonnerre et du feu était infiniment plus puissante!
+Une voix hideuse résonna. Au moment où le tonnerre du Dao descendit à l'intérieur du fourneau, une flamme violette apparut. En un instant, une mer de flammes s'embrasa dans l'enceinte du fourneau. La combinaison du tonnerre et du feu était infiniment plus puissante!
 
-L'expression de Wang Lin était sombre. L'énergie originelle dans son corps ne pouvait rivaliser avec celle du vieil homme; il ne pouvait donc pas déployer toute la puissance de sa Frappe Céleste. C’était ainsi que le patriarche de la famille Huan l'avait prédit: si Wang Lin atteignait la deuxième étape, ou même le stade Yin et Yang, la puissance de sa Frappe Céleste augmenterait de façon exponentielle.
+L'expression de Wang Lin était sombre. L'énergie originelle dans son corps ne pouvait rivaliser avec celle du vieil homme; il ne pouvait donc pas déployer toute la puissance de son Coup Céleste. C’était ainsi que le patriarche de la famille Huan l'avait prédit: si Wang Lin atteignait la deuxième étape, ou même le stade Yin et Yang, la puissance de son Coup Céleste augmenterait de façon exponentielle.
 
-Ses yeux s'illuminèrent alors qu'il rangeait l'épée céleste pour fixer la Bête du Tonnerre. Wang Lin se mordit le bout du doigt et utilisa son sang pour tracer un symbole d'une complexité extrême.
+Ses yeux s'illuminèrent alors qu'il rangeait la grande épée pour fixer la Bête du Tonnerre. Wang Lin se mordit le bout du doigt et utilisa son sang pour tracer un symbole d'une complexité extrême.
 
 Ce symbole était empreint de vicissitudes, comme s'il avait existé depuis une éternité. Dès son apparition, la Bête du Tonnerre fut saisie d'effroi et tourna sa massive tête vers Wang Lin.
 
 « Troisième sceau, ouvre-toi! » Wang Lin fit un geste de la main et le symbole pénétra l'intégralité des éclairs avant de s'imprimer sur le front de la Bête du Tonnerre.
 
-Le corps de la bête trembla, son visage se crispa de douleur, puis elle laissa échapper un rugissement terrifiant. Tandis qu'elle frémissait, une rangée d'épines jaillit de son dos. Ces pointes féroces émettaient un éclat glacial, tandis que des éclairs intenses zébraient l'espace entre elles. Une aura terrifiante envahit soudainement le four.
+Le corps de la bête trembla, son visage se crispa de douleur, puis elle laissa échapper un rugissement terrifiant. Tandis qu'elle frémissait, une rangée d'épines jaillit de son dos. Ces pointes féroces émettaient un éclat glacial, tandis que des éclairs intenses zébraient l'espace entre elles. Une aura terrifiante envahit soudainement le fourneau.
 
 Cette aura possédait une puissance défiant les cieux. Si elle osait s’opposer au destin, alors il était inutile de mentionner la force de ce sort d'énergie originelle!
 
 Le corps de la Bête du Tonnerre grandit soudainement plusieurs fois. Les éclairs argentés qui parcouraient sa peau devinrent noirs!
 
-L'éclair noir charriait une aura destructrice alors qu'il jaillissait brusquement du corps de la bête. Celle-ci poussa un autre rugissement, s'élança vers le ciel et laissa échapper un langage bestial complexe. Ce cri fit trembler la Bête du Tonnerre issue du Temple Céleste du Tonnerre. Cette dernière sortit du four et se coucha au sol en signe de soumission, n'osant lever les yeux. Auparavant, elle pensait que l'autre bête était seulement un peu plus forte qu'elle, et sa fierté l'avait poussée au combat.
+L'éclair noir charriait une aura destructrice alors qu'il jaillissait brusquement du corps de la bête. Celle-ci poussa un autre rugissement, s'élança vers le ciel et laissa échapper un langage bestial complexe. Ce cri fit trembler la Bête du Tonnerre issue du Temple Céleste du Tonnerre. Cette dernière sortit du fourneau et se coucha au sol en signe de soumission, n'osant lever les yeux. Auparavant, elle pensait que l'autre bête était seulement un peu plus forte qu'elle, et sa fierté l'avait poussée au combat.
 
 Cependant, cette fois, une peur profonde émana de son âme. L'autre Bête du Tonnerre s'était soudainement transformée en son ancêtre, une force à laquelle elle ne pouvait rien opposer!
 
@@ -30,25 +30,25 @@ Une fois le troisième sceau libéré, le corps de la Bête du Tonnerre fut reco
 
 À ce moment précis, le corps du gardien céleste commença à émettre une lumière dorée. Cette lueur devint lentement rouge, puis orange, et la puissance qu'elle contenait s'intensifia encore davantage.
 
-Boum! L'orage de foudre recouvrit l'intégralité du four; d'innombrables fissures apparurent soudainement et continuèrent de s'étendre.
+Boum! L'orage de foudre recouvrit l'intégralité du fourneau; d'innombrables fissures apparurent soudainement et continuèrent de s'étendre.
 
-Boum! Le coup de poing du gardien céleste s'abattit sur le four, provoquant de nouvelles fractures.
+Boum! Le coup de poing du gardien céleste s'abattit sur le fourneau, provoquant de nouvelles fractures.
 
-La force colossale se propageait partout, tandis que l'énergie originelle du Daoïste du Tonnerre affluait dans le four comme une marée déchaînée. Il n'avait pas le temps de ressentir la douleur causée par l'épuisement de son énergie, car c'était la bataille la plus acharnée qu'il ait connue depuis qu'il était devenu un messager du Temple Céleste du Tonnerre. C'était une lutte entre la vie et la mort!
+La force colossale se propageait partout, tandis que l'énergie originelle du Daoïste du Tonnerre affluait dans le fourneau comme une marée déchaînée. Il n'avait pas le temps de ressentir la douleur causée par l'épuisement de son énergie, car c'était la bataille la plus acharnée qu'il ait connue depuis qu'il était devenu un messager du Temple Céleste du Tonnerre. C'était une lutte entre la vie et la mort!
 
-Cependant, la vitesse à laquelle son énergie originelle pénétrait le four ne pouvait rivaliser avec la puissance combinée de la Bête du Tonnerre sous le troisième sceau et de la marionnette du gardien céleste. Face à cette crise, le regard de Wang Lin devint glacial. Il ne saisit pas sa grande épée, mais leva simplement son doigt et frappa impitoyablement!
+Cependant, la vitesse à laquelle son énergie originelle pénétrait le fourneau ne pouvait rivaliser avec la puissance combinée de la Bête du Tonnerre sous le troisième sceau et de la marionnette du gardien céleste. Face à cette crise, le regard de Wang Lin devint glacial. Il ne saisit pas sa grande épée, mais leva la main droite, deux doigts joints en forme d'épée, et frappa impitoyablement!
 
-« Frappe Céleste! »
+« Coup Céleste! »
 
-Rumble! Une explosion indescriptible fit trembler les cieux et la terre. Le four géant explosa soudainement!
+Grondement! Une explosion indescriptible fit trembler les cieux et la terre. Le fourneau géant explosa soudainement!
 
 Chaque fragment était parcouru d'éclairs noirs, avant qu'une nouvelle série d'explosions ne survienne lorsque ces débris éclatèrent à nouveau!
 
-Le visage de Wang Lin était d'une pâleur mortelle. Après avoir utilisé deux Frappes Célestes, il était presque à court d'énergie originelle, au point de risquer une chute de son niveau de culture. S'il avait perdu ne fût-ce qu'un fragment de plus, sa culture se serait probablement effondrée.
+Le visage de Wang Lin était d'une pâleur mortelle. Après avoir utilisé deux Coups Célestes, il était presque à court d'énergie originelle, au point de risquer une chute de son niveau de culture. S'il avait perdu ne fût-ce qu'un fragment de plus, sa culture se serait probablement effondrée.
 
 Son corps vacilla et le monde autour de lui retrouva son calme. Wang Lin prit une profonde inspiration. Bien que son visage fût livide, ses yeux étaient plus froids que jamais.
 
-Le corps du Daoïste du Tonnerre apparut dans les airs. Il cracha une large bouchée de sang et fit immédiatement demi-tour pour fuir. La terreur l'habitait. Il avait mené d'innombrables batailles, mais n'avait jamais rencontré une telle étrangeté. Bien que l'ennemi ne fût qu'un cultivateur de la première étape, les sorts et trésors qu'il possédait lui glaçaient le sang; ces deux rayons d'énergie d'épée le faisaient s'en vouloir de ne pas avoir fui plus tôt!
+Le corps du Daoïste du Tonnerre apparut dans les airs. Il cracha une large bouchée de sang et fit immédiatement demi-tour pour fuir. La terreur l'habitait. Il avait mené d'innombrables batailles, mais n'avait jamais rencontré une telle étrangeté. Bien que l'ennemi ne fût qu'un cultivateur Ascendant, les sorts et trésors qu'il possédait lui glaçaient le sang; ces deux rayons d'énergie d'épée le faisaient s'en vouloir de ne pas avoir fui plus tôt!
 
 La marionnette du gardien céleste poursuivit rapidement le Daoïste du Tonnerre. La Bête du Tonnerre poussa un rugissement et suivit également de près le gardien. Ils disparurent progressivement à l'horizon...
 
@@ -74,7 +74,7 @@ Wang Ping regarda Wang Lin. Son sourire révélait sa nature libre, mais une poi
 
 « Il se trouve que je n'ai même plus de larmes... » Wang Ping regarda amèrement son père et murmura: « Papa, prends soin de toi... Ping Er n'a pas pu tenir sa promesse de t'accompagner à travers les générations... »
 
-La douleur dans les yeux de Wang Lin s'intensifia. Après que Liu Mei lui eut confié Wang Ping, il lui avait administré la médecine et utilisé son propre tonnerre pour l'aider à guérir. Pourtant, il avait fini par découvrir que Wang Ping était mort depuis très, très longtemps...
+La douleur dans les yeux de Wang Lin s'intensifia. Après que Liu Mei lui eut confié Wang Ping, il lui avait administré la médecine et utilisé ses sorts de tonnerre pour chasser la plus grande partie de son ressentiment. Pourtant, il avait fini par découvrir que Wang Ping était mort depuis très, très longtemps...
 
 La vie d'un mortel est éphémère, et il en va de même pour un esprit vengeur. Ce qui subsistait n'était qu'un fragment d'âme entouré de ressentiment, incapable de réintégrer le cycle de la réincarnation. C'était là la véritable nature d'un esprit vengeur!
 
@@ -96,7 +96,7 @@ Il se tourna vers elle avec un regard chargé de sens. Il lui adressa un sourire
 
 Alors que les larmes coulaient sur les joues de Qing Yi, elle ouvrit la bouche comme pour protester. Wang Ping secoua la tête, leva les yeux vers le ciel et dit doucement: « Papa, Qing Yi, je m'en vais... »
 
-Le regard de Wang Ping exprimait un puissant sentiment de reluctance. Il voulait rester avec Qing Yi et accompagner son père pour l'éternité... pour toujours...
+Le regard de Wang Ping exprimait un profond chagrin de devoir les quitter. Il voulait rester avec Qing Yi et accompagner son père pour l'éternité... pour toujours...
 
 Dans un état de transe, il sembla retourner à son enfance. Durant les dix-neuf années passées au village de montagne, il buvait sa médecine en affichant un sourire joyeux.
 
@@ -130,7 +130,7 @@ Le vent se leva et la sphère commença à se dissiper, mais Wang Lin ne la lâc
 
 « Papa... » Qing Yi tomba à genoux. La tristesse dans ses yeux n'était pas moindre que celle de Wang Lin.
 
-Les yeux de Qing Yi étaient noyés de larmes lorsqu'elle dit doucement: « Papa, j'ai rendez-vous avec Wang Ping. Même si c'est dans l'au-delà, je l'accompagnerai! Emmène-moi avec toi, ne serait-ce qu'en tant que fragment d'âme. J'irai n'importe où, pourvu que je puisse accompagner Wang Ping! Papa, c'est vous qui m'aviez dit de toujours l'accompagner! »
+Les yeux de Qing Yi étaient noyés de larmes lorsqu'elle dit doucement: « Papa, j'ai rendez-vous avec Wang Ping. Même si c'est dans l'au-delà, je l'accompagnerai! Emmène-moi avec toi, ne serait-ce qu'en tant que fragment d'âme. J'irai n'importe où, pourvu que je puisse accompagner Wang Ping! Papa, c'est toi qui m'avais dit de toujours l'accompagner! »
 
 « Ne le regretteras-tu pas? »
 

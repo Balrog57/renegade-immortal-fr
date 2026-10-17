@@ -14,7 +14,7 @@ Une forme de vie aquatique ne peut être scellée que pour un instant; il est pr
 
 Le regard de cette femme était féroce alors qu'elle scrutait les profondeurs de la montagne. Son corps se mua une fois de plus en eau et elle se lança à la poursuite de Wang Lin.
 
-Wang Lin se déplaçait avec une rapidité fulgurante et atteignit le cœur de la montagne en quelques instants. Là, il découvrit un vieil homme voûté dont les vêtements étaient en lambeaux. De nombreux tatouages brillaient sur son corps. Ces derniers flottaient dans l'air devant lui, formant un sceau au centre duquel une masse d'eau semblait bouillir.
+Wang Lin se déplaçait avec une rapidité fulgurante et atteignit le cœur de la montagne en quelques instants. Là, il découvrit un vieil homme voûté, presque entièrement nu. De nombreux tatouages brillaient sur son corps. Ces derniers flottaient dans l'air devant lui, formant un sceau au centre duquel une masse d'eau semblait bouillir.
 
 Une plante à huit feuilles trônait sur le front du vieil homme, lequel dégageait une puissante énergie de tatouage.
 
@@ -30,19 +30,19 @@ C'est ce qui avait permis à Wang Lin de passer inaperçu.
 
 « C'est toi!!! » Les yeux du vieil homme devinrent instantanément glacials en voyant Wang Lin et il laissa échapper un rire sinistre. Il pointa un tatouage devant lui qui chargea immédiatement vers le jeune homme.
 
-Wang Lin renifla froidement. Il ne marqua aucune pause après son arrivée. À l'instant même où le vieil homme le remarqua, il se téléporta près des tatouages qui emprisonnaient la forme de vie aquatique et abattit son épée céleste.
+Wang Lin renifla froidement. Il ne marqua aucune pause après son arrivée. À l'instant même où le vieil homme le remarqua, son corps se mua en une image rémanente et apparut près des tatouages qui emprisonnaient la forme de vie aquatique et abattit son épée céleste.
 
 Dans un fracas retentissant, d'innombrables fissures apparurent sur les tatouages scellant l'eau, et ceux-ci se brisèrent un à un.
 
 Le vieil homme voûté poussa un rugissement et chargea vers Wang Lin. Sa main s'étendit, et au centre de sa paume brillait un tatouage très ancien.
 
-Les yeux de Wang Lin s'illuminèrent. Sans un mot, il tendit la main et le Drapeau de l'Âme d'un Milliard d'Âmes apparut. Long d'une dizaine de mètres, ce drapeau suffisait à terrifier n'importe quel ennemi, même sans attaquer.
+Les yeux de Wang Lin s'illuminèrent. Sans un mot, il tendit la main et l'Étendard des Mille Millions d'Âmes apparut. Long d'une dizaine de mètres, ce drapeau suffisait à terrifier n'importe quel ennemi, même sans attaquer.
 
 Le vieil homme voûté ne put s'empêcher de marquer un temps d'arrêt.
 
 « C'est... » Son cœur trembla. Il avait l'impression de connaître ce drapeau et une terreur indicible l'envahit.
 
-Wang Lin agita le Drapeau de l'Âme d'un Milliard d'Âmes, provoquant une série de lamentations fantomatiques alors que les fragments d'âme s'élançaient. Le cri le plus strident provint d'un Qilin violet qui poussa un rugissement perçant les cieux. Dès son apparition, la créature ouvrit sa gueule maléfique pour tenter de dévorer le vieillard.
+Wang Lin agita l'Étendard des Mille Millions d'Âmes, provoquant une série de lamentations fantomatiques alors que les fragments d'âme s'élançaient. Le cri le plus strident provint d'un Qilin pourpre et or qui poussa un rugissement perçant les cieux. Dès son apparition, la créature ouvrit sa gueule maléfique pour tenter de dévorer le vieillard.
 
 Derrière le Qilin se trouvaient plus de dix âmes primaires au stade de la Transformation de l'Âme.
 
@@ -52,11 +52,11 @@ Le vieil homme voûté jura intérieurement et recula sans hésiter. S'il n'y av
 
 Même face à trois ou quatre d'entre eux, il aurait pu s'échapper ou combattre jusqu'à l'impasse.
 
-Mais ils étaient bien trop nombreux pour quelqu'un de son niveau de culture actuel. Ce Qilin violet était particulièrement terrifiant; le simple fait de le regarder faisait trembler son cœur.
+Mais ils étaient bien trop nombreux pour quelqu'un de son niveau de culture actuel. Ce Qilin pourpre et or était particulièrement terrifiant; le simple fait de le regarder faisait trembler son cœur.
 
 S'ajoutant à cela, des centaines de millions de fragments d'âme plus faibles s'approchaient. Après avoir pesé le pour et le contre, il n'avait aucune intention de combattre et s'enfuit rapidement.
 
-Il n'aurait jamais imaginé que le gamin qu'il aurait pu facilement tuer il y a cent ans ait déjà atteint le stade de la Transformation de l'Âme et possède ce Drapeau de l'Âme d'un Milliard d'Âmes que le Clan des Immortels Délaissés redoutait tant.
+Il n'aurait jamais imaginé que le gamin qu'il aurait pu facilement tuer il y a cent ans ait déjà atteint le stade de la Transformation de l'Âme et possède cet Étendard des Mille Millions d'Âmes que le Clan des Immortels Délaissés redoutait tant.
 
 Le vieil homme pouvait même sentir qu'une grande partie des fragments d'âme portait l'aura de son propre Clan des Immortels Délaissés. Ils devaient être les membres de son clan capturés et raffinés lors de la guerre passée.
 
@@ -106,7 +106,7 @@ Même un cultivateur au stade de la Transformation de l'Âme qui y pénétrait v
 
 Alors que le Cœur de la Planète de Culture continuait de se briser, l'effondrement du Cristal de la Planète de Culture commença enfin.
 
-La terre du Tombeau de Suzaku se fissura et de nombreux cultivateurs qui s'y trouvaient périrent sous cette catastrophe naturelle. Même des formes de vie normalement immortelles furent fauchées.
+La terre du Tombeau de Suzaku se fissura et de nombreux cultivateurs qui s'y trouvaient périrent sous cette catastrophe naturelle. Même de nombreuses formes de vie, face à ce désastre, n'eurent d'autre issue que la mort.
 
 Tout le Tombeau de Suzaku fut enveloppé d'une aura de mort.
 

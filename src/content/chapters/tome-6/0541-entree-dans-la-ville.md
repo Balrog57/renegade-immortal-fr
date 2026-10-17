@@ -54,11 +54,11 @@ L'endroit se trouvait à 15 millions de kilomètres de la Grande Muraille Antiqu
 
 Tandis que la bête moustique fendait le ciel, chaque tribu qu'elle croisait activait ses formations de protection. À leurs yeux, le moustique était tout simplement trop puissant. Il créait déjà des détonations supersoniques rien qu'en volant. Ses rugissements tonitruants donnaient l'impression que le tonnerre s'abattait sur la terre, créant un spectacle absolument saisissant.
 
-Auparavant, lorsque Wang Lin était entré pour la première fois dans les Terres des Esprits Démoniques, il ignorait l'existence de ces formations et de ces tribus. Les formations avaient également la capacité de dissimuler les populations, ce qui l'avait empêché de trouver qui que ce soit. Cependant, ayant désormais une certaine compréhension de ces terres, il voyait d'innombrables tribus en regardant vers le bas.
+Auparavant, lorsque Wang Lin était entré pour la première fois dans les Terres des Esprits Démoniaques, il ignorait l'existence de ces formations et de ces tribus. Les formations avaient également la capacité de dissimuler les populations, ce qui l'avait empêché de trouver qui que ce soit. Cependant, ayant désormais une certaine compréhension de ces terres, il voyait d'innombrables tribus en regardant vers le bas.
 
 Il y avait des tribus fortes et faibles, grandes et petites, et leur population variait considérablement.
 
-« Si ma tribu du Affinement de l'Âme parvient à unir toutes les tribus des Terres des Esprits Démoniques, elle deviendra une force capable de choquer les neuf pays de cette région! » Les yeux de Wang Lin devinrent froids.
+« Si ma tribu du Affinement de l'Âme parvient à unir toutes les tribus des Terres des Esprits Démoniaques, elle deviendra une force capable de choquer les neuf pays de cette région! » Les yeux de Wang Lin devinrent froids.
 
 Après sept jours, la Grande Muraille Antique apparut au loin. Lorsqu'ils furent à 50 kilomètres de la cité, Wang Lin rangea la bête moustique et lui, Treize et Hu Pao atterrirent sur le sol.
 

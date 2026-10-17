@@ -20,7 +20,7 @@ C'était comme les cieux et leur esprit: deux entités insaisissables que nul ne
 
 En lisant entre les lignes, cela signifiait qu'une fois qu'un Serpent aux yeux de lune entrait dans une rage folle et atteignait sa troisième forme, il acquérait la puissance du doigt d'un dieu ancien. Cette puissance variait, mais le doigt d'un dieu ancien à neuf étoiles suffisait à effondrer une planète de culture.
 
-S'il s'agissait d'un dieu ancien d'une seule étoile, cela ne ferait rire qu'un disciple.
+S'il s'agissait d'un dieu ancien d'une seule étoile, cela ne ferait que prêter à rire.
 
 Cependant, l'énorme Serpent aux yeux de lune qui se dressait devant Wang Lin n'avait rien d'une plaisanterie!
 
@@ -102,7 +102,7 @@ Cupidité ne sentit que son monde s'obscurcir. Lorsqu'il reprit ses esprits, il 
 
 Cupidité serra les dents avec acharnement, ses mains formèrent un sceau et il pressa le fourneau. Une lumière d'un blanc laiteux jaillit de son front pour s'imprimer sur l'objet.
 
-Cupidité rugit: « Même si je dois sacrifier ma force vitale, je m'échapperai de cet endroit! » Le fourneau absorba la force vitale de Cupidité et grandit instantanément.
+Cupidité rugit: « Même si je dois sacrifier des années de ma vie, je m'échapperai de cet endroit! » Le fourneau absorba les années de vie de Cupidité et grandit instantanément.
 
 En un clin d'œil, il commença à croître, dégageant une aura ancienne de plus en plus puissante.
 

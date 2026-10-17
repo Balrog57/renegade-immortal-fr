@@ -32,13 +32,13 @@ Le temps passa lentement. Les yeux de Wang Lin s'illuminèrent; il regarda l'Omn
 
 Un air de joie apparut sur le visage de l'Omniscient qui hocha la tête: « Bien! »
 
-Zhao Xinmeng regarda Wang Lin et dit doucement: « Septième frère, commençons! »
+Zhao Xinmeng regarda Wang Lin et dit doucement: « Septième frère, commençons! » Sur ces mots, elle recula avec grâce, tel un phénix dansant, pour s'éloigner à bonne distance de lui, puis leva ses mains délicates, forma un sceau et pointa vers l'avant.
 
 Soudainement, des étoiles violettes apparurent autour d'elle et se mirent à graviter en orbite.
 
 Wang Lin fixa les étoiles. Sur la planète Tian Yun, il semblait que les trésors magiques étaient peu utilisés lors des combats, au profit des sorts. Bien qu'il n'ait pas beaucoup combattu depuis son arrivée, chaque personne rencontrée utilisait les sorts comme principale méthode d'attaque.
 
-Les étoiles orbitant autour de Zhao Xinmeng commencèrent à converger vers son doigt tandis qu'elle s'élevait dans les airs. En un clin d'œil, tout son bras droit fut enveloppé d'une épaisse lumière violette.
+Les étoiles orbitant autour de Zhao Xinmeng commencèrent à converger vers son doigt tandis que son index droit fendait le vide. En un clin d'œil, tout son bras droit fut enveloppé d'une épaisse lumière violette.
 
 Même le reste de son corps fut recouvert d'une couche de lueur pourpre, lui conférant une aura mystérieuse.
 
@@ -46,7 +46,7 @@ Même le reste de son corps fut recouvert d'une couche de lueur pourpre, lui con
 
 Tout en parlant, elle projeta sa main en avant. La lumière violette quitta soudainement son bras pour foncer vers Wang Lin.
 
-Le corps de Wang Lin vacilla alors qu'il reculait rapidement. Simultanément, il leva son index droit. L'énergie spirituelle céleste à l'intérieur de son corps s'agita et une flamme violette apparut brusquement au bout de son doigt.
+Le corps de Wang Lin vacilla alors qu'il reculait rapidement. Simultanément, il leva son index droit. L'énergie spirituelle céleste à l'intérieur de son corps s'agita puis s'inversa, et une flamme violette apparut brusquement au bout de son doigt.
 
 À l'instant où la flamme jaillit, une aura démoniaque monstrueuse envahit les environs.
 
@@ -70,7 +70,7 @@ La perle, initialement blanche et immaculée, était désormais d'un noir profon
 
 Zhao Xinmeng tint la perle en souriant: « Septième frère, je ne me battrai pas contre toi pour le titre de disciple véritable, mais cette énergie démoniaque doit m'appartenir! »
 
-Wang Lin observa la perle et dit d'un ton sérieux: « Tu as créé la Main Démoniaque Violette pour me forcer à utiliser le Doigt Démoniaque afin d'en absorber l'énergie. Sœur apprentie aînée, si tu m'avais demandé directement, je n'y aurais vu d'inconvénient, mais maintenant, il te sera impossible de s'emparer de cette énergie! »
+Wang Lin observa la perle et dit d'un ton sérieux: « Tu as créé la Main Démoniaque Violette pour me forcer à utiliser le Doigt Démoniaque afin d'en absorber l'énergie. Quatrième sœur, si tu m'avais demandé directement, je n'y aurais vu d'inconvénient, mais maintenant, il te sera impossible de t'emparer de cette énergie! »
 
 À l'instant où Wang Lin eut fini de parler, l'énergie démoniaque contenue dans la perle de Zhao Xinmeng disparut comme si elle n'avait jamais existé. En un instant, la perle sombre redevint d'un blanc pur.
 
@@ -80,13 +80,13 @@ Ce type d'énergie spirituelle céleste modifiée ne pouvait être transmis à a
 
 Le visage de Zhao Xinmeng s'assombrit et ses sourcils se froncèrent. Elle regarda la perle dans sa main et la broya d'une pression brutale. Puis, elle leva les yeux vers Wang Lin et dit doucement: « Septième frère, je ne veux qu'un peu de ton énergie démoniaque. Si tu me la donnes, j'abandonne. Sinon... »
 
-Wang Lin la regarda. Bien qu'ils aient eu des interactions par le passé, ils marchaient sur des chemins divergents. Il répondit calmement: « Quatrième sœur, je ne peux pas t'aider en cela. »
+Wang Lin la regarda. Bien qu'ils aient eu des interactions par le passé, ils ne se devaient rien l'un à l'autre. Il répondit calmement: « Quatrième sœur, je ne peux pas t'aider en cela. »
 
 Zhao Xinmeng fixa Wang Lin. Un instant plus tard, elle leva le bras et déclara doucement: « Tactique de Raffinement Céleste à Neuf Cycles! »
 
 Soudain, une puissante lumière dorée émana du corps de Zhao Xinmeng. Son visage fut baigné d'un éclat doré, lui conférant un air mystérieux. Sa main droite ressemblait à un pilier d'or projetant des ondes lumineuses.
 
-L'énergie spirituelle céleste métallique commença à apparaître autour de son bras droit, formant un vortex doré qui tournait lentement au cœur de son membre.
+L'énergie spirituelle céleste métallique commença à se condenser à partir de sa main droite, formant un vortex doré qui tournait lentement au-dessus de celle-ci.
 
 Un cycle, deux cycles, trois cycles, quatre cycles, cinq cycles...
 

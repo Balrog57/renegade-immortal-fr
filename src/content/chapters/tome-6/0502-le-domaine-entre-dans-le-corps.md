@@ -19,7 +19,7 @@ Au sommet de la tour, à la cime de la montagne, l'Omniscient était assis, obse
 
 À l'origine, l'Omniscient pensait que Wang Lin s'arrêterait après dix pas dans la Terre Brisée des Célestes. Dix pas étaient la limite d'un cultivateur au stade de la Transformation de l'Âme! Si Wang Lin réussissait cela, il l'inviterait à monter à la tour pour lui enseigner un sort interdit.
 
-Mais à présent, Wang Lin avait déjà parcouru 21 pas, ce qui constituait la limite absolue d'un cultivateur de la Transformation de l'Âme. Seul un cultivateur Ascendant, doté de l'énergie spirituelle céleste, pouvait franchir le 22e pas sans que son âme originelle ne soit gelée.
+Mais à présent, Wang Lin avait déjà parcouru 21 pas, ce qui constituait la limite absolue d'un cultivateur de la Transformation de l'Âme. Seul un cultivateur Ascendant, doté de l'énergie spirituelle céleste, pouvait garantir, après 21 pas, que son âme originelle ne soit pas gelée jusqu'à l'effondrement.
 
 Même avec la force mentale de l'Omniscient, il ne put s'empêcher de ressentir un choc profond.
 

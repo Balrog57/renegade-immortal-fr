@@ -20,9 +20,9 @@ Wang Lin apparut quelque part à la périphérie du Tombeau de Suzaku. Ici, la t
 
 Ces puissantes fluctuations faisaient alterner l'éclat et l'obscurité du sol en contrebas.
 
-Wang Lin se tint sur cette terre brûlée où les panaches de fumée noire s'élevaient du sol. Peu après, ses yeux s'illuminèrent alors qu'il scrutait l'horizon.
+Wang Lin se tint sur cette terre brûlée où les panaches de fumée noire s'élevaient du sol. Dès qu'il apparut, son sens divin se déploya : à 5 000 kilomètres à la ronde, tout n'était que terre brûlée. Peu après, ses yeux s'illuminèrent alors qu'il scrutait l'horizon.
 
-« Situ Nan a dit que le Tombeau de Suzaku n'était pas vaste et qu'il était divisé en sections intérieure et extérieure. Le centre de la section intérieure abrite le tombeau de la première génération de Suzaku, là où se trouve le Cristal de Planète de Culture. Mais cet endroit est bien trop différent de ce que Situ Nan a décrit. Mon sens divin ne peut même pas couvrir la section extérieure, sans parler de trouver cet autel. » Wang Lin fronça les sourcils en s'accroupissant pour toucher la terre calcinée, sentant la chaleur sous ses mains.
+« Situ Nan a dit que le Tombeau de Suzaku n'était pas vaste et qu'il était divisé en sections intérieure et extérieure. Le centre de la section intérieure abrite le tombeau de la première génération de Suzaku, là où se trouve le Cristal de Planète de Culture. La section extérieure est un peu plus grande que l'intérieure, mais un simple balayage du sens divin permet de tout y voir ; à l'extérieur se dresse un autel, et ce n'est qu'en passant par cet autel que l'on peut pénétrer à l'intérieur. Mais cet endroit est bien trop différent de ce que Situ Nan a décrit. Mon sens divin ne peut même pas couvrir la section extérieure, sans parler de trouver cet autel. » Wang Lin fronça les sourcils en s'accroupissant pour toucher la terre calcinée, sentant la chaleur sous ses mains.
 
 « Il y a un élément de feu dans cette terre. Cela ne semble pas être le résultat d'un sort ou d'une bataille, mais plutôt l'œuvre d'un esprit élémentaire du feu naturel. » Les yeux de Wang Lin s'animèrent et il prit son envol.
 
@@ -34,7 +34,7 @@ Wang Lin volait rapidement vers la limite de la terre brûlée quand il s'arrêt
 
 Boum!
 
-Un instant après son retrait, un pilier de flammes bleues apparut silencieusement là où Wang Lin se tenait une seconde plus tôt. Cette flamme bleue, d'une épaisseur comparable à celle d'un homme, fit grimper instantanément la température ambiante. L'onde de chaleur générée par ce feu repoussa promptement toute la fumée s'échappant du sol.
+Un instant après son retrait, une boule de flammes bleues apparut silencieusement là où Wang Lin se tenait une seconde plus tôt. Cette flamme bleue, plus grosse qu'un homme, fit grimper instantanément la température ambiante. L'onde de chaleur générée par ce feu repoussa promptement toute la fumée s'échappant du sol.
 
 Cependant, la fumée noire agissait comme un fantôme; une fois repoussée, elle changea de direction pour s'engouffrer dans la flamme bleue au lieu de continuer à flotter vers le haut.
 
@@ -74,9 +74,9 @@ Le sol calciné se mit à trembler violemment avant de commencer à s'étendre �
 
 En plein vol, le regard de Wang Lin devint glacial. Il se retourna et vit cette ligne de terre le poursuivre telle un dragon. À l'avant de cette progression, une boule de flammes bleues arborait les étranges yeux de l'enfant.
 
-« Tu cherches la mort! » Wang Lin n'avait pas utilisé d'énergie spirituelle céleste lors de son précédent coup. Il sortit un jade céleste et absorba toute l'énergie spirituelle qu'il contenait. Ses yeux projetèrent alors une lueur dorée alors qu'il levait lentement l'épée céleste. L'arme irradia une lumière d'or, saturée d'énergie spirituelle céleste, avant que Wang Lin ne la brandisse pour frapper.
+« Tu cherches la mort! » Wang Lin n'avait pas utilisé d'énergie spirituelle céleste lors de son précédent coup. Il sortit un jade céleste et absorba toute l'énergie spirituelle qu'il contenait. Ses yeux projetèrent alors une lueur dorée alors qu'il levait lentement l'épée céleste. L'arme irradia une lumière pourpre et dorée, saturée d'énergie spirituelle céleste, avant que Wang Lin ne la brandisse pour frapper.
 
-Ce seul coup de l'épée céleste était comparable à un châtiment divin. Sa puissance était décuplée par rapport à la précédente. L'énergie de l'épée se déplaça plus vite que le son et atteignit rapidement la terre brûlée qui chargeait vers lui.
+Ce seul coup de l'épée céleste était comparable à un châtiment divin. Sa puissance était incomparablement supérieure à la précédente. L'énergie de l'épée se mua en une image rémanente et, dans un grondement fendant l'air, atteignit aussitôt la terre brûlée qui chargeait vers lui.
 
 Boum!
 
@@ -100,4 +100,4 @@ S'il s'était agi d'un esprit de feu, ce coup d'épée aurait dû le détruire; 
 
 « Même la terre brûlée n'a pas été endommagée; le coup de l'épée céleste n'a fait que la désagréger. De toute façon, cette terre n'était que des grains de poussière fusionnés entre eux. »
 
-« Cet endroit est très étrange... Dès que la terre s'est brisée, j'ai eu l'impression que chaque grain était une âme... Pourraient-ils s'agir de fragments d'âme? » Wang Lin s'arrêta brusquement et regarda derrière lui.
+« Cet endroit est très étrange... Dès que la terre s'est brisée, j'ai eu l'impression que chaque grain était une âme... Pourrait-il s'agir de fragments d'âme? » Wang Lin s'arrêta brusquement et regarda derrière lui.

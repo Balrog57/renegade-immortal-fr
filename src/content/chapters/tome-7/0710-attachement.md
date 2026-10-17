@@ -8,7 +8,7 @@ slug: attachement
 ---
 Les cinq planètes majeures du domaine nordique du Système Stellaire de Luotian possédaient chacune de nombreuses planètes de culture sous leur autorité, sur lesquelles résidaient de multiples familles de cultivateurs. Wang Lin, monté sur le dos de la Bête du Tonnerre, se dirigea directement vers la famille Qian.
 
-Les cultivateurs du second niveau de la famille Qian s'étaient entrés en retraite de culture depuis longtemps; par conséquent, toute la gestion de la famille incombait à Qian Kuizi. Lorsque Wang Lin pénétra sur la planète Mille Illusions, Qian Kuizi le remarqua instantanément.
+Les cultivateurs du second niveau de la famille Qian étaient entrés en retraite de culture depuis longtemps; par conséquent, toute la gestion de la famille incombait à Qian Kuizi. Lorsque Wang Lin pénétra sur la planète Mille Illusions, Qian Kuizi le remarqua instantanément.
 
 En voyant arriver Wang Lin sur la Bête du Tonnerre, il fut convaincu que les propos de l'ancêtre de la famille Huan n'étaient que mensonges. Cet homme était, sans l'ombre d'un doute, un messager du Temple Céleste du Tonnerre.
 
@@ -28,9 +28,9 @@ Bien que le niveau de culture de Qian Kuizi fût supérieur à celui de Wang Lin
 
 Sur la Bête du Tonnerre, le regard de Wang Lin restait calme alors qu'il observait les cultivateurs de la famille Qian. Finalement, ses yeux se posèrent sur Qian Kuizi et il dit: « Senior Qian Kuizi, cela fait longtemps. »
 
-Qian Kuizi rit et répondit: « Je n'ose vous appeler "Senior". Le statut du Seigneur Messager est noble, tandis que mon niveau de culture n'est que légèrement supérieur. Discutons en tant qu'égaux. »
+Qian Kuizi rit et répondit: « Je ne saurais accepter le titre de "Senior". Le statut du Seigneur Messager est noble, tandis que mon niveau de culture n'est que légèrement supérieur. Discutons en tant qu'égaux. »
 
-Bien que Qian Kuizi parlât avec calme, son cœur était bouleversé. D'après ce qu'il pouvait percevoir, cet homme était passé du début du stade d'Ascendant à la fin du stade d'Ascendant en moins d'un siècle. Bien qu'il n'en fût qu'au premier niveau, une telle vitesse était stupéfiante.
+Bien que Qian Kuizi parlât avec calme, son cœur était bouleversé. D'après ce qu'il pouvait percevoir, cet homme était passé du sommet du début de l'Ascendant à la fin de l'Ascendant en moins d'un siècle. Bien qu'il n'en fût qu'au premier niveau, une telle vitesse était stupéfiante.
 
 Seules les diverses méthodes de culture du Temple Céleste du Tonnerre pouvaient permettre une telle progression.
 

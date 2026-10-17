@@ -58,7 +58,7 @@ Tout cela se produisit avec une rapidité telle que le frère aîné fut incapab
 
 Wang Lin fit un pas en avant, fendit le ciel et tendit la main droite. Son doigt sembla percer le vide pour arracher violemment le jeune homme!
 
-Le visage de ce dernier était livide lorsqu'il parvint à articuler: « Je suis du clan de l'Ancêtre Mo... » Sans même lui laisser finir, la main de Wang Lin se referma. Le corps de l'individu s'effondra soudainement en morceaux de chair qui tombèrent au sol.
+Le visage de ce dernier était livide lorsqu'il parvint à articuler: « Je suis le disciple de l'Ancêtre Mo... » Sans même lui laisser finir, la main de Wang Lin se referma. Le corps de l'individu s'effondra soudainement en morceaux de chair qui tombèrent au sol.
 
 Sa force vitale se mua en un gaz grisâtre qui vola vers Wang Lin.
 
@@ -76,7 +76,7 @@ Le point de jonction de l'encerclement se situait près de la frontière entre l
 
 Un brouillard épais et éternel recouvrait la Montagne des Millions de Démons. Deux cités se trouvaient à proximité de ces montagnes, l'une de chaque côté: la Cité du Ciel Paisible du Pays des Démons de Feu, et la Cité du Feu Fondant du Pays des Démons Célestes.
 
-À cet instant, plus de 100 000 soldats démons étaient en position dans la Cité du Ciel Paisible, tandis que plus de dix généraux démons scrutaient l'horizon.
+À cet instant, 100 000 soldats démons étaient en position dans la Cité du Ciel Paisible, tandis que plus de dix généraux démons scrutaient l'horizon.
 
 Parmi les généraux, un homme se distinguait par son rang. C'était un homme d'âge moyen au visage sombre.
 

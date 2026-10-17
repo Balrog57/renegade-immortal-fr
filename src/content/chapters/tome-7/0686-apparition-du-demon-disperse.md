@@ -6,9 +6,9 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 686 - Scatter Devil Appears
 slug: apparition-du-demon-disperse
 ---
-Une épaisse énergie démoniaque qui se répandait à travers le monde apparut avec ce rire. Cette énergie était si dense qu'elle fit jaillir des flammes infernales dans le ciel, lesquelles entrèrent immédiatement en collision avec l'énergie spirituelle céleste de la silhouette qui s'avançait!
+Une épaisse énergie démoniaque qui se répandait à travers le monde apparut avec ce hurlement. Cette énergie était si dense qu'elle fit jaillir des flammes démoniaques dans le ciel, lesquelles entrèrent immédiatement en collision avec l'énergie spirituelle céleste de la silhouette qui s'avançait!
 
-Au cœur des flammes infernales, une épaisse fumée noire jaillit du sommet de la tête de Wang Lin. Cette fumée se condensa pour former la silhouette d'un démon à un seul cor. Une fois apparu, il laissa échapper un autre rire dément.
+Au cœur des flammes démoniaques, une épaisse fumée noire jaillit du sommet de la tête de Wang Lin. Cette fumée se condensa pour former la silhouette d'un démon à une seule corne. Une fois apparu, il poussa un autre hurlement strident.
 
 Sa voix possédait une puissance de pénétration infinie, telle une pointe acérée capable de transpercer le monde.
 
@@ -22,7 +22,7 @@ Au moment où le Démon Dispersé apparut pour la première fois, l'expression d
 
 « Alors, c'était là son atout! »
 
-Huan Fengshen haleta, se réjouissant intérieurement de sa décision prise plus tôt. Tous les disciples de la famille Huan derrière lui ressentirent la même chose.
+Huan Fengshen haleta, se réjouissant intérieurement de sa décision prise plus tôt. Tous les descendants directs de la famille Huan derrière lui ressentirent la même chose.
 
 Le cœur de Qian Kuizi, de la famille Qian, s'emballa sauvagement. Ce Démon Dispersé était trop puissant. Malgré son niveau de culture, il en frissonna réellement à sa vue.
 
@@ -30,7 +30,7 @@ Le cœur de Qian Kuizi, de la famille Qian, s'emballa sauvagement. Ce Démon Dis
 
 Le vieil homme de la famille Xu fut ému pour la première fois. Son sens divin laissa même paraître une pointe d'excitation alors qu'il contemplait la silhouette du Démon Dispersé.
 
-« Un Démon Dispersé! Un démon dispersé créé par un ancien démon! »
+« Un Démon Dispersé! Le démon dispersé d'un Ancien Démon! »
 
 Après son rugissement, le Démon Dispersé laissa échapper un rire sinistre. Il s'élança du sommet de la tête de Wang Lin vers les cieux et prit une stature immense. Il ne daigna même pas regarder la figure céleste qui s'avançait vers lui, préférant fixer Wang Lin d'un regard féroce.
 
@@ -40,7 +40,7 @@ L'expression de Wang Lin resta calme lorsqu'il répondit: « Une fois cette bata
 
 « Bien! » Le Démon Dispersé éclata de rire, puis son corps se mua en brume pour envelopper Wang Lin. Son énergie démoniaque se transforma en d'innombrables filaments qui s'insinuèrent par les sept orifices de Wang Lin.
 
-En un instant, une puissante aura démoniaque se propagea autour de lui. Simultanément, il frappa son sac de stockage et l'armure démoniaque s'en échappa. Elle enveloppa immédiatement Wang Lin, formant cette redoutable armure recouvrant tout son corps.
+En un instant, une puissante aura démoniaque se propagea autour de lui. Simultanément, il frappa son sac de rangement et l'armure démoniaque s'en échappa. Elle enveloppa immédiatement Wang Lin, formant cette redoutable armure recouvrant tout son corps.
 
 Au cours de ce processus, le visage de Wang Lin trahit une expression de douleur. Cependant, son regard devint plus glacial encore, et une fumée noire semblait circuler au fond de ses yeux.
 
@@ -58,7 +58,7 @@ C'est ainsi qu'un accord fut conclu pour obtenir sa liberté. Ce n'était pas qu
 
 Pourtant, le Démon Dispersé avait d'autres projets. Tant que Wang Lin lui rendrait sa liberté, il était certain de pouvoir détruire le sceau de l'Ancien Démon Bei Lou en quelques centaines d'années. À ce moment-là, il serait véritablement libre!
 
-Le Démon Dispersé pénétra dans la tête de Wang Lin. Des flammes infernales apparurent dans les yeux du cultivateur alors qu'il marchait vers la figure céleste. N'utilisant aucun sort, il lança directement un coup de poing.
+Le Démon Dispersé pénétra dans la tête de Wang Lin. Des flammes démoniaques apparurent dans les yeux du cultivateur alors qu'il marchait vers la figure céleste. N'utilisant aucun sort, il lança directement un coup de poing.
 
 Wang Lin se trouvait actuellement dans un état de dissociation. Son corps était contrôlé par le Démon Dispersé, et toute l'énergie spirituelle céleste en son sein s'était instantanément muée en énergie démoniaque. Avec l'âme du démon pénétrant son corps, tout était devenu une force démoniaque.
 
@@ -78,7 +78,7 @@ Cette méthode fit plisser les yeux de Wang Lin, mais le Démon Dispersé qui di
 
 Le regard de Wang Lin restait calme, mais l'énergie démoniaque autour de lui s'intensifia. Sous le contrôle du Démon Dispersé, il pointa le ciel de sa main droite et tonna: « Ancien Démon! »
 
-Ces deux mots furent prononcés dans la langue de l'ordre ancien. À cet instant, la main droite de Wang Lin se mua en griffe, entourée de flammes infernales. Ces flammes quittèrent son corps pour former une gigantesque griffe démoniaque de plusieurs dizaines de pieds de long.
+Ces deux mots furent prononcés dans la langue de l'ordre ancien. À cet instant, la main droite de Wang Lin se mua en griffe, entourée de flammes démoniaques. Ces flammes quittèrent son corps pour former une gigantesque griffe démoniaque de plusieurs dizaines de pieds de long.
 
 Tendant sa main vers la terre en contrebas, Wang Lin prononça à nouveau les mots de l'ordre ancien: « Extrayez l'âme de la planète! »
 

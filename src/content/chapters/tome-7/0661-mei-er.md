@@ -64,7 +64,7 @@ Sans avoir traversé d'innombrables épreuves de vie ou de mort, peu importe leu
 
 Wang Lin les observa froidement. « Connaissez-vous la planète Dong Lin?! »
 
-Le visage de Ran Yue s'affaissa et elle dit respectueusement: « Senior, la planète Dong Lin est la première planète du domaine Nord. Elle porte un autre nom: le Massacre de Dong Lin. Cette planète a aussi une particularité étrange: elle apparaît parfois, puis disparaît soudainement... » Ran Yue ne dit pas le reste: tous ceux qui venaient de Dong Lin étaient des êtres impitoyables. Un jour, un cultivateur originaire de cette planète avait massacré toutes les familles d'une planète de culture.
+Le visage de Ran Yue s'affaissa et elle dit respectueusement: « Senior, la planète Dong Lin est la première planète du domaine Est. Elle porte un autre nom: l'Étoile Meurtrière de Dong Lin. Cette planète a aussi une particularité étrange: elle apparaît parfois, puis disparaît soudainement... » Ran Yue ne dit pas le reste: tous ceux qui venaient de Dong Lin étaient des êtres impitoyables. Un jour, un cultivateur originaire de cette planète avait massacré toutes les familles d'une planète de culture.
 
 La planète Dong Lin était un cauchemar terrifiant pour la plupart des habitants du système stellaire de Luotian.
 
@@ -90,7 +90,7 @@ Les quatre guides, le visage livide, rentrèrent immédiatement auprès de leurs
 
 Alors que Wang Lin pénétrait sur la planète Ran Yun, un éclat noir et terrifiant traversait le système stellaire de l'Alliance. Cette lumière dégageait une aura sinistre. Telle un éclair fendant l'espace, elle exerçait une pression capable de faire trembler les fondations du monde.
 
-Un vieil homme se trouvait au cœur de ce rayon rouge. Un regard impitoyable marquait son visage émacié. Le plus stupéfiant était qu'il n'utilisait aucun trésor magique pour voyager; chaque pas semblait être une téléportation.
+Un vieil homme se trouvait au cœur de ce rayon noir. Son visage émacié, empreint d'arrogance, laissait parfois passer une lueur de cruauté. Le plus stupéfiant était qu'il n'utilisait aucun trésor magique pour voyager; chaque pas semblait être une téléportation.
 
 Il n'était pas seul. Une femme l'accompagnait, d'une beauté incomparable. Ses lèvres étaient rouges, ses sourcils parfaitement dessinés, et ses yeux de phénix, d'un noir profond, possédaient un éclat capable de couper le souffle à quiconque.
 

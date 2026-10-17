@@ -74,9 +74,9 @@ Sur le bateau, la femme qui jouait de la cithare, touchée par cette mélancolie
 
 Wang Lin leva la tête vers les cieux et murmura: « J'ai conservé mon attachement... »
 
-Le Dao des Cieux est la voie céleste. Même les familles royales mortelles ont affirmé que les véritables souverains du monde n'étaient pas les rois! Le Dao des Cieux est infini; il s'étend à travers l'univers et imprègne toute chose!
+Le Dao des Cieux est la voie céleste. Même les familles royales mortelles ont proclamé que sous le ciel tout entier, il n'est de terre qui ne soit celle du roi! Le Dao des Cieux est infini; il s'étend à travers l'univers et imprègne toute chose!
 
-Qu'il s'agisse de la Terre des Esprits Démoniaques ou même de la demeure d'un être céleste, le Dao des Cieux ne cessera jamais de descendre! Car tout ce qui existe dans le monde fait partie du Dao des Cieux; si une chose existe, c'est parce que le Dao des Cieux l'autorise à être!
+Qu'il s'agisse de la Terre des Esprits Démoniaques ou même de la demeure d'un Empereur Céleste, le Dao des Cieux ne cessera jamais de descendre! Car tout ce qui existe dans le monde fait partie du Dao des Cieux; si une chose existe, c'est parce que le Dao des Cieux l'autorise à être!
 
 Dao des Cieux, descends!
 

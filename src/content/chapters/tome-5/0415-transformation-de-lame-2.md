@@ -7,7 +7,7 @@ en: Chapter 415 - Soul Transformation (2)
 slug: transformation-de-lame-2
 ---
 
-En chemin, Wang Lin déploya son sens divin et aperçut de nombreux cultivateurs dont les expressions disgracieuses ne semblaient que dissimuler leurs inquiétudes. Même lorsqu'ils croisaient une connaissance, ils se contentaient d'un bref salut avant de reprendre chacun leur route.
+En chemin, Wang Lin déploya son sens divin et aperçut de nombreux cultivateurs dont les expressions disgracieuses laissaient transparaître leurs inquiétudes. Même lorsqu'ils croisaient une connaissance, ils se contentaient d'un bref salut avant de reprendre chacun leur route.
 
 Alors qu'il volait, Wang Lin fronça soudainement les sourcils. Plus d'une dizaine de cultivateurs, dont les sens divins étaient liés par un lien mystérieux, balayaient la zone.
 
@@ -19,7 +19,7 @@ Lorsque leur balayage fut sur le point de le détecter, Wang Lin n'eut pas le te
 
 Aucun d'eux ne remarqua l'anomalie et ils poursuivirent leur inspection.
 
-Grâce à sa grande vitesse, Wang Lin arriva peu après aux abords de la Secte du Affinement de l'Âme. La formation de protection de la secte était déjà activée. Elle formait un nuage noir autour de la secte, une masse qui semblait grouillante de fantômes.
+Grâce à sa grande vitesse, Wang Lin arriva peu après aux abords de la Secte de l'Affinement de l'Âme. La formation de protection de la secte était déjà activée. Elle formait un nuage noir autour de la secte, une masse qui semblait grouillante de fantômes.
 
 Des vagues de hurlements s'échappaient par intermittence du nuage. L'endroit paraissait terrifiant, presque comme les enfers.
 
@@ -29,11 +29,11 @@ En voyant la formation de protection, Wang Lin poussa un soupir de soulagement. 
 
 « Entre! » ordonna Wang Lin en pointant le drapeau, qui se mit en mouvement. Il enveloppa rapidement Wang Lin et l'entraîna à travers la formation.
 
-Au moment où le drapeau chargea vers le brouillard noir, les fragments d'âmes s'écartèrent pour laisser passer Wang Lin. Puis, lui et le drapeau disparurent dans les profondeurs de la formation de la Secte du Affinement de l'Âme.
+Au moment où le drapeau chargea vers le brouillard noir, le brouillard noir s'écarta pour laisser passer Wang Lin. Puis, lui et le drapeau disparurent dans les profondeurs de la formation de la Secte de l'Affinement de l'Âme.
 
 Peu après, le nuage noir retrouva son aspect normal; le passage qui s'était ouvert fut promptement scellé.
 
-Il n'y avait pas eu beaucoup de changements depuis la dernière visite de Wang Lin, mais il semblait y avoir encore moins de disciples; seuls 10 % d'entre eux étaient présents.
+Il n'y avait pas eu beaucoup de changements depuis la dernière visite de Wang Lin, mais il semblait y avoir encore moins de disciples; moins de 10 % d'entre eux étaient présents.
 
 En regardant au loin, parmi les neuf anneaux dorés, seuls trois subsistaient...
 
@@ -45,17 +45,17 @@ Du Tian paraissait encore plus vieux qu'auparavant et tout son corps dégageait 
 
 « Tu as percé le secret... Ce n'est pas grave; il me reste encore quelques années. Je ne mourrai pas si tôt. » Du Tian laissa échapper un rire et, tandis qu'il riait, l'aura de mort autour de lui sembla s'atténuer.
 
-« Pas mal. En ces courtes années, ton niveau de culture a beaucoup progressé. Tu as déjà atteint le stade où tu dois absorber l'énergie spirituelle céleste pour raffiner ton corps. Si tu possèdes une grande quantité de jades célestes, alors ce ne sera qu'une question de temps avant que tu n'atteignes le stade de la Transformation de l'Âme! » Du Tian observa Wang Lin de plus près. Ce qu'il vit le choqua et fit briller ses yeux d'un éclat intense.
+« Pas mal. En ces courtes années, ton niveau de culture a beaucoup progressé. Tu as déjà atteint le stade où l'on affine l'énergie céleste pour la transformer en souffle, où les os se solidifient et la chair se dépouille. Si tu possèdes une grande quantité de jades célestes, alors ce ne sera qu'une question de temps avant que tu n'atteignes le stade de la Transformation de l'Âme! » Du Tian observa Wang Lin de plus près. Ce qu'il vit le choqua et fit briller ses yeux d'un éclat intense.
 
 Wang Lin réfléchit un instant avant de demander: « L'aîné possède-t-il des jades célestes? »
 
-Du Tian leva les yeux vers le ciel et éclata de rire. « Quel genre d'individu tu fais, Ceng Niu. Tu reviens à la Secte du Affinement de l'Âme uniquement pour des jades célestes. Si tu en avais suffisamment, je crains que tu ne sois même pas revenu. »
+Du Tian leva les yeux vers le ciel et éclata de rire. « Quel genre d'individu tu fais, Ceng Niu. Tu reviens à la Secte de l'Affinement de l'Âme uniquement pour des jades célestes. Si tu en avais suffisamment, je crains que tu ne sois même pas revenu. »
 
 Wang Lin esquissa un léger sourire et secoua la tête. « Je reviendrais tout de même pour le drapeau d'âmes d'un milliard. »
 
-Les yeux de Du Tian s'illuminèrent. Il regarda Wang Lin avec une expression approbatrice et sourit. « Bien, le drapeau d'âmes d'un milliard est à toi. Mon fragment d'âme sera aussi le tien dans quelques années; par la même occasion, toute la Secte du Affinement de l'Âme t'appartiendra! Si cet endroit ne te plaît pas, tu pourras abandonner la secte ici présente, mais tu devras te souvenir de ma bonté à ton égard et tenir ta promesse.
+Les yeux de Du Tian s'illuminèrent. Il regarda Wang Lin avec une expression approbatrice et sourit. « Bien, le drapeau d'âmes d'un milliard est à toi. Mon fragment d'âme sera aussi le tien dans quelques années; par la même occasion, toute la Secte de l'Affinement de l'Âme t'appartiendra! Si cet endroit ne te plaît pas, tu pourras abandonner la secte ici présente, mais tu devras te souvenir de ma bonté à ton égard et tenir ta promesse.
 
-« Ce vieil homme n'exige qu'une seule chose: que tu gardes le drapeau d'âmes d'un milliard en sécurité. Tant que ce drapeau subsiste, ma Secte du Affinement de l'Âme continue d'exister. Cette planète est trop petite pour un être comme toi, Ceng Niu. Lorsque tu partiras, tu devras trouver un lieu propice à la renaissance de ma Secte du Affinement de l'Âme. Tu devras également ériger 999 tours atteignant les cieux afin d'accomplir le rêve de ma secte: devenir un pays de culture de rang 6.
+« Ce vieil homme n'exige qu'une seule chose: que tu gardes le drapeau d'âmes d'un milliard en sécurité. Tant que ce drapeau subsiste, ma Secte de l'Affinement de l'Âme continue d'exister. Cette planète est trop petite pour un être comme toi, Ceng Niu. Lorsque tu partiras, tu devras trouver un lieu propice à la renaissance de ma Secte de l'Affinement de l'Âme. Tu devras également ériger 999 tours atteignant les cieux afin d'accomplir le rêve de ma secte: devenir un pays de culture de rang 6.
 
 « Écoute bien, Ceng Niu! »
 
@@ -67,11 +67,11 @@ Il prit une profonde inspiration, agita ses manches et déclara: « Suis-moi! »
 
 Sur ce, il ouvrit la marche et Wang Lin le suivit de près.
 
-Les deux se déplacèrent avec la rapidité de l'éclair à travers la Secte du Affinement de l'Âme pour atteindre la montagne arrière.
+Les deux se déplacèrent avec la rapidité de l'éclair à travers la Secte de l'Affinement de l'Âme pour atteindre la montagne arrière.
 
 Du Tian libéra un sceau, faisant trembler les environs tandis qu'un vortex noir surgissait soudainement. Des éclairs noirs parcouraient le tourbillon, d'où se dégageait une aura de danger immédiat.
 
-« Ceci est la zone interdite de ma Secte du Affinement de l'Âme. Seuls ceux qui maîtrisent la technique de scellement de l'âme sont autorisés à entrer ici; t'y conduire ne brise donc pas les lois de la secte. » Une fois ses paroles achevées, Du Tian disparut dans le vortex.
+« Ceci est la zone interdite de ma Secte de l'Affinement de l'Âme. Seuls ceux qui maîtrisent la technique de scellement de l'âme sont autorisés à entrer ici; t'y conduire ne brise donc pas les lois de la secte. » Une fois ses paroles achevées, Du Tian disparut dans le vortex.
 
 Wang Lin réfléchit un instant. Bien que son visage restât impassible, il redoubla de vigilance en suivant prudemment Du Tian à l'intérieur.
 
@@ -79,19 +79,19 @@ Dès qu'il pénétra dans le vortex, il eut l'impression d'entrer dans une matri
 
 Cette cavité n'était pas très vaste. Contre le mur face à lui se trouvaient plus de trente tablettes taillées dans du jade céleste.
 
-« Ce sont les tablettes commémoratives de tous les anciens cultivateurs au stade de la Transformation de l'Âme de la Secte du Affinement de l'Âme. » Du Tian s'inclina devant ces stèles.
+« Ce sont les tablettes commémoratives de tous les anciens cultivateurs au stade de la Transformation de l'Âme de la Secte de l'Affinement de l'Âme. » Du Tian s'inclina devant ces stèles.
 
 Wang Lin s'inclina également.
 
 Une lueur de joie passa dans les yeux de Du Tian et il hocha discrètement la tête. Puis, il se déplaça sur le côté et pressa sa main contre une paroi. Peu après, des grondements retentirent de toutes parts.
 
-« Ceng Niu, assieds-toi en position du lotus. Ma Secte du Affinement de l'Âme ne dispose plus de beaucoup de jades célestes. Bien que nous en ayons accumulé une grande quantité lors de notre transfert depuis la Planète des Quatre Saints, après des dizaines de milliers d'années et plus de trente cultivateurs de la Transformation de l'Âme, nos réserves sont épuisées depuis longtemps. Les jades restants sont ceux que mon grand frère apprenti et moi avons obtenus du Royaume Céleste dans notre jeunesse. Je crains qu'ils ne suffisent pas à tes besoins. Cependant, ne t'en fais pas; même si cela s'avère insuffisant, je n'aurai qu'à t'emmener en voler d'autres. Quoi qu'il en soit, tu dois atteindre le stade de la Transformation de l'Âme sans tarder.
+« Ceng Niu, assieds-toi en position du lotus. Ma Secte de l'Affinement de l'Âme ne dispose plus de beaucoup de jades célestes. Bien que nous en ayons accumulé une grande quantité lors de notre transfert depuis la Planète des Quatre Saints, après des dizaines de milliers d'années et plus de trente cultivateurs de la Transformation de l'Âme, nos réserves sont épuisées depuis longtemps. Les jades restants sont ceux que mon grand frère apprenti et moi avons obtenus du Royaume Céleste dans notre jeunesse. Je crains qu'ils ne suffisent pas à tes besoins. Cependant, ne t'en fais pas; même si cela s'avère insuffisant, je n'aurai qu'à t'emmener en voler d'autres. Quoi qu'il en soit, tu dois atteindre le stade de la Transformation de l'Âme sans tarder.
 
-« Ma Secte du Affinement de l'Âme n'a jamais eu à craindre la pénurie de jades célestes car, dès que quelqu'un est prêt pour la Transformation de l'Âme, nous choisissons une secte et emmenons le drapeau d'âmes d'un milliard pour ravir ce qui nous est nécessaire. Si une seule secte ne suffit pas, nous en visiterons deux; si deux ne suffisent pas, nous irons vers une troisième. Tôt ou tard, nous obtiendrons assez de jades célestes. »
+« Ma Secte de l'Affinement de l'Âme n'a jamais eu à craindre la pénurie de jades célestes car, dès que quelqu'un est prêt pour la Transformation de l'Âme, nous choisissons une secte et emmenons le drapeau d'âmes d'un milliard pour ravir ce qui nous est nécessaire. Si une seule secte ne suffit pas, nous en visiterons deux; si deux ne suffisent pas, nous irons vers une troisième. Tôt ou tard, nous obtiendrons assez de jades célestes. »
 
 « Lorsque j'ai atteint le stade de la Transformation de l'Âme, mon maître a pris le drapeau d'âmes d'un milliard et a pillé toutes les sectes des trois pays de culture de rang 5. » Tandis que Du Tian parlait, une fierté manifeste brillait dans son regard.
 
-Wang Lin ne put qu'esquisser un sourire amer en entendant cela. Il pensait que la Secte du Affinement de l'Âme était véritablement tyrannique. Le drapeau d'âmes d'un milliard était un objet que même Suzaku redoutait. Avec un tel trésor, la Secte du Affinement de l'Âme pouvait balayer la planète entière sans que personne n'ose s'y opposer. Il comprenait mieux comment ils avaient pu engendrer autant de cultivateurs de la Transformation de l'Âme; tout le jade céleste qu'ils utilisaient avait été dérobé à autrui.
+Wang Lin ne put qu'esquisser un sourire amer en entendant cela. Il pensait que la Secte de l'Affinement de l'Âme était véritablement tyrannique. Le drapeau d'âmes d'un milliard était un objet que même Suzaku redoutait. Avec un tel trésor, la Secte de l'Affinement de l'Âme pouvait balayer la planète entière sans que personne n'ose s'y opposer. Il comprenait mieux comment ils avaient pu engendrer autant de cultivateurs de la Transformation de l'Âme; tout le jade céleste qu'ils utilisaient avait été dérobé à autrui.
 
 À cet instant, les grondements s'intensifièrent et le sol commença à se fissurer. Deux blocs de jade céleste, chacun de la taille d'un homme, émergèrent des profondeurs.
 
@@ -111,9 +111,9 @@ Du Tian pointa l'air du doigt et ordonna: « Debout! »
 
 Des lignes blanches jaillirent des connexions entre les drapeaux et encerclèrent complètement Wang Lin.
 
-« Ceng Niu, grâce à cette formation, la vitesse à laquelle tu absorberas et convertiras ton énergie spirituelle sera décuplée. Ce vieux n'a jamais été avare envers toi. »
+« Ceng Niu, grâce à cette formation, la vitesse à laquelle tu absorberas et convertiras ton énergie spirituelle sera accrue. Ce vieux n'a jamais été avare envers toi. »
 
-Une quantité infinie d'énergie spirituelle céleste s'engouffra dans son corps, que celui-ci raffina sans relâche, provoquant une mutation de l'énergie spirituelle qui le habitait.
+Une quantité infinie d'énergie spirituelle céleste s'engouffra dans son corps, que celui-ci raffina sans relâche, provoquant une mutation de l'énergie spirituelle qui l'habitait.
 
 Wang Lin finit par perdre la notion du temps, totalement absorbé par l'absorption et la conversion de cette énergie céleste. Tout au long de ce processus, il acquit une compréhension profonde de la nature même de l'énergie spirituelle céleste.
 

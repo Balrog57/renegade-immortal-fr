@@ -18,7 +18,7 @@ Avant qu'il ne puisse finir sa phrase, Wang Lin agita la main droite. Le corps d
 
 Wang Lin ne l'avait pas tué, car il ne possédait que peu d'énergie spirituelle et était encore considéré comme un mortel.
 
-Avec l'expérience de Wang Lin, ce jeune homme en violet était soit le descendant direct d'une famille de cultivation, soit issu d'un lignage noble parmi les mortels.
+Avec l'expérience de Wang Lin, ce jeune homme en violet était soit le descendant direct d'une famille de cultivation, soit issu d'un lignage noble parmi les mortels. Quant au vieil homme de la Formation du Noyau et à la femme nommée Qing Yi, il s'agissait manifestement d'un maître et de son disciple.
 
 Cependant, quelle que soit son identité, cela n'importait guère à Wang Lin. Sur la planète Ran Yun, il était l'ancêtre suprême.
 
@@ -50,13 +50,13 @@ La main droite du vieillard traça un sceau et le projeta vers l'homme. Le sceau
 
 Après avoir fait cela, il lança un regard sombre à Wang Lin et dit: « Votre méthode est vraiment impitoyable. Pensez-vous que ma famille Sun restera les bras croisés en apprenant cela?! »
 
-Wang Lin ne daigna même pas un regard au vieillard. Il reposa sa cruche de vin et dit calmement: « Ping Er, allons-nous. » Sur ce, il se leva et se dirigea vers la sortie.
+Wang Lin ne daigna même pas un regard au vieillard. Il reposa sa cruche de vin et dit calmement: « Ping Er, allons-y. » Sur ce, il se leva et se dirigea vers la sortie.
 
-Wang Ping sourit à Qing Yi. En voyant ce sourire, le visage de la jeune fille s'empourpra. Wang Ping éprouvait déjà de bons sentiments pour elle, car lorsque sa maîtresse s'était montrée hostile, elle avait tenté de l'en empêcher.
+Wang Ping sourit à Qing Yi. En voyant ce sourire, le visage de la jeune fille s'empourpra. Wang Ping éprouvait déjà de bons sentiments pour elle, car lorsque son maître s'était montré hostile, elle avait tenté de l'en empêcher.
 
 Une fois levé, Wang Ping suivit son père hors du restaurant.
 
-Le vieillard laissa échapper un reniflement glacial et fit un pas en avant pour les barrer la route. Les deux autres vieillards firent de même.
+Le vieillard laissa échapper un reniflement glacial et fit un pas en avant pour leur barrer la route. Les deux autres vieillards firent de même.
 
 « Finissons d'en discuter, et ensuite vous pourrez partir! »
 
@@ -74,7 +74,7 @@ Wang Lin passa devant lui et quitta le restaurant. Wang Ping le suivit et, au mo
 
 Le visage de Qing Yi devint encore plus rouge.
 
-« Juste une fois! » La voix de Wang Lin retentit depuis l'extérieur du restaurant et résonna lentement dans les oreilles des cultivateurs de la famille Sun. Il fallut un long moment avant qu'ils ne reprennent leurs esprits, et lorsqu'ils le firent, leurs yeux étaient empreints d'horreur.
+« Juste une fois, et pas de prochaine fois! » La voix de Wang Lin retentit depuis l'extérieur du restaurant et résonna lentement dans les oreilles des cultivateurs de la famille Sun. Il fallut un long moment avant qu'ils ne reprennent leurs esprits, et lorsqu'ils le firent, leurs yeux étaient empreints d'horreur.
 
 Après avoir quitté le restaurant, Wang Ping hésita un instant avant de rattraper son père en souriant: « Père, connaissez-vous la famille Sun? »
 

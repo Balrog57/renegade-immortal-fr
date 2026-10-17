@@ -8,7 +8,7 @@ slug: la-rebellion-de-xu-liguo-echoue-partie-3
 ---
 À cet instant, des filaments de gaz gris jaillirent entre les sourcils de Wang Lin. Plus de 3 000 filaments de gaz gris s'élancèrent et encerclèrent la lame en forme de demi-lune.
 
-Mais la lame était trop rapide. Elle profita du moment où le gaz gris se rapprochait encore pour bondir. Cependant, au moment même où elle s'apprêtait à s'échapper, Wang Lin apparut devant elle et la renvoya d'un revers de main.
+Mais la lame était trop rapide. Elle profita du moment où le gaz gris se rapprochait encore pour bondir. Cependant, au moment même où elle s'apprêtait à s'échapper, les doigts de Wang Lin apparurent devant elle et, d'une chiquenaude, la renvoyèrent en arrière.
 
 Wang Lin ordonna: « Rassemblez-vous! »
 
@@ -24,7 +24,7 @@ Xu Liguo hocha précipitamment la tête en disant: « Je sais, je comprends! » 
 
 « Dans la Cité du Démon Céleste, les experts sont aussi communs que les nuages. Penses-tu vraiment que personne ne te remarquera? Une fois découvert avec ta faible culture, tu ne feras que te faire capturer, on effacera ta volonté et tu deviendras l'esprit de lame pour leur trésor. Xu Liguo, ne comprends-tu toujours pas? » La voix de Wang Lin résonna dans le cœur de Xu Liguo comme le coup d'une cloche géante.
 
-Il fut stupéfait et resta hébété, puis murmura faiblement: « Cela... je ne peux pas me faire trouver... » Son cœur commença à battre la chamade. Après avoir écouté Wang Lin, il le croyait à 80 %. Il se demanda si, s'il était capturé par quelqu'un d'autre, cette personne serait aussi curieuse que l'Ancêtre du Clan des Démons Géants.
+Il fut stupéfait et resta hébété, puis murmura faiblement: « Cela... je ne devrais pas être découvert, n'est-ce pas... » Son cœur commença à battre la chamade. Après avoir écouté Wang Lin, il le croyait à 80 %. Il se demanda si, s'il était capturé par quelqu'un d'autre, cette personne serait aussi curieuse que l'Ancêtre du Clan des Démons Géants.
 
 « Cependant, si j'étais capturé par le propriétaire de la petite beauté, ce serait une bonne chose. Alors, la petite beauté et moi serions ensemble... » Xu Liguo pensa cela en secret, mais il n'osa pas le dire à Wang Lin.
 
@@ -32,7 +32,7 @@ Wang Lin regarda froidement Xu Liguo comme s'il avait percé ses pensées les pl
 
 Wang Lin dit lentement: « Tu as pas mal appris de l'esprit de la lame en forme de demi-lune noire. »
 
-Xu Liguo cligna des yeux et, sans hésiter, raconta à Wang Lin tous les sorts de lame qu'il avait appris, y compris comment dissimuler sa présence, fusionner complètement avec l'épée céleste, et comment, à pleine puissance, rendre l'épée plusieurs fois plus forte, et ainsi de suite.
+Xu Liguo cligna des yeux et, sans hésiter, raconta à Wang Lin tous les sorts de lame qu'il avait appris, y compris comment dissimuler sa présence, fusionner complètement avec l'épée céleste, et comment, à pleine puissance, renforcer considérablement la puissance de l'épée, et ainsi de suite.
 
 Tout en parlant, il sondait secrètement l'humeur de Wang Lin avec une extrême prudence. Il n'avait pas ressenti cela depuis plus d'un siècle, mais maintenant que le sentiment revenait, il ne lui semblait pas du tout étranger.
 
@@ -46,7 +46,7 @@ Une fois cela fait, il agita sa main droite et la lame s'envola, libérant un ch
 
 Wang Lin sortit l'épée céleste et la lança à Xu Liguo. Ce dernier se détendit instantanément, affichant une expression joyeuse alors qu'il fusionnait avec l'épée.
 
-La lame en forme de demi-lune flottait dans les airs et, remarquant que Xu Liguo n'était plus en danger, elle hésita. Bien qu'elle détestât Wang Lin, elle finit par suivre l'exemple de Xu Liguo et flotta aux côtés de ce dernier.
+La lame en forme de demi-lune flottait dans les airs et, remarquant que Xu Liguo n'était plus en danger, elle hésita. Bien qu'elle détestât Wang Lin, elle finit, comme Xu Liguo, par rester à ses côtés.
 
 Pour être plus précis, la lame suivait Xu Liguo.
 
@@ -64,7 +64,7 @@ Après avoir récupéré l'épée et la lame, Wang Lin retourna à la ville de H
 
 En plein vol, il fronça les sourcils, s'arrêta et dit: « Qu'est-ce que c'est? »
 
-Plusieurs personnes apparurent de l'autre côté de cette longue route. Il y avait des hommes et des femmes parmi eux, tous au stade de la Transformation de l'Âme. Certains avaient même atteint les stades intermédiaire ou tardif de la Transformation de l'Âme.
+Plusieurs personnes apparurent de l'autre côté de cette longue route. Il y avait des hommes et des femmes parmi eux, tous au moins au stade de la Transformation de l'Âme. Certains avaient même atteint les stades intermédiaire ou tardif de la Transformation de l'Âme.
 
 L'expression de Wang Lin resta calme alors qu'il observait les cultivateurs sans dire un mot. Il ne sentit aucune intention meurtrière émaner d'eux, mais plutôt une profonde tristesse et une immense indignation.
 
@@ -72,7 +72,7 @@ Un homme en robe blanche sortit du groupe. Le regard brillant, il joignit les ma
 
 Wang Lin balaya l'assemblée du regard et comprit approximativement ce qu'ils pensaient. À cet instant, il joignit également les mains et dit: « Vous me flattez! »
 
-L'homme en robe blanche soupira: « Je suis le jeune maître de la Secte de l'Épée de Jade. J'ai été contraint de participer au concours des généraux démons. Les actions du frère Wang il y a quelques jours ont été comme un coup de massue qui m'a réveillé. Dans cette Terre des Esprits Démoniaques, nous, les cultivateurs, sommes inférieurs aux fourmis. Les généraux démons sont immortels, et tuer un général démon signifie que nous mourrons avec lui; au final, seuls les cultivateurs peuvent périr. Nous ne sommes que des acteurs jouant pour le divertissement des généraux démons! »
+L'homme en robe blanche soupira: « Je suis le jeune maître de la Secte de l'Épée de Jade. J'ai été contraint de participer au concours des généraux démons. Les actions du frère Wang il y a quelques jours ont été comme un coup de massue qui m'a réveillé. Dans cette Terre des Esprits Démoniaques, nous, les cultivateurs, sommes inférieurs aux fourmis. Les généraux démons ne doivent pas mourir, et celui qui en tue un doit les accompagner dans la mort; au final, seuls nous, les cultivateurs, mourons. Nous ne sommes que des acteurs jouant pour le divertissement des barbares de la Terre des Esprits Démoniaques! »
 
 Wang Lin réfléchit en silence.
 
@@ -88,7 +88,7 @@ Les cultivateurs sont des êtres qui marchent contre les lois du ciel et possèd
 
 Cependant, marcher contre le ciel a un sens profond. Les cultivateurs qui partaient ne se rebellaient pas, ils fuyaient!
 
-Une véritable rébellion consiste à ne pas fuir le monde, à ne pas fuir le destin, à ne pas fuir les lois célestes, mais à marcher avec force contre tout cela!
+Une véritable rébellion consiste à ne pas fuir le monde, à ne pas fuir le destin, à ne pas fuir les lois célestes, mais à avancer à contre-courant au sein même du courant!
 
 « Un cultivateur qui n'a pas son propre Dao n'est plus un cultivateur... » Wang Lin ne vola pas, il marcha sur la route. Son ombre, étirée par la lune, était très longue.
 
@@ -108,13 +108,13 @@ Le temps passa lentement et les ténèbres qui couvraient la terre furent repous
 
 À cet instant, ce fut comme si un éclair traversait son esprit tandis qu'un chant de cithare résonnait dans sa tête. Il eut le sentiment d'atteindre un moment d'éveil!
 
-« Le fait que la nuit soit balayée par le soleil peut-il être considéré comme un acte de défi? Ce défi à la nature sera la clé pour atteindre le stade Ascendant! » Wang Lin avait une idée vague. Sa compréhension n'était pas encore profonde, mais elle était enracinée.
+« Le fait que la nuit soit balayée par le soleil peut-il être considéré comme un acte de défi? Ce défi sera la clé pour atteindre le stade Ascendant! » Wang Lin avait une idée vague. Sa compréhension n'était pas encore profonde, mais elle était enracinée.
 
-Une lumière mystérieuse brilla dans ses yeux. Au lieu de retourner au Manoir Mo, il se dirigea vers le lac. Il s'assit sur la berge tel un vieux moine en méditation. Bien qu'aucune musique ne fût jouée, le son continuait de résonner à ses oreilles.
+Une lumière mystérieuse brilla dans ses yeux. Au lieu de retourner au Manoir Mo, il se dirigea vers la rivière. Il s'assit sur la berge tel un vieux moine en méditation. Bien qu'aucune musique ne fût jouée, le son continuait de résonner à ses oreilles.
 
 « La musique de la cithare n'a pas d'émotion, mais par la tristesse du cœur, elle devient une mélodie mélancolique. Ce n'est pas une rébellion, c'est différent de ce que j'ai ressenti plus tôt. Alors pourquoi, quand j'écoute cette musique, puis-je ressentir un sentiment de rébellion...? »
 
-Il était midi et le soleil brillait au zénith. Les bateaux arrivèrent, et le jeune homme d'il y a quelques jours se tenait aux côtés de la femme jouant de la cithare. Cette fois, son regard se posa sur Wang Lin, bien qu'il fût encore loin.
+Il était midi et le soleil brillait au zénith. Le bateau arriva, et le jeune homme d'il y a quelques jours se tenait aux côtés de la femme jouant de la cithare. Cette fois, son regard se posa sur Wang Lin, bien qu'il fût encore loin.
 
 Alors que la musique flottait jusqu'à lui, le jeune homme se leva près de la femme, prit sa coupe de vin et la leva vers Wang Lin en signe de salut.
 
@@ -152,7 +152,7 @@ Wang Lin but et répondit: « Je ne suis qu'un roturier. Même si j'étais un pa
 
 Le jeune homme lui lança un regard entendu: « Trop d'invités impolis à la maison. C'est trop bruyant là-bas, alors mon âme est venue ici chercher la paix. »
 
-Wang Lin dit doucement: « Vous êtes donc un homme marié. »
+Wang Lin dit doucement: « Vous avez donc un foyer. »
 
 Le jeune homme demanda: « Mon frère n'a-t-il pas de foyer? »
 
@@ -178,7 +178,7 @@ Durant ces quelques jours, en dehors d'Ao Di, aucun général démon n'avait sub
 
 Après tout, c'était un véritable massacre entre cultivateurs!
 
-Lorsque les membres de la Secte de l'Épée de Da Lou s'étaient opposés aux généraux démons, ils s'étaient retenus. Mais face aux cultivateurs, ils s'étaient montrés d'une cruauté extrême, comme pour faire étalage de leur puissance.
+Lorsque les membres de la Secte de l'Épée de Da Luo s'étaient opposés aux généraux démons, ils s'étaient retenus. Mais face aux cultivateurs, ils s'étaient montrés d'une cruauté extrême, comme pour faire étalage de leur puissance.
 
 La lumière matinale balaya la place de 33 kilomètres. La foule était encore plus nombreuse qu'auparavant. Après tout, les combats suivants seraient les véritables affrontements. Hormis quelques chanceux, tous les prétendants restants étaient célèbres!
 

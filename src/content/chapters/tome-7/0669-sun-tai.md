@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 669 - Sun Tai
 slug: sun-tai
 ---
-Au deuxième étage de la salle des enchères, un homme d'âge mûr vêtu de robes rouges tenait une boîte en jade dans sa main. Il l'ouvrit, révélant une pilule de la taille du poing d'un nouveau-né.
+Au deuxième étage de la salle des enchères, un homme d'âge mûr vêtu de robes rouges tenait une boîte en jade noir dans sa main. Il l'ouvrit, révélant une pilule enrobée de cire, de la taille du poing d'un nouveau-né.
 
 Elle ne dégageait aucun parfum médicinal; la pilule semblait tout à fait ordinaire.
 
@@ -88,9 +88,9 @@ Wang Lin réfléchit un instant puis prononça lentement: « Sun Tai. »
 
 Dès que ces deux mots atteignirent les oreilles du vieil homme, tout son corps fut secoué par un tremblement. Il tourna brusquement la tête vers Wang Lin et s'exclama avec choc: « Vous... C'est vraiment vous! »
 
-Wang Lin sonda Sun Tai de son Sens Divin avant de froncer les sourcils: « Comment le pouvoir de la lignée de l'Ancêtre du Clan des Démons Géants a-t-il pu vous envoyer dans le système stellaire de Luotian? »
+Wang Lin sonda Sun Tai de son Sens Divin avant de froncer les sourcils: « Comment le pouvoir divin de l'Ancêtre du Clan des Démons Géants a-t-il pu vous envoyer dans le système stellaire de Luotian? »
 
-Sun Tai afficha une expression amère: « J'ai moi-même été perplexe pendant des centaines d'années. Selon mes connaissances, la puissance de cette lignée ne devrait pas être aussi grande. »
+Sun Tai afficha une expression amère: « J'ai moi-même été perplexe pendant des centaines d'années. Selon mes connaissances, la puissance du pouvoir divin du Clan des Démons Géants ne devrait pas être aussi grande. »
 
 Wang Lin demanda: « La marque sur votre corps est très faible. Pourquoi? »
 

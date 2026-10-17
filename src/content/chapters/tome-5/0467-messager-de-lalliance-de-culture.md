@@ -16,7 +16,7 @@ Après avoir créé cette âme Ascendante, Wang Lin se retira sans la moindre h�
 
 Wang Lin était parfaitement conscient de ce point.
 
-« Oh? Tu possèdes quelques talents; rien n'est plus étonnant si tu as pu dérober l'héritage de la mémoire alors que tu n'étais qu'au stade de la Formation du Noyau! Cependant, si cela s'était produit avant que je ne reçoive cette goutte de sang, cela m'aurait peut-être freiné un instant, mais maintenant que je la possède, cela ne pourra même pas m'arrêter d'un demi-pas! » Les cheveux roux de Tuo Sen s'agitaient sans qu'aucun vent ne soufflât, tandis que son aura dominante irradiait de son corps.
+« Oh? Tu possèdes quelques talents; il n'est pas étonnant que tu aies pu dérober l'héritage de la mémoire alors que tu n'étais qu'au stade de la Formation du Noyau! Cependant, si cela s'était produit avant que je ne reçoive cette goutte de sang, cela m'aurait peut-être freiné un instant, mais maintenant que je la possède, cela ne pourra même pas m'arrêter d'un demi-pas! » Les cheveux roux de Tuo Sen s'agitaient sans qu'aucun vent ne soufflât, tandis que son aura dominante irradiait de son corps.
 
 Tuo Sen se mit à rire follement alors qu'il avançait, leva son poing et lança un coup dévastateur.
 
@@ -82,7 +82,7 @@ Les yeux de l'homme masqué s'illuminèrent et cinq rayons de lumière jailliren
 
 En un clin d'œil, ces cinq chaînes devinrent cinq sceaux. Les sceaux s'empilèrent les uns sur les autres pour poursuivre Tuo Sen.
 
-« Je ne pouvais pas te sceller auparavant, mais maintenant que tu as été blessé par l'auto-explosion d'un cultivateur Ascendant, je peux enfin te sceller! »
+« Je ne pouvais pas te sceller auparavant, mais maintenant que tu as été blessé par l'auto-explosion de l'âme Ascendante, je peux enfin te sceller! »
 
 Alors que les sceaux superposés convergeaient vers Tuo Sen, celui-ci changea de visage. Continuant sa retraite, il hurla: « Qui es-tu!?! »
 
@@ -120,7 +120,7 @@ Yun Quezi fixa l'inconnu et murmura pour lui-même: « Ye Wuyou? »
 
 « Zhu Quezi, ta durée de vie a atteint son terme, tu devrais être mort. Il est inutile de te forcer à rester! Tenter de briser le Cristal de la Planète de Culture est considéré comme un crime majeur au sein de l'Alliance de Culture. Compte tenu du fait que tu avais tes raisons, je ne poursuivrai pas cette affaire pour l'instant, mais tu dois quitter ce monde immédiatement! »
 
-Le visage de Zhu Quezi était empreint d'amertume alors qu'il hochait silencieusement la tête. Ses yeux s'illuminèrent et il dit: « Je peux partir, mais le Clan des Immortels Délaissés... »
+Le visage de Zhu Quezi était empreint d'amertume alors qu'il hochait silencieusement la tête. Ses yeux s'illuminèrent et il dit: « Seigneur Messager, je peux partir, mais le Clan des Immortels Délaissés... »
 
 L'homme masqué l'interrompit: « Je m'en occuperai! »
 
@@ -128,7 +128,7 @@ Zhu Quezi prit une profonde inspiration, s'assit en tailleur et ferma les yeux. 
 
 Sa durée de vie touchait déjà à sa fin, mais il avait volé celle de Qian Feng pour prolonger son existence. Maintenant qu'il avait rencontré le Messager de l'Alliance de Culture, il devait tout abandonner...
 
-Au moment de sa mort, il se souvint d'un fragment laissé par le premier Suzaku, Ye Wuyou. Celui-ci stipulait qu'il y avait toujours un Messager de l'Alliance de Culture sur la planète Suzaku. Le messager changeait à chaque génération et restait très bien caché...
+Au moment de sa mort, il se souvint des écrits laissés par le premier Suzaku, Ye Wuyou. Ceux-ci stipulaient qu'il y avait toujours un Messager de l'Alliance de Culture sur la planète Suzaku. Le messager changeait à chaque génération et restait très bien caché...
 
 Les yeux de Wang Lin s'illuminèrent et il recula lentement.
 

@@ -18,9 +18,9 @@ La main gauche de Wang Lin s'étira et rengaina le Char de Guerre Divin dans son
 
 Il était évident que la Bête du Tonnerre était terrifiée. À l'origine, elle refusait de retourner dans le sac, mais elle finit par céder.
 
-Après avoir rangé la Bête du Tonnerre, Wang Lin reprit sa progression. Il utilisait la brume rouge pour affaiblir temporairement les tentacules avant d'en sceller le jus à leurs racines.
+Après avoir rangé la Bête du Tonnerre, Wang Lin reprit sa progression. Il utilisait la brume rouge pour affaiblir temporairement les tentacules avant d'en sceller le jus, marqué de son empreinte, à leurs racines.
 
-Il répéta cette opération maintes et maintes fois. Par chance, il possédait bien plus de Fruits d'Ascension Céleste qu'il n'en avait besoin, sans quoi il en serait dépourvu depuis longtemps.
+Il répéta cette opération maintes et maintes fois. Par chance, il possédait bien plus de Fruits d'Ascension Céleste qu'il n'en avait besoin, sans quoi il en serait dépourvu depuis longtemps. Malgré cela, les Fruits d'Ascension Céleste ne suffirent pas.
 
 Wang Lin fit preuve d'une prudence extrême tout au long du chemin, restant d'une vigilance absolue. Après quelques jours, il réussit enfin à infuser le jus des Fruits d'Ascension Céleste dans la plupart des tentacules de la planète.
 
@@ -94,7 +94,7 @@ Les parois de l'os étaient irrégulières et la grande quantité de minerai mé
 
 Le rebord de la montagne était déjà assimilé à l'os, rendant la séparation impossible. On pouvait clairement voir que du métal flamboyant apparaissait au sein de la montagne.
 
-« L'assimilation est très poussée, ce sera donc délicat. Je ne peux pas utiliser les Fruits d'Ascension Céleste pour le moment. » Wang Lin réfléchit un instant avant de former une lame avec ses deux doigts pour tester la dureté de la roche. La montagne était extrêmement résistante; bien que son doigt fût imprégné d'énergie spirituelle céleste, il n'en laissa aucune trace. Ses yeux s'illuminèrent et il transféra une partie de l'énergie de l'épée de Ling Tianhou dans son doigt. Renonçant à tenter de prendre la montagne entière, il contourna la partie assimilée et frappa d'un coup sec.
+« L'assimilation est très poussée, ce sera donc délicat. Je ne peux pas utiliser les Fruits d'Ascension Céleste pour le moment. » Wang Lin réfléchit un instant avant de former une lame avec ses deux doigts pour tester la dureté de la roche. La montagne était extrêmement résistante; bien que son doigt fût imprégné d'énergie spirituelle céleste, il n'en laissa aucune trace. Ses yeux s'illuminèrent et il transféra une partie de l'énergie de l'épée de Ling Tianhou dans son doigt. Renonçant à tenter de prendre la montagne entière, il en retrancha trois pieds, contourna la partie assimilée et frappa d'un coup sec.
 
 Une fissure apparut silencieusement sur la montagne avant de se propager lentement. Un léger craquement fut le seul signe de la séparation du côté proche de la montagne de l'os du Serpent aux yeux de lune.
 

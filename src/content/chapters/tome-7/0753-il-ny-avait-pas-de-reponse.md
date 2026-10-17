@@ -24,7 +24,7 @@ Wang Lin se méfiait énormément de ce pouvoir. Il l'avait remarqué pour la pr
 
 La famille Ge était la descendante des Célestes! Quant à la famille Li, elle était peut-être réellement innocente. Tout cela n'était dû qu'au fait que leurs ancêtres avaient osé pénétrer dans ce lieu et avaient reçu l'empreinte d'esclave, causant ainsi le déclin de toute leur lignée. Pendant des générations, les membres de la famille avaient sacrifié leur culture et leur espérance de vie pour permettre lentement à cette âme céleste indestructible de se rétablir.
 
-La famille Li avait peut-être réellement voulu se rebeller, mais il était évident qu'elle avait échoué à chaque tentative. Ce n'est que l'ancêtre de la famille Li, il y a des dizaines de milliers d'années, qui avait eu une chance. Cependant, l'empreinte d'esclave, qui avait nourri son maître pendant des dizaines de milliers d'années, avait accumulé suffisamment d'énergie pour que l'âme cachée à l'intérieur s'éveille. C'est ainsi que l'ancêtre talentueux de la famille Li était apparu.
+La famille Li avait peut-être réellement voulu se rebeller, mais il était évident qu'elle avait échoué à chaque tentative. Ce n'est que l'ancêtre de la famille Li, il y a des dizaines de milliers d'années, qui avait donné de l'espoir à la famille Li. Cependant, l'empreinte d'esclave, qui avait nourri son maître pendant des dizaines de milliers d'années, avait accumulé suffisamment d'énergie pour que l'âme cachée à l'intérieur s'éveille. C'est ainsi que l'ancêtre talentueux de la famille Li était apparu.
 
 En conséquence, lorsque l'ancêtre Li avait déclaré qu'il libérait la famille de l'empreinte d'esclave, il ne faisait, en réalité, que ressusciter son maître.
 
@@ -32,9 +32,9 @@ Wang Lin avait sincèrement pensé que l'échec d'il y a des dizaines de millier
 
 Les préparatifs de Li Yuan étaient très probablement achevés; il ne pouvait pas avoir prévu de le rencontrer avant d'entrer dans le Royaume Céleste. Lorsque Wang Lin vit la statue de pierre et comprit le karma liant les familles Li et Ge, il comprit soudainement tout.
 
-C'était parce que Li Yuan avait vu le Fouet Karmique lorsqu'il l'avait utilisé lors du combat contre le cultivateur Yin Illusoire. C'est pour cette raison que Li Yuan l'avait choisi.
+C'était parce que Li Yuan avait vu le Fouet du Karma lorsqu'il l'avait utilisé lors du combat contre le cultivateur Yin Illusoire. C'est pour cette raison que Li Yuan l'avait choisi.
 
-Le Fouet Karmique affecte le karma!
+Le Fouet du Karma affecte le karma!
 
 L'échec d'il y a des dizaines de milliers d'années n'était pas dû au serviteur, aux trésors ou à la famille Ge. C'était parce que le Céleste refusait d'être ressuscité de cette manière. Le Céleste ne voulait pas payer le prix de la vie de tous ses descendants pour libérer son âme scellée.
 
@@ -42,9 +42,9 @@ On pouvait imaginer que le sang de Ge Hong n'était pas suffisant pour la résur
 
 La cause karmique était la résurrection de la statue céleste. L'effet karmique était la levée de la résistance de l'âme céleste.
 
-Mais comment l'âme d'un Céleste pouvait-elle être si simple? Si Wang Lin avait utilisé le Fouet Karmique, il aurait lui-même été entraîné dans ce cycle, et même lui ne savait pas s'il en aurait survécu.
+Mais comment l'âme d'un Céleste pouvait-elle être si simple? Si Wang Lin avait utilisé le Fouet du Karma, il aurait lui-même été entraîné dans ce cycle, et même lui ne savait pas s'il en aurait survécu.
 
-Si Wang Lin n'était pas apparu, Li Yuan aurait utilisé d'autres méthodes après son premier échec. Cependant, même Li Yuan n'était pas certain de leur réussite, ce qui explique pourquoi il affirmait avoir 70 % de chances de succès, et 90 % s'il possédait le Fouet Karmique.
+Si Wang Lin n'était pas apparu, Li Yuan aurait utilisé d'autres méthodes après son premier échec. Cependant, même Li Yuan n'était pas certain de leur réussite, ce qui explique pourquoi il affirmait avoir 70 % de chances de succès, et 90 % s'il possédait le Fouet du Karma.
 
 Wang Lin osa spéculer que ce Li Yuan possédait également un trésor lié au karma dans son sac!
 
@@ -70,7 +70,7 @@ Tout comme l'image qu'il avait vue à travers l'illusion de la statue. Lorsque l
 
 Le maître sur la garde de l'épée n'était plus là. C'était comme s'il était le seul à être resté au monde, debout à la pointe de l'arme...
 
-D'innombrables années d'attente et deux tentatives de résurrection, mais finalement, il ne parvenait toujours pas à s'échapper.
+D'innombrables années d'attente et deux tentatives de résurrection, mais finalement, il ne parvenait toujours pas à échapper au karma.
 
 Li Yuan fixa la statue et s'agenouilla au sol.
 
@@ -80,7 +80,7 @@ De plus en plus de fissures apparurent sur la statue à cet instant. À mesure q
 
 « Pourquoi ne voulez-vous pas vous réveiller... Je veux juste que la garde de l'épée ne soit plus vide. Le maître pourra toujours se tenir sur la garde, et moi, je me tiendrai au bout de l'épée pour vous aider à combattre les cieux et la terre... » murmura Li Yuan, les yeux emplis de chagrin.
 
-Wang Lin, immobile dans le Tableau Montagne et Rivière, observait la scène en silence. Il n'avait aucun grief, de vie ou de mort, contre Li Yuan. Il poussa un soupir et rangea le Fouet Karmique.
+Wang Lin, immobile dans le Tableau Montagne et Rivière, observait la scène en silence. Il n'avait aucun grief, de vie ou de mort, contre Li Yuan. Il poussa un soupir et rangea le Fouet du Karma.
 
 « C'est à cause d'une paranoïa extrême qu'il s'est égaré. Après le premier échec il y a des dizaines de milliers d'années, sa conviction était instable. Maintenant qu'il a échoué une seconde fois, sa foi s'est effondrée. »
 
@@ -124,7 +124,7 @@ La fumée verte s'élança dans les airs et disparut sans laisser de trace.
 
 Tout cela ressemblait à une illusion. Le réel et l'illusoire semblaient ne plus exister, comme si tout n'était qu'un rêve.
 
-L'expression de Wang Lin était empreinte de confusion face à cette statue qui avait perdu son esprit. Puis, son regard tomba sur le sceau de sa main droite et il sombra dans une transe...
+L'expression de Wang Lin était empreinte de confusion face à cette statue qui avait perdu son esprit. Puis, son regard tomba sur le sceau de la main droite de la statue et il sombra dans une transe...
 
 C'était toujours ce même antique Royaume Céleste, toujours cette épée céleste fendant le ciel, et toujours ces deux êtres sur la lame. Cependant, la différence résidait cette fois dans le son émis par le Céleste avant de mourir.
 

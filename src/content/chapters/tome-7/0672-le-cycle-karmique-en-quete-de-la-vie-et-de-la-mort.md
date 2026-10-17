@@ -32,7 +32,7 @@ Après le départ de Wang Lin, les trois hommes restèrent plongés dans une ré
 
 L'homme d'âge mûr soupira également et dit: « Je dois retourner chez moi pour préparer des jades célestes, au cas où le compagnon Xu en aurait besoin. »
 
-Les deux s'élancèrent vers le nord et le sud sous forme de rayons de lumière rouge. L'ancêtre de la famille Ran resta seul, réfléchissant longuement dans le silence. Puis, poussant un profond soupir, il regarda au loin et murmura: « Peu importe. Se ruiner pour éviter une catastrophe... La question d'il y a quatre ans sera portée par ce Xu Mu. S'il ne meurt pas, nous serons hors de danger. Bien que cet homme ne semble pas être du genre à rompre sa promesse, je dois tout de même surveiller secrètement qu'il ne quitte pas la planète Ran Yun. »
+Les deux s'élancèrent vers le nord et le sud sous forme d'arcs-en-ciel. L'ancêtre de la famille Ran resta seul, réfléchissant longuement dans le silence. Puis, poussant un profond soupir, il regarda au loin et murmura: « Peu importe. Se ruiner pour éviter une catastrophe... La question d'il y a quatre ans sera portée par ce Xu Mu. S'il ne meurt pas, nous serons hors de danger. Bien que cet homme ne semble pas être du genre à rompre sa promesse, je dois tout de même surveiller secrètement qu'il ne quitte pas la planète Ran Yun. »
 
 À cet instant, dans la partie sud de la planète Mille Illusions, au domaine ancestral de la famille Huan, le chef de la famille, Huan Fenshen, se tenait respectueusement aux côtés d'un vieil homme. Ce dernier était plutôt maigre; c'était le même homme qui avait ramené Liu Mei du Système Stellaire de l'Alliance.
 
@@ -62,7 +62,7 @@ Liu Mei était chez elle. Elle regarda le ciel et dit doucement: « Planète Ran
 
 Liu Mei se retourna et dit doucement à l'homme: « Ta culture a atteint le pic du milieu du stade Ascendant, il ne devrait donc y avoir aucun problème. Bien que cette affaire soit mineure, ce sera la première fois que j'agirai pour la famille Huan. Tu dois accomplir cela le plus vite possible. Comprends-tu, Huan Dong? »
 
-« Madame, soyez sereine; Huan Dong ne décevra pas votre confiance! » Huan Dong prit une profonde inspiration, son regard fanatique s'intensifiant. Lorsqu'il avait vu Liu Mei pour la première fois, il avait été bouleversé; il l'avait crue descendue des cieux.
+« Mademoiselle, soyez sereine; Huan Dong ne décevra pas votre confiance! » Huan Dong prit une profonde inspiration, son regard fanatique s'intensifiant. Lorsqu'il avait vu Liu Mei pour la première fois, il avait été bouleversé; il l'avait crue descendue des cieux.
 
 « Le cultivateur le plus puissant de la planète Ran Yun est l'ancêtre de la famille Ran. Son niveau de culture est identique au mien, au milieu du stade Ascendant. Même en multipliant son audace par cent, il n'osera pas résister. Ma mission ne fera certainement pas perdre la face à Mademoiselle. »
 
@@ -90,13 +90,13 @@ La jeune femme lui lança un regard perplexe mais n'insista pas. Chacun possède
 
 Wang Lin hocha la tête en souriant. « Travaille dur toi aussi, et efforce-toi d'atteindre le stade de la Formation de l'Âme. »
 
-« Formation de l'Âme... » La jeune femme secoua la tête. « J'ai entendu les anciens de la famille dire que le stade de la Formation de l'Âme est différent. Peu importe ta diligence, si tu ne peux comprendre les cieux, tu n'atteindras jamais cette existence quasi divine, un royaume qui semble hors de portée. Je me contenterai d'atteindre le sommet du stade de l'Âme Naissante au cours de ma vie. »
+« Formation de l'Âme... » La jeune femme secoua la tête. « J'ai entendu les anciens de la famille dire que le stade de la Formation de l'Âme est différent. Peu importe ta diligence, si tu ne peux comprendre les cieux, tu ne deviendras jamais cette existence quasi divine et ne pourras jamais toucher véritablement la lisière du Dao. Je me contenterai d'atteindre le sommet du stade de l'Âme Naissante au cours de ma vie. »
 
 Wang Lin sourit doucement. Le soleil était derrière lui et sa lumière baignait son corps; on aurait dit que son sourire irradiait lui aussi une part de cette clarté solaire.
 
 « Si tu gardes cet état d'esprit, tu seras capable d'atteindre le stade de la Formation de l'Âme. »
 
-La jeune femme crut qu'il tentait de la réconforter et sourit: « Soit. Si j'atteins la Formation de l'Âme, je me souviendrai de ton illumination d'aujourd'hui. Maintenant, va plutôt cultiver. »
+La jeune femme crut qu'il tentait de la réconforter et sourit: « Soit. Si j'atteins la Formation de l'Âme, je me souviendrai de ta prescience d'aujourd'hui. Maintenant, va plutôt cultiver. »
 
 Wang Lin sourit, hocha la tête et disparut en franchissant l'entrée.
 
@@ -114,7 +114,7 @@ L'un des trésors était un peigne noir doté de dix-neuf dents, dégageant une 
 
 « Un pseudo-trésor céleste de type offensif! Il possède même une formation. La puissance de cet objet est redoutable. » Wang Lin effleura délicatement les dents du peigne avant de porter son regard sur le second trésor.
 
-Il s'agissait d'une paire de pierres à feu de l'élément métal. Elles étaient d'un rouge éclatant et flottaient dans la paume de Wang Lin, dégageant une chaleur brûlante.
+Il s'agissait d'une paire de pierres à feu de l'élément métal. Elles étaient entièrement d'or violet et flottaient dans la paume de Wang Lin, qui sentait nettement s'en dégager des éclats piquants.
 
 « Ceci... » En fixant les pierres, les yeux de Wang Lin s'illuminèrent. Il en saisit une et les frotta l'une contre l'autre. Une étincelle jaillit et une vague de chaleur se propagea soudainement.
 
