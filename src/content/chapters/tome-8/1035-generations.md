@@ -14,9 +14,9 @@ Le démon du vent pointa l'avant et les trois petits drapeaux commencèrent à g
 
 Six étoiles tournaient entre les sourcils de ce géant spectral.
 
-Alors que le gaz vert s'agitait, deux figures féroces apparurent aux côtés du démon ancien. Elles ne mesuraient que mille pieds de haut, mais dès leur apparition, une énergie démoniaque monstrueuse éclata, comme si elles voulaient se libérer des entraves du gaz vert.
+Alors que le gaz vert s'agitait, deux figures féroces apparurent aux côtés du dieu ancien. Elles ne mesuraient que mille pieds de haut, mais dès leur apparition, une énergie démoniaque monstrueuse éclata, comme si elles voulaient se libérer des entraves du gaz vert.
 
-Six étoiles tournaient dans l'œil droit de chaque démon ancien.
+Six étoiles tournaient dans l'œil gauche de chaque démon démoniaque.
 
 Au moment où Wang Lin vit ces trois ombres, ses pupilles se rétractèrent brusquement.
 
@@ -24,11 +24,11 @@ Le démon du vent se tenait devant les trois fantômes. Ses mains formèrent un 
 
 Un éclair d'intention meurtrière traversa les yeux du démon du vent et sa main droite pointa vers l'avant. Les trois fantômes derrière elle s'élancèrent. Le dieu ancien à six étoiles fit un pas en avant et lança un coup de poing vers Wang Lin.
 
-Les deux fantômes des démons anciens chargèrent Wang Lin depuis les flancs avec une aura sanguinaire, comme s'ils voulaient le dévorer.
+Les deux fantômes des démons démoniaques chargèrent Wang Lin depuis les flancs avec une aura sanguinaire, comme s'ils voulaient le dévorer.
 
 Bien que Bei Lou ne fût pas un démon ancien royal, son statut n'était pas ordinaire au sein du clan des démons anciens. Ce Drapeau de Scellement des Âmes lui avait été offert par un démon ancien royal. Bien qu'il ne soit pas aussi puissant qu'un trésor royal, il possédait néanmoins une force immense.
 
-Avant que Bei Lou ne soit divisé, il possédait le Drapeau de Scellement des Âmes. Une fois invoqué, les quarante-neuf petits drapeaux s'envolaient. Tous ceux qui y étaient scellés n'avaient pas été tués par lui; ils avaient été emprisonnés là par des générations de maîtres successifs.
+Lorsque Bei Lou était encore intact, il possédait le véritable Drapeau de Scellement des Âmes. Une fois invoqué, les quarante-neuf petits drapeaux s'envolaient. Ceux qui y étaient scellés n'avaient pas tous été tués par lui; ils avaient été emprisonnés là par des générations de maîtres successifs.
 
 Bei Lou n'était que le septième propriétaire. La rumeur prétendait que le premier propriétaire était d'une puissance telle qu'il pouvait affronter directement les dieux anciens des générations suivantes. C'était un démon ancien de quatrième génération, une rareté absolue!
 
@@ -44,7 +44,7 @@ Bei Lou était un démon ancien de la 79e génération, mais son trésor avait u
 
 Toutefois, le démon du vent ayant renoncé à son identité de démon ancien, son corps d'origine s'était dissipé; elle ne pouvait donc plus utiliser le véritable trésor. À cet instant, les trois drapeaux étaient formés en condensant son énergie démoniaque pour créer des fantômes. C'était un processus semblable à celui par lequel Wang Lin invoquait la Lance Tueuse de Dieux.
 
-Le démon du vent pointa l'avant, et le dieu ancien ainsi que les démons anciens issus des drapeaux chargèrent Wang Lin. Ce dernier parvint immédiatement à percer l'illusion des trois drapeaux. Sa main droite s'élança dans le vide et une fissure apparut dans un fracas de tonnerre.
+Le démon du vent pointa l'avant, et le dieu ancien ainsi que les démons démoniaques issus des drapeaux chargèrent Wang Lin. Ce dernier parvint immédiatement à percer l'illusion des trois drapeaux. Sa main droite s'élança dans le vide et une fissure apparut dans un fracas de tonnerre.
 
 C'était comme si une immense faille s'était ouverte dans le ciel. Des éclairs serpentaient le long de la brèche et des grondements assourdissants résonnaient.
 
@@ -58,13 +58,13 @@ Alors que le tonnerre résonnait à travers le monde, un rayon de lumière noire
 
 « Tu es un dieu ancien de lignée royale! »
 
-Wang Lin, tenant la Lance Tueuse de Dieux dans sa main droite, la projeta vers l'avant. Le corps du dieu ancien à six étoiles trembla en fixant la lance, et son regard terne s'illumina soudainement.
+Wang Lin, tenant la Lance Tueuse de Dieux dans sa main droite, la balaya vers l'avant. Le corps du dieu ancien à six étoiles trembla en fixant la lance, et son regard terne s'illumina soudainement.
 
 Il n'était qu'un ordinaire dieu ancien à six étoiles; en termes de génération, il était même inférieur à Bei Lou. Mais face au trésor sacré de son propre clan, son corps fut pétrifié par l'émotion.
 
 Si le Drapeau de Scellement des Âmes avait été réellement présent, il n'aurait pas agi ainsi, mais ce que le démon du vent avait invoqué n'était qu'un fantôme. Il était bien plus faible que l'original, et même les âmes scellées à l'intérieur en étaient considérablement affaiblies.
 
-Le démon du vent maudisit intérieurement Yao Xixue de l'avoir provoqué une existence aussi terrifiante. Si elle avait su qu'elle s'en prendrait à quelqu'un comme Wang Lin, elle n'aurait jamais fusionné avec elle.
+Le démon du vent maudit intérieurement Yao Xixue d'avoir provoqué une existence aussi terrifiante. Si elle avait su que Yao Xixue s'en était prise à quelqu'un comme Wang Lin, elle n'aurait jamais fusionné avec elle.
 
 « Damnation! Dans les souvenirs de Yao Xixue, il était si faible qu'on pouvait le tuer d'un simple revers de main. Comment peut-il être un dieu ancien, et même de lignée royale?! »
 
@@ -74,19 +74,19 @@ En vérité, avec sa force, tant qu'elle n'aurait pas rencontré Wang Lin, elle 
 
 Pourtant, face à Wang Lin, toutes ses capacités étaient neutralisées. Sa vitesse était insuffisante, ses sorts manquaient de puissance, et même ses trésors s'avéraient inutiles. Bien que les deux objets ne fussent que des fantômes, elle ne pouvait rivaliser avec les trésors royaux de Wang Lin.
 
-À cet instant, alors que la Lance Tueuse de Dieux de Wang Lin balayait l'espace, le monde changea de teinte comme si tout vacillait. La lance fendit l'air droit vers les deux démons anciens tremblants.
+À cet instant, alors que la Lance Tueuse de Dieux de Wang Lin balayait l'espace, le monde changea de teinte comme si tout vacillait. La lance fendit l'air droit vers les deux démons démoniaques tremblants.
 
 Ces deux derniers n'étaient que des spectres dépourvus de la puissance réelle du Drapeau de Scellement des Âmes. Face à des cultivateurs ordinaires, ils auraient pu tenir tête, mais ils n'étaient même pas dignes de croiser le fer avec la Lance Tueuse de Dieux de Wang Lin!
 
-Lorsque la Lance Tueuse de Dieux siffla dans l'air, elle fut d'une rapidité dépassant l'entendement. Le corps de l'un des démons anciens fut transpercé par la lance, se transformant en une énergie démoniaque infinie qui sembla être balayée par le projectile.
+Lorsque la Lance Tueuse de Dieux siffla dans l'air, elle fut d'une rapidité dépassant l'entendement. Le corps de l'un des démons démoniaques fut transpercé par la lance, se transformant en une énergie démoniaque infinie qui sembla être balayée par le projectile.
 
-En un clin d'œil, le corps du démon ancien disparut.
+En un clin d'œil, le corps du démon démoniaque disparut.
 
 Les pupilles du démon du vent se rétractèrent. Face à l'imminence de la mort, elle cracha du sang sans hésiter. Sa main droite traça rapidement une marque étrange, puis elle pointa l'avant en hurlant: « Destruction du Drapeau! »
 
 Les drapeaux verts formant les trois fantômes tournèrent frénétiquement avant de s'effondrer sur l'ordre du démon du vent. L'impact puissant se mua en un dragon vert qui chargea la Lance Tueuse de Dieux.
 
-Lorsque les petits drapeaux s'effondrèrent, le dieu ancien et le démon ancien restants furent entraînés dans leur chute. Ils pénétrèrent dans le dragon vert, décuplant sa puissance!
+Lorsque les petits drapeaux s'effondrèrent, le dieu ancien et le démon démoniaque restants furent entraînés dans leur chute. Ils pénétrèrent dans le dragon vert, décuplant sa puissance!
 
 La Lance Tueuse de Dieux et le dragon vert entrèrent en collision à une vitesse fulgurante. Au moment du contact, une sphère d'un millier de pieds de large apparut entre les deux trésors.
 
@@ -94,9 +94,9 @@ Cette sphère était habitée par des gaz noirs et verts qui se livraient un com
 
 Une pression destructrice terrifiante enveloppa instantanément la zone.
 
-C'était un affrontement entre les trésors des clans des dieux anciens et des démons anciens. L'un était la Lance Tueuse de Dieux royale, l'autre était l'un des quatre premiers trésors démoniaques ancestraux.
+C'était un affrontement entre les trésors des clans des dieux anciens et des démons anciens. L'un était la Lance Tueuse de Dieux royale, l'autre était un trésor du clan des démons anciens datant des quatre premières générations.
 
-Bien qu'ils ne fussent que des illusions, ils étaient d'une puissance colossale! Le gaz noir au sein de l'orbe débordait d'agressivité, comme si tout ce qui se dressait devant lui devait être anéanti. Le gaz vert luttait désespérément, mais il ne pouvait échapper à sa retraite forcée.
+Aucun des deux n'était l'original, tous deux n'étaient que des illusions. Pourtant, la différence de niveau était flagrante! Le gaz noir au sein de l'orbe débordait d'agressivité, comme si tout ce qui se dressait devant lui devait être anéanti. Le gaz vert luttait désespérément, mais il ne pouvait échapper à sa retraite forcée.
 
 Alors que le gaz vert reculait, la sphère entière devint noire. À cet instant précis, l'orbe se scinda!
 

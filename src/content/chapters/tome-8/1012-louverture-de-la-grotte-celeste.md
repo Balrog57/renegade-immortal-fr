@@ -6,15 +6,15 @@ bookTitle: "Alliance's Secret"
 en: Chapter 1012 - Celestial Cave Opens
 slug: louverture-de-la-grotte-celeste
 ---
-« Qing Lin a bien planifié tout cela... Je ne m'attendais pas à ce qu'un changement aussi majeur se produise lors de l'ouverture de la grotte... Si je n'avais pas absorbé l'autre esprit démoniaque ancien, j'aurais été complètement supprimé en cet instant! »
+« Qing Lin a bien planifié tout cela... Je ne m'attendais pas à ce qu'un changement aussi majeur se produise lors de l'ouverture de la grotte... Si je n'avais pas absorbé les autres esprits démoniaques, j'aurais été complètement supprimé en cet instant! »
 
-« Cependant, peu importe désormais. Même si le Domaine des Esprits Démoniaques revenait à son état d'origine, cela n'aurait aucune importance! Maintenant que la grotte est ouverte, je réussirai cette fois-ci! »
+« Cependant, peu importe désormais. Même si la Terre des Esprits Démoniaques revenait à son état d'origine, cela n'aurait aucune importance! Maintenant que la grotte est ouverte, je réussirai cette fois-ci! »
 
-« Ancien Démon, Empereur Céleste, moi, Bei Lou, j'arrive! » L'ancien démon afficha une expression féroce alors qu'il jaillissait du bassin d'eau dans un rayon de lumière démoniaque.
+« Ancien Démon, Empereur Céleste, moi, Bei Luo, j'arrive! » L'ancien démon afficha une expression féroce alors qu'il jaillissait du bassin d'eau dans un rayon de lumière démoniaque.
 
 L'énergie spirituelle céleste l'enveloppait, mais dès qu'elle s'approchait de lui, elle était absorbée par la lueur démoniaque qui l'entourait, renforçant ainsi son énergie démoniaque.
 
-Dans une caverne souterraine située sous un pays démoniaque du Royaume Céleste des Esprits, Yao Xixue leva la tête au moment où l'énergie spirituelle céleste balaya les lieux. Dès qu'elle en ressentit la présence, son corps trembla. Puis, ses yeux emitirent une lueur spectrale et une puissante énergie démoniaque l'enveloppa.
+Sous la capitale impériale d'un pays démoniaque du Royaume Céleste des Esprits, Yao Xixue, assise en tailleur, leva brusquement la tête au moment où l'énergie spirituelle céleste balaya les lieux. Dès qu'elle en ressentit la présence, son corps trembla. Puis, ses yeux émirent une lueur spectrale et une puissante énergie démoniaque l'enveloppa.
 
 Cette énergie forma un vaste vortex qui absorba toute l'énergie spirituelle céleste environnante, la broyant et l'assimilant.
 
@@ -36,7 +36,7 @@ Les millions de disciples de la secte étaient pétris de peur, mais ils serrèr
 
 Les trois autres flux d'énergie spirituelle céleste ne tentèrent pas de forcer le passage et contournèrent plutôt la secte.
 
-Le vortex entourant la Secte de l'Affinement des Âmes s'arrêta rapidement pour fusionner avec les trois autres et balayer le monde.
+Le vortex entourant la Secte de l'Affinement des Âmes se contracta rapidement et rattrapa les trois autres pour fusionner avec elles et balayer le monde.
 
 Alors que l'énergie spirituelle céleste remplissait le Royaume Céleste des Esprits, les quatre piliers brillèrent intensément, enveloppant la terre d'une lumière éclatante.
 
@@ -48,7 +48,7 @@ Le Royaume Céleste des Esprits d'autrefois réactivait une fois de plus sa prop
 
 La terre trembla, d'immenses pans de montagnes s'effondrèrent et une poussière épaisse s'éleva dans les airs, recouvrant tout à perte de vue.
 
-Une lueur pourpre émana de l'une des montagnes en ruine, révélant un dragon pourpre. Le dragon poussa un rugissement et les montagnes restantes s'écroulèrent.
+Une lueur pourpre émana de l'une des montagnes en ruine, révélant un dragon pourpre long de cent mille pieds. Le dragon poussa un rugissement et les montagnes restantes s'écroulèrent.
 
 Le dragon pourpre s'éleva dans les airs et laissa échapper un cri draconique qui fit trembler le ciel! Cette créature était d'une dignité extrême et affichait un regard glacial.
 
@@ -74,7 +74,7 @@ Tandis qu'ils discutaient, deux autres distorsions spatiales apparurent de part 
 
 Une silhouette illusoire suivait le couple de cultivateurs célestes. Derrière Wang Lin se trouvaient Situ Nan, Maître Fu Fengzi et leurs compagnons. Dès que les deux groupes furent face à face, ils commencèrent à jauger leurs adversaires.
 
-À l'instant où Wang Lin apparut, la silhouette derrière Wang Wei trembla en l'observant attentivement. Ses yeux trahissaient un mélange de regret et de satisfaction.
+À l'instant où Wang Lin apparut, la silhouette derrière Wang Wei trembla en l'observant attentivement. Ses yeux trahissaient un mélange d'émotion et de satisfaction.
 
 Le regard de Wang Lin se posa sur le Couple de Culture Céleste. Il les avait déjà vus, sans pour autant les connaître, mais il reconnut immédiatement l'ombre derrière eux: c'était Zhou Yi!
 
@@ -98,19 +98,19 @@ Dès que Wang Lin vit l'herbe, il reconnut l'interdiction qu'il avait lui-même 
 
 Au passage du regard de Wang Lin, les yeux de Zhou Yi brillèrent furtivement. Wang Lin comprit immédiatement.
 
-À ce moment précis, plusieurs rayons de lumière surgirent du lointain. En tête marchait une belle femme d'âge mûr. Derrière elle se trouvaient ses quatre disciples, parmi lesquels Qian Qin et celle qui pourrait devenir la prochaine Sainte du Vide Brillant.
+À ce moment précis, plusieurs rayons de lumière surgirent du lointain. En tête marchait une belle femme d'âge mûr, à l'allure de villageoise. Derrière elle se trouvaient ses quatre disciples, parmi lesquels Qian Qin et celle qui pourrait devenir la prochaine Sainte du Vide Brillant.
 
 La femme arriva et inspecta les lieux. Elle salua d'abord l'Omniscient, observa attentivement le Couple de Culture Céleste, puis adressa un signe de tête amical à Wang Lin. Enfin, elle rejoignit le Maître du Vide.
 
 L'expression de l'Omniscient demeura imperturbable, bien qu'il fronçât les sourcils.
 
-Deux vieillards suivirent la femme: l'un était assis sur une gourde, l'autre était un homme vêtu de noir. Le vieillard sur la gourde scruta l'assemblée. En voyant le Couple de Culture Céleste, ses pupilles se rétractèrent et, après une courte réflexion, il se posta aux côtés de l'Omniscient.
+Deux silhouettes suivirent la femme: un vieillard assis sur une gourde et un homme vêtu de noir. Le vieillard sur la gourde scruta l'assemblée. En voyant le Couple de Culture Céleste, ses pupilles se rétractèrent et, après une courte réflexion, il se posta aux côtés de l'Omniscient.
 
 Quant à l'homme en noir, il resta silencieux aux côtés de Wang Lin et de son groupe.
 
 Les yeux de Wang Lin s'illuminèrent en observant l'homme en noir. Bien qu'il n'eût jamais échangé un mot avec lui, il percevait une personnalité froide et arrogante, quelqu'un qui n'aimait guère la compagnie d'autrui.
 
-L'homme en noir regarda Wang Lin et prononça ses premiers mots: « Accueille-moi. »
+L'homme en noir regarda Wang Lin et prononça ses premiers mots: « Emmène-moi à l'intérieur. »
 
 Wang Lin réfléchit un instant et hocha la tête.
 
@@ -124,17 +124,17 @@ Soudain, l'individu détourna le regard pour se placer aux côtés de l'Omniscie
 
 L'Omniscient resta neutre en hochant la tête. Cependant, son regard se porta vers le lointain, et cette fois, une pointe d'anticipation brilla dans ses yeux.
 
-Un jeune homme audacieux, vêtu de rouge, s'avança lentement depuis la distance. Il était très beau, doté d'une beauté presque démoniaque.
+Un jeune homme vêtu de rouge s'avança lentement depuis la distance. Il était très beau, doté d'une beauté presque démoniaque.
 
 Son crâne était parfaitement lisse, sans un seul cheveu, et l'énergie spirituelle céleste l'entourait. Il regarda d'abord Wang Lin en souriant: « Petit frère Wang, je suis arrivé en retard. »
 
-« Bei Lou... » L'expression de Wang Lin resta calme tandis qu'il hochait la tête. « Tu n'es pas en retard, tu tombes à point nommé. »
+« Bei Luo... » L'expression de Wang Lin resta calme tandis qu'il hochait la tête. « Tu n'es pas en retard, tu tombes à point nommé. »
 
 L'apparition du jeune homme chauve fit se rétracter les pupilles du Maître du Vide. Une lueur de froideur passa dans les yeux du Couple de Culture Céleste.
 
 Seul l'Omniscient laissa poindre un sourire.
 
-La Formation des Neuf Dragons s'activa et l'énergie spirituelle céleste emplit l'espace. Alors que les neuf dragons pourpres s'animaient et rugissaient, une intense explosion de lumière violette enveloppa un rayon de 50 kilomètres à la ronde.
+La Formation des Neuf Dragons s'activa et l'énergie spirituelle céleste emplit l'espace. Alors que les neuf dragons pourpres s'animaient et rugissaient, une intense explosion de lumière violette enveloppa plusieurs milliers de pieds à la ronde.
 
 La lumière passa rapidement, et les silhouettes de chacun disparurent.
 

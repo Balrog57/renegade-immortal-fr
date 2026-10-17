@@ -12,13 +12,13 @@ Debout sur la place, Wang Lin leva les yeux vers le ciel avec une expression par
 
 Des murmures de discussion s'élevèrent parmi les spectateurs alors que Wang Lin pénétrait sur la place.
 
-« Mo Lihai ne sortira pas, et bien qu'il soit l'allié de ce dernier, il sera très difficile pour lui de remporter la victoire finale. »
+« Mo Lihai ne combattra pas; cet homme a beau être son allié, il lui sera sans doute très difficile de remporter la victoire finale pour Mo Lihai. »
 
 « Cet homme est d'une arrogance sans nom, et pourtant il n'a pas osé accepter le défi du Général Démon Shi Xiao. Ridicule! »
 
 « En tant qu'étranger sur notre Terre des Esprits Démons, il ferait mieux de ne pas être trop arrogant, faute de quoi la mort sera sa seule issue. On dirait que cet homme ne connaît toujours pas sa place! »
 
-Tandis que la foule débattait, le Vice-Commandant Xuan, assis dans la zone nord, laissa échapper un léger reniflement. Un homme était assis à ses côtés: un quadragénaire vêtu d'une armure bleue. Son apparence était très ordinaire, mais il dégageait une aura de majesté.
+Tandis que la foule débattait, le Vice-Commandant Xuan, assis dans la zone nord, laissa échapper un léger reniflement. Un homme était assis à ses côtés: un homme d'âge moyen vêtu d'une armure bleue. Son apparence était très ordinaire, mais il dégageait une aura de majesté.
 
 En entendant le reniflement du Vice-Commandant Xuan, l'homme tourna la tête et demanda: « Vice-Commandant Xuan, connaissez-vous cet homme? »
 
@@ -26,13 +26,13 @@ Le visage du Vice-Commandant Xuan s'assombrit alors qu'il secouait la tête: « 
 
 L'homme d'âge moyen fut surpris. Il tourna la tête pour observer attentivement Wang Lin avant de rétorquer: « Le niveau de culture de cet homme n'est que celui du sommet du stade avancé de la Transformation de l'Âme. Je crains qu'il ne lui soit pas si facile de prendre la première place! »
 
-Le Vice-Commandant Xuan renifla froidement: « Vice-Commandant Jaune, et si nous faisions un pari? Si cet homme ne finit pas premier, je vous donnerai mon Pavillon Céleste des Présages; mais s'il décroche la première place, vous me donnerez votre pilule Xuan-Xuan! »
+Le Vice-Commandant Xuan renifla froidement: « Vice-Commandant Jaune, et si nous faisions un pari? Si cet homme ne finit pas premier, je vous donnerai ma Bannière Céleste des Présages; mais s'il décroche la première place, vous me donnerez votre pilule Xuan-Xuan! »
 
 L'homme d'âge moyen eut un petit rire: « D'accord. Je veux voir ce qui rend cet homme si spécial pour que le Vice-Commandant Xuan soit aussi confiant! »
 
 Le Vice-Commandant Xuan ricana intérieurement: « Si vous aviez été gravement blessé par lui, vous seriez tout aussi confiant! »
 
-À cet instant précis, un homme sortit rapidement de la rangée des généraux démons. Il portait une armure de couleur terre et, bien qu'il semblât immobile, il apparut soudainement à environ trois cents mètres de Wang Lin.
+À cet instant précis, un homme sortit rapidement de la rangée des généraux démons. Il portait une armure de couleur terre et, bien qu'il semblât immobile, il apparut soudainement à environ trois cent trente mètres de Wang Lin.
 
 « Merci à mes collègues pour leur bienveillance: personne ne viendra me disputer le rôle de challenger! » Sa voix résonna dans l'air, empreinte d'une fierté et d'une confiance insolentes.
 
@@ -40,7 +40,7 @@ Le Vice-Commandant Xuan ricana intérieurement: « Si vous aviez été gravement
 
 « Cet homme n'est considéré que comme un élément moyen parmi les généraux démons, mais il est extrêmement doué pour profiter des opportunités. Bien qu'il soit parfois un peu sans vergogne, cette occasion est parfaite! »
 
-« Tant qu'il bat ce cultivateur, cela signifiera qu'il a vaincu Mo Lihai. De plus, comme Mo Lihai ne peut pas combattre, il lui suffira de gagner un seul duel pour passer le premier tour. Pas étonnant qu'il demande à être courtois! »
+« Tant qu'il bat ce cultivateur, cela signifiera qu'il a vaincu Mo Lihai. De plus, comme Mo Lihai ne peut pas combattre, il lui suffira de gagner un seul duel pour passer le premier tour. Pas étonnant qu'il ait remercié ses collègues de leur bienveillance! »
 
 Le Général Démon Ao Di joignit les mains en signe de salut envers l'assemblée, puis il regarda Wang Lin avec un sourire: « Il serait préférable que vous abandonniez maintenant si vous tenez à votre vie; sinon, même si nous sommes de force égale, je compte sur un allié! »
 
@@ -56,7 +56,7 @@ Au moment de sa disparition, l'expression de Wang Lin ne changea absolument pas;
 
 Le sol trembla violemment!
 
-Des ondes de choc se propagèrent à partir des pieds de Wang Lin comme autant de cercles concentriques, déchaînant une quantité phénoménale d'énergie spirituelle céleste.
+Des ondes de choc se propagèrent à partir des pieds de Wang Lin comme autant de cercles concentriques, et des souffles immortels, métamorphosés en autant de glaives, jaillirent soudain du sol ébranlé.
 
 À cet instant, la terre sur laquelle Wang Lin avait posé le pied sembla se transformer en magma infernal. Sous la force de son pas, le sol vola en éclats et d'innombrables colonnes de lave jaillirent vers les cieux, tels des glaives rouges transperçant l'azur.
 
@@ -64,15 +64,15 @@ Ao Di fut expulsé du sol à seize mètres et demi de Wang Lin, les yeux écarqu
 
 De plus, la chose la plus cruciale était que cette place carrée de trente-trois kilomètres de côté était saturée d'innombrables restrictions; faire s'effondrer le sol ici était au moins dix fois plus difficile qu'à l'extérieur! Il se déplaçait avec une prudence extrême en utilisant son art d'évasion, étudiant attentivement la meilleure trajectoire pendant que Shi Xiao combattait.
 
-Mais il n'eut pas le temps de réfléchir. Alors qu'il flottait dans les airs, le regard de Wang Lin lui tomba dessus comme une lame acérée visant directement son cœur. En croisant ce regard, son cuir chevelu se glaça soudainement et un pressentiment funeste l'envahit!
+Mais il n'eut pas le temps de réfléchir. Alors qu'il flottait dans les airs, le regard de Wang Lin lui tomba dessus comme une lame acérée traversant le vent et le sable. En croisant ce regard, son cuir chevelu se glaça soudainement et un pressentiment funeste l'envahit!
 
 Il n'hésita pas une seconde et recula brusquement, portant sa main droite à son front. Cependant, Wang Lin fit un pas et apparut instantanément devant lui. Sa main, enveloppée d'un symbole gris, saisit violemment la main droite d'Ao Di.
 
-Le visage d'Ao Di se décomposa. La main de Wang Lin était aussi brûlante que des pinces de fer rouge. Il tenta de se libérer, mais fut pétrifié par l'impossibilité de bouger! Dans un rugissement rauque, il mordit le bout de sa langue et projeta une épée de sang vers Wang Lin!
+Le visage d'Ao Di se décomposa. La main de Wang Lin était aussi brûlante que des pinces de fer rouge. Il tenta de se libérer, mais n'y parvint pas! Dans un rugissement rauque, il mordit le bout de sa langue et projeta une flèche de sang vers Wang Lin!
 
-Dès son apparition, l'épée de sang libéra des vagues d'énergie spirituelle démoniaque et se mua en une tortue dragon. La créature poussa un cri strident et tenta de dévorer Wang Lin.
+Dès son apparition, la flèche de sang libéra des vagues d'énergie spirituelle démoniaque et se mua en une tortue dragon. La créature poussa un cri strident et tenta de dévorer Wang Lin.
 
-Le regard de Wang Lin demeura imperturbable. Avant même que l'épée de sang ne puisse l'atteindre, elle fut frappée par d'innombrables couches de sceaux de vie. Après avoir traversé plus de huit cents couches, l'arme perdit toute sa puissance. Simultanément, Wang Lin injecta de l'énergie spirituelle céleste dans la main droite d'Ao Di. Cette énergie déferla à travers le corps du démon et détruisit instantanément tous les méridiens sur son passage.
+Le regard de Wang Lin demeura imperturbable. Avant même que la flèche de sang ne puisse l'atteindre, elle fut frappée par d'innombrables couches de sceaux de vie. Après avoir traversé plus de huit cents couches, elle disparut sans laisser de trace. Simultanément, Wang Lin injecta de l'énergie spirituelle céleste dans la main droite d'Ao Di. Cette énergie déferla à travers le corps du démon et détruisit instantanément tous les méridiens sur son passage.
 
 « Arrêtez! » À cet instant, l'homme en armure dorée, responsable du tournoi des généraux démons, ouvrit les yeux avec un regard glacial.
 
@@ -86,9 +86,9 @@ Le Vice-Commandant Xuan retint son souffle. Cette scène lui rappelait son propr
 
 Wang Lin ne daigna même pas un regard à la lance dorée; il fit un pas et disparut. Il saisit à nouveau Ao Di en plein vol et le secoua violemment!
 
-Ao Di eut l'impression de subir un choc titanesque lorsqu'une vague d'énergie pénétra son corps par sa main droite, provoquant une série de craquements sinistres! Ses os se détachèrent de la chair avant de voler en éclats. La douleur qui irradiait désormais de tout son être était des dizaines de fois plus intense que celle de ses méridiens détruits.
+Ao Di eut l'impression de subir un choc titanesque lorsqu'une vague d'énergie pénétra son corps par sa main droite, provoquant une série de craquements sinistres! Ses os se détachèrent de la chair avant de voler en éclats. La douleur qui irradiait désormais de tout son être était plusieurs fois plus intense que celle de ses méridiens détruits.
 
-Wang Lin lâcha prise et Ao Di s'écrasa au sol dans un nuage de poussière. Bien qu'Ao Di ne soit pas mort, il n'avait plus aucun avenir.
+Wang Lin lâcha prise et Ao Di s'écrasa au sol dans un nuage de poussière. Il ne lui restait qu'un souffle ténu, mais il n'était pas encore mort.
 
 Après cela, Wang Lin se retourna brusquement et forma un sceau de la main. Des sceaux de vie commencèrent à converger vers sa paume droite, tandis que la lance dorée approchait à grands pas.
 
@@ -102,7 +102,7 @@ L'homme en armure dorée lança un regard énigmatique à Wang Lin avant de serr
 
 Un silence de mort tomba sur l'assemblée. Tous étaient stupéfaits devant ce spectacle incroyable! Les spectateurs ne pouvaient croire qu'un général démon ait été ainsi terrassé par un étranger. Bien qu'il fût encore en vie, ses méridiens et ses os étaient réduits en miettes. Un tel homme était désormais bon pour rien!
 
-Il était impensable que l'Empereur Démon lui accorde la précieuse Pilule Démoniaque Céleste; même pour un commandant suprême, il fallait accomplir des exploits incalculables pour en obtenir une. Comment un simple général comme Ao Di aurait-il pu espérer une telle récompense?
+Il était impensable que l'Empereur Démon lui accorde la précieuse Pilule Démoniaque Céleste; même pour un commandant en chef, il fallait accomplir des exploits incalculables pour en obtenir une. Comment un simple général comme Ao Di aurait-il pu espérer une telle récompense?
 
 Si Ao Di avait perdu après un combat acharné, cela aurait été acceptable, mais cette bataille s'était jouée en un clin d'œil. Cet instant venait de briser leur fierté de peuple de la Terre des Esprits Démons. Il fallait admettre qu'à de très rares exceptions près, un général démon n'avait jamais été réduit à un tel état.
 

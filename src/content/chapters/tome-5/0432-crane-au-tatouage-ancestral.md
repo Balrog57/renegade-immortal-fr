@@ -94,7 +94,7 @@ Il était à l'origine un shaman à huit feuilles au service du cinquième ancê
 
 Un mois plus tôt, il avait été gravement blessé par un cultivateur de la fin du stade de la Transformation de l'Âme. Après avoir frôlé la mort, il avait été renvoyé ici pour se rétablir. Cependant, il ne s'attendait pas à ce qu'un autre cultivateur de la Transformation de l'Âme surgisse pendant sa convalescence.
 
-« Tant que je peux atteindre le onzième étage, je serai sauvé. Le troisième ancêtre a été blessé par Zhuque Zi en protégeant un Esprit Ancestral et il se soigne là-bas. Si j'atteins le onzième étage, le troisième ancêtre me sauvera à coup sûr! » Le shaman à huit feuilles serra les dents et chargea vers l'entrée du cinquième niveau.
+« Tant que je peux atteindre le onzième étage, je serai sauvé. Le troisième ancêtre a été blessé par Zhu Quezi en protégeant un Esprit Ancestral et il se soigne là-bas. Si j'atteins le onzième étage, le troisième ancêtre me sauvera à coup sûr! » Le shaman à huit feuilles serra les dents et chargea vers l'entrée du cinquième niveau.
 
 Wang Lin le talonnait de près. Ses yeux devinrent froids alors qu'il frappait son sac de rangement pour en extraire l'épée céleste. Il prit une profonde inspiration, puis injecta de l'énergie spirituelle céleste dans la lame.
 

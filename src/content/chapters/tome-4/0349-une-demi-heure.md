@@ -47,7 +47,7 @@ Wang Lin se leva et sortit à son tour.
 
 À peine eut-il franchi la restriction qu'il vit deux vieillards brandissant une chaîne faite de leurs propres tatouages. Ils attaquaient la tempête noire générée par les seize drapeaux; chaque impact de la chaîne contre le vortex provoquait une série de craquements tonitruants.
 
-À l'apparition de Wang Lin, l'un des vieillards eut un éclair de malice dans le regard. La chaîne de tatouages qu'il tenait tressaillit et se projeta vers lui tel un serpent démesuré. Un bang sonique accompagna la charge; Wang Lin sentit même le rugissement d'une âme de dragon résonner au cœur de la chaîne.
+À l'apparition de Wang Lin, l'un des vieillards eut un éclair de malice dans le regard. La chaîne de tatouages qu'il tenait tressaillit et se projeta vers lui tel un serpent démesuré. Un bang sonique accompagna la charge; Wang Lin sentit même le rugissement d'une âme de dragon noir résonner au cœur de la chaîne.
 
 Restant impassible, Wang Lin tendit la main. Le brouillard noir environnant convergea pour former une lance. Il s'en saisit et l'abattit violemment contre la chaîne de tatouages.
 
@@ -55,9 +55,9 @@ Bang!
 
 La lance se brisa sous le choc, et des fissures parcoururent la chaîne avant qu'elle ne se désintègre en une multitude de tatouages individuels. Le vieux sauvage, l'œil sévère, poussa un rugissement et sortit une peau de bête rouge. Celle-ci s'embrasa et se transforma en une immense poêle en fer. Dès son apparition, les fragments de tatouages furent aspirés par l'ustensile.
 
-Wang Lin leva la main droite, fit apparaître une nouvelle lance et chargea comme un éclair. La terreur se lut dans les yeux du vieillard perché sur sa poêle. Il entonna un sort complexe qui fit grandir l'objet jusqu'à la taille d'une petite montagne. L'homme s'envola avec son arme pour esquiver la lance de Wang Lin, avant de la projeter depuis le ciel. Avant que Wang Lin ne puisse réagir, d'innombrables fissures apparurent sous ses pieds et une force invisible l'écrasa, ralentissant ses mouvements.
+Wang Lin leva la main droite, fit apparaître une nouvelle lance et chargea comme un éclair. La méfiance se lut dans les yeux du vieillard perché sur sa poêle. Il entonna un sort complexe qui fit grandir l'objet jusqu'à la taille d'une petite montagne. L'homme s'envola avec son arme pour esquiver la lance de Wang Lin, avant de la projeter depuis le ciel. Avant que Wang Lin ne puisse réagir, d'innombrables fissures apparurent sous ses pieds et une force invisible l'écrasa, ralentissant ses mouvements.
 
-Simultanément, l'autre sauvage se tourna vers lui avec un sourire cruel. D'un geste de la main, il projeta ses tatouages qui s'empilèrent pour foncer sur Wang Lin. Ce dernier resta calme et ordonna: « Mur de restriction, apparais! »
+Simultanément, l'autre sauvage se tourna vers lui avec un sourire cruel. D'un geste de la main, il projeta ses tatouages qui s'empilèrent pour foncer sur Wang Lin. Ce dernier resta calme et ordonna: « Lances de gaz de restriction, apparaissez! »
 
 D'innombrables lances de gaz de restriction jaillirent du brouillard pour intercepter les tatouages. Au même moment, Wang Lin saisit l'épée céleste dans son sac de rangement et la brandit vers le ciel à deux mains. Un rayon d'énergie de l'épée fendit l'air et percuta la poêle en fer.
 
@@ -67,11 +67,11 @@ Il ne se trouvait plus qu'à moins de 66 mètres de Wang Lin.
 
 Le regard de ce dernier se fit glacial. Sans hésiter, il lança l'épée céleste dans les airs. La lame traversa la poêle en fer comme s'il s'agissait de simple papier. Le vieillard, stupéfait, fut tranché en deux. Le sang éclaboussa tout le champ de bataille.
 
-La restriction de Wang Lin se dissipa. Il ouvrit la bouche et un sceau noir s'en échappa, fonçant vers l'autre sauvage qui luttait contre les lances. Le visage de ce dernier changea radicalement; il sortit une peau de bête qui prit la forme d'une main gigantesque pour intercepter le sceau.
+L'entrave qui retenait Wang Lin disparut. Il ouvrit la bouche et un sceau noir s'en échappa, fonçant vers l'autre sauvage qui luttait contre les lances. Le visage de ce dernier changea radicalement; il sortit une peau de bête qui prit la forme d'un poing gigantesque de tatouages pour intercepter le sceau.
 
-Wang Lin laissa échapper un reniflement méprisant. Il avança, toucha son sac et fit apparaître une cloche. Il la projeta sur le sauvage qui, déjà acculé par les lances et le sceau, était en proie à la démence. Alors qu'il tentait de sortir une autre peau de bête, il fut englouti par la cloche dorée.
+Wang Lin laissa échapper un reniflement méprisant. Il avança, toucha son sac et fit apparaître une cloche. Il la projeta sur le sauvage qui, déjà acculé par les lances et le sceau, était en proie à la démence. Alors qu'il tentait de sortir une autre peau de bête, il fut englouti par la cloche.
 
-D'un geste de la main, Wang Lin fit revenir la cloche et la scella rapidement. Même rangée, elle continuait de tinter faiblement. Il récupéra l'épée céleste et le sceau noir avant de se replier dans la restriction.
+D'un geste de la main, Wang Lin fit revenir la cloche et la scella rapidement. À l'intérieur de la cloche retentirent des tintements, et l'on percevait vaguement des rugissements. Il récupéra l'épée céleste et le sceau noir avant de se replier dans la restriction.
 
 Une fois de retour à l'abri, le silence retomba, ne laissant derrière lui que les vestiges sanglants du combat. À l'intérieur, le vieil homme Hu, assis sous l'arbre de la réincarnation, contemplait Wang Lin avec une crainte grandissante. Ce combat venait d'ancrer dans son esprit une peur profonde envers ce jeune homme.
 
@@ -79,11 +79,11 @@ Une fois de retour à l'abri, le silence retomba, ne laissant derrière lui que 
 
 Le vieil homme Hu répondit avec assurance: « Bientôt! Encore une heure tout au plus et les fruits seront prêts! »
 
-« C'est trop long, répliqua Wang Lin. Ce n'étaient que des chamans à cinq feuilles, l'équivalent de cultivateurs de la Formation de l'Âme. Si des chamans à six feuilles arrivent, équivalents de cultivateurs de la Formation de l'Âme de stade avancé, j'en retiendrai peut-être un, mais si deux arrivent, je ne pourrai rien faire. Et il y a aussi des chamans à sept feuilles ici; ils sont l'équivalent de cultivateurs de la Transformation de l'Âme! »
+« C'est trop long, répliqua Wang Lin. Ceux qui sont venus n'étaient que des chamans à cinq feuilles. Si des chamans à six feuilles arrivent, équivalents de cultivateurs de la Formation de l'Âme de stade avancé, j'en retiendrai peut-être un, mais si deux arrivent, je ne pourrai rien faire. Et il y a aussi des chamans à sept feuilles ici; ils sont l'équivalent de cultivateurs de la Transformation de l'Âme! »
 
 L'expression du vieil homme Hu s'assombrit. Alors qu'il s'apprêtait à répondre, son visage se décomposa. Wang Lin soupira et tourna le regard vers l'horizon.
 
-Au loin, vingt rayons de lumière noire convergeaient vers eux. Six d'entre eux arboraient des visages gigantesques, les deux premiers étant particulièrement imposants. La lumière qu'ils dégageaient ressemblait à des flammes démoniaques en furie, tandis que des tatouages à six feuilles apparaissaient et disparaissaient sur leurs fronts.
+Au loin, plus de vingt rayons de lumière noire convergeaient vers eux. Six d'entre eux arboraient des visages gigantesques, les deux premiers étant particulièrement imposants. La lumière qu'ils dégageaient ressemblait à des flammes démoniaques en furie, tandis que des tatouages à six feuilles apparaissaient et disparaissaient sur leurs fronts.
 
 Arrivés à la limite de la restriction, ils prirent tous forme humaine. Les deux chamans à six feuilles en tête étaient les mêmes qui avaient poursuivi Wang Lin et le vieil homme Hu avant d'être détournés par la bête-tortue.
 

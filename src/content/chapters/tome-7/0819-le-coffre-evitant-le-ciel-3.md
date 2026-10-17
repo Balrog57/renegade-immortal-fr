@@ -6,13 +6,13 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 819 - Heaven-Avoiding Coffin (3)
 slug: le-coffre-evitant-le-ciel-3
 ---
-L'homme en robe noire afficha un regard déterminé. Au moment où sa tête tomba dans le cercueil, le couvercle s'envola automatiquement pour refermer l'ouverture. Puis, le coffre brilla intensément et s'éleva hors de la formation.
+L'homme en robe noire afficha un regard déterminé. Au moment où sa tête tomba dans le cercueil, le couvercle s'envola automatiquement pour refermer l'ouverture. Puis, le cercueil se changea en une traînée de lumière cristalline qui jaillit hors de la formation et fila au loin.
 
 Les yeux de Wang Lin s'illuminèrent. La scène qui se déroulait devant lui le choqua; il vit clairement le jeune homme à l'intérieur du cercueil disparaître.
 
-Il remarqua ensuite que, dès que la tête de l'homme en robe noire avait touché le fond du coffre, son corps avait commencé à se condenser rapidement.
+Il remarqua ensuite que, dès que la tête de l'homme en robe noire avait touché le fond du cercueil, son corps avait commencé à se condenser rapidement.
 
-« C'est... » Les yeux de Wang Lin se rétrécirent et il forma un sceau sans hésitation. Le papillon vola sous lui pour le porter, tandis que sa main gauche s'étendait et que le Sceau Céleste s'élançait immédiatement à la poursuite du coffre.
+« C'est... » Les yeux de Wang Lin se rétrécirent et il forma un sceau sans hésitation. Le papillon vola sous lui pour le porter, tandis que sa main gauche s'étendait et que le Sceau Céleste s'élançait immédiatement à la poursuite du cercueil.
 
 Ta Shan vacilla avant de disparaître dans l'ombre de Wang Lin.
 
@@ -24,15 +24,15 @@ Le regard de Wang Lin devint glacial alors qu'il traquait le cercueil.
 
 Ses yeux devinrent froids et un sourire sardonique étira ses lèvres tandis qu'il murmurait: « Maître, moi, Long Daozi, je n'ai pas eu de corps pendant toutes ces années passées à garder votre fils. Il s'avère qu'il me suffisait de rester allongé ici un instant pour récupérer mon enveloppe charnelle! »
 
-« Si c'était le cas, pourquoi m'avoir infligé une telle douleur? Aviez-vous peur que je ne protège plus votre héritage une fois mon corps retrouvé?! Je m'en voulais auparavant, mais maintenant je sais! Moi, Long Daozi, j'ai toujours été reconnaissant de m'avoir sauvé, et en raison de notre lien de maître à disciple, j'aurais préféré souffrir durant d'innombrables années plutôt que d'avoir la moindre idée sur ce coffre. Cependant, je vois maintenant à quel point mes pensées étaient ridicules!! »
+« Si c'était le cas, pourquoi m'avoir infligé une telle douleur? Aviez-vous peur que je ne protège plus votre héritage une fois mon corps retrouvé?! Je m'en voulais auparavant, mais maintenant je sais! Moi, Long Daozi, j'ai toujours été reconnaissant envers vous de m'avoir sauvé, et en raison de notre lien de maître à disciple, j'aurais préféré souffrir durant d'innombrables années plutôt que d'avoir la moindre idée sur ce cercueil. Cependant, je vois maintenant à quel point mes pensées étaient ridicules!! »
 
 À l'intérieur du cercueil, Long Daozi serra les poings avec acharnement, provoquant des craquements sinistres dans son corps, comme si ses os se heurtaient violemment. C'était une sensation extrêmement agréable; il pouvait clairement sentir sa culture se rétablir à une vitesse inimaginable.
 
-Passant de Yang Corporel à Scruteur du Nirvana, qui était au rang 1 d'Immortel Céleste, il atteignit rapidement le début du stade Scruteur du Nirvana, soit le rang 3 d'Immortel Céleste.
+Partant du stade situé entre Yang Corporel et Scruteur du Nirvana, qui était le rang 1 d'Immortel Céleste, il atteignit rapidement le début du stade Scruteur du Nirvana, soit le rang 3 d'Immortel Céleste.
 
 « Maître Xiaoyaozi, vous m'avez bien trompé!! » Les yeux de Long Daozi se remplirent d'une intention meurtrière alors que sa culture explosait. Elle grimpa au rang 6 d'Immortel Céleste, sans même ralentir.
 
-En poursuivant sa course, l'expression de Wang Lin changea légèrement. Il pouvait sentir que les fluctuations d'énergie spirituelle céleste émanant du coffre devenaient de plus en plus puissantes.
+En poursuivant sa course, l'expression de Wang Lin changea légèrement. Il pouvait sentir que les fluctuations d'énergie spirituelle céleste émanant du cercueil devenaient de plus en plus puissantes.
 
 « Quel genre de trésor est-ce là?! » Wang Lin prit une inspiration saccadée, le regard chargé de stupeur.
 
@@ -44,7 +44,7 @@ Sa culture avait transcendé le niveau d'Immortel Céleste pour atteindre celui 
 
 « Rang 3 Roi Céleste! Maître Xiaoyaozi, vous n'êtes qu'un Roi Céleste de rang 9. Désormais, moi aussi, Long Daozi, je suis un Roi Céleste! Une fois que j'aurai tué ce junior et pris son trésor, tant que je ne retournerai pas dans le Royaume Céleste, vous ne me trouverez jamais dans ce vaste monde! » Long Daozi éclata de rire en levant la main pour presser le couvercle du cercueil. Celui-ci s'envola et Long Daozi en sortit fièrement.
 
-Wang Lin s'arrêta net, l'expression extrêmement sombre. Cependant, ses yeux se plissèrent alors qu'il observait la scène.
+Wang Lin s'arrêta net, l'expression extrêmement sombre, sur le point de reculer. Cependant, ses yeux se plissèrent alors qu'il observait la scène.
 
 Il vit Long Daozi jaillir du cercueil en riant. Une aura puissante se dégageait de lui. Bien qu'elle ne fût pas aussi écrasante que celle de l'Ancêtre Sanguin, elle n'en demeurait pas moins redoutable.
 
@@ -52,7 +52,7 @@ C'était comme si une tempête céleste faisait rage dans la zone et que cet hom
 
 « Junior, meurs! » Alors que Long Daozi riait de déraison, il fit un pas en avant. Pourtant, à cet instant précis, un changement radical survint.
 
-Son pied se désintégra silencieusement au moment où il le leva. Puis, ses jambes et ses bras volèrent en éclats.
+Son pied se désintégra silencieusement au moment où il le leva. Puis, ses jambes, son buste et ses bras volèrent en éclats.
 
 Cette scène était identique à celle du jeune homme qui avait disparu lors de l'ouverture du cercueil.
 
@@ -62,13 +62,13 @@ Même sa tête commença à devenir floue, comme si elle allait se fragmenter en
 
 Les yeux de Long Daozi furent envahis par la terreur. Tel un fou, il hurla avec hystérie: « Pourquoi est-ce ainsi... Maître, pourquoi est-ce ainsi?! »
 
-Long Daozi rugit vers les cieux: « Maître, je vous ai protégé pendant d'innombrables années! Pourquoi voulez-vous me tuer?! Vous aviez dit que tant qu'il resterait une parcelle d'âme, ce coffre pourrait l'aider à se reformer. Je l'ai utilisé pour récupérer mon corps, alors pourquoi s'est-il effondré?! Pourquoi?! »
+Long Daozi rugit vers les cieux: « Maître, j'ai protégé votre fils pendant d'innombrables années! Pourquoi voulez-vous me tuer?! Vous aviez dit que tant qu'il resterait une parcelle d'âme, ce cercueil pourrait l'aider à se reformer. Je l'ai utilisé pour récupérer mon corps, alors pourquoi s'est-il effondré?! Pourquoi?! »
 
-« Maître Xiaoyaozi, si je ne vous avais pas aidé à trouver les indices du Coffre Évitant le Ciel, comment aurais-je pu briser la loi céleste?! Et pourtant, vous me traitez ainsi!! Je crains que si j'avais écouté vos conseils et que j'étais entré dans le coffre après le réveil de votre fils, le résultat aurait été le même!! Vous vouliez ma mort! » La tête de Long Daozi se dissipa progressivement. Son âme originelle s'effondra également pour ne devenir qu'une partie du néant.
+« Maître Xiaoyaozi, si je ne vous avais pas aidé à trouver les indices du Cercueil Évitant le Ciel, comment aurais-je pu briser la loi céleste?! Et pourtant, vous me traitez ainsi!! Je crains que si j'avais écouté vos conseils et que j'étais entré dans le cercueil après le réveil de votre fils, le résultat aurait été le même!! Vous vouliez ma mort! » La tête de Long Daozi se dissipa progressivement. Son âme originelle s'effondra également pour ne devenir qu'une partie du néant.
 
 Comme la poussière retournant à la poussière et la terre à la terre...
 
-Cependant, un sentiment puissant de ressentiment persista dans le vide. Ce ressentiment avait mûri en Long Daozi durant d'innombrables années, depuis l'effondrement du Royaume Céleste, pour finalement éclater.
+Cependant, un sentiment puissant de ressentiment persista dans le vide. Ce ressentiment s'était accumulé en Long Daozi durant d'innombrables années, depuis avant l'effondrement du Royaume Céleste jusqu'à cet instant, pour finalement éclater à l'instant de sa mort.
 
 Ce ressentiment était d'une puissance dépassant l'imagination. S'il n'était pas dissipé, il subsisterait pour l'éternité. Peut-être qu'après de longs millénaires, une nouvelle vie naîtrait de cette rancœur.
 
@@ -80,11 +80,11 @@ Le temps d'un bâton d'encens, tout le ressentiment fut absorbé. Lorsque Wang L
 
 Wang Lin saisit le cercueil. Le regard sérieux, il l'examina avec précaution avant de s'interroger.
 
-« Cet objet peut aider à nourrir l'âme et à restaurer la chair, mais on ne peut pas en sortir. Une fois que l'être quitte le coffre, il disparaît dans le néant... Si ce n'est pas le cas, alors le cercueil a dû être utilisé de manière incorrecte! » Après avoir médité un instant, Wang Lin rangea le cercueil dans un soupir et s'en alla.
+« Cet objet peut aider à nourrir l'âme et à restaurer la chair, mais on ne peut pas en sortir. Une fois que l'être quitte le cercueil, il disparaît dans le néant... Si ce n'est pas le cas, alors le cercueil a dû être utilisé de manière incorrecte! » Après avoir médité un instant, Wang Lin rangea le cercueil dans un soupir et s'en alla.
 
 En voyant cet objet, il pensa à Li Muwan.
 
-« Planète Dong Lin! Avec ma culture actuelle, je devrais pouvoir y jeter un œil! » Les yeux de Wang Lin brillèrent d'une lueur intense. Outre le besoin d'éviter l'Omniscient, il s'était rendu dans le système stellaire Luotian pour chercher la famille Xiang sur la planète Dong Lin, afin de trouver un moyen de ressusciter Li Muwan.
+« Planète Dong Lin! Avec ma culture actuelle, je devrais pouvoir y jeter un œil! » Les yeux de Wang Lin brillèrent d'une lueur intense. Outre le besoin d'éviter l'Omniscient et d'autres vieux monstres, il s'était rendu dans le système stellaire Luotian pour chercher la famille Xiang sur la planète Dong Lin, afin de trouver un moyen de ressusciter Li Muwan.
 
 Wang Lin n'oublierait jamais le choc et l'impulsion qu'il avait ressentis lorsque cette femme avait évoqué le réveil de Li Muwan dans l'Abîme des Marées.
 
@@ -120,4 +120,4 @@ Poussé par le brouillard, Wang Lin se retourna lorsqu'il fut sorti et vit la b�
 
 La bête remarqua également Wang Lin et sa troupe. Elle referma lentement sa gueule avant de reculer pour disparaître dans les profondeurs. Hormis le tourbillon de brume, sa silhouette était désormais invisible.
 
-Wang Lin avait disparu pendant près de six mois avant de réapparaître dans le système stellaire Luotian. À cet instant précis, deux événements apocalyptiques qui secouèrent tous les cultivateurs venaient de se produire! Et l'un d'eux pointait sa lance directement vers Wang Lin!
+Wang Lin avait disparu pendant plus de six mois avant de réapparaître dans le système stellaire Luotian. À cet instant précis, deux événements apocalyptiques qui secouèrent tous les cultivateurs venaient de se produire! Et l'un d'eux visait directement Wang Lin!

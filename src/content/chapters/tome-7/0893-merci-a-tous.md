@@ -26,7 +26,7 @@ Wang Lin pouvait vaguement entendre les échos d'il y a mille ans.
 
 « Tie Zhu, comment se passent tes études? »
 
-« Tie Zhu, tu dois bien étudier. L'année prochaine aura lieu le grand examen de l'Empire. Cela déterminera si tu as un avenir ou non. Ne sois pas comme ton père, qui passera toute sa vie dans ce village. Hélas. »
+« Tie Zhu, tu dois bien étudier. L'année prochaine aura lieu le grand examen du comté. Cela déterminera si tu as un avenir ou non. Ne sois pas comme ton père, qui passera toute sa vie dans ce village. Hélas. »
 
 « Assez! Tu l'importunes avec ça tous les jours. Je suis convaincue que notre Tie Zhu réussira sans faute. »
 
@@ -46,7 +46,7 @@ Tandis qu'il demeurait silencieux, il affichait parfois un sourire heureux et pa
 
 Son bonheur était empreint de solitude. Son sourire était manifestement teinté d'une tristesse muette... Des larmes coulèrent au coin de ses yeux, laissant sur le sol des traces semblables à des fragments de souvenirs...
 
-La lune disparut peu à peu et l'aube pointa, chassant les ténèbres. La lumière du soleil tomba sur la terre et s'étendit jusqu'à recouvrir la Cité Ancestrale de Wang.
+La lune disparut peu à peu et l'aube pointa, chassant les ténèbres. La lumière du soleil tomba sur la terre et s'étendit jusqu'à recouvrir la Cité Ancestrale.
 
 Alors que la clarté pénétrait par la fenêtre, Wang Lin s'éveilla de ses rêveries. Il observa les lieux d'un regard profond avant de se lever pour partir.
 
@@ -58,7 +58,7 @@ Le groupe de Wang Lin ne chercha pas à se cacher. À l'arrivée de l'aube, ils 
 
 Simultanément, plus de dix cultivateurs de divers niveaux, allant de l'Établissement des Fondations à la Formation de l'Âme, accoururent. Leurs sens divins les verrouillèrent rapidement.
 
-Un rugissement furieux retentit de l'autre côté du mur: « Espèces impudentes! Osez-vous profaner la demeure ancestrale des Wang? Savez-vous que c'est un crime passible de punition pour toute votre lignée?! »
+Un rugissement furieux retentit de l'autre côté du mur: « Espèces impudentes! Osez-vous profaner la demeure ancestrale impériale? Savez-vous que c'est un crime passible de punition pour toute votre lignée?! »
 
 Des éclairs d'énergie d'épée déchirèrent le ciel lors de l'arrivée des cultivateurs, tous animés par une colère noire. Wang Lin comprit que ce n'était pas une feinte, mais une véritable indignation!
 
@@ -66,7 +66,7 @@ Des éclairs d'énergie d'épée déchirèrent le ciel lors de l'arrivée des cu
 
 Ta Shan resta impassible et ne daigna même pas les regarder. Le garçon à la grosse tête leva les yeux au ciel mais garda le silence.
 
-Après avoir détourné le regard de la tombe de ses parents, Wang Lin leva les yeux vers la douzaine de cultivateurs et demanda calmement: « Qui a construit cette tombe? »
+Après avoir détourné le regard de la tombe de ses parents, Wang Lin leva les yeux vers les dizaines de cultivateurs dans le ciel et demanda calmement: « Qui a construit cette tombe? »
 
 La voix de Wang Lin était monocorde, mais lorsqu'elle atteignit les oreilles des cultivateurs, c'est comme si la puissance des cieux s'était engouffrée en eux. Un sentiment d'impuissance absolue surgit soudainement dans leurs cœurs.
 
@@ -76,11 +76,11 @@ Une force invisible le contraignait à répondre; s'il restait muet, il s'effond
 
 En disant cela, il croisa le regard de Wang Lin et fut stupéfait. Il avait la vague impression que cet homme lui était extrêmement familier, mais malgré tous ses efforts, il ne parvenait pas à s'en souvenir.
 
-« La famille Wang... » Wang Lin réfléchit en silence en contemplant la tombe de ses parents. Il se retourna, prêt à partir avec Ta Shan et le garçon à la grosse tête.
+« La famille impériale... » Wang Lin réfléchit en silence en contemplant la tombe de ses parents. Il se retourna, prêt à partir avec Ta Shan et le garçon à la grosse tête.
 
 Cependant, à cet instant précis, un grondement tonitruant retentit au loin et une masse de nuages sombres s'abattit sur les lieux. Parallèlement, un rugissement colérique jaillit de la tempête:
 
-« Quel culot! Vous osez profaner la demeure ancestrale des Wang?! Ma Secte Xuan Dao garde ce lieu depuis des générations. Votre intrusion signifie que vous pensez que ma Secte Xuan Dao n'existe pas! »
+« Quel culot! Vous osez profaner la demeure ancestrale des Wang?! Ma Secte Xuan Dao du pays de Zhao garde ce lieu depuis des générations. Votre intrusion signifie que vous pensez que ma Secte Xuan Dao n'existe pas! »
 
 Un homme émergea au milieu du tumulte. Il avait une chevelure blanche et les yeux brillants d'éclat. En s'avançant, l'aura puissante d'un cultivateur au stade précoce de la Transformation de l'Âme se manifesta.
 
@@ -98,7 +98,7 @@ Il se souvint qu'en atteignant le stade de la Formation de l'Âme dans le pays d
 
 Wang Lin demanda avec un sourire: « Durant toutes ces années, est-ce votre Secte Xuan Dao qui a gardé ce lieu? Tous ces cultivateurs sont-ils des disciples de la Secte Xuan Dao? »
 
-Le vieil homme fronça les sourcils et scruta le groupe de Wang Lin. Pour une raison inconnue, sa colère fut brusquement réprimée, comme si l'homme devant lui était un être très proche. Il hésita un instant avant de répondre: « Ce n'est pas seulement ma Secte Xuan Dao. De temps à autre, une secte différente de la planète Suzaku vient monter la garde. Ceux qui viennent sont tous des figures respectées ou des génies dotés d'un talent exceptionnel destinés à être portés par leur secte. »
+Le vieil homme fronça les sourcils et scruta le groupe de Wang Lin. Pour une raison inconnue, sa colère fut brusquement réprimée, comme si l'homme devant lui était un être très proche. Il hésita un instant avant de répondre: « Ce n'est pas seulement ma Secte Xuan Dao. De temps à autre, une secte différente de la planète Suzaku vient monter la garde. Ceux qui viennent sont tous des personnes ayant apporté une grande contribution à leur secte ou des génies dotés d'un talent exceptionnel que celle-ci compte former en priorité. »
 
 « Garder la demeure ancestrale des Wang est un immense honneur pour les cultivateurs de la planète Suzaku! » Le vieil homme ne savait pas pourquoi il fournissait autant de détails à Wang Lin; il ne comprenait même pas lui-même ses propres motivations.
 
@@ -118,4 +118,4 @@ Chaque cultivateur fut stupéfait et sentit instantanément une chaleur intense 
 
 « Il... Il est l'Ancêtre de la famille Wang? »
 
-« Le gardien de la planète Suzaku. L'être suprême de cette planète durant ces innombrables années. L'Ancêtre de la famille Wang, Wang Lin! »
+« Le gardien de la planète Suzaku. Le premier à ce rang depuis d'innombrables années. L'Ancêtre de la famille Wang, Wang Lin! »

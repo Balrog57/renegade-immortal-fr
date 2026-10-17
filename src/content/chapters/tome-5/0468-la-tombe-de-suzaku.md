@@ -14,13 +14,13 @@ Wang Lin déclara d'un ton calme: « Mon avenir n'est pas sur la planète Suzaku
 
 Mo Zhi regarda Wang Lin, secoua la tête et soupira. « Dommage. Puisque frère Da Niu ne le souhaite pas, je n'insisterai pas sur ce sujet... » Ses yeux furent soudainement envahis par une confusion profonde qui mit un moment avant de se dissiper.
 
-Son regard se posa ensuite sur Yunque Zi.
+Son regard se posa ensuite sur Yun Quezi.
 
-« Le Clan des Immortels Délaissés... le tiers de la planète Suzaku peut vous être accordé, mais tous les 1 000 ans, vous devrez remettre le crâne d'un membre du clan ayant au moins neuf feuilles. Yunque Zi, acceptez-vous? »
+« Le Clan des Immortels Délaissés... le tiers de la planète Suzaku peut vous être accordé, mais tous les 1 000 ans, vous devrez remettre le crâne d'un membre du clan ayant au moins neuf feuilles. Yun Quezi, acceptez-vous? »
 
-Le cœur d'Yunque Zi se serra d'amertume. Il savait qu'il n'avait aucun droit de refuser pour l'instant. Cet homme représentait l'Alliance de la Culture; le Clan des Immortels Délaissés n'avait aucune chance de s'y opposer.
+Le cœur d'Yun Quezi se serra d'amertume. Il savait qu'il n'avait aucun droit de refuser pour l'instant. Cet homme représentait l'Alliance de la Culture; le Clan des Immortels Délaissés n'avait aucune chance de s'y opposer.
 
-Il hocha vigoureusement la tête. Yunque Zi sembla soudainement vieillir et son regard devint terne.
+Il hocha vigoureusement la tête. Yun Quezi sembla soudainement vieillir et son regard devint terne.
 
 À cet instant précis, des vagues commencèrent à se former sur la mer en contrebas et l'effondrement de la Tombe de Suzaku reprit. Tandis que la mer rugissait, Mo Zhi leva la main et le cristal blanc qu'il tenait se mit soudainement à briller intensément.
 
@@ -34,7 +34,7 @@ Après dix respirations, la Tombe de Suzaku avait retrouvé son état initial.
 
 Mo Zhi jeta un dernier regard sur le cristal blanc qu'il tenait, puis le lança dans l'océan. Le cristal s'enfonça rapidement dans les profondeurs et disparut.
 
-Puis, il pointa du doigt le cadavre de Zhuque Zi, et un cristal en forme de cœur jaillit du sommet de son crâne. De nombreuses fissures profondes marquaient le cristal, comme s'il pouvait se briser à tout instant.
+Puis, il pointa du doigt le cadavre de Zhu Quezi, et un cristal en forme de cœur jaillit du sommet de son crâne. De nombreuses fissures profondes marquaient le cristal, comme s'il pouvait se briser à tout instant.
 
 Mais à cet instant, les fêlures commencèrent mystérieusement à se résorber et, en trois respirations, le cristal fut redevenu parfaitement lisse.
 
@@ -50,7 +50,7 @@ Zhou Wutai esquissa un sourire amer et soupira intérieurement. Il savait que so
 
 « Fourneau de culture... il y a quelque chose d'étrange chez elle! » Les yeux de Wang Lin s'illuminèrent. Il avait eu des différends avec Zi Xin par le passé, ils étaient donc plus ennemis qu'amis. Il remarqua un changement dans son corps; il y avait un lien entre Zi Xin et Qian Feng. Bien qu'il ignorât les détails exacts, Zi Xin avait été autrefois le fourneau de culture de Qian Feng.
 
-Le fait qu'il ait tué Qian Feng avait, d'une certaine manière, exaucé le vœu de cette jeune fille, un mystère que Wang Lin ne parvenait pas à percer. Il cultivait depuis longtemps, mais il n'avait jamais entendu parler d'un sort capable de permettre au fourneau de culture de voler la puissance de son maître. Ce sort était extrêmement mystérieux et étrange, mais les techniques les plus singulières possèdent toujours des failles mortelles. Wang Lin reporta alors son attention sur Yunque Zi; il était convaincu que cette affaire était liée à lui.
+Le fait qu'il ait tué Qian Feng avait, d'une certaine manière, exaucé le vœu de cette jeune fille, un mystère que Wang Lin ne parvenait pas à percer. Il cultivait depuis longtemps, mais il n'avait jamais entendu parler d'un sort capable de permettre au fourneau de culture de voler la puissance de son maître. Ce sort était extrêmement mystérieux et étrange, mais les techniques les plus singulières possèdent toujours des failles mortelles. Wang Lin reporta alors son attention sur Yun Quezi; il était convaincu que cette affaire était liée à lui.
 
 Après une courte réflexion, Wang Lin dit: « Seigneur Messager... »
 
@@ -86,7 +86,7 @@ Au contraire, c'était Wang Lin qui suscitait son intérêt. Après une courte r
 
 Le corps de Zhou Wutai trembla violemment tandis que le cœur de cristal s'enfonçait lentement entre ses sourcils.
 
-« Restez ici pendant un an pour comprendre le Sceau de Suzaku. Désormais, vous êtes le 15ème Suzaku! Cependant, je n'ai pas brisé le sceau sur le Cristal de la Planète de Culture. Laissons-le en l'état! » Tandis que Mo Zhi parlait, il agita ses manches et Yunque Zi ainsi que Zi Xin disparurent.
+« Restez ici pendant un an pour comprendre le Sceau de Suzaku. Désormais, vous êtes le 15ème Suzaku! Cependant, je n'ai pas brisé le sceau sur le Cristal de la Planète de Culture. Laissons-le en l'état! » Tandis que Mo Zhi parlait, il agita ses manches et Yun Quezi ainsi que Zi Xin disparurent.
 
 Simultanément, le corps de Zhou Wutai s'enfonça lentement dans la mer avant de disparaître.
 
@@ -124,7 +124,7 @@ Ce « rêve » impliquant Liu Mei ne pouvait en rien influencer la résolution d
 
 L'épisode de la Tombe de Suzaku touchait à sa fin.
 
-Quant au Clan des Immortels Délaissés, après la sortie d'Yunque Zi de la tombe, ils se retirèrent tous vers le nord-ouest pour s'installer sur un continent. Ils n'auraient plus de contacts fortuits avec les autres cultivateurs.
+Quant au Clan des Immortels Délaissés, après la sortie d'Yun Quezi de la tombe, ils se retirèrent tous vers le nord-ouest pour s'installer sur un continent. Ils n'auraient plus de contacts fortuits avec les autres cultivateurs.
 
 De nombreux cultivateurs étaient tombés durant la guerre sur la planète Suzaku, laissant de nombreuses sectes extrêmement affaiblies; ces dernières commencèrent donc à recruter massivement des disciples.
 

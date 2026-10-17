@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 880 - Wan Er
 slug: wan-er
 ---
-Les êtres célestes ne cultivent pas de domaines. Les véritables êtres célestes n'ont aucun sentiment!
+Les êtres célestes ne cultivent pas de domaines. Les véritables êtres célestes ne conservent aucune compréhension!
 
 Wang Lin le savait!
 
@@ -20,13 +20,13 @@ C'était comme si tout le Système Stellaire de Luotian était tombé dans un si
 
 C'était un choix difficile. Personne ne pouvait dire lequel était le bon ou le mauvais!
 
-On ne pouvait que dire qu'il s'agissait de deux voies divergentes. L'une était la voie des êtres célestes, et l'autre était celle des cultivateurs!
+On ne pouvait que dire qu'il s'agissait de deux voies divergentes. L'une était la voie des êtres célestes, et l'autre était celle du Dao!
 
 Nul ne pourrait dire laquelle serait la plus puissante avant la fin!
 
 Dans les temps anciens, les anciens cultivateurs aspiraient à devenir immortels. Pour eux, entrer dans le bassin céleste était un immense honneur. Leur énergie d'origine se transformerait en énergie d'origine céleste! C'était l'objectif ultime des cultivateurs depuis l'Antiquité!
 
-Sans la culture du domaine, il n'y avait rien à comprendre. Toutes les augmentations de niveau de culture dépendraient alors des trésors célestes, de la culture céleste et des pilules célestes.
+Sans la culture du domaine, il n'y avait rien à comprendre. Toutes les augmentations de niveau de culture dépendraient alors des trésors célestes, de l'énergie céleste et des pilules célestes.
 
 Après l'effondrement du Royaume Céleste, les cultivateurs ne cherchèrent plus à devenir des êtres célestes, car le Royaume Céleste n'existait plus. À la place, leur voie était celle du Dao! Car cultiver le Dao leur permettait d'atteindre l'illumination.
 
@@ -48,7 +48,7 @@ Par conséquent, il renonça résolument à son domaine et choisit la voie d'un 
 
 Après être entré dans le bassin céleste, Xu Ting ressentit une douleur insupportable irradier de son corps. L'eau semblait bouillir et s'insinuer en lui.
 
-De larges gouttes de sueur perlèrent sur son front. Sa douleur était telle qu'il manquait de s'évanouir. C'était comme si un couteau sculptait sa chair. Ce domaine qu'il avait cultivé pendant des milliers d'années était en train d'être absorbé par l'eau.
+De larges gouttes de sueur perlèrent sur son front. Sa douleur était telle qu'il manquait de s'évanouir. C'était comme si un couteau sculptait sa chair. Ce domaine qu'il avait cultivé pendant mille ans était en train d'être absorbé par l'eau.
 
 D'immenses quantités d'énergie spirituelle céleste pénétrèrent son corps et fusionnèrent avec son énergie d'origine, formant une énergie inédite qui le remplit intégralement.
 
@@ -106,7 +106,7 @@ Ses réflexions attirèrent tous les regards. Wang Lin avait été très remarqu
 
 Non seulement eux, mais tous les habitants du Système Stellaire de Luotian qui voyaient la pierre étaient concentrés et observaient attentivement.
 
-Ils voulaient savoir si ce Xu Mu allait renoncer. S'il ne renonçait pas, parviendrait-il à graver son nom? Bien que presque aucun d'entre eux n'ignorât la légende ou l'origine de la Pierre de Bénédiction Céleste.
+Ils voulaient savoir si ce Xu Mu allait renoncer. S'il ne renonçait pas, parviendrait-il à graver son nom? Pourtant, la plupart d'entre eux ignoraient la légende et l'origine de la Pierre de Bénédiction Céleste.
 
 Alors qu'il méditait, les yeux de Wang Lin s'illuminèrent. Sa main droite se leva et son index pressa la pierre. Une force puissante surgit de l'intérieur de la pierre et repoussa sa main.
 
@@ -116,7 +116,7 @@ En conséquence, chaque mouvement du doigt de Wang Lin générait une force de r
 
 Des éclats de lumière crue jaillirent de la pierre. Lorsque Wang Lin acheva le dernier trait, il sentit une partie de son âme d'origine se détacher et converger vers son doigt.
 
-Pourtant, juste au moment où son âme d'origine était sur le point de fusionner avec la pierre, Wang Lin leva brusquement la tête. En utilisant la force de la pierre, il recula de quelques pas et parvint à interrompre le processus.
+Pourtant, juste au moment où son âme d'origine était sur le point de fusionner avec la pierre, Wang Lin leva brusquement la main droite. En utilisant la force de la pierre, il recula de quelques pas et parvint à interrompre le processus.
 
 Les yeux de Maître Yan Leizi se plissèrent et il lança un regard significatif à Wang Lin. Il avait vu que l'âme d'origine de Wang Lin ne s'était pas fusionnée avec la pierre. De plus, le nom gravé n'était ni celui de Wang Lin, ni celui de Xu Mu, mais celui de Maître Démon!
 

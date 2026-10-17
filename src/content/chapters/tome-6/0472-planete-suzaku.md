@@ -80,9 +80,9 @@ Les parents de Zhou Ru discutaient avec elle dans la cour, les traits empreints 
 
 Planète Suzaku, domaine du Clan Immortel Délaissé.
 
-Yunque Zi était assis seul sur une haute montagne, les yeux rivés vers le ciel. Son visage paraissait très vieilli, plus encore qu'auparavant. Il avait subi de graves blessures dans la Tombe de Suzaku et, malgré un an de convalescence, il n'en avait que peu récupéré. Il sentait également sa fin approcher, une fatigue immense l'accablant.
+Yun Quezi était assis seul sur une haute montagne, les yeux rivés vers le ciel. Son visage paraissait très vieilli, plus encore qu'auparavant. Il avait subi de graves blessures dans la Tombe de Suzaku et, malgré un an de convalescence, il n'en avait que peu récupéré. Il sentait également sa fin approcher, une fatigue immense l'accablant.
 
-L'espérance de vie des membres du Clan Immortel Délaissé était légèrement supérieure à celle des cultivateurs; sans cela, avec le niveau de culture de Yunque Zi, il serait mort depuis longtemps.
+L'espérance de vie des membres du Clan Immortel Délaissé était légèrement supérieure à celle des cultivateurs; sans cela, avec le niveau de culture de Yun Quezi, il serait mort depuis longtemps.
 
 « La jeune génération nous surpassera bientôt... » soupira-t-il après un long silence.
 

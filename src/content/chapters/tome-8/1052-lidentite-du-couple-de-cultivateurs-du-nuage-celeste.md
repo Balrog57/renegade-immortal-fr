@@ -6,9 +6,9 @@ bookTitle: "Alliance's Secret"
 en: Chapter 1052 - The Identity of the Celestial Cloud Cultivation Couple
 slug: lidentite-du-couple-de-cultivateurs-du-nuage-celeste
 ---
-« Wang Lin salue l'Aîné. Comment aurais-je pu oublier la promesse que j'ai faite? Peu importe le danger de cet endroit, je ramènerai le corps de Qing Shuang! » Voir Zhou Yi émut Wang Lin. Zhou Yi était l'un des rares bienfaiteurs qu'il ait connus, et quel que soit le niveau de culture que Wang Lin atteindrait, il resterait toujours respectueux envers lui.
+« Wang Lin salue le Senior. Comment aurais-je pu oublier la promesse que j'ai faite? Peu importe le danger de cet endroit, je ramènerai le corps de Qing Shuang! » Voir Zhou Yi émut Wang Lin. Zhou Yi était l'un des rares bienfaiteurs qu'il ait connus, et quel que soit le niveau de culture que Wang Lin atteindrait, il resterait toujours respectueux envers lui.
 
-Zhou Yi afficha une expression mélancolique en regardant Wang Lin et secoua la tête. « Il n'est pas nécessaire de m'appeler "Aîné" quand nous sommes seuls. Si cela ne te dérange pas, appelle-moi simplement "Grand Frère Zhou". » Les yeux de Zhou Yi se rétrécirent soudainement et il scruta attentivement Wang Lin.
+Zhou Yi afficha une expression mélancolique en regardant Wang Lin et secoua la tête. « Il n'est pas nécessaire de m'appeler "Senior" quand nous sommes seuls. Si cela ne te dérange pas, appelle-moi simplement "Grand Frère Zhou". » Les yeux de Zhou Yi se rétrécirent soudainement et il scruta attentivement Wang Lin.
 
 « Qui t'a blessé si gravement?! Ton âme originelle est vacillante, et parce que ta récupération est trop lente, cela engendrera davantage de dangers cachés à l'avenir! » Un frisson passa dans l'expression de Zhou Yi.
 
@@ -16,7 +16,7 @@ Wang Lin eut un sourire amer et expliqua simplement la situation à Zhou Yi. Il 
 
 « Maître du Vide! » Une lueur froide brilla dans les yeux de Zhou Yi, et une pointe de culpabilité apparut dans son regard envers Wang Lin.
 
-« Si ce n'était pas pour avoir ramené Qing Shuang, il n'aurait pas été dans un tel danger... Maître du Vide, je me souviendrai de cette personne! » Zhou Yi hocha la tête et n'insista pas, mais il grava le nom de Maître du Vide dans son cœur. Blesser Wang Lin, qui était venu lui apporter Qing Shuang, revenait à franchir sa limite. Si l'occasion se présentait, compte tenu de la personnalité de Zhou Yi, il ferait payer un terrible prix à Maître Vide.
+« Si ce n'était pas pour avoir ramené Qing Shuang, il n'aurait pas été dans un tel danger... Maître du Vide, je me souviendrai de cette personne! » Zhou Yi hocha la tête et n'insista pas, mais il grava le nom de Maître du Vide dans son cœur. Blesser Wang Lin, qui était venu lui apporter Qing Shuang, revenait à franchir sa limite. Si l'occasion se présentait, compte tenu de la personnalité de Zhou Yi, il ferait payer un terrible prix au Maître du Vide.
 
 « Tu es probablement venu pour les pilules ici, bien que la plupart aient déjà été prises par le couple de cultivateurs du Nuage Céleste. Les seules qui restent sont celles qui sont utiles aux corps spirituels. Ils ne les ont pas prises car leur méthode de stockage est très complexe. » Alors que Zhou Yi parlait, il changea soudainement de sujet: « Mais ne t'inquiète pas, je trouverai un moyen de t'obtenir ces pilules! »
 
@@ -36,7 +36,7 @@ Hu Juan observa attentivement Wang Lin et demanda soudainement: « Es-tu l'héri
 
 Wang Lin resta calme face à Hu Juan et répondit sereinement: « Je n'en suis pas l'héritier, j'en connais seulement une partie. »
 
-Lorsque Zhou Yi vit que Wang Wei ne donnait que six bouteilles de pilules Célestes Rassembleuses à Wang Lin, il ne put s'empêcher de froncer les sourcils. Après avoir réfléchi un instant, il regarda Wang Wei et dit: « Senior Wang Wei, non seulement cet homme est mon vieil ami, mais il est aussi mon bienfaiteur. Il y a une chose que je n'ai pas dite auparavant: j'étais scellé ici et il m'a sauvé. Sans lui, je n'aurais jamais eu la chance de rencontrer l'Aîné. »
+Lorsque Zhou Yi vit que Wang Wei ne donnait que six bouteilles de pilules Célestes Rassembleuses à Wang Lin, il ne put s'empêcher de froncer les sourcils. Après avoir réfléchi un instant, il regarda Wang Wei et dit: « Senior Wang Wei, non seulement cet homme est mon vieil ami, mais il est aussi mon bienfaiteur. Il y a une chose que je n'ai pas dite auparavant: j'étais scellé ici et il m'a sauvé. Sans lui, je n'aurais jamais eu la chance de rencontrer le Senior. »
 
 Wang Wei lança un regard significatif à Zhou Yi avant de tendre à nouveau sa main droite vers la fissure. Cette fois, cinq bouteilles de jade aux cinq couleurs en sortirent. Il les lança à Wang Lin.
 
@@ -74,7 +74,7 @@ Après avoir appris que Zhou Yi avait brûlé son âme pour atteindre le stade d
 
 « Quel destin terrible! » Wang Wei laissa échapper un soupir. Avec son niveau de culture et son expérience, il pouvait naturellement distinguer si les paroles de Zhou Yi étaient vraies ou mensongères.
 
-Une âme résiduelle s'était formée en Qing Shuang en raison de ses milliers d'années d'obsession, et elle s'était éveillée. Elle avait ressuscité Zhou Yi, qui était au bord de la mort, pour faire de lui le nouvel Esprit d'Épée Céleste de la Pluie. Après avoir entendu ce récit par la bouche de Zhou Yi, Wang Wei et Hu Juan restèrent silencieux pour réfléchir.
+Une âme résiduelle s'était formée en Qing Shuang en raison des milliers d'années d'obsession de Zhou Yi, et elle s'était éveillée. Elle avait ressuscité Zhou Yi, qui était au bord de la mort, pour faire de lui le nouvel Esprit d'Épée Céleste de la Pluie. Après avoir entendu ce récit par la bouche de Zhou Yi, Wang Wei et Hu Juan restèrent silencieux pour réfléchir.
 
 Après un long moment, Wang Wei soupira et joignit les mains devant Zhou Yi. « Je me souviendrai de la bonté du Frère Zhou envers Qing Shuang. Si j'ai fait quoi que ce soit pour l'offenser, je vous prie de ne pas m'en tenir rigueur. »
 
@@ -90,7 +90,7 @@ Wang Wei admira encore davantage la prudence de Wang Lin. Cette vigilance signif
 
 « Peu importe. Cela fait longtemps que je n'ai révélé mon identité à personne. Puisque vous et Zhou Yi nous avez aidés, ainsi que l'Empereur Céleste Qing Lin, je ne peux plus vous le cacher. » Wang Wei soupira en regardant vers le centre du sixième étage, une pointe de mélancolie sur le visage.
 
-« Je suis la première garde de l'Empereur Céleste Qing Lin et, en même temps... j'étais aussi son second disciple... » Alors que Wang Wei révélait son identité, une aura indescriptible se propagea de son corps. Cette aura contenait une arrogance capable de faire trembler les cieux.
+« Je suis le premier garde de l'Empereur Céleste Qing Lin et, en même temps... j'étais aussi son second disciple... » Alors que Wang Wei révélait son identité, une aura indescriptible se propagea de son corps. Cette aura contenait une arrogance capable de faire trembler les cieux.
 
 En un instant, Wang Lin put ressentir la renommée de Wang Wei dans le Royaume Céleste!
 
@@ -106,7 +106,7 @@ Hu Juan regarda Wang Lin et agita la main vers la restriction sur la droite. La 
 
 Wang Lin eut un sursaut et sourit amèrement. « C'est donc bien vous. Je pensais que c'était le Senior Wang Wei. »
 
-Wang Wei secoua la tête en riant. « Ma culture des restrictions est plus faible que la sienne, sinon je n'aurais pas perdu notre pari concernant votre restriction à l'époque. »
+Wang Wei secoua la tête en riant. « Ma culture des restrictions est plus faible que la sienne, sinon je n'aurais pas perdu notre pari à votre sujet à l'époque. »
 
 Wang Lin tapa sur sa sacoche de rangement et s'apprêta à sortir la pagode céleste. Cependant, à cet instant, l'expression de Wang Lin changea et il regarda soudainement au loin.
 

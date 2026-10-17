@@ -40,7 +40,7 @@ Un rayon de lumière rouge apparut soudainement sous ses pieds et une force puis
 
 Alors que la lumière rouge scintillait, la vitesse de Wang Lin atteignit un niveau inimaginable. À ce rythme, il se dirigea rapidement vers la sortie du couloir.
 
-Yunque Zi, qui le poursuivait, s'exclama avec stupeur. Son visage était déformé par l'incrédulité face à ce qu'il voyait.
+Yun Quezi, qui le poursuivait, s'exclama avec stupeur. Son visage était déformé par l'incrédulité face à ce qu'il voyait.
 
 « Le Sceau de Suzaku! Comment ce Ceng Niu peut-il émettre l'aura du Sceau de Suzaku?! »
 
@@ -58,7 +58,7 @@ Mais après un examen attentif, il s'avéra totalement différent. Cette sensati
 
 Son corps s'accéléra encore, la lumière rouge devenant désormais aveuglante.
 
-L'incrédulité dans les yeux de Yunque Zi se mua en une stupeur totale. Il fixa Wang Lin d'un regard hébété et murmura pour lui-même: « Ceci... ceci est l'héritage de Suzaku... Comment est-ce possible? Sans l'approbation de Zhuque Zi ni la fusion avec le Cœur Planétaire de Culture, comment ce gamin peut-il subir l'Héritage de Suzaku... »
+L'incrédulité dans les yeux de Yun Quezi se mua en une stupeur totale. Il fixa Wang Lin d'un regard hébété et murmura pour lui-même: « Ceci... ceci est l'héritage de Suzaku... Comment est-ce possible? Sans l'approbation de Zhu Quezi ni la fusion avec le Cœur Planétaire de Culture, comment ce gamin peut-il subir l'Héritage de Suzaku... »
 
 Quant au petit singe, il fixait Wang Lin, les yeux rougeoyants et l'expression sombre.
 
@@ -92,7 +92,7 @@ En ressentant ce symbole, Wang Lin comprit.
 
 Pour extraire son fragment d'âme du Cristal de la Planète de Culture, il fallait en échanger une vie. La seule autre option consistait à attendre que son fragment soit absorbé par l'une de ces formes de vie, puis à se battre pour le récupérer. Toutefois, trouver son propre fragment parmi l'océan infini de fragments dans la tombe de Suzaku était une chose qui ne pouvait être forcée; cela dépendait uniquement de la chance.
 
-À cet instant, le corps de Wang Lin émergea de la mer. Yunque Zi le suivait de près, tandis que le petit singe possédé par Tuo Sen avait disparu sans laisser de trace.
+À cet instant, le corps de Wang Lin émergea de la mer. Yun Quezi le suivait de près, tandis que le petit singe possédé par Tuo Sen avait disparu sans laisser de trace.
 
 En surgissant des eaux, Wang Lin avait déjà repris le contrôle. Il savait désormais que Na Duo avait menti: cette chose n'avait aucun lien avec le Royaume Ji, et encore moins ne pouvait le faire évoluer.
 
@@ -100,9 +100,9 @@ Sans aucun regret, il projeta le cristal en criant: « C'est le Cristal de la Pl
 
 Il ne le lança pas au hasard, mais précisément là où se trouvaient Liu Mei et Qian Feng.
 
-Ces deux-là attendaient. Lorsqu'ils virent Wang Lin et son groupe apparaître, Qian Feng s'apprêtait à utiliser le trésor que Zhuque Zi lui avait confié, mais il vit alors une lueur blanche foncer vers eux.
+Ces deux-là attendaient. Lorsqu'ils virent Wang Lin et son groupe apparaître, Qian Feng s'apprêtait à utiliser le trésor que Zhu Quezi lui avait confié, mais il vit alors une lueur blanche foncer vers eux.
 
-Ses yeux brillèrent, mais il ne se précipita pas pour l'attraper. Il le regretta aussitôt lorsqu'il vit Yunque Zi dépasser Wang Lin pour charger vers le cristal.
+Ses yeux brillèrent, mais il ne se précipita pas pour l'attraper. Il le regretta aussitôt lorsqu'il vit Yun Quezi dépasser Wang Lin pour charger vers le cristal.
 
 Qian Feng serra les dents. Sans un mot, il frappa son sac de rangement et en sortit une poupée de bronze percée de nombreux orifices noirs d'où émanait une lueur sombre.
 
@@ -110,31 +110,31 @@ Après avoir sorti ce trésor, la main de Qian Feng forma rapidement un sceau. S
 
 La poupée de bronze absorba tout le sang. Elle commença alors à émettre une lueur rouge et noire, puis un halo violet apparut au-dessus de sa tête.
 
-Yunque Zi s'arrêta brusquement et fixa la poupée d'un regard sombre.
+Yun Quezi s'arrêta brusquement et fixa la poupée d'un regard sombre.
 
-D'une voix pesante, Yunque dit: « Zhuque Zi! »
+D'une voix pesante, Yunque dit: « Zhu Quezi! »
 
 Au moment où il prononça ces mots, le corps de Qian Feng se mit à trembler violemment et des filaments de lumière blanche s'échappèrent de ses orifices, hors de son contrôle. Cette lumière fut aussitôt absorbée par la poupée de bronze.
 
 Les yeux de Qian Feng étaient pétris de terreur. Il leva soudainement sa main droite, qui tenait un morceau de jade, et l'écrasa avec force. Une puissance mystérieuse jaillit du jade et le projeta à plus de trente mètres en arrière. Les filaments de lumière blanche se brisèrent instantanément, et un peu moins de la moitié d'entre eux retourna dans son corps.
 
-La poupée de bronze, ayant absorbé une quantité massive de lumière blanche, fondit pour devenir un bassin de bronze liquide. Cependant, le métal semblait bouillir, dégageant des volutes de gaz rouge qui prirent la forme de Zhuque Zi.
+La poupée de bronze, ayant absorbé une quantité massive de lumière blanche, fondit pour devenir un bassin de bronze liquide. Cependant, le métal semblait bouillir, dégageant des volutes de gaz rouge qui prirent la forme de Zhu Quezi.
 
-Le Zhuque Zi actuel n'était plus aussi vieux, mais il paraissait plus vibrant de vie.
+Le Zhu Quezi actuel n'était plus aussi vieux, mais il paraissait plus vibrant de vie.
 
 « Jeune frère apprenti, ce jeu atteint maintenant son apogée. Ce vieux s'est servi de la vie de Qian Feng pour prendre forme ici, afin que nous puissions avoir de belles retrouvailles! » Tout en parlant, il agita sa main droite et le cristal blanc vola vers lui comme un éclair.
 
-Zhuque Zi pressa soudainement le cristal contre son front, et celui-ci fusionna avec son corps.
+Zhu Quezi pressa soudainement le cristal contre son front, et celui-ci fusionna avec son corps.
 
-L'expression d'Yunque Zi était lugubre. Il laissa échapper un reniflement méprisant et agita la main. Un à un, des tatouages apparurent, dégageant une aura terrifiante.
+L'expression d'Yun Quezi était lugubre. Il laissa échapper un reniflement méprisant et agita la main. Un à un, des tatouages apparurent, dégageant une aura terrifiante.
 
-Zhuque Zi éclata de rire, puis, dans un mouvement brusque, son corps émit une immense quantité de brume rouge. Cette brume se propagea violemment, enveloppant Yunque Zi ainsi que tout ce qui se trouvait dans un rayon de cinq kilomètres.
+Zhu Quezi éclata de rire, puis, dans un mouvement brusque, son corps émit une immense quantité de brume rouge. Cette brume se propagea violemment, enveloppant Yun Quezi ainsi que tout ce qui se trouvait dans un rayon de cinq kilomètres.
 
-À l'intérieur de la brume rouge, on pouvait ressentir les ondes de choc des sorts. La bataille entre Zhuque Zi et Yunque Zi venait de commencer!
+À l'intérieur de la brume rouge, on pouvait ressentir les ondes de choc des sorts. La bataille entre Zhu Quezi et Yun Quezi venait de commencer!
 
 Cependant, personne ne pouvait observer le combat clairement, car il était occulté par le brouillard écarlate.
 
-Zhuque Zi ne remarqua pas qu'en se propageant, la brume rouge avait permis au petit singe d'y pénétrer pour disparaître sans laisser de trace.
+Zhu Quezi ne remarqua pas qu'en se propageant, la brume rouge avait permis au petit singe d'y pénétrer pour disparaître sans laisser de trace.
 
 À l'extérieur du périmètre, les cinq autres personnes observaient la scène. Il s'agissait de Qian Feng, Liu Mei, Zhou Wutai, Zi Xin et, enfin, Wang Lin.
 

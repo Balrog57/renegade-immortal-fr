@@ -118,7 +118,7 @@ L'homme ne répondit rien; il ne bougea même pas, restant immobile face à la v
 
 Un silence absolu s'installa, se transformant imperceptiblement en une pression écrasante qui envahissait l'espace. Le général démon Mo Lihai resta impassible et imperturbable.
 
-Quant à Wang Lin, les cultivateurs luttent toujours contre le Ciel; comment pourrait-il plier sous une telle pression? Son expression demeurait sereine. Même face à l'Omniscient, il avait gardé son calme. Cet homme n'était qu'au début du stade Ascendant, bien plus faible que Zhuque Zi ou Situ Nan.
+Quant à Wang Lin, les cultivateurs luttent toujours contre le Ciel; comment pourrait-il plier sous une telle pression? Son expression demeurait sereine. Même face à l'Omniscient, il avait gardé son calme. Cet homme n'était qu'au début du stade Ascendant, bien plus faible que Zhu Quezi ou Situ Nan.
 
 Le calme de Wang Lin et la stabilité de Mo Lihai dissipèrent silencieusement cette pression.
 

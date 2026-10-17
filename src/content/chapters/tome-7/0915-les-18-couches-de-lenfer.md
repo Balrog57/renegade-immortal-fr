@@ -34,7 +34,7 @@ Alors que le vortex rugissait, il commença à s'étendre. En un clin d'œil, un
 
 Si Wang Lin n'avait pas obtenu l'énergie originelle céleste de la 17e couche du Cimetière Immortel, son noyau céleste se serait épuisé et effondré avant même que le vortex ne puisse se former.
 
-Même après avoir absorbé toute cette énergie et que son noyau céleste ait atteint la taille d'un premier embryon, Wang Lin sentait son énergie originelle céleste s'épuiser rapidement. Il savait qu'il ne pourrait maintenir le vortex plus de trois jours!
+Même après avoir absorbé toute cette énergie et que son noyau céleste ait atteint la taille d'un poing de bébé, Wang Lin sentait son énergie originelle céleste s'épuiser rapidement. Il savait qu'il ne pourrait maintenir le vortex plus de trois jours!
 
 Wang Lin savait que ce vortex était un cycle de réincarnation auto-créé par l'énergie originelle céleste. En réalité, c'était un sort qui se concentrait sur les souvenirs: il fallait s'immerger dans ses propres souvenirs pour en extraire les fragments d'âme de toutes les personnes que l'on avait tuées!
 
@@ -52,7 +52,7 @@ Soudain, le tunnel prit fin et, lorsqu'il en sortit, la lumière du soleil l'ave
 
 Il aperçut deux jeunes gens. L'un était couvert de sueur, utilisant un sort d'attraction. À ses côtés, la personne contrôlée par le sort était un jeune homme tenant une dague, laquelle était pointée vers un autre adolescent.
 
-Le jeune homme leva sa hache et frappa impitoyablement la tête du second.
+L'adolescent saisit une hache et frappa impitoyablement la tête du jeune homme.
 
 Un cri déchirant résonna. Wang Lin vit clairement un fragment d'âme s'envoler pour entrer dans sa propre âme originelle.
 
@@ -72,7 +72,7 @@ La Secte Tian Yun, la Terre des Esprits Démoniaques, l'Art du Massacre Céleste
 
 Finalement, ses souvenirs s'arrêtèrent. Wang Lin fut tiré de sa torpeur. Il eut l'impression qu'une force puissante l'avait saisi pour le tirer vers le haut. Puis, il ouvrit soudainement les yeux. Il était trempé de sueur et la montagne se dressait toujours devant lui.
 
-Au moment où il reprit conscience, le vortex entre ses sourcils cessa de tourner et se résorba en filaments d'énergie originelle céleste qui retournèrent dans son corps. Son noyau d'origine céleste, qui avait la taille d'un embryon, avait rétréci de près de 60 %.
+Au moment où il reprit conscience, le vortex entre ses sourcils cessa de tourner et se résorba en filaments d'énergie originelle céleste qui retournèrent dans son corps. Son noyau d'origine céleste, qui avait la taille d'un poing de bébé, avait rétréci de près de 60 %.
 
 Sa vie de massacres venait de défiler devant lui. En revivant son passé, Wang Lin ressentit du regret. Même à cet instant, il n'était pas sûr d'être sorti de son rêve.
 

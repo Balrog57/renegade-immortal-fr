@@ -16,7 +16,7 @@ La douleur qui émanait de son corps prouvait que, malgré son corps de dieu anc
 
 Lorsqu'il fut projeté à nouveau, il atterrit au centre du champ de vision des deux statues de la salle.
 
-« Tu n'es pas mort? Laisse-moi arranger cela! » Une intention meurtrière apparut dans les yeux de Maître du Vide. Il pressentait vaguement une anomalie dans l'endroit où Wang Lin s'était posé. Il leva sa main droite et la frappa impitoyablement vers lui!
+« Tu n'es pas mort? Je vais t'en remettre une! » Une intention meurtrière apparut dans les yeux de Maître du Vide. Il pressentait vaguement une anomalie dans l'endroit où Wang Lin s'était posé. Il leva sa main droite et la frappa impitoyablement vers lui!
 
 Dans son esprit, il était certain que cette attaque achèverait Wang Lin. Un grondement retentit dans la salle lorsque Maître du Vide attaqua. Une tempête de sable jaune surgit et se précipita sur Wang Lin.
 
@@ -38,7 +38,7 @@ Si Wang Lin se laissait emporter par la vitesse du vortex, la tempête le rattra
 
 Maître du Vide chargea vers lui.
 
-Une lueur de froideur traversa les yeux de Wang Lin. Au moment où la tempête de sable se refermait sur lui, son troisième œil s'ouvrit. Le troisième œil était le sort le plus puissant de Wang Lin, une technique qu'il n'osait utiliser qu'à la légère. Cependant, face à l'approche de Maître du Vide et devant cette crise de vie ou de mort, il l'ouvrit sans hésitation.
+Une lueur de froideur traversa les yeux de Wang Lin. Au moment où la tempête de sable se refermait sur lui, son troisième œil s'ouvrit. Le troisième œil était le sort le plus puissant de Wang Lin, une technique qu'il n'utilisait jamais à la légère. Cependant, face à l'approche de Maître du Vide et devant cette crise de vie ou de mort, il l'ouvrit sans hésitation.
 
 « Maître du Vide!!! » Une intention meurtrière inonda les yeux de Wang Lin alors qu'il poussait un rugissement. Le troisième œil vertical s'ouvrit et la lumière rouge qui en émanait se déploya telle un éventail.
 
@@ -54,11 +54,11 @@ L'Origine Source sature la lumière rouge, laquelle percuta la tempête de sable
 
 Wang Lin ressentit une douleur entre ses sourcils. Il ne lui restait plus beaucoup d'Origine Source, et celle-ci se dissipait promptement face à la tempête de sable. Cependant, il ne la retira pas; au contraire, le regard chargé d'intention meurtrière, il laissa l'Origine Source jaillir de son troisième œil.
 
-Wang Lin savait parfaitement à quel point l'Origine Source était cruciale pour ceux qui cherchaient la troisième étape; il savait donc que Maître du Vide mordreait à l'hameçon!
+Wang Lin savait parfaitement à quel point l'Origine Source était cruciale pour ceux qui cherchaient la troisième étape; il savait donc que Maître du Vide mordrait à l'hameçon!
 
-La lumière rouge s'étendit considérablement et la tempête de sable s'effondra aussitôt. L'Origine Source jaillit de l'éclat rouge et fonça droit sur Maître du Vide.
+La lumière rouge en éventail, qui ne couvrait d'abord que trente pieds, s'étendit considérablement et la tempête de sable s'effondra aussitôt. L'Origine Source jaillit de l'éclat rouge et fonça droit sur Maître du Vide.
 
-L'expression de Maître du Vide vacilla, mais l'avidité dans ses yeux devint plus ardente encore. Il voulut esquiver, mais il refusait de renoncer à une chance sur dix mille de ressentir personnellement l'Origine Source.
+L'expression de Maître du Vide vacilla, mais l'avidité dans ses yeux devint plus ardente encore. Il voulut esquiver, mais il refusait de renoncer à une occasion, qui ne se présente qu'une fois en plusieurs dizaines de milliers d'années, de ressentir personnellement l'Origine Source.
 
 À cause de cette hésitation, la lumière rouge du troisième œil de Wang Lin encercla Maître du Vide. À cet instant, le corps de Maître du Vide sembla se détacher couche après couche, devenant semi-transparent.
 

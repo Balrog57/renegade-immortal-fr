@@ -58,7 +58,7 @@ Le visage de l'homme âgé s'illumina et, d'un geste de la main, le vin dans les
 
 Wang Lin était resté silencieux durant tout ce temps. Il ne parvenait absolument pas à discerner le niveau de culture de cet homme et, n'étant pas porté sur la conversation, il jugea préférable de laisser Qiu Siping gérer l'échange.
 
-De plus, Wang Lin s'interrogeait sur la raison pour laquelle cet homme les avait arrêtés. Il soupçonnait que cela soit lié à la tribulation divine ou à sa récente frénésie meurtrière. Bien sûr, il était possible que l'homme recherche Qiu Siping, mais au fil de ses paroles, Wang Lin eut le sentiment que la véritable cible n'était pas Qiu Siping, mais lui-même.
+De plus, Wang Lin s'interrogeait sur la raison pour laquelle cet homme les avait arrêtés. Il soupçonnait que cela soit lié à la rétribution divine ou à sa récente frénésie meurtrière. Bien sûr, il était possible que l'homme recherche Qiu Siping, mais au fil de ses paroles, Wang Lin eut le sentiment que la véritable cible n'était pas Qiu Siping, mais lui-même.
 
 L'homme âgé ouvrit la bouteille, en renifla l'arôme et dit: « Un excellent vin de fruits Can Yun. Pas mal. Petit gars, tu me plais bien. Dis-moi, veux-tu devenir mon disciple? »
 
@@ -76,7 +76,7 @@ L'expression de Wang Lin resta calme. Il savait que le vieillard finirait par l'
 
 Wang Lin maintint son calme et répondit avec respect: « Du pays de Zhao, la Secte Heng Yue. »
 
-L'homme âgé observa attentivement Wang Lin, et son sourire devint plus glacial encore. Il déclara: « Il y a trois jours, tu as tué plus d'un millier de cultivateurs au stade de la Formation du Noyau. Tu es bien audacieux! »
+L'homme âgé observa attentivement Wang Lin, et son sourire devint plus glacial encore. Il déclara: « En trois jours, tu as tué plus d'un millier de cultivateurs au stade de la Formation du Noyau. Tu es bien audacieux! »
 
 À ces mots, le visage de Qiu Siping pâlit brusquement. Il recula de quelques pas, fixant Wang Lin avec incrédulité.
 
@@ -84,7 +84,7 @@ Bien que son cœur ait raté un battement et que mille pensées traversent son e
 
 L'homme âgé fut stupéfait. Après avoir fixé Wang Lin un long moment, la froideur dans ses yeux s'estompa peu à peu. Il laissa éclater un rire et agita la main. Une restriction se posa sur le front de Wang Lin, puis il dit: « Bien! Tu es vraiment perspicace! Ce vieux te prendra pour disciple. Viens avec moi, alors. »
 
-Dès que la restriction toucha le corps de Wang Lin, elle se transforma instantanément en un lotus géant, utilisant les méridiens de Wang Lin comme racines, ses vaisseaux sanguins comme branches et son sang comme nutriments.
+Dès que la restriction toucha le corps de Wang Lin, elle se transforma instantanément en un lotus géant, utilisant les méridiens de Wang Lin comme tige, ses vaisseaux sanguins comme ramures et son sang comme nutriments.
 
 Sans changer d'expression, Wang Lin dit: « Le disciple a déjà des engagements avec Qiu Siping pour l'aider dans une affaire; je demande donc au maître de m'accorder quelques jours. »
 
@@ -118,7 +118,7 @@ Wang Lin acquiesça et regarda vers le bas. Il quitta soudainement le bateau pou
 
 Qiu Siping forma un sceau de la main droite et utilisa une technique sur l'embarcation. Le bateau rétrécit jusqu'à la taille de sa paume, puis il le rangea.
 
-Il descendit ensuite rapidement. Après avoir inspecté les lieux, il atterrit sur des marches de pierre. Il posa sa main droite sur un rocher noir et y cracha une bouffée d'énergie du Noyau. Le rocher commença à briller.
+Il descendit ensuite rapidement. Après avoir inspecté les lieux, il atterrit sur une plateforme de pierre à mi-hauteur de la montagne. Il posa sa main droite sur un rocher noir et y cracha une bouffée d'énergie du Noyau. Le rocher commença à briller.
 
 D'un geste de la main, Qiu Siping fit flotter le rocher dans les airs, forma de nombreux sceaux et envoya la pierre noire vers la montagne tout en la faisant luire.
 
@@ -144,11 +144,11 @@ Malgré une expression de douleur, il resta sérieux et maintint un mouvement co
 
 En voyant cela, les yeux de Wang Lin s'illuminèrent. Il ralentit intentionnellement sa cadence pour forcer Qiu Siping à utiliser davantage de pierres noires.
 
-Finalement, une fois les dix rochers épuisés, la main de Wang Lin accéléra brusquement, projetant des dizaines de cercles illusoires. Un grondement retentit dans les ondulations qui se fendirent en deux, révélant l'entrée.
+Finalement, une fois les dix rochers épuisés, la main de Wang Lin accéléra brusquement, projetant plusieurs cercles illusoires. Un grondement retentit dans les ondulations qui se fendirent en deux, révélant l'entrée.
 
-Excité, Qiu Siping s'élança dans l'ouverture. Wang Lin le suivit de près.
+Excité, Qiu Siping s'élança dans l'ouverture. Wang Lin le suivit sans se presser.
 
-L'ouverture était étroite. À l'intérieur de la grotte se trouvaient quatre portes de pierre. En entrant, Wang Lin vit Qiu Siping devant l'une d'elles, le visage déformé par l'horreur.
+L'ouverture était étroite. À l'intérieur de la grotte se trouvaient quatre portes de pierre. En entrant, Wang Lin vit Qiu Siping devant l'une d'elles, le visage déformé par une expression féroce.
 
 Ignorant son compagnon, Wang Lin examina les portes. Il constata que des restrictions pesaient sur chacune d'elles. Son regard se posa sur une porte à gauche dont les protections semblaient les plus faciles à briser.
 
@@ -196,7 +196,7 @@ Les yeux de Wang Lin brillèrent. Il agita sa bannière de restriction, libéran
 
 N'étant pas certain de pouvoir briser la restriction par la subtilité en si peu de temps, il choisit la force brute.
 
-Alors que les milliers de restrictions frappaient la porte et que les têtes de bêtes se débattaient, les quatre pierres noires émettent une lueur douce qui les maintenait à l'écart.
+Alors que les milliers de restrictions frappaient la porte et que les têtes de bêtes se débattaient, les quatre pierres noires émettaient une lueur douce qui les maintenait à l'écart.
 
 L'assaut provoqua des secousses telluriques, faisant pleuvoir poussière et débris du plafond de la grotte. On aurait dit que l'édifice entier allait s'effondrer.
 
@@ -232,7 +232,7 @@ Mais!
 
 À cet instant précis, le Royaume Ji au sein de sa conscience s'activa hors de son contrôle. Il quitta sa conscience pour voyager à travers son corps vers son noyau.
 
-Wang Lin ouvrit les yeux avec fureur. Malgré tous ses efforts pour maîtriser le Royaume Ji, il ne put l'enrayer. Dès que le Royaume Ji percuta son noyau, celui-ci explosa.
+Wang Lin écarquilla les yeux. Malgré tous ses efforts pour maîtriser le Royaume Ji, il ne put l'enrayer. Dès que le Royaume Ji percuta son noyau, celui-ci explosa.
 
 L'onde de choc interne fit entrer en collision l'énergie libérée par l'explosion du noyau et celle provenant de l'Âme Naissante dévorée. L'impact projeta toute cette énergie hors des méridiens de Wang Lin, balayant son corps.
 
@@ -240,7 +240,7 @@ L'onde de choc interne fit entrer en collision l'énergie libérée par l'explos
 
 Il lutta pour se redresser, les yeux ternes et le silence pour seul compagnon. Après un long moment, une lueur revint dans son regard avant qu'il ne referme les paupières. En inspectant son corps, il laissa échapper un rire maniaque qui, malgré la folie, laissait transparaître une profonde tristesse.
 
-Les yeux injectés de sang, il murmura: « Âme du Royaume Ji... Âme du Royaume Ji... Âme du Royaume Ji... »
+Les yeux injectés de sang, il murmura: « Sens Divin du Royaume Ji... Sens Divin du Royaume Ji... Sens Divin du Royaume Ji... »
 
 Le noyau dans son corps n'avait pas totalement explosé; il s'était réduit à la taille d'un ongle.
 
@@ -254,7 +254,7 @@ Trois jours plus tard, Wang Lin ouvrit les yeux. Il quitta sa grotte et se dirig
 
 Après une quinzaine de jours, il avait parcouru presque toutes les cités de la région, sans jamais s'aventurer dans les Pavillons de Raffinage des Trésors. Dans aucune de ces villes, il n'avait trouvé la moindre trace d'informations concernant le Royaume Ji.
 
-Dans sa confusion, il se souvint soudain de la grotte de Qiu Siping. Elle contenait de nombreux ouvrages, certains gravés sur du bambou, témoignant de leur grande antiquité. Ces supports, trop fragiles pour être conservés dans du jade face aux fluctuations d'énergie, étaient précieux.
+Dans sa confusion, il se souvint soudain de la grotte de Qiu Siping. Elle contenait de nombreux ouvrages, certains gravés sur du bambou, témoignant de leur grande antiquité. Ils étaient si anciens que la moindre fluctuation d'énergie les aurait réduits en miettes; on ne pouvait donc pas les copier sur des jades.
 
 Pensant cela, il retourna vers la grotte de Qiu Siping.
 
@@ -262,7 +262,7 @@ Cinq jours plus tard, il arriva. Peu importait la présence de Qiu Siping; si ce
 
 Il s'enfonça dans la terre pour atteindre la grotte. Les restrictions n'étaient aucunement un problème pour lui. Après les avoir toutes brisées, il pénétra à l'intérieur.
 
-Wang Lin sonda l'endroit avec son Sens Divin et constata que Qiu Siping était absent. Il se dirigea vers la salle des livres. Il ne lui fallut que trois heures pour briser la restriction de cette pièce.
+Wang Lin sonda l'endroit avec son Sens Divin et constata que Qiu Siping était absent. Il se dirigea vers la salle des livres. Il lui fallut six heures pour briser la restriction de cette pièce.
 
 Une fois entré, il prit une profonde inspiration pour calmer son cœur avant de commencer ses recherches. La plupart des écrits en bambou traitaient des restrictions, mais aucun ne mentionnait le terme « Royaume Ji ».
 
@@ -296,7 +296,7 @@ Son succès venait de son Royaume Ji... sa chute lui était aussi due. Wang Lin 
 
 Pour atteindre l'Âme Naissante, il devait abandonner son Royaume Ji. La seule issue consistait à renoncer à tout le pouvoir qu'il lui conférait afin de pouvoir progresser.
 
-C'était un choix déchirant. L'auteur du message avait suggéré une idée pour le cultivateur qu'il aidait: gaspiller sa culture actuelle. En dispersant sa culture, le Royaume Ji se dissiperait également, permettant de recommencer l'apprentissage à zéro pour enfin percer.
+C'était un choix déchirant. L'auteur du message avait suggéré une idée pour le cultivateur qu'il aidait: dissiper sa culture actuelle. En dispersant sa culture, le Royaume Ji se dissiperait également, permettant de recommencer l'apprentissage à zéro pour enfin percer.
 
 Ce cultivateur n'avait finalement pas choisi cette voie.
 

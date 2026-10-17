@@ -90,7 +90,7 @@ Au bout de sept jours, grâce au domaine de Zhou Yi et à son âme originelle, l
 
 En contemplant le Fouet de l'Âme, il sentait leur connexion; c'était comme s'ils ne faisaient qu'un. Le fouet contenait de nombreuses couches de restrictions, tout comme la structure du chapeau de paille.
 
-Cependant, il n'y avait pas qu'un seul chapeau de paille, ce qui le rendait bien moins précieux que le Fouet de l'Âme. Au-delà de la capacité à masquer son apparence, Wang Lin avait également pu tirer des enseignements du jade que lui avait donné Yunque Zi.
+Cependant, il n'y avait pas qu'un seul chapeau de paille, ce qui le rendait bien moins précieux que le Fouet de l'Âme. Au-delà de la capacité à masquer son apparence, Wang Lin avait également pu tirer des enseignements du jade que lui avait donné Yun Quezi.
 
 L'utilité majeure du chapeau de paille résidait dans le fait qu'en l'étudiant, il apprendrait davantage de restrictions, augmentant ainsi la puissance de son drapeau de restriction.
 
@@ -102,7 +102,7 @@ Ce point le laissait perplexe. Il finit par découvrir qu'il n'avait même pas b
 
 Par conséquent, cet objet devint soudainement très intrigant à ses yeux.
 
-Ce Fouet de l'Âme appartenait à Chu Yunfei, qui avait été contraint de quitter la planète précipitamment. Bien qu'il sache le caractère mystérieux du fouet, celui-ci était devenu un fardeau pour lui. Le Fouet était entre les mains de Qian Feng, disciple de Zhuque Zi; craignant de provoquer trop de remous, Chu Yunfei l'avait abandonné.
+Ce Fouet de l'Âme appartenait à Chu Yunfei, qui avait été contraint de quitter la planète précipitamment. Bien qu'il sache le caractère mystérieux du fouet, celui-ci était devenu un fardeau pour lui. Le Fouet était entre les mains de Qian Feng, disciple de Zhu Quezi; craignant de provoquer trop de remous, Chu Yunfei l'avait abandonné.
 
 Les yeux de Wang Lin brillèrent; il sentait une étrangeté émaner du fouet. Après réflexion, il le rangea.
 

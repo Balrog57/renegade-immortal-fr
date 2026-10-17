@@ -8,7 +8,7 @@ slug: poursuite-dans-la-gueule-du-serpent-moongazer
 ---
 D'innombrables trésors s'accumulèrent autour de l'Estimé Xuan Bao avant de s'effondrer. À chaque fois qu'un trésor se brisait, un filet de gaz blanc en s'échappait.
 
-En un instant, un riche gaz blanc enveloppa l'Estimé Xuan Bao. Au moment où l'Arsenal Magique de Qing Shui s'approcha, l'Estimé Xuan Bao ouvrit les bras et hurla: « Pouvoir Magique du Nirvana du Vide! »
+En un instant, un riche gaz blanc enveloppa l'Estimé Xuan Bao. Au moment où l'Arsenal Magique de Qing Shui s'approcha, l'Estimé Xuan Bao ouvrit les bras et hurla: « Pouvoir Magique du Vide du Nirvana! »
 
 Dès qu'il eut prononcé ces quatre mots, le gaz blanc autour de lui jaillit avec frénésie et percuta l'Arsenal Magique de Qing Shui.
 
@@ -20,15 +20,15 @@ Une fois capté par le vortex formé par l'effondrement de l'espace, il était d
 
 À cet instant, l'espace tremblait violemment, mais cela n'avait aucun effet sur le Serpent aux yeux de lune. Ses yeux étaient injectés de sang; il haïssait l'Estimé Xuan Bao jusqu'à la moelle pour l'avoir blessé et pour avoir tué d'innombrables petits Serpents aux yeux de lune!
 
-Le bras du Dieu Antique qui s'était lancé avait marqué un temps d'arrêt à l'apparition de Qing Shui. Cependant, le Serpent aux yeux de lune était aveuglé par la rage, et au moment où l'Estimé Xuan Bao utilisa son sortilège, le bras fonça en avant.
+Le bras du dieu ancien qui s'était lancé avait marqué un temps d'arrêt à l'apparition de Qing Shui. Cependant, le Serpent aux yeux de lune était aveuglé par la rage, et au moment où l'Estimé Xuan Bao utilisa son sortilège, le bras fonça en avant.
 
-Simultanément, un rire retentit à travers les étoiles. C'était Maître Yan Leizi, qui s'était libéré de Wudo Chan. Ses mains formèrent un sceau et des dizaines de fragments célestes jaillirent, couvrant une zone de milliers de kilomètres de large avec un vortex.
+Simultanément, un rire retentit à travers les étoiles. C'était Maître Yan Leizi, qui s'était libéré de Wu Dongchan. Ses mains formèrent un sceau et des dizaines de fragments célestes jaillirent, couvrant avec un vortex une zone de 500 kilomètres de large.
 
 Une riche énergie spirituelle céleste se propagea, remplissant le vortex d'une puissance colossale alors qu'il chargeait vers l'Estimé Xuan Bao!
 
 « Seigneur Céleste Qing Shui, laissez ce vieil homme vous prêter main-forte! »
 
-Les yeux de Wudo Chan s'illuminèrent et il suivit de près. Il comptait aider l'Estimé Xuan Bao à surmonter cette crise de vie ou de mort!
+Les yeux de Wu Dongchan s'illuminèrent et il suivit de près. Il comptait aider l'Estimé Xuan Bao à surmonter cette crise de vie ou de mort!
 
 L'Estimé Xuan Bao sentit son cuir chevelu se crisper. Cette bataille pourrait être la plus périlleuse de sa vie, si l'on ne comptait l'effondrement du Royaume Céleste. Devant lui se tenait Qing Shui, derrière lui le Serpent aux yeux de lune, et au-dessus de lui Maître Yan Leizi!
 
@@ -36,7 +36,7 @@ Il n'y avait aucune possibilité d'esquive. Face à cette crise imminente, la pu
 
 « Si je surmonte cela, j'aurai encore une chance de vivre! »
 
-Alors que l'énergie d'origine céleste l'enveloppait, le bras du Dieu Antique du Serpent aux yeux de lune frappa. Dans un fracas assourdissant, toutes les couches de barrières d'origine céleste se désintégrèrent.
+Alors que l'énergie d'origine céleste l'enveloppait, le bras du dieu ancien du Serpent aux yeux de lune frappa. Dans un fracas assourdissant, toutes les couches de barrières d'origine céleste se désintégrèrent.
 
 À ce moment précis, Qing Shui arriva, entraînant avec lui plusieurs éclairs rouges. Après une série de grondements, l'Estimé Xuan Bao cracha immédiatement du sang.
 
@@ -44,7 +44,7 @@ Lorsque les fragments célestes de Maître Yan Leizi atteignirent leur cible, le
 
 Ce bouleversement fit s'étendre davantage l'espace déchiré. Plus de dix mille kilomètres d'espace étaient désormais transformés en une zone de destruction pure!
 
-D'innombrables cultivateurs furent aspirés à l'intérieur. Le fourneau du Dieu Antique apparut autour de Wang Lin, changeant constamment de position. Cependant, ses yeux restaient fixés sur le Serpent aux yeux de lune, guettant la moindre opportunité!
+D'innombrables cultivateurs furent aspirés à l'intérieur. Le fourneau du dieu ancien apparut autour de Wang Lin, changeant constamment de position. Cependant, ses yeux restaient fixés sur le Serpent aux yeux de lune, guettant la moindre opportunité!
 
 À cet instant, le lotus tournait autour de la femme en robe bleue, qui semblait parfaitement indemne. Le cadavre doré à ses côtés allait tout aussi bien et affichait une expression froide.
 
@@ -86,11 +86,11 @@ L'homme à la robe verte, Yi Muzi, transforma sa main droite en paume et frappa 
 
 « Vous ne pouvez pas vous échapper! » Avec un sourire, Yi Muzi agita sa main droite. Les morceaux de bois géants s'élancèrent, forçant le dragon doré à reculer sans cesse.
 
-À ce moment-là, Wudo Chan s'approcha pour aider, mais Qing Shui laissa échapper un grognement glacial et un éclair rouge jaillit. Maître Yan Leizi profita de cette opportunité. D'un mouvement de la main, il fit grandir le vortex formé par les fragments célestes plusieurs fois.
+À ce moment-là, Wu Dongchan s'approcha pour aider, mais Qing Shui laissa échapper un grognement glacial et un éclair rouge jaillit. Maître Yan Leizi profita de cette opportunité. D'un mouvement de la main, il fit grandir le vortex formé par les fragments célestes plusieurs fois.
 
-Parallèlement, le bras du Dieu Antique formé par le Serpent aux yeux de lune arriva également. Cependant, le Serpent aux yeux de lune avait perdu toute raison. Non seulement il haïssait l'Estimé Xuan Bao, mais il en avait fait payer à tous les autres.
+Parallèlement, le bras du dieu ancien formé par le Serpent aux yeux de lune arriva également. Cependant, le Serpent aux yeux de lune avait perdu toute raison. Non seulement il haïssait l'Estimé Xuan Bao, mais il en avait fait payer à tous les autres.
 
-Au moment où le bras antique atteignit sa cible, le Serpent aux yeux de lune ouvrit la gueule et aspira l'air avec une telle force que son propre corps en trembla. Le bras du Dieu Antique balaya tout sur son passage pour saisir directement le dragon doré.
+Au moment où le bras antique atteignit sa cible, le Serpent aux yeux de lune ouvrit la gueule et aspira l'air avec une telle force que son propre corps en trembla. Le bras du dieu ancien balaya tout sur son passage pour saisir directement le dragon doré.
 
 Saisissant le dragon, le bras antique recula rapidement pour le projeter dans la gueule du Serpent aux yeux de lune. Pour la créature, tuer ce cultivateur qui l'avait blessée ne suffisait pas à apaiser sa rage; elle allait lentement absorber et digérer sa force vitale!
 
@@ -102,7 +102,7 @@ Ce changement soudain fit briller les yeux de Qing Shui. Il était déterminé �
 
 Voyant le dragon doré et l'Estimé Xuan Bao être dévorés, il utilisa sans hésiter la force d'aspiration du serpent et chargea vers sa gueule béante.
 
-Qing Shui n'était pas seul. Wudo Chan, appartenant au Palais Xuan et entretenant de bonnes relations avec l'Estimé Xuan Bao, serra les dents et chargea lui aussi dans la gueule du monstre.
+Qing Shui n'était pas seul. Wu Dongchan, appartenant au Palais Xuan et entretenant de bonnes relations avec l'Estimé Xuan Bao, serra les dents et chargea lui aussi dans la gueule du monstre.
 
 Les yeux de Wang Lin s'illuminèrent. Il attendait cette opportunité depuis longtemps. Sans hésiter, le tonnerre jaillit de son corps et, profitant de sa vitesse fulgurante, il chargea le Serpent aux yeux de lune.
 

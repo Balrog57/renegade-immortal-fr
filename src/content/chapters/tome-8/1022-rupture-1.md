@@ -14,7 +14,7 @@ Maître du Vide n'était pas seul. C'était un cultivateur de très haut niveau 
 
 La belle femme d'âge moyen et ses quatre disciples étaient derrière lui!
 
-« Si je ne me trompe pas, c'est le célèbre monde de la bouteille de l'Empereur Céleste Qing Lin! La rumeur raconte que Qing Lin a tué 39 membres du clan Tattoo envahisseur et s'est emparé de leurs reliques sacrées. Il les a ensuite raffinées par un sort puissant pour créer un monde qu'il a fusionné dans la bouteille! »
+« Si je ne me trompe pas, c'est le célèbre monde de la bouteille de l'Empereur Céleste Qing Lin! La rumeur raconte que Qing Lin a tué d'affilée 39 Ancêtres d'Âme du Clan du Tatouage, un peuple venu d'ailleurs, et s'est emparé de leurs reliques sacrées. Il les a ensuite raffinées par un sort puissant pour créer un monde qu'il a fusionné dans la bouteille! »
 
 « On ignore ce qu'il a fait exactement, mais selon les archives de l'Alliance, cette bouteille était l'outil que Qing Lin utilisait pour collecter l'énergie spirituelle céleste. Il se murmurait également que ce trésor pouvait briser le sceau du monde entourant les quatre systèmes stellaires! »
 
@@ -34,9 +34,9 @@ Les pupilles du Maître du Vide se rétractèrent soudainement!
 
 Le visage de la belle femme était empreint de choc, et une trace d'anxiété apparut sur ses traits lorsqu'elle répondit rapidement: « Lorsque je l'ai vu auparavant, il ne possédait que le marquage de l'Oiseau Vermillon, et il était complètement scellé. Il est impossible qu'il s'éveille en un laps de temps aussi court! »
 
-« L'éveil de l'Oiseau Vermillon... Cela pourrait être un événement qui ébranlerait les Quatre Sectes Divines... Les Quatre Sectes Divines... » Une intention meurtrière perça le regard du Maître du Vide. Il ne permettrait à aucune personne possédant un marquage éveillé de se manifester. Il n'oublierait jamais la bataille aussi féroce qu'amère qu'ils avaient menée contre les Quatre Sectes Divines pour le contrôle du Vide Brillant. Si l'Alliance n'avait pas obtenu davantage d'héritages et de reliques du Royaume Céleste de la Pluie, et si elle n'avait pas bénéficié de l'aide de la Sainte du Vide Brillant, le système stellaire actuel de l'Alliance aurait été renommé le Système Stellaire des Quatre Sectes Divines!
+« L'éveil de l'Oiseau Vermillon... C'est un événement qui ébranle les Quatre Sectes Divines... Les Quatre Sectes Divines... » Une intention meurtrière perça le regard du Maître du Vide. Il ne permettrait à aucune personne possédant un marquage éveillé de se manifester. Il n'oublierait jamais la bataille aussi féroce qu'amère qu'ils avaient menée contre les Quatre Sectes Divines pour le contrôle du Vide Brillant. Si l'Alliance n'avait pas obtenu davantage d'héritages et de reliques du Royaume Céleste de la Pluie, et si elle n'avait pas bénéficié de l'aide de la Sainte du Vide Brillant, le système stellaire actuel de l'Alliance aurait été renommé le Système Stellaire des Quatre Sectes Divines!
 
-Malgré une force aussi puissante, l'Alliance ne pouvait toujours pas anéantir complètement les Quatre Sectes Divines. En songeant à la terreur que représentaient les Quatre Empereurs Divins, l'intention meurtrière dans les yeux du Maître du Vide s'intensifia.
+Malgré une force aussi puissante, l'Alliance ne pouvait toujours pas anéantir complètement les Quatre Sectes Divines. En songeant à la terreur que représentaient les Quatre Saints, l'intention meurtrière dans les yeux du Maître du Vide s'intensifia.
 
 « Si cette personne parvient à s'éveiller et quitte le Royaume du Ciel Spirituel Céleste, les Quatre Sectes Divines la traqueront sans aucun doute au plus vite. Ils le ramèneront pour son héritage et le placeront sous une protection stricte! »
 
@@ -78,17 +78,17 @@ Situ Nan leva brusquement la tête, affichant une expression féroce et impatien
 
 Une autre personne se trouvait dans le monde de la bouteille! Cet homme au crâne rasé marchait à travers le désert de sable noir avec un sourire démoniaque. Son corps scintillait et franchissait sans cesse les frontières des royaumes. Bien qu'il réapparaisse toujours dans le désert de sable noir, il se trouvait déjà dans un autre royaume!
 
-« Ce "Tableau de la Fumée du Désert Solitaire" doit se trouver dans ces quelques royaumes! Ancien Démon Ta Jia... Bien que moi, Bei Lou, ne sois pas complet, j'ai recouvré environ 80 % de ma puissance. Cette fois, tu n'auras pas la même chance qu'autrefois! »
+« Ce "Tableau de la Fumée du Désert Solitaire" doit se trouver dans ces quelques royaumes! Ancien Démon Ta Jia... Bien que moi, Bei Luo, ne sois pas complet, j'ai recouvré environ 80 % de ma puissance. Cette fois, tu n'auras pas la même chance qu'autrefois! »
 
-L'œil droit de Bei Lou s'illumina. Sept étoiles étincelantes, saturées d'énergie démoniaque, brillaient dans son regard.
+L'œil droit de Bei Luo s'illumina. Sept étoiles étincelantes, saturées d'énergie démoniaque, brillaient dans son regard.
 
 Les anciens dieux portaient leurs étoiles entre les sourcils, les anciens démons dans l'œil droit, et les anciens diables dans l'œil gauche!
 
-Les sept étoiles de l'ancien démon tournèrent rapidement. Au moment où il fit un pas, le cri de l'Oiseau Vermillon retentit à travers le monde. L'énergie démoniaque autour de Bei Lou fluctua; il s'immobilisa entre deux royaumes, puis leva les yeux.
+Les sept étoiles de l'ancien démon tournèrent rapidement. Au moment où il fit un pas, le cri de l'Oiseau Vermillon retentit à travers le monde. L'énergie démoniaque autour de Bei Luo fluctua; il s'immobilisa entre deux royaumes, puis leva les yeux.
 
 « L'Oiseau Vermillon des quatre Grandes Bêtes Divines du royaume scellé... »
 
-Bei Lou réfléchit un instant avant que les étoiles de son œil droit ne disparaissent. Puis, d'un pas, il disparut sans laisser de trace.
+Bei Luo réfléchit un instant avant que les étoiles de son œil droit ne disparaissent. Puis, d'un pas, il disparut sans laisser de trace.
 
 Les habitants du monde de la bouteille furent choqués par le cri de l'Oiseau Vermillon, chacun étant emporté par ses propres pensées. Mais en dehors d'eux, quelque chose se passait également pour ceux qui étaient à l'extérieur de la bouteille!
 
@@ -100,7 +100,7 @@ La bouteille de jade blanc devant l'individu trembla lorsque les ondes du cri de
 
 « Maudit soit, comment un Oiseau Vermillon d'un royaume scellé a-t-il pu entrer?! »
 
-On entendit un grincement de dents dans l'obscurité du brouillard noir. L'homme leva sa main droite et d'innombrables filaments d'énergie démoniaque apparurent autour de son doigt. D'un geste sec, il projeta toute l'énergie démoniaque à l'intérieur de la bouteille.
+On entendit un grincement de dents dans l'obscurité du brouillard noir. L'homme leva sa main droite et d'innombrables filaments d'énergie démoniaque apparurent autour de son doigt, se condensant en une ombre démoniaque. D'un geste du doigt, l'ombre fonça en rugissant vers la bouteille et s'y fondit en un instant.
 
 Dans le monde de la bouteille, la mer de flammes qui entourait Wang Lin se précipita vers l'Oiseau Vermillon.
 
@@ -124,11 +124,11 @@ Ses yeux brillèrent intensément et son énergie originelle circula frénétiqu
 
 Une telle chaleur pouvait détruire n'importe quelle chair, aussi résistante soit-elle. C'était là le véritable défi de l'éveil de l'Oiseau Vermillon! Au fil des millénaires, de nombreux éveils avaient eu lieu au sein des Quatre Sectes Divines. Cependant, au moment crucial, la majorité de ceux qui tentaient l'expérience ne supportaient pas la chaleur et finissaient en cendres.
 
-Au sein de la Secte des Quatre Divinités, une antique maxime se transmettait depuis les temps primordiaux. Cette phrase englobait l'essence même des héritages de cette secte!
+Au sein des Quatre Sectes Divines, une antique maxime se transmettait depuis les temps primordiaux. Cette phrase englobait l'essence même des héritages de cette secte!
 
 « Des Quatre Divinités qui s'éveillent: la Tortue Noire est la plus rapide, le Tigre Blanc est le plus féroce, le Dragon Azure est le plus puissant et l'Oiseau Vermillon est le plus difficile! »
 
-Au sein de la Secte des Quatre Divinités, les éveils de la Tortue Noire n'étaient pas rares, car leur processus présentait le risque le plus faible. Ceux qui éveillaient le Tigre Blanc étaient souvent d'une férocité extrême; ils étaient ceux qui avaient massacré d'innombrables êtres!
+Au sein des Quatre Sectes Divines, les éveils de la Tortue Noire n'étaient pas rares, car leur processus présentait le risque le plus faible. Ceux qui éveillaient le Tigre Blanc étaient souvent d'une férocité extrême; une fois éveillés, ils pouvaient devenir des massacreurs capables d'effrayer les immortels!
 
 Le Dragon Azure était le plus puissant. Ceux qui l'éveillaient étaient rares, mais ils échouaient rarement. Une fois leur éveil accompli, ils finiraient par devenir l'Empereur Divin du Dragon Azure!
 
@@ -158,7 +158,7 @@ Cependant, nul n'était destiné à contempler ce spectacle. La sphère de feu d
 
 Bientôt, une aura destructrice apparut; à mesure que les flammes s'accumulaient, la boule de feu devenait de plus en plus immense!
 
-Il était difficile de décrire ce qui se produisait. La mer de flammes s'élevait vers la sphère céleste. Si l'on observait la scène d'une hauteur suffisante, on aurait l'impression que la mer de flammes était en train de rétrécir!
+Il était difficile de décrire ce qui se produisait. La mer de flammes déferlait sur la terre, vague après vague, pour se fondre dans la boule de feu. Si l'on observait la scène d'une hauteur suffisante, on aurait l'impression que la mer de flammes était en train de rétrécir!
 
 Cette mer de feu infinie se contractait rapidement autour de la boule de feu qui en était le centre. À mesure que davantage de flammes pénétraient dans la sphère, la vitesse de contraction atteignit un paroxysme.
 
@@ -172,7 +172,7 @@ Au même moment, la fumée noire qui recouvrait le ciel s'agglutina autour de la
 
 Dès que la fumée entoura la boule de feu, une quantité colossale d'énergie démoniaque apparut dans les cieux. Elle se transforma en un brouillard noir et s'élança.
 
-Tandis que l'énergie démoniaque descendait, elle se rassembla pour former une ombre démoniaque gigantesque. Immense, dotée d'yeux assoiffés de sang, elle fonça droit sur la boule de feu!
+Tandis que l'énergie démoniaque descendait, elle se rassembla pour former une gigantesque ombre démoniaque hideuse, pourvue d'une corne unique. Immense, dotée d'yeux assoiffés de sang, elle fonça droit sur la boule de feu!
 
 Cependant, elle ressentit immédiatement la chaleur émanant de la sphère. Elle s'interrompit et recula légèrement, puis fixa la boule de feu avec une intention meurtrière encore plus intense dans le regard.
 

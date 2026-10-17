@@ -44,13 +44,13 @@ Le sang jaillit des pores de son dos, mais il fit un autre pas en avant!
 
 « Moi, Wang Lin, je suis un cultivateur qui défie les cieux. J'ose défier le ciel et le destin, alors comment pourrais-je reculer ici?! » Le pas de Wang Lin était comme remonter un fleuve à contre-courant et irriter les cieux. Une pression encore plus puissante s'abattit sur lui.
 
-« Un chercheur de Dao peut naître à l'aube et mourir au crépuscule. Un cultivateur qui défie les cieux possède un cœur rebelle. Qu'y a-t-il à craindre? Ce n'est que la mort! »
+« Un chercheur de Dao peut naître à l'aube et mourir au crépuscule. Un cultivateur qui défie les cieux possède un cœur rebelle et fait naître une once de volonté inflexible. Qu'y a-t-il à craindre? Ce n'est que la mort! »
 
 Sous cette pression inimaginable, le sang jaillit du corps de Wang Lin. Il était couvert de sang, mais il rit. Son rire était empreint d'une aura indomptable!
 
 L'esprit de Wang Lin était désormais limpide, toutes les pensées inutiles ayant été balayées. Une seule idée occupait son esprit: « défier! »
 
-Autrefois, il avait défié les cieux dans la Terre des Esprits Démoniaques pour atteindre le stade Ascendant. Ici, il faisait face à cette pression une fois de plus dans la Terre des Esprits Démoniaques. Cette nature rebelle, que Wang Lin avait scellée et supprimée durant son séjour à Luotian, refleurissait une fois de plus!
+Autrefois, il avait défié les cieux dans la Terre des Esprits Démoniaques pour atteindre le stade Ascendant. Ici, il faisait face à cette pression une fois de plus dans la Terre des Esprits Démoniaques. Cette nature rebelle, que les affaires du monde avaient scellée, que le voyage à Luotian avait réprimée et que son propre esprit avait masquée, refleurissait une fois de plus!
 
 Tout était une question de karma!
 
@@ -88,11 +88,11 @@ Plus incroyable encore, les étoiles n'étaient pas statiques, mais se déplaça
 
 « Est-ce là la grotte céleste où se trouve l'Empereur Céleste Qing Lin? » Le regard de Wang Lin passa des étoiles à la formation constituée par les dalles.
 
-La femme en blanc réfléchit silencieusement en contemplant la statue. Après un long moment, elle dit doucement: « À son retour, il était déjà blessé. Il fut ensuite attaqué par deux insignifiants étrangers. Une fois revenu, il activa la grotte céleste pour se soigner. »
+La femme en blanc réfléchit silencieusement en contemplant la statue. Après un long moment, elle dit doucement: « À son retour, il était déjà blessé. En chemin, il fut en outre harcelé par deux étrangers venus d'au-delà du monde, alors il ouvrit la grotte céleste pour s'y soigner. »
 
-« À l'origine, il n'y avait pas d'entrée, mais il en a créé quatre. Si les quatre entrées sont ouvertes, une véritable porte apparaîtra dans la Terre des Esprits Démoniaques, menant à l'endroit où il est en culture de porte close... »
+« À l'origine, il n'y avait pas d'entrée, mais il en a créé quatre. Si les quatre entrées sont ouvertes en même temps, une véritable porte apparaîtra dans la Terre des Esprits Démoniaques, menant à l'endroit où il est en culture de porte close... »
 
-« Vous possédez le sortilège d'Arrêt, vous avez la dépouille de Qing Shuang et vous portez le nom de Wang, alors je ne vous arrêterai pas... Une fois entré dans le réseau de transfert, vos compagnons apparaîtront dans votre esprit. » La femme soupira en se détournant pour s'enfoncer dans les profondeurs du hall. Wang Lin observa sa silhouette empreinte de solitude et de mélancolie.
+« Vous possédez le sortilège d'Arrêt, vous avez la dépouille de Qing Shuang et vous portez le nom de Wang, alors je ne vous arrêterai pas... Une fois entré dans le réseau de transfert, vos compagnons apparaîtront eux aussi selon votre volonté. » La femme soupira en se détournant pour s'enfoncer dans les profondeurs du hall. Wang Lin observa sa silhouette empreinte de solitude et de mélancolie.
 
 Wang Lin demanda précipitamment: « Que voulez-vous dire par "portez le nom de Wang"? »
 

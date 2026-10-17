@@ -16,7 +16,7 @@ Bien que des fissures soient apparues sur le fragment en raison du sort de l'Omn
 
 Cependant, il s'était effondré de manière si étrange, à partir d'un seul point touché par le doigt de la femme. Wang Lin ne put s'empêcher de haleter et recula rapidement.
 
-La femme fut surprise et fit quelques pas en avant. Fixant Wang Lin de son regard glacial, elle leva sa main droite et pointa doucement le vide!
+La femme en blanc s'avança de quelques pas d'une démarche légère. Fixant Wang Lin de son regard glacial, elle leva sa main droite et pointa doucement le vide!
 
 À cet instant, un sentiment de crise submergea Wang Lin comme une inondation. Il ne ressentit qu'une douleur fulgurante dans la poitrine, comme si une épine acérée s'apprêtait à le transpercer. Sous cette douleur intense, il activa sans hésiter son pouvoir de Dieu Ancien. Des bruits de craquements retentirent dans sa poitrine et une plante illusoire apparut devant lui, mais ses racines furent brisées par la puissance du Dieu Ancien.
 
@@ -28,27 +28,27 @@ Dès qu'il s'assit, les fleurs se refermèrent sur lui, l'encerclant totalement.
 
 Les trois frères Chen et Da Tou étaient terrifiés. Ils voulurent battre en retraite, mais ils furent submergés par les fleurs. Avant même qu'ils ne puissent lancer un sort, la mer de fleurs les engloutit.
 
-Quant au cadavre argenté, elle fut également ensevelie par cette mer florale, rendant sa présence invisible.
+Quant au Cadavre d'Argent, elle fut également ensevelie par cette mer florale, rendant sa présence invisible.
 
-En regardant autour de lui, Wang Lin était le seul survivant!
+En regardant autour de lui, Wang Lin était le seul encore debout, dans les airs!
 
 Le regard glacial de la femme se posa sur Wang Lin. Son esprit trembla une fois de plus. Un rayon de lumière bleue jaillit de son œil droit et un bouclier de lumière azur apparut devant lui. Immédiatement après, des bruits d'impacts retentirent.
 
 Des fleurs apparurent dans les airs et se brisèrent au passage du bouclier azur. Les pétales furent dispersés, mais l'étrange parfum devint encore plus entêtant.
 
-La femme en blanc fronça davantage les sourcils. Elle retira une épingle de ses cheveux de sa main droite et, après l'avoir observée, la projeta en avant!
+La femme en blanc fronça davantage les sourcils. Elle retira de sa main droite une épingle sculptée d'une fleur de ses cheveux et, après l'avoir observée en silence, la projeta en avant!
 
-Un sifflement aigu, capable de percer l'âme originelle, résonna instantanément dans toute la grotte. L'épingle vola droit sur Wang Lin!
+Un sifflement aigu, capable de transpercer le corps et de détruire l'âme originelle, résonna instantanément dans toute la grotte. L'épingle vola droit sur Wang Lin!
 
 Elle était si rapide que même Wang Lin ne put en suivre la trajectoire. Il n'entendait plus que les bruits d'impacts résonner autour de lui alors qu'il reculait.
 
-Chaque choc signifiait que le bouclier azur était atteint. Un sentiment de vie ou de mort enveloppa le corps de Wang Lin. Il ne parvenait pas à sonder sa culture, mais il sentait que son niveau de cultivation était bien plus terrifiant que celui de Maître Yan Leizi.
+Chaque choc signifiait que le bouclier azur était atteint. Un sentiment de vie ou de mort enveloppa le corps de Wang Lin. Il ne parvenait pas à sonder sa culture, mais il sentait vaguement que sa terrifiante puissance dépassait même l'impression que lui avait laissée jadis Maître Yan Leizi.
 
 La femme leva à nouveau sa main droite, formant un sceau étrange, et murmura: « Fleur Funéraire! »
 
-À peine eut-elle parlé que d'innombrables fleurs éclatèrent partout où la lumière se faisait sentir. Il y avait tellement de fleurs que la grotte devint un monde végétal!
+À peine eut-elle parlé que d'innombrables fleurs éclatèrent partout où le regard portait. Il y avait tellement de fleurs que la grotte devint un monde végétal!
 
-Au moment même où elle prononça « Fleur Funéraire », les fleurs semblèrent atteindre leur apogée avant de commencer à faner. Alors que les tiges se flétrissaient rapidement, les pétales tombèrent comme une pluie mortelle. Tandis que la main de la femme achevait son sceau, tous les pétales convergèrent vers Wang Lin comme pour l'engloutir.
+Au moment même où elle prononça « Fleur Funéraire », les fleurs semblèrent atteindre leur apogée avant de commencer à faner. Alors que les cœurs des fleurs se flétrissaient rapidement, les pétales tombèrent comme une pluie de fleurs. Tandis que la femme pointait doucement du doigt de sa main de jade, tous les pétales convergèrent vers Wang Lin comme pour l'engloutir.
 
 N'ayant aucune issue, une lueur froide passa dans les yeux de Wang Lin. Cela faisait longtemps qu'il n'avait pas été acculé au point de risquer la mort par la moindre inattention. Sa main forma un sceau sans hésiter; il pointa le ciel et hurla: « Invoque le Vent! »
 
@@ -114,7 +114,7 @@ La sphère de lumière se dissipa à une vitesse fulgurante sous l'effet de la l
 
 Ce processus ne dura qu'un instant, mais pour Wang Lin, il sembla durer des millénaires. Une fois la sphère disparue, Wang Lin recula prestement; la lueur rouge faiblit et le troisième œil se referma.
 
-Les vêtements de son dos étaient trempés de sueur froide alors qu'il se retirait. La femme en blanc n'avait pas changé d'allure, mais ses yeux devinrent sérieux lorsqu'elle dit lentement:
+Les vêtements de son dos étaient trempés de sueur froide alors qu'il se retirait. La femme en blanc ne le poursuivit pas, mais son regard devint grave lorsqu'elle dit lentement:
 
 « Dieu Ancien, sorts célestes de Bai Fan, énergie d'origine source... Qui es-tu?! »
 
@@ -126,6 +126,6 @@ Wang Lin jouait rarement sa vie au jeu, mais maintenant, il n'avait plus d'autre
 
 Dès que la femme en blanc vit le sort « Arrêt », son expression changea radicalement.
 
-Les yeux de Wang Lin s'illuminèrent; il décida de frapper son sac de rangement. La pagode céleste apparut, et le cadavre de Qing Shuang flotta entre Wang Lin et la femme en blanc!
+Les yeux de Wang Lin s'illuminèrent; il décida de frapper son sac de rangement. La pagode de jade céleste apparut, et le cadavre de Qing Shuang flotta entre Wang Lin et la femme en blanc!
 
 C'était comme si la femme en blanc venait d'être frappée par la foudre!

@@ -6,7 +6,7 @@ bookTitle: "Alliance's Secret"
 en: Chapter 1024 - She, the Buried Celestial
 slug: elle-la-celeste-enterree
 ---
-« J'ai déjà attendu votre arrivée pendant très longtemps... J'ai sacrifié ma chair et mon sang aux anciens. Mon âme formera le vide. Je deviendrai l'âme du démon ancien. Moi, le démon dispersé de Ta, j'utilise cette énergie démoniaque pour emprunter la puissance de l'objet sacré du Clan du Tatouage afin d'ouvrir le Bassin de l'Enterrement Céleste! »
+« J'ai déjà attendu votre arrivée pendant très longtemps... J'ai sacrifié ma chair et mon sang aux anciens. Mon âme se muera en néant. Je deviendrai l'âme du démon ancien. Moi, le démon dispersé issu de la division de l'Ancien Démon Ta Jia, je dissipe mes pensées démoniaques pour emprunter la puissance de l'objet sacré du Clan du Tatouage afin d'ouvrir le Bassin de l'Enterrement Céleste! »
 
 Ce démon dispersé en armure afficha un sourire étrange tandis que sa voix résonnait. Puis, il leva le pied et l'abattit avec impitoyabilité!
 
@@ -18,7 +18,7 @@ C'était comme si le coup de pied du démon dispersé avait brisé le monde. Lor
 
 Il s'agissait d'un vortex colossal, assez vaste pour engloutir tout le terrain environnant. Des gémissements fantomatiques s'échappèrent du tourbillon, comme si l'on ouvrait les portes des enfers!
 
-« Votre arrivée avait déjà été prédite par le seigneur Ta Jia. Le lieu de sépulture de l'Empereur Céleste Qing Lin a été délibérément préparé pour vous tous! Ce vieil homme vous attendra là-bas! » Le rire du démon dispersé résonna dans la brume noire et dense.
+« Votre arrivée avait déjà été prédite par le seigneur Ta Jia il y a d'innombrables années. Ce lieu d'enterrement des Célestes de l'Empereur Céleste Qing Lin a été délibérément préparé pour vous tous! Ce vieil homme vous attendra là-bas! » Le rire du démon dispersé résonna dans la brume noire et dense.
 
 Le sol s'était dérobé, et cette force d'aspiration agissait comme une gueule béante dévorant tout sur son passage!
 
@@ -46,11 +46,11 @@ Wang Lin ressentit également cette force inimaginable. Heureusement, ayant véc
 
 Une immense quantité de flammes jaillit de son pied pour le repousser. Bien que les flammes fussent absorbées dès leur apparition, le corps de Wang Lin fut propulsé à une centaine de pieds de hauteur.
 
-L'Ancien Démon Bei Lou laissa échapper un rire et ignora totalement l'aspiration du vortex. Son corps vacilla et il apparut au loin.
+L'Ancien Démon Bei Luo laissa échapper un rire et ignora totalement l'aspiration du vortex. Son corps vacilla et il apparut au loin.
 
-Son œil droit brilla, entouré d'une puissante force démoniaque. Il souffla devant lui, créant des ondulations dans l'air. Avant de s'engager dans ces rides spatiales, il se retourna pour observer ceux qui luttaient dans le vortex. Son regard croisa celui de Wang Lin et il sourit: « Jeune ami Wang Lin, puisque tu as permis à ce vieil homme d'entrer, je ne te traiterai pas mal. Je vais t'indiquer la voie de sortie. Ce bassin fut nommé Bassin de l'Enterrement Céleste par l'Empereur Céleste Qing Lin. Le nombre de Célestes qui y ont péri est incalculable. Si tu es aspiré par mégarde, je crains que tu ne meures. Ta seule option est de te libérer le plus vite possible! »
+Son œil droit brilla, entouré d'une puissante force démoniaque. Il souffla devant lui, créant des ondulations dans l'air. Avant de s'engager dans ces rides spatiales, il se retourna pour observer ceux qui luttaient dans le vortex. Son regard croisa celui de Wang Lin et il sourit: « Jeune ami Wang Lin, puisque tu as permis à ce vieil homme d'entrer, je ne te traiterai pas mal. Je vais t'indiquer la voie de sortie. Ce lieu est le Bassin de l'Enterrement Céleste de l'Empereur Céleste Qing Lin, jadis célèbre dans tout le Royaume Céleste. Le nombre de Célestes qui y ont péri est incalculable. Si tu es aspiré par mégarde, je crains que tu ne meures. Ta seule option est de te libérer le plus vite possible! »
 
-Les épées de Bei Lou résonnèrent à travers le vortex. Wang Lin réfléchit en silence avant de frapper son sac de stockage; plus de dix grandes épées s'envolèrent, tournoyant autour de lui pour créer une force de contrepoids qui, alliée à son énergie originelle et aux flammes, luttait contre la succion.
+Les paroles de Bei Luo résonnèrent à travers le vortex. Wang Lin réfléchit en silence avant de frapper son sac de rangement; plus de dix grandes épées s'envolèrent, tournoyant autour de lui pour créer une force de contrepoids qui, alliée à son énergie originelle et aux flammes, luttait contre la succion.
 
 Cependant, à cet instant précis, un rugissement furieux jaillit du vortex. Ce cri était capable de faire trembler les cieux et, en sortant, il intensifia la force d'aspiration!
 
@@ -58,7 +58,7 @@ Ce rugissement portait en lui quelque chose qui bouleversa l'esprit de tous! Aus
 
 Ces tatouages étaient d'un rouge sang profond, certains encore reliés à des lambeaux de chair. C'était comme si quelqu'un venait de les arracher brutalement des corps de leurs propriétaires.
 
-À la vue de ces marques, Wang Lin eut un haut-le-cœur. Il reconnut immédiatement qu'il s'agissait des tatouages primordiaux du Clan des Immortels Délaissés!
+À la vue de ces marques, Wang Lin inspira brusquement. Il reconnut immédiatement qu'il s'agissait des tatouages primordiaux du Clan des Immortels Délaissés!
 
 Une silhouette vague émergea lentement des profondeurs du vortex, portée par le rugissement et les tatouages. À mesure que la forme s'élevait, une aura monstrueuse et maléfique se manifesta!
 
@@ -78,21 +78,21 @@ Les pupilles du Maître du Vide se rétractèrent lorsqu'il vit la femme dans le
 
 « C'est elle!!! Ça doit être elle! Elle a donc été scellée ici par l'Empereur Céleste Qing Lin!! Maudit soit-il, la rumeur disait qu'elle était morte, mais l'Empereur Céleste Qing Lin ne l'a pas tuée! »
 
-Le calme du Maître du Vide s'était totalement évaporé. Après avoir identifié cette silhouette vague, il en perdit presque la raison. L'Alliance possédait de nombreuses informations sur le Royaume Céleste et, en tant qu'Ancien de l'Alliance, il détenait des secrets que nul autre n'ignorait.
+Le calme du Maître du Vide s'était totalement évaporé. Après avoir identifié cette silhouette vague, il en perdit presque la raison. L'Alliance possédait de nombreuses informations sur le Royaume Céleste et, en tant qu'Ancien de l'Alliance, il détenait des secrets que nul autre ne connaissait.
 
 Au moment où la silhouette apparut, l'Ancien Sun luttait contre la force d'aspiration. Mais face à cette aura maléfique, même avec son niveau de culture, il fut impuissant. Son énergie originelle se figea et il fut aspiré par le vortex.
 
-Ses yeux étaient empreints de terreur et, au moment où il allait être englouti, le Sable Marqué d'Étoiles jaillit de ses vêtements. Ses yeux étaient froids lorsqu'il bondit hors de lui. Ce sable était mystérieux, capable de fouler l'air pour s'appuyer sur la force ambiante. Il lutta pour remonter et fixa Wang Lin d'un regard vif.
+Ses yeux étaient empreints de terreur et, au moment où il allait être englouti, la Zibeline Marquée d'Étoiles sortit la tête de ses vêtements. Le regard froid, elle bondit hors de lui en s'appuyant sur son corps. Cette zibeline était extraordinaire, capable de fouler l'air pour s'appuyer sur la force ambiante. Elle lutta pour remonter et fixa Wang Lin de ses yeux brillants d'un éclat vif.
 
-À cet instant, Bei Lou observa la silhouette qui émergeait lentement; son œil droit brilla et il murmura: « Vieux ami... Je pensais qu'elle avait simplement disparu pour se cacher quelque part et guérir. Je n'aurais jamais cru que Qing Lin l'avait scellée ici... Qing Lin... Il était extrêmement puissant, si puissant! S'il n'avait pas été gravement blessé lors de l'effondrement du Royaume Céleste, Ta Jia et moi n'aurions jamais osé convoiter sa puissance! »
+À cet instant, Bei Luo observa la silhouette qui émergeait lentement; son œil droit brilla et il murmura: « Vieux ami... Je pensais qu'elle avait simplement disparu pour se cacher quelque part et guérir. Je n'aurais jamais cru que Qing Lin l'avait scellée ici... Qing Lin... Il était extrêmement puissant, si puissant! S'il n'avait pas été gravement blessé lors de l'effondrement du Royaume Céleste, Ta Jia et moi n'aurions jamais osé convoiter sa puissance! »
 
-En fixant la silhouette vague, une pointe d'hésitation passa dans les yeux de Bei Lou.
+En fixant la silhouette vague, une pointe d'hésitation passa dans les yeux de Bei Luo.
 
 « Devrais-je la sauver...? » Ses yeux s'illuminèrent alors qu'il scrutait attentivement l'arrière de la silhouette, et il fut frappé de stupeur.
 
 « Qing Lin était trop cruel! Il a utilisé cette chose comme sceau. Même si ma puissance était à son apogée, comme autrefois, je ne serais peut-être pas capable de la sauver. Je pourrais même y rester moi aussi. Laisse tomber! »
 
-Après avoir renoncé à l'idée de sauver qui que ce soit, le corps de Bei Lou vacilla et disparut lentement, utilisant sa propre méthode unique pour quitter les lieux.
+Après avoir renoncé à l'idée de sauver qui que ce soit, le corps de Bei Luo vacilla et disparut lentement, utilisant sa propre méthode unique pour quitter les lieux.
 
 Au moment précis où la silhouette vague s'élança dans les airs, une aura maléfique enveloppa tout le monde. Situ Nan traça de nombreux sceaux et lança des sorts. Cependant, à cet instant, la silhouette vague leva sa main droite et fit un geste léger.
 
@@ -100,7 +100,7 @@ L'intention malveillante atteignit son paroxysme, formant un nouveau vortex. Le 
 
 Et Situ Nan fut emporté avec lui!
 
-Wang Lin, qui volait vers le haut, s'arrêta brusquement et déploya sans hésiter son énergie originelle, faisant jaillir une mer de flammes autour de lui. Alors qu'une douzaine d'épées tournoient autour de lui, il chargea vers Situ Nan.
+Wang Lin, qui volait vers le haut, s'arrêta brusquement et déploya sans hésiter son énergie originelle, faisant jaillir une mer de flammes autour de lui. Alors qu'une douzaine d'épées tournoyaient autour de lui, il chargea vers Situ Nan.
 
 Tandis que la terrifiante succion persistait et que l'horrible figure s'élevait, tous ceux qui n'étaient pas encore aspirés luttaient pour s'envoler. Seule la silhouette de Wang Lin plongeait vers le bas en direction de Situ Nan.
 

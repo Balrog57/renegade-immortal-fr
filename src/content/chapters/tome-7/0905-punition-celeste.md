@@ -16,7 +16,7 @@ Un fracas retentit dans la 16e couche, puis le tatouage s'effondra. Tandis que l
 
 Au moment précis de sa disparition, un réseau de transfert apparut dans le bassin, émettant une lueur étrange.
 
-Sur une planète de la secte de Suzaku, un homme ressemblant à Huanglong discutait en souriant avec quelques cultivateurs de bas niveau lorsqu'il tourna soudainement le regard vers l'horizon. Ce fut l'instant même où le passage vers la 17e couche s'ouvrit.
+Sur la planète Suzaku, sur la place d'une secte, un homme ressemblant à Huanglong discutait en souriant avec quelques cultivateurs de bas niveau lorsqu'il tourna soudainement le regard vers l'horizon. Ce fut l'instant même où le passage vers la 17e couche s'ouvrit.
 
 Après un long moment, il détourna les yeux et pensa: « Peu importe, il n'y a rien qu'il ne puisse voir dans la 17e couche. La culture de ce petit gars a atteint un point tel qu'il peut percevoir certains secrets. Cependant, la 17e couche est sa limite; il ne pourra pas pénétrer dans la 18e. »
 
@@ -26,7 +26,7 @@ La 17e couche du Cimetière des Immortels était plongée dans une obscurité to
 
 Grâce à cette clarté, les environs devinrent visibles!
 
-C'était une zone de milliers de pieds de large où des chaînes pendaient de partout. Des cadavres étaient suspendus à ces chaînes, et ce que celles-ci dégageaient était de l'énergie spirituelle céleste!
+C'était une zone d'environ mille pieds de large où des chaînes pendaient de partout. Des cadavres étaient suspendus à ces chaînes, et ce que celles-ci dégageaient était de l'énergie spirituelle céleste!
 
 Ces corps étaient tous des Célestes!
 
@@ -54,7 +54,7 @@ Les tatouages sur sa peau mouvaient comme de l'eau courante, comme si une force 
 
 À la surprise de Yun Quezi, le respect qu'il éprouvait autrefois pour le garçon à la grosse tête s'était transformé; c'était comme si une force étouffait ce sentiment.
 
-Wang Lin fut également affecté. Dès son entrée, il réalisa que l'énergie d'origine céleste que Qing Shui lui avait transmise était opprimée. C'était comme si elle avait été immergée dans l'eau, ralentissant considérablement ses mouvements.
+Wang Lin fut également affecté. Dès son entrée, il réalisa que le haricot céleste que Qing Shui lui avait offert était opprimé. C'était comme s'il avait été immergé dans l'eau, ralentissant considérablement ses mouvements.
 
 L'environnement était d'un silence absolu et d'une noirceur totale. Pourtant, Wang Lin et ses compagnons voyaient tout distinctement. Cette 17e couche n'était pas vaste, mais d'innombrables chaînes pendaient des murs pour maintenir les cadavres en place.
 
@@ -120,6 +120,6 @@ La silhouette de Wang Lin apparut aux côtés de l'une des momies. Ses yeux éta
 
 Le corps de la dépouille trembla violemment et ses yeux vides retrouvèrent un bref instant de clarté. Une pointe de soulagement passa par elle avant que son corps ne s'effondre et ne disparaisse.
 
-Dès sa disparition, l'énergie d'origine céleste quitta le cadavre pour pénétrer dans le corps de Wang Lin. Les yeux de ce dernier se contractèrent; après observation, il constata que cela ne lui nuisait pas. Au contraire, elle fusionna avec l'énergie d'origine céleste que le Seigneur Céleste Qing Shui lui avait donnée.
+Dès sa disparition, l'énergie d'origine céleste quitta le cadavre pour pénétrer dans le corps de Wang Lin. Les yeux de ce dernier se contractèrent; après observation, il constata que cela ne lui nuisait pas. Au contraire, elle fusionna avec le haricot céleste que le Seigneur Céleste Qing Shui lui avait donné.
 
 Cette découverte plongea Wang Lin dans l'extase.

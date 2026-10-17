@@ -14,9 +14,9 @@ Si quelqu'un l'apercevait en cet instant, il penserait sans aucun doute qu'il s'
 
 Si un véritable messager du Temple Céleste du Tonnerre rencontrait Wang Lin, il en serait stupéfait.
 
-Plus de 900 ans de culture avaient permis à Wang Lin d'atteindre le stade avancé de l'Ascendant, atteignant ainsi le même niveau que Zhuque Zi à l'époque.
+Plus de 900 ans de culture avaient permis à Wang Lin d'atteindre le stade avancé de l'Ascendant, atteignant ainsi le même niveau que Zhu Quezi à l'époque.
 
-Si Zhuque Zi n'était pas mort, quel sentiment éprouverait-il en voyant cela? Ce petit cultivateur qu'il ne considérait que comme un pion avait atteint des sommets aussi élevés!
+Si Zhu Quezi n'était pas mort, quel sentiment éprouverait-il en voyant cela? Ce petit cultivateur qu'il ne considérait que comme un pion avait atteint des sommets aussi élevés!
 
 Les cultivateurs au stade avancé de l'Ascendant étaient considérés comme des existences suprêmes sur certaines petites planètes de culture. Personne n'oserait les provoquer là-bas.
 

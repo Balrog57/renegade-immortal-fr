@@ -124,4 +124,4 @@ Dans le ciel, une silhouette drapée de rouge apparut. Elle dégageait une aura 
 
 À cet instant, le ciel perdit toutes ses couleurs; seule cette silhouette semblait exister.
 
-« Zhuque Zi! » L'expression de Du Tian devint livide. N'ayant plus le temps de s'amuser avec ce fragment d'âme, il agita le Drapeau d'Âmes au Milliard d'Âmes pour l'emmagasiner précipitamment.
+« Zhu Quezi! » L'expression de Du Tian devint livide. N'ayant plus le temps de s'amuser avec ce fragment d'âme, il agita le Drapeau d'Âmes au Milliard d'Âmes pour l'emmagasiner précipitamment.

@@ -40,7 +40,7 @@ Wang Lin ouvrit lentement les yeux, lesquels semblaient contenir les cieux eux-m
 
 « Après 1 000 ans de culture, j'ai enfin atteint la perfection... » Wang Lin poussa un soupir de soulagement et un sourire apparut au coin de ses lèvres.
 
-En repensant à ces 1 000 ans, il n'était autrefois qu'un simple membre de la Secte Heng Yue; mais en cet instant, il se trouvait au sommet de la première étape, ayant même surpassé Zhuque Zi. C'était une chose que personne sur la planète Suzaku n'aurait pu imaginer.
+En repensant à ces 1 000 ans, il n'était autrefois qu'un simple membre de la Secte Heng Yue; mais en cet instant, il se trouvait au sommet de la première étape, ayant même surpassé Zhu Quezi. C'était une chose que personne sur la planète Suzaku n'aurait pu imaginer.
 
 Wang Lin ne se leva pas, mais toucha son sac de rangement et un pinceau céleste doré apparut dans sa main. Il le tint fermement et commença à tracer des caractères devant lui, ses mains dansant avec agilité.
 

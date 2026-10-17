@@ -28,7 +28,7 @@ Sun Xueshan, qui observait secrètement la boussole stellaire sous les pieds de 
 
 L'expression de Wang Lin resta de marbre, mais son cœur tressaillit.
 
-« La planète Mille Illusions... Mille Illusions... Ce nom me semble très familier. Autrefois, Zhuque Zi avait une disciple nommée Liu Mei, qui pratiquait la culture au sein du domaine Impitoyable de Mille Illusions. Il ne devrait pas y avoir de lien... Après tout, il s'agit d'un système stellaire différent. »
+« La planète Mille Illusions... Mille Illusions... Ce nom me semble très familier. Autrefois, Zhu Quezi avait une disciple nommée Liu Mei, qui pratiquait la culture au sein du domaine Impitoyable de Mille Illusions. Il ne devrait pas y avoir de lien... Après tout, il s'agit d'un système stellaire différent. »
 
 « Le domaine Nord. Il semble que le système stellaire de Luotian soit divisé en quatre domaines: Est, Ouest, Nord et Sud. Je me trouve donc actuellement dans le domaine Nord. »
 

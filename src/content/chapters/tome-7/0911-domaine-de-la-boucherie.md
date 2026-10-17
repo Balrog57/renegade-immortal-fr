@@ -18,7 +18,7 @@ Alors qu'il s'échappait, la pierre sur laquelle il se tenait s'effondra soudain
 
 L'expression de Wang Lin était glaciale; sa main traça un sceau et pointa vers le ciel. Une rafale de vent déferla avec fureur, balayant la force émanant de la pierre. Il fit ensuite un pas et s'élança à la poursuite de Yu Fei.
 
-Yu Fei était trop rapide. L’Évasion Sanguine était une technique de survie utilisée en cas de blessure grave. Pris de panique, il ne se souciait plus de rien; son seul désir était de s'échapper le plus vite possible.
+Yu Fei était trop rapide. L’Évasion Sanguine était une technique de survie qui entamait sa propre culture. Pris de panique, il ne se souciait plus de rien; son seul désir était de s'échapper le plus vite possible.
 
 Cependant, alors qu'il se trouvait à des dizaines de milliers de kilomètres, une ondulation apparut devant lui. Wang Lin en sortit et lui décocha un coup de poing en plein visage!
 
@@ -66,7 +66,7 @@ Au moment où les deux se croisèrent, les deux doigts de Wang Lin formèrent un
 
 ***
 
-Dans le Domaine de la Boucherie du Système Stellaire de l'Alliance, composé de deux sectes, quatre temples et huit domaines!
+Dans le Domaine de la Boucherie du Système Stellaire de l'Alliance, composé de deux temples, quatre Saints et huit domaines!
 
 Un vortex elliptique apparut soudainement près d'un édifice ressemblant à une épée plantée dans le sol. Une force d'attraction mystérieuse émana du vortex, attirant l'attention des cultivateurs du Domaine de la Boucherie.
 

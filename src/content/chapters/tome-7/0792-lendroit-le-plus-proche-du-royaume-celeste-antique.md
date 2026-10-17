@@ -62,7 +62,7 @@ Un sentiment de familiarité longtemps perdu envahit son cœur. Une fois maître
 
 Il profita de la puissance du collapsus du vortex pour battre en retraite rapidement. Au moment où il s'élançait, le jeune homme maléfique fit son apparition. Sa main fut frappée par l'explosion avant qu'il ne tente de saisir l'espace vide où se trouvait Wang Lin.
 
-Après avoir jailli de l'explosion, Wang Lin s'envola vers le loin sans la moindre hésitation. Simultanément, il sortit son épée céleste et projeta huit Coups Célestes autour de lui.
+Après avoir jailli de l'explosion, Wang Lin s'envola au loin sans la moindre hésitation. Simultanément, il sortit son épée céleste et projeta huit Coups Célestes autour de lui.
 
 Plusieurs craquements retentirent, puis une multitude de fissures apparurent autour de Wang Lin. Une force invisible qui tentait de l'emprisonner fut déchirée par ses Coups Célestes.
 

@@ -46,9 +46,9 @@ Lorsque le cristal céleste se brise, une quantité massive d'énergie spirituel
 
 Cependant, au moment où l'énergie d'épée entra dans son corps, l'énergie spirituelle céleste remplit parfaitement son rôle de neutralisation.
 
-Il avait alors immédiatement exécuté son plan en revêtant le chapeau de paille que Yunque Zi lui avait donné, avant de se faufiler à nouveau sur la plateforme!
+Il avait alors immédiatement exécuté son plan en revêtant le chapeau de paille que Yun Quezi lui avait donné, avant de se faufiler à nouveau sur la plateforme!
 
-Ce chapeau contenait de puissantes restrictions et, Yunque Zi étant un cultivateur au stade Ascendant, ses trésors étaient naturellement redoutables. L'effet de ce chapeau était de dissimuler le sens divin, et Wang Lin l'avait déjà utilisé avec succès par le passé!
+Ce chapeau contenait de puissantes restrictions et, Yun Quezi étant un cultivateur au stade Ascendant, ses trésors étaient naturellement redoutables. L'effet de ce chapeau était de dissimuler le sens divin, et Wang Lin l'avait déjà utilisé avec succès par le passé!
 
 À moins que l'adversaire n'ait atteint le stade Ascendant, il était impossible de le détecter!
 

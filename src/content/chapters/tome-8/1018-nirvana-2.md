@@ -16,7 +16,7 @@ Ces deux lignes s'entrecoupèrent pour former une rune en forme de diamant!
 
 Cette rune surpassait tout ce que possédait le Clan du Tatouage. Sa complexité était telle que l'on ressentait le vertige rien qu'en la contemplant.
 
-« Rassembler l'Ordre Ancien, souvenir éternel! » Dès que Wang Lin prononça la dernière phrase, la rune de diamant libéra un éclat noir et blanc et commença à flotter lentement vers l'avant!
+« Unir le clan antique, pensée éternelle! » Dès que Wang Lin prononça la dernière phrase, la rune de diamant libéra un éclat noir et blanc et commença à flotter lentement vers l'avant!
 
 En flottant, la rune continua de s'étendre jusqu'à culminer à plus de 10 000 pieds de hauteur. Telle un mur atteignant les cieux, elle poursuivit sa progression.
 
@@ -81,7 +81,7 @@ Brûlez le ciel!
 
 Un sort céleste utilisant le pouvoir de consumer l'azur. L'être qui avait créé ce sort était Qing Lin!
 
-Des vagues de chaleur descendirent du firmament. Alors que le ciel brûlait, le voile sombre qui le recouvrait fut remplacé par un incendie sans fin. Sous cette chaleur intense, le sable sous le groupe se désintégra.
+Des vagues de chaleur descendirent du firmament. Alors que le ciel brûlait, le voile sombre qui le recouvrait fut remplacé par un incendie sans fin. Sous cette chaleur intense, le sable du sol se désintégra.
 
 Les grains de sable volèrent en éclats et, en un instant, le désert de sable noir où se trouvait Wang Lin se mua en enfer! Tandis que les grains s'effondraient, ils commencèrent à fondre sous l'assaut de la chaleur!
 
@@ -97,7 +97,7 @@ Des craquements résonnèrent dans les cieux. Wang Lin pouvait vaguement disting
 
 Pour qu'un sort céleste porte le nom de « Brûle les Cieux », il devait posséder une puissance inimaginable. Si le ciel lui-même pouvait être réduit en cendres, il n'était même pas nécessaire de mentionner tout ce qui se trouvait en dessous!
 
-La rune de diamant fendit la progression et repoussa le sable fondu. Les flammes célestes semblaient être écartées par la rune.
+La rune de diamant avança et repoussa le sable fondu. Les flammes célestes semblaient être écartées par la rune.
 
 Cependant, en un instant, des flammes encore plus intenses recouvrirent le ciel. Alors que l'azur brûlait, il semblait lui aussi fondre. De massives colonnes de feu chutèrent du ciel et, à chaque fois qu'une masse incandescente frappait le sol, la terre tremblait.
 
@@ -111,7 +111,7 @@ L'onde de chaleur dense et les gaz noirs firent vaciller l'esprit de Wang Lin!
 
 Ces flammes étaient de neuf couleurs. Elles descendirent et commencèrent à encercler la rune. À mesure qu'elles s'intensifiaient, le sol lui-même commença à brûler. C'était comme si le désert de sable noir s'était transformé en un enfer de feu désireux de dévorer Wang Lin et la rune!
 
-Wang Lin avait déjà perdu trop d'énergie originelle. Son visage était livide alors qu'il trônait sur la rune de diamant. Mais sous l'impact des flammes, du ciel en combustion et des larmes de feu descendantes, la rune sous lui vola en éclats!
+Wang Lin avait déjà perdu trop d'énergie originelle. Son visage était livide alors qu'il trônait sur la rune de diamant. Mais sous l'impact des flammes, du ciel en combustion et des flammes descendantes, la rune sous lui vola en éclats!
 
 Alors qu'elle s'effondrait, les yeux de Wang Lin s'illuminèrent et il déploya ses bras. L'énergie originelle restante dans son corps fut projetée sans ménagement pour créer une onde de choc. Cette déflagration dispersa les fragments de la rune de diamant dans toutes les directions!
 
@@ -119,6 +119,6 @@ Bien que brisée, la rune contenait toujours le pouvoir d'un Dieu Ancien. En se 
 
 En se propageant, cette tempête repoussa l'incendie. Cependant, ce n'était que temporaire. Une fois la tempête dissipée, les flammes reviendraient pour tout consumer!
 
-Profitant de cette brèche où les flammes étaient écartées, Wang Lin ignora la sueur qui trempait son corps et la brume rouge de son propre sang s'échappant de ses pores; il frappa violemment sa sacoche de stockage. Les yeux injectés de sang, il hurla: « Chariot de l'Extermination Divine! »
+Profitant de cette brèche où les flammes étaient écartées, Wang Lin ignora la sueur qui trempait son corps et la brume rouge de son propre sang s'échappant de ses pores; il frappa violemment sa sacoche de stockage. Les yeux injectés de sang, il hurla: « Char de Guerre Divin! »
 
-Instantanément, une lumière aux cinq couleurs jaillit de la sacoche de Wang Lin et se mua en un papillon multicolore!
+Instantanément, une lumière aux cinq couleurs jaillit de la sacoche de Wang Lin et se mua en un papillon aux cinq couleurs!

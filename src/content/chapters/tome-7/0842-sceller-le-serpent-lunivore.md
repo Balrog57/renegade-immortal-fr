@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 842 - Sealing the Moongazer Serpent
 slug: sceller-le-serpent-lunivore
 ---
-Le Dieu du Sang n'hésita pas à exploser en un vaste nuage de sang pour utiliser l'Évasion Sanguine, s'appuyant sur l'ombre démoniaque derrière lui.
+Le Dieu du Sang n'hésita pas à exploser en un vaste nuage de sang pour utiliser l'Évasion Sanguine, emportant avec lui l'ombre démoniaque qui se tenait derrière lui.
 
 À l'extérieur, tous les tentacules du Serpent aux yeux de lune se détachèrent pour se transformer en d'innombrables serpents plus petits. Ce spectacle fit haleter de stupeur tous les vieux monstres environnants.
 
@@ -14,7 +14,7 @@ Les yeux de Maître Yan Leizi s'illuminèrent et ses mains formèrent des sceaux
 
 Chaque fragment était imprégné d'une force colossale. Ils encerclèrent tous les serpents aux yeux de lune et tournèrent à une vitesse fulgurante, formant un vortex gigantesque.
 
-Le vieil homme en robe rouge agita ses manches et la formation octogonale s'effondra, se fragmentant en une multitude de petites formations qui piégèrent chaque Serpent aux yeux de lune. Puis, l'homme à la robe rouge s'élança dans les airs, traça un sceau de sa main et divisa son esprit pour pénétrer chacune des formations.
+Le vieil homme en robe rouge agita ses manches et la formation octogonale s'effondra, se fragmentant en une multitude de petites formations qui piégèrent chaque Serpent aux yeux de lune, tandis que le feu du tonnerre s'abattait frénétiquement en grondant. Puis, l'homme à la robe rouge s'assit en tailleur haut dans le ciel, traça un sceau d'une main et divisa son esprit pour pénétrer chacune des formations.
 
 Les quatre garçons encerclèrent étroitement le Serpent aux yeux de lune, tandis que le noyau rouge continuait de sceller la trajectoire de la bête.
 
@@ -40,7 +40,7 @@ Les yeux de Maître Yan Leizi devinrent injectés de sang. Il poussa un rugissem
 
 À cet instant, le Domaine Nord entier trembla, comme si l'espace lui-même était sur le point de s'effondrer!
 
-« Compagnons cultivateurs, aidez-moi à sceller cette bête! » La voix de Maître Yan Leizi tonna comme le tonnerre. Son bras se tendit et les veines de son visage saillirent alors qu'il déployait toute sa puissance!
+« Compagnons cultivateurs, aidez-moi à sceller cette bête! » La voix de Maître Yan Leizi tonna comme le tonnerre. Ses bras s'écartèrent et les veines de son visage saillirent alors qu'il déployait toute sa puissance!
 
 Une trace de "Retour aux Origines" émana du corps de Maître Yan Leizi. Bien que ce ne fût qu'une étincelle, elle suffit à plonger le Serpent aux yeux de lune dans la panique!
 
@@ -72,7 +72,7 @@ Cependant, ces attaques s'effondrèrent instantanément devant le doigt du Dieu 
 
 Son niveau de culture était si élevé qu'il ne mourut pas sous le coup du doigt du Dieu Antique, mais son âme originelle fut endommagée!
 
-Le doigt du Dieu Antique ne ralentit pas sa course. Le vieil homme en robe rouge poussa un cri et se transforma en un nuage de sang qui fusionna avec la formation. La formation octogonale rouge percuta alors le doigt du Dieu Antique!
+Le doigt du Dieu Antique ne ralentit pas sa course. Le vieil homme en robe rouge poussa un grondement sourd et son corps, tel un tourbillon de vent et de nuages, se déploya pour former une formation octogonale rouge. Celle-ci percuta alors le doigt du Dieu Antique!
 
 À cet instant précis, le fantôme du Daoïste aux Cinq Couleurs s'approcha. Dès qu'il fut proche du doigt du Dieu Antique, il se désintégra en un épais brouillard noir pour se diffuser sur l'appendice, tentant de le dévorer!
 
@@ -108,6 +108,6 @@ Plus loin, les deux barrières formées par les cultivateurs en robes noire et r
 
 À cet instant, à l'intérieur du Serpent aux yeux de lune, l'ancien dieu devant Wang Lin tremblait violemment alors que les tentacules le dévoraient avec frénésie. Une autre étoile sur son front s'effondra soudainement!
 
-Une fois l'étoile détruite, une grande quantité de puissance fut absorbée par les tentacules, mais les yeux de l'ancien dieu brillèrent d'une lueur étrange et il commença un chant complexe. Une partie de cette puissance fut détournée pour former un simple tableau de transfert!
+Une fois l'étoile détruite, une grande quantité de puissance fut absorbée par les tentacules, mais les yeux de l'ancien dieu brillèrent d'une lueur étrange et il commença un chant complexe. Une partie de cette puissance fut détournée pour former, devant le Serpent aux yeux de lune, un réseau de transfert très rudimentaire!
 
 « Membre de mon clan... Dépêchez-vous... Amenez mon véritable membre de clan ici... »

@@ -6,11 +6,11 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 826 - Blood Gods Thoughts (3)
 slug: les-pensees-du-dieu-du-sang-3
 ---
-Wang Lin était assis en position de lotus sur le bras gauche de Ta Shan. Ce dernier continuait de reculer, tentant de maintenir une certaine distance entre eux et Yao Changdong. Cependant, Yao Changdong était trop rapide; il fondait sur eux, ses tatouages explosant un à un dans un assaut effréné.
+Wang Lin était assis en position de lotus sur le bras gauche de Ta Shan. Ce dernier continuait de reculer, tentant de maintenir une certaine distance entre eux et Yao Changdong. Cependant, Yao Changdong était trop rapide; il fondait sur eux dans un fracas de détonations successives.
 
 L'intention meurtrière disparut, remplacée par une sérénité absolue. Il ferma les yeux et murmura: « Mon domaine concernait originellement la vie et la mort, puis le karma. Les choses de ce monde peuvent échapper à la vie et à la mort, mais elles ne peuvent échapper au karma! »
 
-Il existait une puissance qui ne nécessitait aucune énergie originelle pour être déployée. Ce n'était pas un trésor, mais le Dao d'un cultivateur. On pouvait aussi y voir une croyance, une compréhension profonde.
+Il existait une puissance qui ne nécessitait aucune énergie originelle pour être déployée. Ce n'était pas un pouvoir divin, et encore moins un trésor, mais le Dao d'un cultivateur. On pouvait aussi y voir une croyance, une compréhension profonde.
 
 La compréhension de Wang Lin, forgée par mille ans de culture, était son domaine!
 
@@ -46,7 +46,7 @@ L'ombre du Céleste se condensa progressivement au-dessus de Yao Changdong avant
 
 « Ce n'est là que la gloire du passé. Qu'en est-il aujourd'hui? Toutes choses sont liées au karma. La gloire des Célestes est la cause karmique! » L'expression de Wang Lin resta calme alors qu'il abaissait sa main gauche et levait sa main droite.
 
-« L'effet karmique fut l'effondrement du Royaume Céleste! » Wang Lin serra légèrement son poing droit et ajouta: « Tu te targues de cette gloire, mais ton Dao peut-il échapper au karma? »
+« L'effet karmique fut l'effondrement du Royaume Céleste! » Wang Lin serra légèrement son poing droit et ajouta: « Ceux dont tu vantes la gloire sont-ils encore en vie? Ton Dao peut-il échapper au karma? »
 
 Le cercle karmique devant Wang Lin se mit à tourner, créant un vortex. À l'extérieur du vortex se trouvait la cause karmique, et à l'intérieur, l'effet karmique!
 
@@ -58,9 +58,9 @@ Le cercle karmique s'élança soudainement vers l'ombre du Céleste. Lorsqu'il a
 
 « Le statut et la culture célestes de ta famille ne peuvent égaler l'Empereur Céleste. Ne pas cultiver de domaine et s'approprier par la force le pouvoir des cieux a causé la perte de ton ancêtre. C'est cela, le karma! À mon sens, ta gloire est vide! »
 
-« S'ils ont été détruits par les cieux, où réside donc leur gloire? Yao Changdong, le domaine que tu as cultivé et le Dao en lequel tu crois sont tout deux nuls! Ton ancêtre céleste est mort, mais plutôt que de chercher la raison de sa chute, tu as choisi de cultiver sa gloire. Non seulement ton Dao est vide, mais celui de l'ancêtre de ta famille Yao l'est aussi. En fin de compte, ta famille Yao périra! »
+« S'ils ont été détruits par les cieux, où réside donc leur gloire? Yao Changdong, le domaine que tu as cultivé et le Dao en lequel tu crois sont tous deux nuls! Ton ancêtre céleste est mort, mais plutôt que de chercher comment résister, tu as choisi de cultiver sa gloire. Non seulement ton Dao est vide, mais celui de l'ancêtre de ta famille Yao l'est aussi. En fin de compte, ta famille Yao périra! »
 
-Les yeux de Yao Changdong s'emplirent de rage et il cracha une large traînée de sang, son esprit étant profondément blessé. Les paroles de Wang Lin étaient comme des lames acérées transperçant son cœur, le laissant incapable de répliquer. Après avoir entendu ces mots, une trace d'hésitation s'installa même dans son âme.
+Les yeux de Yao Changdong s'emplirent de rage et il cracha une grande bouchée de sang, son esprit étant profondément blessé. Les paroles de Wang Lin étaient comme des lames acérées transperçant son cœur, le laissant incapable de répliquer. Après avoir entendu ces mots, une trace d'hésitation s'installa même dans son âme.
 
 L'ombre du Céleste à l'extérieur du cercle karmique devint floue, comme si elle allait s'évanouir à tout instant.
 
@@ -76,19 +76,19 @@ Le corps de Yao Changdong trembla une fois de plus et il cracha une nouvelle bou
 
 L'ombre du Céleste en dehors du cercle karmique devint encore plus indistincte.
 
-Wang Lin hurla, ses yeux brillant d'une lueur étrange: « La volonté de ta famille Yao de me tuer est la cause karmique, et la destruction de ton Dao par mon domaine karmique en est l'effet! Pourquoi ton domaine de gloire ne s'est-il pas brisé avant le mien? »
+Wang Lin hurla, ses yeux brillant d'une lueur étrange: « La volonté de ta famille Yao de me tuer est la cause karmique, et la destruction de ton Dao par mon domaine karmique en est l'effet! Face au karma, ton Dao de la gloire ne se brise-t-il toujours pas? »
 
-Le corps de Yao Changdong fut secoué par un dernier tremblement et l'ombre du Céleste au-dessus de lui vola en éclats. Dans sa chute, tout revint à la normale et les étoiles réapparurent. Pour Yao Changdong, c'était comme si des années s'étaient écoulées.
+Le corps de Yao Changdong fut secoué par un dernier tremblement et l'ombre du Céleste au-dessus de lui vola en éclats. Dans sa chute, tout revint à la normale et les étoiles réapparurent. Pour Yao Changdong, c'était comme si dix mille ans s'étaient écoulés.
 
 Le domaine karmique de Wang Lin se dissipa également. Le dernier fragment de talisman entre ses sourcils s'était brisé lors de cette bataille du Dao. L'énergie originelle remplit son corps et il s'élança hors de la zone de combat.
 
-À cet instant, le papillon à ses côtés battit doucement des ailes. Le corps de Yao Changdong s'effondra, et même sa sacoche de rangement fut pulvérisée par cette puissance destructrice.
+À cet instant, le papillon à ses côtés battit doucement des ailes. Le corps de Yao Changdong s'effondra, et même son sac de rangement fut pulvérisée par cette puissance destructrice.
 
 Toutes les traces de son existence furent effacées du monde.
 
 Lorsque l'énergie originelle de Wang Lin se stabilisa, son visage devint pâle et il cracha un sang noir. Une bataille du Dao était bien trop périlleuse; il ne souhaitait l'utiliser qu'en ultime recours.
 
-Le Dao d'un homme n'était pas aussi fragile que ce qu'il avait affirmé. C'était simplement que le cœur du Dao de Yao Changdong était instable, faute d'avoir assez vécu. Il était comme une fleur protégée qui n'avait jamais été éprouvée par les tempêtes.
+Le Dao de la gloire n'était pas aussi fragile que ce qu'il avait affirmé. C'était simplement que le cœur du Dao de Yao Changdong était instable, faute d'avoir assez vécu. Il était comme une fleur protégée qui n'avait jamais été éprouvée par les tempêtes.
 
 Comparé à lui, les cultivateurs de même niveau dans le Système Stellaire de l'Alliance étaient bien plus forts. Après tout, dans ce système, on ne pouvait compter que sur soi-même!
 
@@ -110,10 +110,10 @@ Pendant ce temps, dans le Domaine de l'Est, sur une planète rouge sang, se dres
 
 Un vieil homme était assis à l'intérieur du temple. Ses sourcils étaient recourbés et d'un rouge écarlate.
 
-Derrière lui reposaient des jetons, chacun dégageant une riche énergie originelle. Soudain, l'un des jetons situés au bas de la pile craqua, puis se fendit en deux!
+Derrière lui reposaient des tablettes spirituelles, chacune dégageant une riche énergie originelle. Soudain, l'une des tablettes situées tout en bas craqua, puis se fendit en deux!
 
-Le vieil homme ouvrit lentement les yeux. Il regarda le jeton brisé et murmura: « L'un d'eux est enfin mort... Wang Lin du Système Stellaire de l'Alliance, je veux voir combien vous pouvez en tuer! Ne décevez pas ce vieux, le Dieu du Sang! » Le regard de l'homme était d'une noirceur abyssale.
+Le vieil homme ouvrit lentement les yeux. Il regarda la tablette brisée et murmura: « L'un d'eux est enfin mort... Wang Lin du Système Stellaire de l'Alliance, je veux voir combien vous pouvez en tuer! Ne décevez pas ce vieux, le Dieu du Sang! » Le regard de l'homme était d'une noirceur abyssale.
 
-Il leva la main droite et, d'un geste du doigt, une brume blanche s'échappa du jeton pour se glisser dans ses manches.
+Il leva la main droite et, d'un geste du doigt, une brume blanche s'échappa de la tablette brisée pour se glisser dans ses manches.
 
 « Continuez à tuer... »

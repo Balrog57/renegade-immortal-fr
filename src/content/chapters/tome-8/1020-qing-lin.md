@@ -98,7 +98,7 @@ Le visage de Wang Lin était livide alors qu'il se rassoit sur le sol de la tour
 
 Fixant la flamme, les yeux de Wang Lin devinrent injectés de sang. Face à cette lueur, son regard trahissait une profonde incertitude. Il était confronté à un choix déchirant.
 
-Après sept minutes, son regard devint résolu!
+Après un demi-bâton d'encens, son regard devint résolu!
 
 « Bien que cette flamme soit dangereuse, elle n'est pas trop volumineuse. Mes calculs indiquent qu'il ne devrait pas y avoir de problème majeur. Inutile d'hésiter davantage, autant tenter le coup! »
 
@@ -114,6 +114,6 @@ Sa sueur se transforma immédiatement en une vapeur blanche qui enveloppa son co
 
 Wang Lin endura cette agonie. Une fois que la flamme eut fusionné avec son énergie originelle, elle commença à migrer vers son âme originelle.
 
-« Ce n'est qu'en la laissant pénétrer dans mon âme originelle que je pourrai véritablement absorber l'énergie qui s'y trouve! » Après un ultime calcul, une détermination sans faille illumina ses yeux. Il pointa sa poitrine et l'Armure de Cuir du Dieu Ancien quitta son âme originelle pour s'envoler.
+« Ce n'est qu'en la laissant pénétrer dans mon âme originelle que je pourrai véritablement absorber l'énergie qui s'y trouve! » Après un ultime calcul, une détermination sans faille illumina ses yeux. Il pointa sa poitrine et l'Armure de Cuir du Dieu Ancien quitta son âme originelle et s'envola par sa bouche.
 
 Privée de l'armure de cuir du Dieu Ancien, l'énergie originelle contenue dans la flamme pénétra enfin son âme originelle!

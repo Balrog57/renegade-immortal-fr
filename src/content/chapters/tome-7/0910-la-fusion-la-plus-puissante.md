@@ -76,7 +76,7 @@ ROAR!!!
 
 Ce cri était celui d'un dieu ancien. Cela faisait une éternité que la voix d'un dieu ancien n'avait résonné en ce monde. Sa réapparition soudaine était comme l'éveil d'une voix véritable, capable de fendre les cieux.
 
-Devant le rugissement d'un dieu ancien, même le tonnerre céleste devait trembler et la voûte étoilée elle-même devait s'incliner! Il y avait des millénaires, ce monde était peuplé de dieux anciens!
+Devant le rugissement d'un dieu ancien, même le tonnerre céleste devait trembler et la voûte étoilée elle-même devait s'incliner! Car il était un dieu ancien qui, il y a d'innombrables dizaines de milliers d'années, avait balayé toute la voûte étoilée!
 
 Le cri libéra une aura ancestrale à travers les mondes. Toutes les créatures devaient se soumettre au rugissement d'un dieu ancien, et toute puissance devait se désintégrer!
 
@@ -100,7 +100,7 @@ C'était la première fois qu'il ressentait une telle émotion. Bien que stupéf
 
 Si ces personnes réagissaient ainsi, alors les quatre épées volantes près de Wang Lin n'avaient aucune chance. L'impact indescriptible du rugissement fit changer les couleurs du monde et l'espace lui-même s'effondra. Les quatre épées explosèrent toutes!
 
-Dans leur destruction, d'innombrables fragments furent repoussés pour redevenir quatre avatars. Chacun possédait une culture de Scruteur du Nirvana, mais dès leur apparition, ils furent frappés par l'onde de choc du rugissement divin.
+Dans leur destruction, d'innombrables fragments furent repoussés pour redevenir quatre avatars. Chacun possédait une culture du stade initial du Scruteur du Nirvana, mais dès leur apparition, ils furent frappés par l'onde de choc du rugissement divin.
 
 Comme balayés par un vent destructeur, les quatre avatars s'effondrèrent et se dissipèrent instantanément. Ils étaient définitivement morts!
 

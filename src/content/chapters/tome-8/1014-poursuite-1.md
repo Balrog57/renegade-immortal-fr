@@ -6,13 +6,13 @@ bookTitle: "Alliance's Secret"
 en: Chapter 1014 - Pursue (1)
 slug: poursuite-1
 ---
-Son corps de dieu ancestral mesurait des milliers de pieds de haut, donnant l'impression que Wang Lin pouvait soutenir les cieux. Le fourneau de dieu ancestral étincela et il apparut devant un tourbillon.
+Son corps de Dieu Ancien mesurait des milliers de pieds de haut, donnant l'impression que Wang Lin pouvait soutenir les cieux. Le fourneau du Dieu Ancien étincela et il apparut devant un tourbillon.
 
 Ce tourbillon ne pouvait être détruit par la force; Wang Lin avait déjà tiré les leçons de ses expériences passées.
 
 Dès que son corps apparut, les yeux de Wang Lin s'illuminèrent. Il laissa échapper un rugissement et, au lieu d'invoquer le bouclier de lumière azur, il affronta le tourbillon de son propre corps!
 
-« Je veux voir comment la puissance de ce tourbillon se compare à mon corps de dieu ancestral! »
+« Je veux voir comment la puissance de ce tourbillon se compare à mon corps de Dieu Ancien! »
 
 Le tourbillon se déplaçait à une vitesse stupéfiante et percuta instantanément Wang Lin. Le contact étroit avec lui fit ressentir à Wang Lin comme si une vague déchaînée s'écrasait contre lui.
 
@@ -20,15 +20,15 @@ En particulier, des vents violents hurlaient au sein de cette vague, cherchant �
 
 Lorsque le tourbillon percuta pleinement le corps de Wang Lin et tenta de le mettre en pièces, il s'engouffra également en lui. Des craquements sinistres résonnèrent de l'intérieur du corps de Wang Lin, et celui-ci fut contraint de reculer de trois pas.
 
-Alors qu'il reculait, le fourneau de dieu ancestral brilla. Il réapparut à mille pieds de là et esquiva l'attaque de quatre tourbillons.
+Alors qu'il reculait, le fourneau du Dieu Ancien brilla. Il réapparut à mille pieds de là et esquiva l'attaque de quatre tourbillons.
 
 L'expression de Wang Lin était grave. En utilisant son corps comme test, il put calculer avec précision combien de tourbillons sa carcasse pouvait supporter.
 
-« Un cultivateur ordinaire serait déchiqueté, et même son âme originelle ne pourrait s'échapper! Même moi, avec mon corps de dieu ancestral, j'ai ressenti la douleur. Qu'est-ce que ce tourbillon, par tous les diables?! » Une lueur de froideur passa dans les yeux de Wang Lin alors qu'un nouveau tourbillon fonçait vers lui.
+« Un cultivateur ordinaire serait déchiqueté, et même son âme originelle ne pourrait s'échapper! Même moi, avec mon corps de Dieu Ancien, j'ai ressenti la douleur. Qu'est-ce que ce tourbillon, par tous les diables?! » Une lueur de froideur passa dans les yeux de Wang Lin alors qu'un nouveau tourbillon fonçait vers lui.
 
-Une lumière bleue jaillit autour de Wang Lin tandis que le bouclier de lumière azur apparaissait et tournait autour de lui.
+Une lumière bleue jaillit autour de Wang Lin tandis que le bouclier de lumière azur apparaissait, atteignait mille pieds de large et tournait autour de lui.
 
-« Si j'utilise le bouclier de lumière azur et mon corps de dieu ancestral, je devrais pouvoir repousser ces tourbillons! » Wang Lin se précipita droit sur le tourbillon.
+« Si j'utilise le bouclier de lumière azur et mon corps de Dieu Ancien, je devrais pouvoir repousser ces tourbillons! » Wang Lin se précipita droit sur le tourbillon.
 
 Trois tourbillons se déplaçaient plus vite que les autres et, en chargeant Wang Lin, ils percutèrent le bouclier de lumière azur. Un grondement assourdissant retentit et le bouclier commença à vaciller sous l'impact.
 
@@ -36,11 +36,11 @@ L'impact fut d'une violence inimaginable, forçant Wang Lin à battre en retrait
 
 Tandis que le bouclier de lumière azur tournait frénétiquement, Wang Lin recula encore une fois. C'était une retraite sans fin; au fur et à mesure que les tourbillons continuaient de l'assaillir, il reculait inlassablement.
 
-Au moment où les neuf tourbillons se dissipèrent, Wang Lin avait reculé sur une distance inconnue. Bien qu'il fût un dieu ancestral, il n'était qu'au stade des cinq étoiles. Malgré le bouclier de lumière azur qui bloquait les assauts, la douleur ressentie fit perler une sueur froide sur son front.
+Au moment où les neuf tourbillons se dissipèrent, Wang Lin avait reculé sur une distance inconnue. Bien qu'il fût un Dieu Ancien, il n'était qu'au stade des cinq étoiles. Malgré le bouclier de lumière azur qui bloquait les assauts, la douleur ressentie fit perler une sueur froide sur son front.
 
 La crise n'était pas terminée; quinze autres tourbillons fonçaient vers lui. Ces quinze tourbillons semblaient s'aligner avant de charger Wang Lin de concert.
 
-Même en utilisant le fourneau de dieu ancestral pour esquiver, il ne pourrait pas les séparer en raison de leur vitesse fulgurante.
+Même en utilisant le fourneau du Dieu Ancien pour esquiver, il ne pourrait pas les séparer en raison de leur vitesse fulgurante.
 
 Grondement, grondement, grondement, grondement!
 
@@ -54,17 +54,17 @@ Un immense cratère jonchait le sol. Wang Lin avait déjà repris sa taille huma
 
 En contemplant le désert de sable noir et lisse, Wang Lin poussa un soupir de soulagement, bien que la peur persiste dans son regard.
 
-« C'est la première fois que mon corps de dieu ancestral à cinq étoiles est ainsi blessé. J'ignore ce qu'était ce tourbillon, mais sa puissance était phénoménale. Si je l'avais laissé se diviser une fois de plus, je n'aurais pas pu résister aujourd'hui. » L'expression de Wang Lin était sombre. Après la fusion de son corps originel et de son avatar, il pouvait combattre des cultivateurs du stade Purificateur du Nirvana.
+« C'est la première fois que mon corps de Dieu Ancien à cinq étoiles est ainsi blessé. J'ignore ce qu'était ce tourbillon, mais sa puissance était phénoménale. Si je l'avais laissé se diviser une fois de plus, je n'aurais pas pu résister aujourd'hui. » L'expression de Wang Lin était sombre. Après la fusion de son corps originel et de son avatar, il pouvait combattre des cultivateurs du stade Purificateur du Nirvana.
 
-Initialement, il pensait être en sécurité face à quiconque n'était pas un monstre au stade avancé du Purificateur du Nirvana ou du Briseur du Nirvana, surtout compte tenu de l'immense puissance de ce corps de dieu ancestral.
+Initialement, il pensait être en sécurité face à quiconque n'était pas un monstre au stade avancé du Purificateur du Nirvana ou du Briseur du Nirvana, surtout compte tenu de l'immense puissance de ce corps de Dieu Ancien.
 
-Pourtant, à cet instant, Wang Lin ressentit le danger. En regardant ce désert de sable noir, il eut l'impression d'être revenu en Terre des Dieux Ancestraux. Il devait faire preuve d'une prudence extrême, car la moindre erreur pourrait lui coûter la vie.
+Pourtant, à cet instant, Wang Lin ressentit le danger. En regardant ce désert de sable noir, il eut l'impression d'être revenu en Terre de l'Ancien Dieu. Il devait faire preuve d'une prudence extrême, car la moindre erreur pourrait lui coûter la vie.
 
 « Récemment, j'ai eu la vie trop facile. L'augmentation de ma culture et l'intégration de mon corps originel m'ont rendu moins vigilant qu'auparavant... » Wang Lin songea silencieusement. Il serra le poing, le regard empreint de méfiance.
 
 Ce type de regard n'avait pas brillé dans ses yeux depuis longtemps. Grâce à cette crise, il avait retrouvé l'attitude prudente qui était la sienne autrefois.
 
-« Ceci est la grotte de l'Empereur Céleste Qing Lin. Elle est semée d'embûches, je ne dois faire preuve d'aucune négligence. Je dois rester sur mes gardes! » Wang Lin prit une profonde inspiration. Il ne déploya pas son sens divin, mais le fit circuler prudemment autour de lui.
+« Ceci est la grotte de l'Empereur Céleste Qing Lin. Elle est semée d'embûches, je ne dois faire preuve d'aucune négligence. Je dois rester sur mes gardes! » Wang Lin prit une profonde inspiration. Il ne déploya pas entièrement son sens divin, mais le fit circuler prudemment autour de lui.
 
 Il avança lentement.
 
@@ -72,19 +72,19 @@ Grâce à sa force mentale, il réalisa que bien qu'il y ait une chance que le g
 
 Bien que la puissance du gaz gris fût forte au début, il pouvait encore y résister. Cependant, il avait le vague sentiment que s'il déployait à nouveau son sens divin, ce qui surgirait ne serait pas du gaz gris, mais tout autre chose.
 
-Ce sentiment était très étrange, et il découlait des mille ans passés par Wang Lin à comprendre les lois célestes.
+Ce sentiment était très étrange, et il découlait de plus de mille ans passés par Wang Lin à comprendre les lois célestes.
 
 Après avoir réfléchi un moment, les yeux de Wang Lin s'illuminèrent et il frappa son sac de stockage. Le drapeau d'âme apparut dans sa main et s'ouvrit dans un bruissement. La main gauche de Wang Lin plongea à l'intérieur pour en extraire un fragment d'âme.
 
 Ce fragment d'âme arborait une expression féroce, mais il avait depuis longtemps perdu sa volonté après avoir été raffiné dans le drapeau d'âme. Il flotta respectueusement devant Wang Lin. Ce dernier rangea le drapeau et pointa l'espace entre les sourcils du fragment d'âme, y laissant une parcelle de son sens divin.
 
-Une fois cela fait, il s'élança en avant. Quinze minutes plus tard, il se trouvait très loin du fragment d'âme. Il prit une profonde inspiration mais ne déploya pas son sens divin. Au lieu de cela, il envoya un message!
+Une fois cela fait, il s'élança en avant. Quinze minutes plus tard, il se trouvait très loin du fragment d'âme. Il prit une profonde inspiration mais ne déploya pas son sens divin. Au lieu de cela, il mit sa pensée en mouvement!
 
 Le sens divin laissé sur le fragment d'âme se propagea. Cependant, à cet instant précis, un sentiment de danger inimaginable envahit l'esprit de Wang Lin. Il rompit immédiatement sa connexion sans la moindre hésitation.
 
 Au moment où le lien fut coupé, Wang Lin vit vaguement le ciel au-dessus du fragment d'âme s'agiter. Un rayon de lumière grise tomba des cieux et frappa le fragment, l'anéantissant totalement!
 
-Une sueur froide perla sur le front de Wang Lin. Heureusement, il s'était préparé et avait coupé sa connexion assez vite pour éviter que cela ne provoque de réaction à son emplacement. Il fixa le ciel au loin, le cuir chevelu picotant de terreur. Bien que la lumière grise eût disparu en un instant, la sensation que Wang Lin éprouva était plus terrifiante que des dizaines de tourbillons fusionnés.
+Une sueur froide perla sur le front de Wang Lin. Heureusement, il s'était préparé et avait coupé sa connexion assez vite pour éviter que cela ne provoque de réaction à son emplacement. Il fixa le ciel au loin, le cuir chevelu picotant de terreur. Bien que la lumière grise eût disparu en un instant, la sensation que Wang Lin éprouva était plus terrifiante, d'innombrables fois, que des dizaines de tourbillons fusionnés.
 
 Après une longue réflexion, Wang Lin continua sa progression à travers le désert de sable noir. Il n'y avait ni nuit ni jour; le ciel restait perpétuellement sombre, comme obstrué par une tempête de poussière.
 

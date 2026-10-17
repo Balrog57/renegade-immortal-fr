@@ -14,7 +14,7 @@ C'est pour cette raison que Wang Lin n'avait pas encore étudié ces deux sorts 
 
 Soudain, ses yeux s'illuminèrent et son corps vacilla. Un vent noir enveloppa la zone tandis qu'il criait: « Ta Shan, Senior Yun Quezi, gardez le centre! Je vais m'occuper de ces créatures! »
 
-Wang Lin fit un pas et se fondit dans le vide. Lorsqu'il réapparut, il se tenait aux côtés d'une autre momie. Ses doigts de la main droite formèrent une épée et ses yeux révélèrent une intention de tonnerre. La momie se retourna en crachant une aura de mort, et un tatouage vola vers Wang Lin.
+Wang Lin fit un pas et se fondit dans le vide. Lorsqu'il réapparut, il se tenait aux côtés d'une autre momie. Ses doigts de la main droite formèrent une épée et ses yeux révélèrent une intention de tonnerre. La momie se retourna en crachant une aura de mort, et une rune vola vers Wang Lin.
 
 Wang Lin fronça légèrement les sourcils; il recula et fusionna avec le monde pour éviter l'attaque. Il réapparut à côté d'une autre momie et lança une attaque fulgurante du bout des doigts.
 
@@ -80,7 +80,7 @@ C'était comme si la foudre partait en pèlerinage pour vénérer l'ancêtre de 
 
 C'était comme la fin du monde. Les expressions de tous les cultivateurs de la planète Suzaku changèrent radicalement. Le choc qui ébranlait leurs âmes les faisait trembler; ils étaient comme des fourmis face à la puissance des cieux. Quant aux mortels, ils se prosternèrent tous au sol.
 
-Le phénomène ne toucha pas que la planète Suzaku. À cet instant, un groupe de cent cultivateurs voyageait dans l'espace, mené par le cultivateur aux six doigts.
+Le phénomène ne toucha pas que la planète Suzaku. À cet instant, un groupe de plusieurs centaines de cultivateurs voyageait dans l'espace, mené par le cultivateur aux six doigts.
 
 En mouvement, son expression changea brusquement et il fixa l'horizon. Grâce à sa culture, il pouvait vaguement sentir que la densité du tonnerre devant lui dépassait l'entendement.
 
@@ -100,7 +100,7 @@ La scène se répéta de manière effrénée. Finalement, lorsque le tonnerre at
 
 Cette explosion créa un orage d'une puissance inouïe. Alors qu'il balayait la zone, toutes les momies s'écroulèrent et une immense quantité d'énergie d'origine céleste se précipita dans le corps de Wang Lin. Le noyau d'origine céleste à l'intérieur de lui grandit frénétiquement. En un instant, il multiplia sa taille pour atteindre celle d'un poing de nourrisson!
 
-Parallèlement, tandis que la rivière souterraine envahissait l'espace, les âmes étaient aspirées par son courant. Le ressentiment au sein de la rivière devint bien plus puissant. Des centaines d'âmes célestes luttaient ou semblaient chercher le repos dans les eaux de la rivière. C'était une scène si étrange qu'un mortel en aurait perdu la raison!
+Parallèlement, tandis que la rivière souterraine envahissait l'espace, les âmes étaient aspirées par son courant. Le ressentiment au sein de la rivière devint bien plus puissant. Plus d'une centaine d'âmes d'immortels luttaient ou semblaient chercher le repos dans les eaux de la rivière. C'était une scène si étrange qu'un mortel en aurait perdu la raison!
 
 Lorsque tout le tonnerre s'effondra pour former cet orage suprême, toute la puissance se concentra en un seul point. Cela provoqua un impact titanesque qui secoua l'intégralité de la 17e couche.
 
@@ -110,7 +110,7 @@ L'esprit de Yun Quezi resta totalement vide face à ce spectacle. Il avait déj�
 
 Le corps du garçon à la grosse tête trembla. Le souvenir du sort qui l'avait tué en un éclair le fit frissonner, et sa peur envers Wang Lin s'intensifia.
 
-Ta Shan restait impassible, mais Lei Ji eut un haut-le-cœur. Le tonnerre devant lui l'avait bouleversé. Devenir la monture d'un être aussi puissant ne lui inspirait aucune rancœur; au contraire, il ressentait un sentiment d'honneur.
+Ta Shan restait impassible, mais Lei Ji inspira brusquement. Le tonnerre devant lui l'avait bouleversé. Devenir la monture d'un être aussi puissant ne lui inspirait aucune rancœur; au contraire, il ressentait un sentiment d'honneur.
 
 Le monde de la culture respecte les forts!
 

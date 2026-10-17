@@ -130,7 +130,7 @@ Ces événements laissèrent tous ceux qui en entendirent parler dans un état d
 
 L'homme aux grandes oreilles acquiesça respectueusement. Il tourna le regard vers Xue Yue, affichant une expression de mélancolie et de nostalgie.
 
-Une fois l'homme parti, le vieil homme se leva et rangea les pièces de bronze. Il murmura pour lui-même: « Il reste encore 12 ans. Zhuque Zi, nous avions convenu que celui qui perdrait subirait une punition pendant mille ans. Dans 12 ans, ma propre pénitence touchera à sa fin! »
+Une fois l'homme parti, le vieil homme se leva et rangea les pièces de bronze. Il murmura pour lui-même: « Il reste encore 12 ans. Zhu Quezi, nous avions convenu que celui qui perdrait subirait une punition pendant mille ans. Dans 12 ans, ma propre pénitence touchera à sa fin! »
 
 Il prit une profonde inspiration et disparut.
 

@@ -36,15 +36,15 @@ Instantanément, toute la poudre noire entourant le Serpent aux yeux de lune ém
 
 Sur l'une de ces planètes, presque tous les cultivateurs avaient été mobilisés. Ils avaient capturé des bêtes démoniaques dans leurs habitats respectifs pour les emprisonner au sein d'une immense formation.
 
-Cette formation décrivait un cercle d'un rayon de 5 000 kilomètres. Les bêtes démoniaques y étaient entassées avec une densité extrême; elles étaient au moins des dizaines de milliers!
+Cette formation décrivait un cercle d'un rayon de 5 000 kilomètres. Les bêtes démoniaques y étaient entassées avec une densité extrême; elles étaient au moins dix mille!
 
 Une multitude de cultivateurs flottaient dans le ciel, à l'extérieur de la formation, comme s'ils attendaient un signal. Un Ancien aux cheveux roux se trouvait parmi eux, affichant un rang élevé. Les cultivateurs environnants gravitaient autour de lui, faisant de lui le centre de leurs mouvements. Lorsque la femme en robe bleue donna l'ordre, sa voix sembla percer le vide pour voyager à travers les étoiles grâce à un sort spécial destiné à transmettre ses commandements.
 
 Aussitôt, les yeux de l'Ancien aux cheveux roux s'illuminèrent et il agita sa main droite!
 
-D'un geste ample, tous les cultivateurs alentour lancèrent une attaque coordonnée de sorts et de trésors magiques sur les dizaines de milliers de bêtes démoniaques qui les subissaient en dessous.
+D'un geste ample, tous les cultivateurs alentour lancèrent une attaque coordonnée de sorts et de trésors magiques sur les dix mille et quelques bêtes démoniaques qui les subissaient en dessous.
 
-Des vagues de rugissements de douleur résonnèrent dans la formation, qui se mua en une véritable mer de sang. La formation s'activa et absorba intégralement le sang de ces dizaines de milliers de créatures!
+Des vagues de rugissements de douleur résonnèrent dans la formation, qui se mua en une véritable mer de sang. La formation s'activa et absorba intégralement le sang de ces dix mille et quelques créatures!
 
 Cette scène se répétait sur près de cent autres planètes!
 
@@ -58,7 +58,7 @@ Sous cette odeur de sang écrasante, la poudre noire se mit à bouger mystérieu
 
 La poudre noire se mua en une sphère gigantesque qui emprisonna le serpent à l'intérieur. Seuls ses rugissements étouffés continuaient de résonner parmi les étoiles.
 
-À ce moment précis, les dizaines de milliers de cultivateurs de l'Alliance qui avaient sauté des tours avant leur effondrement chargèrent vers les cultivateurs de Luotian!
+À ce moment précis, les dix mille et quelques cultivateurs de l'Alliance qui avaient sauté des tours avant leur effondrement chargèrent vers les cultivateurs de Luotian!
 
 Cette scène stupéfia ces derniers. Lie Yunzi et l'ancêtre de la famille Shengong se regardèrent, puis sautèrent immédiatement du bois géant. La main droite de Lie Yunzi s'élança dans le vide pour rassembler l'énergie d'origine du monde, qu'il condensa en près de cent petits fanions!
 
@@ -82,11 +82,11 @@ L'âme originelle de Lie Yunzi désigna l'un des Parchemins de Bataille et proje
 
 Alors que ce sens divin se propageait, l'un des 17 Lou Fu explosa soudainement, laissant sortir une silhouette sanglante.
 
-Cette silhouette était un homme fait de sang pur. Dès son apparition, il poussa un rugissement et chargea dans la mêlée. Le Dieu du Sang et ses compagnons ne restaient pas en retrait non plus; le Saint Démon Noir et le Saint Démon du Dragon des Nuages attaquaient le groupe du Dieu du Sang. Les deux camps avaient ouvert un nouveau champ de bataille où aucun ne parvenait à prendre l'avantage!
+Cette silhouette était un homme fait de sang pur. Dès son apparition, il poussa un rugissement et chargea dans la mêlée. Le Dieu de Sang et ses compagnons ne restaient pas en retrait non plus; le Saint Démon Noir et le Saint Démon du Dragon des Nuages attaquaient le groupe du Dieu de Sang. Les deux camps avaient ouvert un nouveau champ de bataille où aucun ne parvenait à prendre l'avantage!
 
-L'être de sang se dirigea vers l'affrontement entre le Dieu du Sang et le Saint Démon Noir. Dès son arrivée, le Saint Démon Noir fut contraint dans une situation désastreuse et dut battre en retraite.
+L'être de sang se dirigea vers l'affrontement entre le Dieu de Sang et le Saint Démon Noir. Dès son arrivée, le Saint Démon Noir fut contraint dans une situation désastreuse et dut battre en retraite.
 
-L'âme originelle de Lie Yunzi trembla, et il dut s'asseoir immédiatement pour se rétablir. Bien que sa culture ne fût pas aussi puissante que celle du Maître Yan Leizi ou même du Dieu du Sang, son rôle dans cette guerre entre Luotian et l'Alliance était crucial!
+L'âme originelle de Lie Yunzi trembla, et il dut s'asseoir immédiatement pour se rétablir. Bien que sa culture ne fût pas aussi puissante que celle du Maître Yan Leizi ou même du Dieu de Sang, son rôle dans cette guerre entre Luotian et l'Alliance était crucial!
 
 Les 18 Lou Fu n'appartenaient pas à la famille Zhan, mais seule la famille Zhan possédait le sort pour les contrôler. Ce secret ne pouvait être transmis à des étrangers; seuls quelques membres de la lignée Zhan pouvaient l'utiliser!
 
@@ -104,7 +104,7 @@ Son sens divin pénétra le parchemin et se transforma en une vague incroyable q
 
 Cet être poussa un rugissement et chargea directement vers l'endroit où l'ancêtre de la famille Shengong combattait le sceau retenant le Serpent aux yeux de lune!
 
-Parmi les cultivateurs de l'Alliance, la femme en robe bleue fronça les sourcils. Elle pointa du doigt une main semblable au jade, et l'un des membres du Clan des Démons Géants poussa un rugissement avant de s'avancer. La planète de culture qu'il portait n'était pas très grande, ne représentant qu'environ 1 % d'une planète normale. Néanmoins, le démon géant paraissait minuscule face à elle. Mais il était extrêmement rapide et, dans sa course, il la lança sans aucune pitié. La planète de culture s'abattit directement vers les 15 Lou Fu restants.
+Parmi les cultivateurs de l'Alliance, la femme en robe bleue fronça les sourcils. Elle pointa vers l'avant sa main semblable au jade, et l'un des membres du Clan des Démons Géants poussa un rugissement avant de s'avancer. La planète de culture qu'il portait n'était pas très grande, ne représentant qu'environ 1 % d'une planète normale. Néanmoins, le démon géant paraissait minuscule face à elle. Mais il était extrêmement rapide et, dans sa course, il la lança sans aucune pitié. La planète de culture s'abattit directement vers les 15 Lou Fu restants.
 
 Un vieil homme flottait encore sur cette planète de culture. Ses yeux brillèrent alors qu'il fonçait rapidement vers les 15 Lou Fu, porté par l'astre.
 

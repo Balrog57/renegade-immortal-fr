@@ -16,7 +16,7 @@ Xi Zifeng était rongée par l'anxiété tandis qu'elle s'enfuyait, les dents se
 
 Un homme d'âge moyen ricana en frappant son sac de rangement pour en sortir une aiguille dorée. Il la lança, et celle-ci vola droit vers Xi Zifeng.
 
-« Cette cultivatrice de Luotian sera mon 19ème fourneau de culture. Haha, je n'ai jamais goûté à une femme de Luotian auparavant. Il semble que je ne sois pas venu ici en vain! » L'homme d'âge moyen éclata de rire, tandis que l'épée volante sous ses pieds s'accélérait encore davantage.
+« Cette cultivatrice de Luotian sera mon neuvième fourneau de culture. Haha, je n'ai jamais goûté à une femme de Luotian auparavant. Il semble que je ne sois pas venu ici en vain! » L'homme d'âge moyen éclata de rire, tandis que l'épée volante sous ses pieds s'accélérait encore davantage.
 
 Voyant que l'aiguille dorée allait lui transpercer le dos, Xi Zifeng fit brusquement demi-tour et forma un sceau. Un éclair de lumière argentée jaillit pour tenter d'arrêter l'aiguille.
 
@@ -60,11 +60,11 @@ Cependant, il fut incapable d'émettre le moindre son, car son corps s'effondra 
 
 Un cultivateur de ce niveau était véritablement insignifiant face à Wang Lin!
 
-Tout comme dans la Terre des Démons, lorsque le Démon Dispersé pouvait faire vaciller le corps de Wang Lin par un simple reniflement glacial; le Wang Lin d'aujourd'hui avait atteint le niveau que possédait alors le Démon Dispersé!
+Tout comme dans la Terre des Esprits Démoniaques, lorsque le Démon Dispersé pouvait faire s'effondrer le corps de Wang Lin par un simple grognement glacial; le Wang Lin d'aujourd'hui avait atteint le niveau que possédait alors le Démon Dispersé!
 
 L'âme originelle de l'homme d'âge moyen s'échappa et commença à se dissiper. Alors qu'elle était sur le point de s'éteindre, une voix féminine émana du vide:
 
-« Tu es bel et bien digne d'être le Céleste du Tonnerre de Luotian, Xu Mu! » À l'instant où cette voix apparut, une silhouette surgit des étoiles lointaines. C'était un homme d'âge moyen au visage jaune terreux. Derrière lui s'étendaient d'innombrables ombres noires semblables à de longs manteaux flottant parmi les astres.
+« Tu es bel et bien digne d'être le Céleste du Tonnerre de Luotian, Xu Mu! » À l'instant où cette voix apparut, une silhouette surgit des étoiles lointaines. C'était un homme d'âge moyen vêtu d'une robe bleue, au visage jaune terreux. Derrière lui s'étendaient d'innombrables ombres noires semblables à de longs manteaux flottant parmi les astres.
 
 L'être qui parlait était le cultivateur aux six doigts!
 
@@ -88,7 +88,7 @@ En un clin d'œil, toutes les ombres furent balayées, laissant la Coupe Célest
 
 L'expression du cultivateur aux six doigts changea; il laissa échapper un grognement glacial avant de faire un pas en avant. Sa main droite traça un sceau et les ombres derrière lui se condensèrent. En un instant, elles fusionnèrent pour former une petite sphère noire.
 
-Une aura capable de bouleverser l'esprit émana de cette sphère et enveloppa la zone. Celle-ci vola à une vitesse fulgurante vers la Coupe Céleste, semblant capable de percer le vide pour la rejoindre instantanément.
+Une aura capable de bouleverser l'esprit émana de cette sphère et enveloppa la zone. Celle-ci vola à une vitesse fulgurante vers la Coupe Céleste, semblant capable de percer le vide pour la rejoindre instantanément. Au moment où elle la toucha, la sphère s'effondra d'elle-même et se mua en d'innombrables volutes de qi noir entrelacées, qui enveloppèrent la Coupe Céleste couche après couche.
 
 Le cultivateur aux six doigts rit et agita sa main droite. Un impact puissant se produisit près de l'âme originelle, qui fut immédiatement projetée au loin par le choc. En un éclair, elle était sur le point de disparaître parmi les étoiles.
 

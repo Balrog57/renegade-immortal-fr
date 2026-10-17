@@ -96,11 +96,11 @@ Parmi eux se trouvait une femme portant un voile. Ses yeux, sous le tissu, étai
 
 « Tuez!! » Un rugissement capable de percer les cieux jaillit du Cimetière des Immortels. Ce n'était pas le cri d'un seul homme, mais celui de tous les membres du Clan de l'Immortel Délaissé. Ce hurlement traversa les hautes sphères et résonna à travers toute la terre.
 
-À ce moment-là, un rugissement furieux s'éleva de la grotte où Zhuque Zi pratiquait, au sommet du Mont Suzaku. Le cri fit exploser la grotte, ne laissant derrière lui que de la poussière.
+À ce moment-là, un rugissement furieux s'éleva de la grotte où Zhu Quezi pratiquait, au sommet du Mont Suzaku. Le cri fit exploser la grotte, ne laissant derrière lui que de la poussière.
 
-Zhuque Zi, vêtu d'une robe rouge, apparut dans le vide. Il regarda en direction du Cimetière des Immortels avec une expression extrêmement sombre.
+Zhu Quezi, vêtu d'une robe rouge, apparut dans le vide. Il regarda en direction du Cimetière des Immortels avec une expression extrêmement sombre.
 
-« Maudites reliques du Clan de l'Immortel Délaissé. Vous cherchez la mort!!! » Zhuque Zi tendit la main et toutes les nuées semblèrent converger vers sa paume. Bientôt, un jeton blanc formé de nuages apparut dans sa main.
+« Maudites reliques du Clan de l'Immortel Délaissé. Vous cherchez la mort!!! » Zhu Quezi tendit la main et toutes les nuées semblèrent converger vers sa paume. Bientôt, un jeton blanc formé de nuages apparut dans sa main.
 
 Il le frappa de la main gauche et le jeton se divisa en deux, puis en quatre, et ainsi de suite.
 

@@ -8,7 +8,7 @@ slug: le-cadeau-de-qing-shui
 ---
 L'aura de mort qui enveloppait son corps absorba la majeure partie de sa force vitale avant de flotter vers Li Muwan. La force vitale extraite de Wang Lin fut injectée dans Li Muwan par une méthode mystérieuse.
 
-L'ancêtre de la famille Xiang déclara d'une voix lente: « Le sortilège Qi Xi exige que le processus dure sept jours. Si cette Âme Naissante peut subsister sept jours, elle pourra naturellement renaître. »
+L'ancêtre de la famille Xiang déclara d'une voix lente: « Le sortilège Qixi exige que le processus dure sept jours. Si cette Âme Naissante peut subsister sept jours, elle pourra naturellement renaître. »
 
 Wang Lin réfléchit en silence tout en contemplant l'Âme Naissante de Li Muwan. Aucun regret ne pesait sur son cœur.
 
@@ -18,11 +18,11 @@ L'aura de mort autour de Li Muwan continuait d'injecter de la force vitale en el
 
 Le temps s'écoulait lentement. Le premier jour, le deuxième jour...
 
-Cependant, au troisième jour, la condensation progressive de l'Âme Naissante de Li Muwan s'interrompit avant même que toute la force vitale sacrifiée par Wang Lin ne soit épuisée.
+Cependant, au troisième jour, la condensation progressive de l'Âme Naissante de Li Muwan s'interrompit, car la force vitale de Wang Lin avait entièrement disparu.
 
-L'ancêtre de la famille Xiang dit lentement: « Hélas... le sortilège Qi Xi remonte à des temps anciens et peut défier les cieux. Ce sort est extrêmement puissant; il peut même ramener un mort à la vie, pourvu qu'il y ait suffisamment de force vitale! »
+L'ancêtre de la famille Xiang dit lentement: « Hélas... le sortilège Qixi remonte à des temps anciens et peut défier les cieux. Ce sort est extrêmement puissant; il peut même ramener un mort à la vie, pourvu qu'il y ait suffisamment de force vitale! »
 
-« La force vitale transférée par le sortilège Qi Xi n'est pas constante; elle est totalement disproportionnée. Qi Xi représente sept jours. Pour chaque jour qui passe, la force vitale requise est cent fois supérieure à celle du jour précédent. Le septième jour est le plus crucial, et la quantité de force vitale nécessaire est inimaginable! Votre force vitale n'était suffisante que pour deux jours. Même si j'avais pris plus de la moitié de votre essence, elle ne vous aurait pas permis d'atteindre le troisième jour! »
+« La force vitale transférée par le sortilège Qixi n'est pas équivalente; elle est totalement disproportionnée. Qixi représente sept jours. Pour chaque jour qui passe, la force vitale requise est cent fois supérieure à celle du jour précédent. Le septième jour est le plus crucial, et la quantité de force vitale nécessaire est inimaginable! Ta force vitale n'était suffisante que pour deux jours. Même si je n'avais pas exigé la moitié de ta force vitale comme prix de mon intervention, elle n'aurait pas suffi pour tenir le troisième jour! »
 
 « Xu Mu, possèdes-tu quelque chose capable d'accroître la force vitale? »
 
@@ -30,17 +30,17 @@ Privée d'injection de force vitale, l'Âme Naissante de Li Muwan commença à s
 
 « Continue d'absorber ma durée de vie... » Wang Lin regarda Li Muwan d'un regard empreint de douceur. Cette femme l'avait attendu pendant des centaines d'années pour une simple promesse.
 
-Seule cette femme avait réussi à s'immiscer dans son cœur au cours de ces mille ans de culture. Pourtant, ce n'est qu'après son départ, alors qu'il n'avait plus que des souvenirs pour l'accompagner dans sa solitude, qu'il réalisa qu'il l'avait toujours aimée.
+Seule cette femme avait réussi à s'immiscer dans son cœur au cours de ces mille ans de culture. Pourtant, ce n'est qu'après son départ, alors qu'il n'avait plus que des souvenirs pour l'accompagner dans sa solitude, qu'il réalisa qu'il s'était toujours soucié d'elle.
 
 Il la regarda, se remémorant les instants de vie ou de mort et la tristesse d'être sans foyer...
 
-Une distance les séparait. Ce n'était pas une grande distance, mais c'était comme si elle se trouvait sur la rive opposée d'un fleuve. Il était d'un côté, elle de l'autre. Entre eux coulait un chagrin incessant qui s'était transformé en ce fleuve. Pourtant, peu importait la puissance du courant, rien ne pouvait effacer la fermeté de leurs regards ni leur patience.
+Une distance les séparait. Ce n'était pas une grande distance, mais c'était comme si elle se trouvait sur la rive opposée d'un fleuve. Il était d'un côté, elle de l'autre. Entre eux coulaient mille ans de chagrin et de douleur incessants, transformés en ce fleuve qui s'éloignait au loin. Pourtant, peu importait la puissance du courant, rien ne pouvait effacer la fermeté de leurs regards ni leur patience.
 
 C'était comme si une musique de cithare empreinte de mélancolie résonnait à nouveau à ses oreilles. Le son de la cithare, au lever et au coucher du soleil, semblait jeter un pont entre Wang Lin et Li Muwan, leur permettant de se sentir véritablement proches.
 
 Soudain, l'aura de mort se scinda: une extrémité enveloppa Li Muwan, tandis que l'autre s'enroula autour de Wang Lin.
 
-La force vitale fut continuellement extraite du corps de Wang Lin par l'aura de mort pour être injectée dans l'Âme Naissante de Li Muwan. Même s'il fallait échanger des dizaines de milliers de parts de sa propre vie pour obtenir un infime fragment de vitalité pour elle, il n'aurait aucun regret!
+La force vitale fut continuellement extraite du corps de Wang Lin par l'aura de mort pour être injectée dans l'Âme Naissante de Li Muwan. Même s'il fallait cent, voire mille fois plus de force vitale pour obtenir un infime souffle de vie pour elle, il n'aurait aucun regret!
 
 Il regarda silencieusement Li Muwan et esquissa un doux sourire. Son apparence vieillit brusquement et les rides couvrirent son visage. Une quantité immense de force vitale s'évaporait, lui donnant l'impression d'avoir vécu mille ans en un instant.
 
@@ -62,9 +62,9 @@ La force vitale qui passait du corps original à l'avatar était consommée à u
 
 Le temps passa lentement. Le troisième jour, le quatrième jour...
 
-Au cinquième jour, le corps original de Wang Lin devint totalement terne. Ses cheveux roux étaient désormais très pâles et une part colossale de sa force vitale avait été consumée. Bien que son corps original possédât la stature d'un Dieu Ancien, il ne pouvait plus résister.
+Au cinquième jour, le corps original de Wang Lin devint totalement terne. Ses cheveux roux avaient perdu tout éclat et une part colossale de sa force vitale avait été consumée. Bien que son corps original possédât la stature d'un Dieu Ancien, il ne pouvait plus résister.
 
-Après le quatrième jour du sortilège Qi Xi, l'Âme Naissante de Li Muwan s'était totalement recondensée. L'aura de mort avait été entièrement évincée de son essence.
+Après le quatrième jour du sortilège Qixi, l'Âme Naissante de Li Muwan s'était totalement recondensée. L'aura de mort avait été entièrement évincée de son essence.
 
 Toutefois, ce mince fragment de vitalité ne parvint pas à se stabiliser une fois que Wang Lin fut à bout de force. Ce n'était pas suffisant pour la réveiller.
 
@@ -80,11 +80,11 @@ Quand Qing Shui vit l'état actuel de Wang Lin, il fut surpris mais resta silenc
 
 Quant à Xiang Yundong, il semblait déjà s'attendre à une telle issue. Il regarda Wang Lin avant de détourner les yeux.
 
-Wang Lin replaça soigneusement l'Âme Naissante de Li Muwan dans son corps. Puis, il regarda Qing Shui et dit calmement: « Senior Frère, partons. »
+Wang Lin rangea soigneusement l'Âme Naissante de Li Muwan dans son sac de rangement. Puis, il regarda Qing Shui et dit calmement: « Senior Frère, partons. »
 
 Qing Shui laissa échapper un soupir et agita ses manches. Il emmena Wang Lin et ils s'envolèrent au loin.
 
-Xiang Yundong observa la direction dans laquelle Wang Lin avait disparu et esquissa un sourire en murmurant: « Xu Mu, bien que ce vieil homme ait comploté contre toi, je ne te l'ai pas caché. Avec ton savoir, tu aurais dû comprendre qu'enfin, pour récupérer cette Âme Naissante, il te fallait une quantité immense de vitalité. Ainsi, au final, nous ne nous devons rien! »
+Xiang Yundong observa la direction dans laquelle Wang Lin avait disparu et esquissa un sourire en murmurant: « Xu Mu, bien que ce vieil homme ait comploté contre toi, je ne te l'ai pas caché. Avec ton savoir, tu aurais dû comprendre depuis longtemps que, pour rétablir cette Âme Naissante, le prix serait une quantité immense de vitalité. Ainsi, au final, nous ne nous devons rien! »
 
 Qing Shui et Wang Lin ne furent plus que deux rayons de lumière traversant le ciel étoilé.
 
@@ -110,7 +110,7 @@ Le fait que Wang Lin n'ait pas pénétré dans le bassin céleste avait profond�
 
 Cependant, tout cela changea lorsque Wang Lin montra qu'il était prêt à sacrifier presque toute sa force vitale pour une femme. Cela raviva les souvenirs de Qing Shui.
 
-En regardant Wang Lin, Qing Shui eut l'impression de se voir lui-même, et une douleur inimaginable lui traversa la tête. Il ne pourrait jamais oublier qu'après son éveil, il avait découvert cette mare de sang sur le sol, les yeux clos de son amante et ce beau visage...
+En regardant Wang Lin, Qing Shui eut l'impression de se voir lui-même, et une douleur lancinante lui transperça le cœur. Il ne pourrait jamais oublier qu'après son éveil, il avait découvert cette mare de sang sur le sol, les yeux clos de son amante et ce beau visage...
 
 À cet instant, son cœur s'était brisé!
 
@@ -118,4 +118,4 @@ Empreint de mélancolie, Qing Shui ne regardait plus Wang Lin avec l'intention d
 
 « Tu n'es pas entré dans le bassin céleste. Sans énergie originelle céleste, tu ne pourras pas déployer toute la puissance des sorts célestes. Ton Senior Frère n'a rien d'autre à t'offrir, alors je te donnerai cette énergie originelle céleste pour t'aider à les pratiquer! »
 
-L'énergie originelle céleste qui avait pénétré le corps de Wang Lin ne fut pas récupérée par Qing Shui. Au lieu de cela, elle circula dans le corps de Wang Lin avant de se transformer en une graine dorée qui vint se loger dans son âme originelle.
+L'énergie originelle céleste qui avait pénétré le corps de Wang Lin ne fut pas récupérée par Qing Shui. Au lieu de cela, elle circula dans le corps de Wang Lin avant de se transformer en une fève dorée nimbée d'aura céleste qui vint se loger dans son âme originelle.

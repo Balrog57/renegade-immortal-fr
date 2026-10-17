@@ -14,15 +14,15 @@ Ces morts survinrent silencieusement; elles étaient impossibles à éviter et n
 
 Heureusement, peu de personnes périrent, mais si le Cristal de Culture Planétaire s'effondrait, la planète entière serait condamnée...
 
-Le rire dément de Zhuque Zi résonna dans le Mont Suzaku. Assis à l'intérieur de la montagne, ses yeux étaient empreints de folie. Il afficha un sourire cruel et murmura pour lui-même: « Mon cher frère cadet, comment profites-tu du jeu... Le jeu ne fait que commencer et n'a pas encore atteint son apogée. Mon bon disciple, Qian Feng, j'espère que tu utiliseras ce trésor que je t'ai confié. Une fois ce trésor utilisé, le paroxysme de ce jeu pourra enfin débuter... »
+Le rire dément de Zhu Quezi résonna dans le Mont Suzaku. Assis à l'intérieur de la montagne, ses yeux étaient empreints de folie. Il afficha un sourire cruel et murmura pour lui-même: « Mon cher frère cadet, comment profites-tu du jeu... Le jeu ne fait que commencer et n'a pas encore atteint son apogée. Mon bon disciple, Qian Feng, j'espère que tu utiliseras ce trésor que je t'ai confié. Une fois ce trésor utilisé, le paroxysme de ce jeu pourra enfin débuter... »
 
 Sur la montagne spirituelle, dans la partie intérieure du tombeau de Suzaku, l'effondrement dura soixante respirations. De nouvelles fissures apparurent sur la porte, la recouvrant presque entièrement.
 
-À cet instant précis, Yunque Zi se déplaça soudainement pour apparaître aux côtés de l'immense porte. Un chapeau de paille apparut alors dans sa main. Il frappa le chapeau, qui se dispersa immédiatement en d'innombrables tatouages. Ces derniers brillèrent intensément avant de s'écraser contre la porte comme des météores.
+À cet instant précis, Yun Quezi se déplaça soudainement pour apparaître aux côtés de l'immense porte. Un chapeau de paille apparut alors dans sa main. Il frappa le chapeau, qui se dispersa immédiatement en d'innombrables tatouages. Ces derniers brillèrent intensément avant de s'écraser contre la porte comme des météores.
 
 Une série de grondements retentit et les fissures s'élargirent rapidement.
 
-Yunque Zi cria avec force: « Attaquez! »
+Yun Quezi cria avec force: « Attaquez! »
 
 Les deux membres du Clan de l'Immortel Délaissé s'élancèrent aussitôt dans les airs pour attaquer la porte.
 
@@ -38,13 +38,13 @@ En voyant ce sort, Wang Lin le reconnut immédiatement comme étant celui du Sei
 
 La porte trembla violemment après l'explosion des deux membres du clan, et de nouvelles fissures s'y formèrent.
 
-Yunque Zi se retourna brusquement vers le vieil homme. Il laissa échapper un grognement avant de pousser un rugissement et de charger la porte.
+Yun Quezi se retourna brusquement vers le vieil homme. Il laissa échapper un grognement avant de pousser un rugissement et de charger la porte.
 
 Bang!
 
 Une explosion assourdissante résonna dans tout le tombeau de Suzaku. Sur le côté gauche de la porte, un fragment se détacha et un rayon de lumière dorée jaillit. Il perça le ciel et resta suspendu là.
 
-Yunque Zi s'engouffra dans l'ouverture dans un éclat de lumière rouge, suivi de près par le vieil homme.
+Yun Quezi s'engouffra dans l'ouverture dans un éclat de lumière rouge, suivi de près par le vieil homme.
 
 Ensuite, les autres personnes présentes sur la montagne spirituelle activèrent divers sorts pour charger à l'intérieur.
 
@@ -54,9 +54,9 @@ Derrière la porte se déployait une mer dorée. Cette mer était immense, sans 
 
 Au bout de cette mer se trouvait une île d'un or sombre. Un bâtiment s'y dressait; c'était un palais d'une extravagance extrême qui dégageait un éclat doré.
 
-Une fois la porte franchi, les yeux d'Yunque Zi brillèrent d'une lueur mystérieuse et il fonça rapidement vers cette île.
+Une fois la porte franchi, les yeux d'Yun Quezi brillèrent d'une lueur mystérieuse et il fonça rapidement vers cette île.
 
-Le vieil homme le suivit de près. Ses pieds s'activèrent et il vola prestement vers le palais, n'étant qu'à moins de cent mètres derrière Yunque Zi. Les yeux du singe sur son épaule brillèrent intensément, révélant une expression d'excitation.
+Le vieil homme le suivit de près. Ses pieds s'activèrent et il vola prestement vers le palais, n'étant qu'à moins de cent mètres derrière Yun Quezi. Les yeux du singe sur son épaule brillèrent intensément, révélant une expression d'excitation.
 
 Quant aux autres, Qian Feng et Liu Mei volaient également vers l'île à toute vitesse.
 
@@ -68,13 +68,13 @@ La silhouette de Wang Lin fendit l'air comme l'éclair vers le palais.
 
 En un instant, plusieurs rayons de lumière traversèrent le ciel dans un fracas supersonique.
 
-Yunque Zi arriva au-dessus du palais sur l'île et s'y précipita immédiatement.
+Yun Quezi arriva au-dessus du palais sur l'île et s'y précipita immédiatement.
 
-À ce moment, les yeux du vieil homme brillèrent d'un rouge vif; il saisit le singe et poussa un rugissement. Il lança ensuite le singe avec une telle force que celui-ci utilisa l'élan pour bondir. Son corps disparut complètement avant de réapparaître, volant légèrement plus vite qu'Yunque Zi.
+À ce moment, les yeux du vieil homme brillèrent d'un rouge vif; il saisit le singe et poussa un rugissement. Il lança ensuite le singe avec une telle force que celui-ci utilisa l'élan pour bondir. Son corps disparut complètement avant de réapparaître, volant légèrement plus vite qu'Yun Quezi.
 
-Le visage d'Yunque Zi s'assombrit. Il laissa échapper un grognement et chargea le palais à sa suite.
+Le visage d'Yun Quezi s'assombrit. Il laissa échapper un grognement et chargea le palais à sa suite.
 
-Cependant, au même instant, le palais trembla soudainement et des rayons de lumière éblouissants en jaillirent. Yunque Zi fut expulsé du palais avec une expression de dépit. Il était sous le choc.
+Cependant, au même instant, le palais trembla soudainement et des rayons de lumière éblouissants en jaillirent. Yun Quezi fut expulsé du palais avec une expression de dépit. Il était sous le choc.
 
 Le petit singe poussa quelques couinements tandis qu'il était lui aussi repoussé. La lueur rouge dans ses yeux s'étira comme une lame de lumière de plus de trente centimètres de long, un spectacle impressionnant. Le singe ne retourna pas vers le vieil homme; il resta là, immobile, fixant le palais d'un regard féroce.
 
@@ -86,11 +86,11 @@ Une chevelure noire flottait dans son dos. D'un bond, il atteignit le sommet du 
 
 En un clin d'œil, l'île fut submergée par la mer dorée et disparut.
 
-L'expression d'Yunque Zi était mécontente. Alors qu'il était sur le point de sombrer dans la mer dorée, l'homme massif en armure dorée fit tournoyer son épée. Une vague d'énergie de sabre de 330 mètres de long s'abattit sur lui.
+L'expression d'Yun Quezi était mécontente. Alors qu'il était sur le point de sombrer dans la mer dorée, l'homme massif en armure dorée fit tournoyer son épée. Une vague d'énergie de sabre de 330 mètres de long s'abattit sur lui.
 
-Yunque Zi poussa un rugissement. Ses cheveux se mirent à onduler sans vent et il pointa le ciel. Une lueur rouge apparut là où il désignait et entra en collision avec l'énergie de l'épée.
+Yun Quezi poussa un rugissement. Ses cheveux se mirent à onduler sans vent et il pointa le ciel. Une lueur rouge apparut là où il désignait et entra en collision avec l'énergie de l'épée.
 
-Dans un fracas, le corps d'Yunque Zi fut projeté comme une météorite dans la mer avant de disparaître.
+Dans un fracas, le corps d'Yun Quezi fut projeté comme une météorite dans la mer avant de disparaître.
 
 L'homme massif en armure dorée ne le poursuivit pas, mais tourna son regard vers le petit singe. L'énergie de l'épée se concentra sur sa lame dorée et il s'apprêta à frapper.
 
@@ -130,6 +130,6 @@ L'homme massif en armure dorée ne les poursuivit pas, mais tourna son regard ve
 
 Le regard de Wang Lin devint glacial. Cette énergie de sabre était aussi puissante qu'une attaque d'un cultivateur Ascendant. C'est pour cette raison que le vieil homme avait dû libérer son âme pour y résister.
 
-Seul Yunque Zi avait pu bloquer l'attaque et s'en servir pour entrer dans la mer.
+Seul Yun Quezi avait pu bloquer l'attaque et s'en servir pour entrer dans la mer.
 
 Toutefois, cet homme massif n'avait aucune intention malveillante; autrement, Zhou Wutai et Zi Xin ne seraient pas encore en vie à cet instant.

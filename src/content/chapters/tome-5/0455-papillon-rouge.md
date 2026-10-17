@@ -102,7 +102,7 @@ En comparant les deux, leurs vitesses étaient presque identiques, seule la puis
 
 « Ceci est fait d'un seul fragment d'âme. À qui appartient ce fragment pour posséder un pouvoir élémentaire métallique aussi puissant?! Cette lame est un trésor! » Le corps de Wang Lin disparut à nouveau, et tout autour de son ancienne position s'effondra une fois de plus.
 
-La lame devint encore plus rapide, au point que Wang Lin ne parvint bientôt plus à suivre la cadence. S'il faisait preuve de la moindre inattention, il serait blessé. Il comprenait désormais pourquoi Zhuque Zi craignait tant la quatrième âme.
+La lame devint encore plus rapide, au point que Wang Lin ne parvint bientôt plus à suivre la cadence. S'il faisait preuve de la moindre inattention, il serait blessé. Il comprenait désormais pourquoi Zhu Quezi craignait tant la quatrième âme.
 
 « Je dois en faire mienne! » Les yeux de Wang Lin s'illuminèrent alors qu'il sortait l'épée céleste. D'un geste sec, il força Xu Liguo à sortir de l'épée.
 

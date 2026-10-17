@@ -111,7 +111,7 @@ Tie Yan comprit que le statut de Zhou Ru sur la planète Suzaku était unique. O
 
 Même le Clan des Immortels Délaissés traitait Zhou Ru avec une politesse extrême. Normalement, ce clan n'autorisait aucun cultivateur à pénétrer sur son territoire, mais Zhou Ru faisait exception.
 
-On pouvait affirmer que Zhou Ru ne courrait aucun danger sur la planète Suzaku. De plus, Zhou Wutai, Yunque Zi du Clan des Immortels Délaissés et de nombreux autres experts de haut niveau lui avaient offert des trésors de survie. Si des cultivateurs ordinaires tentaient de l'affronter, ils n'auraient aucune chance de l'emporter.
+On pouvait affirmer que Zhou Ru ne courrait aucun danger sur la planète Suzaku. De plus, Zhou Wutai, Yun Quezi du Clan des Immortels Délaissés et de nombreux autres experts de haut niveau lui avaient offert des trésors de survie. Si des cultivateurs ordinaires tentaient de l'affronter, ils n'auraient aucune chance de l'emporter.
 
 En outre, des experts envoyés par le Mont Suzaku et le patriarche du Clan des Démons Géants, Chi Hu, veillaient sur elle. Ils étaient prêts à intervenir à tout instant pour la protéger. Parmi ses gardiens figuraient également des membres de la Secte du Ciel Nuageux.
 

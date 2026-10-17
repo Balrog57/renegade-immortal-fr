@@ -98,7 +98,7 @@ Alors qu'il s'apprêtait à entrer, son expression changea et il recula brusquem
 
 Peu après, l'énergie se dispersa, révélant une silhouette blanche. C'était Zhou Yi!
 
-En voyant clairement Zhou Yi, Wang Lin cessa de reculer et apaisa son sceau. Il ne parla pas; il observa d'abord la salle d'alchimie. L'intérieur et l'extérieur semblaient être deux mondes distincts que le sens divin ne pouvait pénétrer. Cela expliquait pourquoi Zhou Yi n'avait pas senti l'arrivée de Wang Lin, et pourquoi ce dernier n'avait pas détecté Zhou Yi.
+En voyant clairement Zhou Yi, Wang Lin cessa de reculer et relâcha le sceau qu'il formait de la main droite. Il ne parla pas; il observa d'abord la salle d'alchimie. L'intérieur et l'extérieur semblaient être deux mondes distincts que le sens divin ne pouvait pénétrer. Cela expliquait pourquoi Zhou Yi n'avait pas senti l'arrivée de Wang Lin, et pourquoi ce dernier n'avait pas détecté Zhou Yi.
 
 « Je savais que tu parviendrais jusqu'ici. » En regardant Wang Lin, Zhou Yi afficha un mélange de mélancolie et de sourire, teinté d'une pointe de nostalgie.
 

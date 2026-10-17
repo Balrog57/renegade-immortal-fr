@@ -72,7 +72,7 @@ Lorsque le poing de tonnerre de Wang Lin arriva, un poing de foudre de taille id
 
 Ce Miroir de Massacre de la Foudre était l'un des trésors principaux du clan du Tonnerre Dispersé. Tout sortilège inférieur au troisième niveau y était immédiatement copié, et sa puissance n'était pas moindre que l'original. Il pouvait contrer n'importe quel sort!
 
-Ce trésor était déjà capable de défier les cieux; comparé au trésor du Vide Nirvana de rang 9 de l'Estimé Xuanbao, ce miroir était un trésor du Vide Nirvana de rang 2. Il surpassait de loin un simple trésor du Vide et se rapprochait infiniment d'un trésor du Nirvana!
+Ce trésor était déjà capable de défier les cieux; comparé au trésor du Vide Nirvana de rang 9 de l'Estimé Xuan Bao, ce miroir était un trésor du Vide Nirvana de rang 2. Il surpassait de loin un simple trésor du Vide et se rapprochait infiniment d'un trésor du Nirvana!
 
 Le poing géant de tonnerre jaillit du Miroir de Massacre de la Foudre. À cet instant, c'était comme si un géant se cachait à l'intérieur du miroir pour porter un coup!
 

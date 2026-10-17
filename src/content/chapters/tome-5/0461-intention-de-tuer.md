@@ -14,7 +14,7 @@ Le regard de Qian Feng s'anima et il lança soudain: « Ceng Niu, que diriez-vou
 
 Une lueur de froideur passa dans les yeux de Wang Lin alors qu'il hochait la tête et répondait: « D'accord! »
 
-Si Qian Feng demandait l'aide de Wang Lin, c'était par nécessité. Il était clair que même avec Liu Mei à ses côtés, ils n'étaient pas certains de pouvoir repousser une telle attaque. S'ils échouaient, ils ne pourraient plus partir à la recherche du palais. Yunque Zi et le vieil homme étaient déjà en avance sur eux; s'ils traînaient, il serait peut-être trop tard.
+Si Qian Feng demandait l'aide de Wang Lin, c'était par nécessité. Il était clair que même avec Liu Mei à ses côtés, ils n'étaient pas certains de pouvoir repousser une telle attaque. S'ils échouaient, ils ne pourraient plus partir à la recherche du palais. Yun Quezi et le vieil homme étaient déjà en avance sur eux; s'ils traînaient, il serait peut-être trop tard.
 
 Avec Wang Lin à leurs côtés, les chances de succès des trois étaient désormais nettement accrues.
 
@@ -52,7 +52,7 @@ Le seul bruit audible était celui de l'énergie de l'épée déchirant le ciel.
 
 Sous la pression de cette énergie, la mer en contrebas se fendit, créant un gouffre profond.
 
-Lorsque Wang Lin avait vu Yunque Zi et le vieil homme contenir l'attaque, il n'en avait ressenti que les effets latéraux sans y participer. Mais maintenant qu'il était directement en face, il pouvait percevoir la force destructrice brute contenue dans cette onde.
+Lorsque Wang Lin avait vu Yun Quezi et le vieil homme contenir l'attaque, il n'en avait ressenti que les effets latéraux sans y participer. Mais maintenant qu'il était directement en face, il pouvait percevoir la force destructrice brute contenue dans cette onde.
 
 Face à cette puissance, son âme originelle commença à trembler, montrant des signes d'instabilité. Non seulement cela, mais chaque partie de son corps semblait écrasée par d'innombrables montagnes.
 

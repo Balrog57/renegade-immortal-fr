@@ -10,9 +10,9 @@ Ces sculptures sur bois étaient toutes identiques et représentaient un jeune h
 
 « La requête du Senior a été accomplie par le cadet. » Après cela, Wang Lin s'assit dans un coin et ne parla plus.
 
-Les yeux de Yunque Zi s'illuminèrent. D'un revers de main, il fit disparaître toutes les sculptures sur bois. Il jeta un dernier regard vers Wang Lin avant de reporter son attention sur la porte.
+Les yeux de Yun Quezi s'illuminèrent. D'un revers de main, il fit disparaître toutes les sculptures sur bois. Il jeta un dernier regard vers Wang Lin avant de reporter son attention sur la porte.
 
-Wang Lin ne se souciait guère de la manière dont Yunque Zi avait pu pénétrer dans ce lieu. Après tout, le Clan des Immortels Délaissés existait depuis une éternité, et il n'était pas du genre à vouloir trouver une réponse à tout.
+Wang Lin ne se souciait guère de la manière dont Yun Quezi avait pu pénétrer dans ce lieu. Après tout, le Clan des Immortels Délaissés existait depuis une éternité, et il n'était pas du genre à vouloir trouver une réponse à tout.
 
 Wang Lin avait déjà renoncé à obtenir le Cristal de Culture Planétaire; il ne voulait que récupérer son fragment d'âme.
 
@@ -24,7 +24,7 @@ Une fois assis, ses yeux s'illuminèrent lorsqu'il regarda vers Qian Feng. À ce
 
 Wang Lin esquissa un sourire glacial avant de détourner les yeux vers l'homme masqué. Cet homme lui était inconnu et Wang Lin ne parvint pas à l'identifier. Enfin, son regard se posa sur le vieil homme étrange qui affichait ce sourire sinistre.
 
-« Qui est-il exactement... » Le danger que Wang Lin ressentait face au vieil homme était plusieurs fois supérieur à celui qu'il éprouvait envers Yunque Zi. Une lueur de froideur traversa les yeux de Wang Lin tandis qu'il fixait le vieillard.
+« Qui est-il exactement... » Le danger que Wang Lin ressentait face au vieil homme était plusieurs fois supérieur à celui qu'il éprouvait envers Yun Quezi. Une lueur de froideur traversa les yeux de Wang Lin tandis qu'il fixait le vieillard.
 
 Lorsque le vieil homme remarqua le regard de Wang Lin, il se tourna vers lui et afficha un sourire sombre. Ce sourire semblait extrêmement familier à Wang Lin, bien qu'il soit certain de n'avoir jamais rencontré cet individu de sa vie.
 
@@ -80,7 +80,7 @@ Si le niveau de culture était assez élevé, une simple pensée permettait de p
 
 Il prit une profonde inspiration et baissa la tête. Soudain, ses pupilles se rétractèrent et ses yeux révélèrent une trace de terreur.
 
-« Le démon de Tu Si, Tuo Sen! » Wang Lin sentit son corps se glacer. S'il fallait nommer les personnes que Wang Lin redoutait le plus sur la planète Suzaku, Zhuque Zi n'était même pas le premier. La première place appartenait au jeune homme démoniaque qu'il avait offensé dans la Terre de l'Ancien Dieu alors qu'il n'était qu'un cultivateur de la Formation du Noyau: Tuo Sen!
+« Le démon de Tu Si, Tuo Sen! » Wang Lin sentit son corps se glacer. S'il fallait nommer les personnes que Wang Lin redoutait le plus sur la planète Suzaku, Zhu Quezi n'était même pas le premier. La première place appartenait au jeune homme démoniaque qu'il avait offensé dans la Terre de l'Ancien Dieu alors qu'il n'était qu'un cultivateur de la Formation du Noyau: Tuo Sen!
 
 L'héritage de l'ancien dieu était divisé en deux: l'héritage de la puissance et l'héritage de la connaissance.
 

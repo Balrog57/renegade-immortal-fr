@@ -14,7 +14,7 @@ Parmi eux se trouvaient l'Ancêtre Sanguin, les êtres célestes, les membres de
 
 S'y ajoutaient les innombrables fragments d'âmes contenus dans le drapeau des milliards d'âmes. Avec eux, les dix-huit couches de l'enfer étaient désormais dignes de leur nom!
 
-À l'intérieur du drapeau des milliards d'âmes, il ne restait plus que les âmes primaires; Wang Lin le rangea donc. S'il n'avait pas été un présent de Du Tian, il aurait lui-même placé le drapeau dans le Tampon de Scellement Céleste.
+À l'intérieur du drapeau des milliards d'âmes, il ne restait plus que les âmes primaires; Wang Lin le rangea donc. S'il n'avait pas été un présent de Dun Tian, il aurait lui-même placé le drapeau dans le Tampon de Scellement Céleste.
 
 Alors que Wang Lin se tenait là, une lueur de froideur traversa son regard et il s'écria: « Voici mon cycle de réincarnation des dix-huit couches de l'enfer! »
 
@@ -38,13 +38,13 @@ Après avoir réfléchi un instant, Wang Lin décida de ne pas les envoyer dans 
 
 À ce moment précis, toute la région occidentale était sous l'emprise des cultivateurs de Luotian. Tandis que des masses imposantes de ces derniers traversaient le tunnel entre les deux systèmes, ils prenaient possession des planètes une à une. Il était évident qu'ils considéraient désormais cet endroit comme faisant partie de Luotian!
 
-Tandis que la région occidentale tombait, l'ombre qui planait sur les puissants cultivateurs de Luotian s'épaississait. Il n'y avait pas une seule planète de culture de rang 7 dans cette région, seulement des planètes de rang 6. Tout cela était fort étrange.
+Tandis que la région occidentale tombait, l'ombre qui planait sur les puissants cultivateurs de Luotian s'épaississait. Il n'y avait pas un seul pays de culture de rang 7 dans cette région, seulement des planètes de culture de rang 6. Tout cela était fort étrange.
 
 Cependant, rien ne changea pendant très longtemps. Malgré leurs doutes persistants, ils lancèrent une seconde vague d'attaques sur ordre du Temple Céleste du Tonnerre. Leur cible, cette fois, était la région nord.
 
 Des groupes de cultivateurs de Luotian s'élancèrent rapidement vers la région nord, portés par des rayons d'énergie d'épée!
 
-En passant, ils générèrent un fracas tel que l'espace lui-même semblait sur le point de s'effondrer. L'énergie d'épée émise par des dizaines de milliers de cultivateurs fit changer les couleurs du monde.
+En passant, ils générèrent un fracas tel que l'espace lui-même semblait sur le point de s'effondrer. L'énergie d'épée émise par des dizaines de milliers d'épées volantes fit changer les couleurs du monde.
 
 Les épées volantes défiaient la hauteur du ciel et menaçaient de faire basculer le monde. Inconsciemment, elles dégageaient une sensation de pouvoir inverser le temps et fendre les cieux.
 
@@ -60,7 +60,7 @@ De vastes cohortes de cultivateurs de Luotian chevauchant des rayons d'énergie 
 
 Alors que ces forces chargeaient vers le nord, une aura antique jaillit soudainement d'une des planètes de la région occidentale déjà conquise par Luotian. Cette aura explosa avec frénésie et, en un instant, un impact destructeur s'abattit sur la planète de culture.
 
-Des centaines de cultivateurs vivaient sur cette planète; ils tentèrent de fuir dans une panique totale. Mais ce qu'ils aperçurent fut la dernière chose qu'ils virent de leur vie.
+Plus d'une centaine de cultivateurs étaient stationnés sur cette planète; ils tentèrent de fuir dans une panique totale. Mais ce qu'ils aperçurent fut la dernière chose qu'ils virent de leur vie.
 
 L'intégralité de la planète trembla avec une violence extrême. C'était comme si le cycle de vie de l'astre s'était achevé en un instant, le remplissant d'une aura de mort. Plus incroyable encore: la planète se contractait!
 
@@ -68,7 +68,7 @@ Elle rétrécissait à une vitesse folle, comme si une force colossale la compri
 
 À cet instant précis, une aura destructrice jaillit et la planète s'effondra brusquement! Cet effondrement créa une onde de choc dévastatrice qui se propagea violemment.
 
-Les centaines de cultivateurs n'eurent pas le temps d'esquiver; leurs corps furent instantanément pulvérisés par cette vague destructrice. Même leurs âmes originelles furent annihilées par cette force.
+Ces cultivateurs n'eurent pas le temps d'esquiver; leurs corps furent instantanément pulvérisés par cette vague destructrice. Même leurs âmes originelles furent annihilées par cette force.
 
 Le grondement qui en résulta fut assourdissant. L'effondrement planétaire était imprégné d'une odeur de sang, et toute vie y avait été éteinte. Ce n'était pas l'œuvre d'un cultivateur ordinaire. Seul le plus impitoyable des êtres inhumains pouvait détruire une planète de la sorte!
 
@@ -84,7 +84,7 @@ Toutes les planètes de culture de la région occidentale s'effondrèrent avec f
 
 Un tel mouvement n'était l'apanage que de l'Alliance de Culture. « Puisque tous les cultivateurs de Luotian sont venus, alors je vous laisserai tous mourir dans la région occidentale! »
 
-Faisant fi de la vie de chaque créature de la région occidentale, ils lancèrent un plan terrifiant pour massacrer les forces de Luotian!
+Faisant fi de la vie de chaque créature de la région occidentale, ils lancèrent un plan terrifiant, nommé « Massacre de Luotian », pour massacrer les forces de Luotian!
 
 L'effondrement frénétique s'intensifia. Tandis que les planètes s'écrasaient, la tempête née de ce chaos balaya la région. De multiples déchirures spatiales apparurent sous l'effet de la tempête pour finalement fusionner.
 
@@ -104,12 +104,12 @@ Simultanément, des rayons d'énergie d'épée traversèrent le domaine nord lor
 
 Dans le domaine nord, une ondulation parcourut les rangs de l'armée de l'Alliance. Un vieil homme vêtu de noir en sortit et son rire résonna à travers le monde alors qu'il avançait.
 
-« Maître Yan Leizi, cela faisait longtemps. Vous souvenez-vous encore du vieux Saint Démon Black Fiend? »
+« Maître Yan Leizi, cela faisait longtemps. Vous souvenez-vous encore du vieux Saint Démon Noir? »
 
 Les yeux du Maître Yan Leizi virèrent au rouge vif, mais son expression ne trahissait aucune réaction face à cette provocation. Il dit calmement: « Ainsi, c'était là votre plan? Très bien! Laissez-moi vous montrer les sorts de mes cultivateurs de Luotian! »
 
 Le Maître Yan Leizi leva la main et pointa vers le haut. Une immense fissure fut silencieusement déchirée dans le ciel. Cette brèche était si vaste qu'elle ressemblait à un fleuve couvrant l'immensité céleste.
 
-Au même instant, une pression colossale s'en échappa et dix-huit sphères de sang, larges de plus de cent pieds, descendirent des cieux!
+Au même instant, une pression colossale s'en échappa et dix-huit sphères de sang, larges de cent pieds, descendirent des cieux!
 
-« Votre Système Stellaire de l'Alliance a osé détruire la région occidentale; comment mon Système Stellaire de Luotian pourrait-il ne pas réagir? Puisque vous avez tué certains des miens, je tuerai les vôtres! » La voix du Maître Yan Leizi était empreinte d'une absolue confiance.
+« Votre Système Stellaire de l'Alliance a osé détruire la région occidentale; comment mon Système Stellaire de Luotian pourrait-il ne pas réagir? Voyons qui l'emportera lors de ce premier affrontement! Puisque vous avez tué certains des miens, je tuerai les vôtres! » La voix du Maître Yan Leizi était empreinte d'une absolue confiance.

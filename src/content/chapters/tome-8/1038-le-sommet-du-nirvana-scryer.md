@@ -38,7 +38,7 @@ Cette bataille fut une tragédie. Les rares cultivateurs qui survécurent frémi
 
 En fin de compte, les Quatre Grandes Sectes furent vaincues. Le Royaume du Vide Brillant rompit la promesse faite il y a des millénaires de ne pas s'impliquer dans le conflit et rejoignit ouvertement le combat. Leur intention initiale était d'anéantir totalement les Quatre Grandes Sectes.
 
-Cependant, même eux sousestimèrent les Quatre Grandes Sectes. L'Empereur Divin de l'Oiseau Vermillon perdit huit de ses avatars et son corps original faillit s'effondrer, ne laissant derrière lui qu'une trace de volonté.
+Cependant, même eux sous-estimèrent les Quatre Grandes Sectes. L'Empereur Divin de l'Oiseau Vermillon perdit huit de ses avatars et son corps original faillit s'effondrer, ne laissant derrière lui qu'une trace de volonté.
 
 La Secte Divine du Dragon Azure subit de lourdes pertes; un ou deux membres seulement sur dix survécurent! La Secte Divine de la Tortue Noire fut presque anéantie!
 
@@ -50,7 +50,7 @@ Après tout, la rumeur des Quatre Trésors Divins capables de fendre les cieux s
 
 Dès lors, les Quatre Grandes Sectes disparurent sans laisser de trace. Durant ces dizaines de milliers d'années, elles n'apparurent presque jamais, et même lorsqu'elles le faisaient, elles n'occupaient qu'un nombre restreint de planètes. De cette manière, elles s'intégrèrent également à l'Alliance; la planète Suzaku en est un parfait exemple.
 
-Cependant, l'apparition d'un oiseau vermillon de plusieurs centaines de milliers de kilomètres de large parmi les étoiles signalait clairement que les Quatre Grandes Sectes allaient une fois de plus surgir dans le système stellaire!
+Cependant, l'apparition d'un oiseau vermillon de plusieurs centaines de li de large parmi les étoiles signalait clairement que les Quatre Grandes Sectes allaient une fois de plus surgir dans le système stellaire!
 
 En chemin, même les météores qui croisaient sa route furent réduits en cendres par l'Oiseau Vermillon. Cela choqua de nombreux cultivateurs de l'Alliance, qui commencèrent à spéculer.
 
@@ -82,7 +82,7 @@ Le cadavre féminin argenté fronça les sourcils, mais elle ne bougea pas d'un 
 
 Le sol sur lequel Wang Lin était assis se fendit soudainement. Alors que le plancher cédait, il bascula dans l'abîme. La tempête qui l'entourait balaya tous les débris tombés; à cet instant, la tempête de Wang Lin agissait comme une foreuse s'enfonçant dans les profondeurs.
 
-Le cadavre féminin argenté suivit Wang Lin telle un rayon de lumière argentée. La chaleur extrême caressait son visage, faisant légèrement rougir sa pâleur. Elle ne cilla pas et garda ses yeux fixés sur lui.
+Le cadavre féminin argenté suivit Wang Lin tel un rayon de lumière argentée. La chaleur extrême caressait son visage, faisant légèrement rougir sa pâleur. Elle ne cilla pas et garda ses yeux fixés sur lui.
 
 Le corps de Wang Lin continua de s'enfoncer, puis il ouvrit soudainement les yeux. Deux faisceaux de flammes jaillirent de ses pupilles. À l'instant même où ses yeux s'ouvrirent, la tempête atteignit son paroxysme et balaya toute la zone. Puis, l'aura d'un cultivateur du stade avancé du Scruteur du Nirvana se propagea.
 

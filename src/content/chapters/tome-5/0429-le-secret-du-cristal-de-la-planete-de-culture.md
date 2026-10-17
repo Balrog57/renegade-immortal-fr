@@ -27,7 +27,7 @@ Wang Lin fronça les sourcils en attendant que Situ Nan poursuive son récit.
 
 Même avec la force mentale de Wang Lin, l'entendre lui infligea un choc: son expression devint sombre et son cœur trembla.
 
-Wang Lin demanda d'un ton grave: « Ainsi, si Zhuque Zi prend le contrôle du Cristal de la Planète de Culture, il lui suffira d'une seule pensée pour me tuer? »
+Wang Lin demanda d'un ton grave: « Ainsi, si Zhu Quezi prend le contrôle du Cristal de la Planète de Culture, il lui suffira d'une seule pensée pour me tuer? »
 
 Situ Nan répondit: « Il existe un objet appelé le Cœur de la Planète de Culture qui est lié au Cristal de la Planète de Culture. Seul l'actuel Suzaku en a la possession. Il devra sacrifier une partie de sa longévité pour l'activer, ce qui lui permettra de tuer n'importe qui. Une parcelle de votre âme se trouve dans le cristal; si vous voulez un avenir paisible lorsque vous quitterez la planète, vous devrez extraire votre âme du Cristal de la Planète de Culture. »
 
@@ -39,11 +39,11 @@ Wang Lin resta immobile. Après un long moment, son regard devint glacial.
 
 « Comment ma vie pourrait-elle être entre les mains d'un autre?! »
 
-« Pas étonnant que tant de pays de culture aient trahi Suzaku dès l'apparition du Clan des Immortels Délaissés. Pas étonnant que Zhuque Zi ait voulu anéantir les pays de culture de rang 5 susceptibles d'atteindre le rang 6. Voilà donc la raison de tout cela. »
+« Pas étonnant que tant de pays de culture aient trahi Suzaku dès l'apparition du Clan des Immortels Délaissés. Pas étonnant que Zhu Quezi ait voulu anéantir les pays de culture de rang 5 susceptibles d'atteindre le rang 6. Voilà donc la raison de tout cela. »
 
-« Si Zhuque Zi pouvait encore contrôler le Cristal de la Planète de Culture, la situation ne serait pas telle qu'elle est aujourd'hui. Avec une attaque concertée de tous les cultivateurs de la planète, le Clan des Immortels Délaissés risquerait d'être anéanti. »
+« Si Zhu Quezi pouvait encore contrôler le Cristal de la Planète de Culture, la situation ne serait pas telle qu'elle est aujourd'hui. Avec une attaque concertée de tous les cultivateurs de la planète, le Clan des Immortels Délaissés risquerait d'être anéanti. »
 
-« S'il en avait eu le contrôle, Zhuque Zi aurait pu s'emparer de l'Étendard de l'Âme au Milliard d'Âmes du senior Du Tian bien plus tôt, plutôt que d'attendre jusqu'à maintenant. »
+« S'il en avait eu le contrôle, Zhu Quezi aurait pu s'emparer de l'Étendard de l'Âme au Milliard d'Âmes du senior Du Tian bien plus tôt, plutôt que d'attendre jusqu'à maintenant. »
 
 « Le Cristal de la Planète de Culture! Na Duo n'avait aucune raison de me mentir, mais son ton était aussi empreint d'incertitude à l'époque. » La silhouette de Wang Lin disparut de la Petite Terre du Nord Ardente.
 
@@ -65,7 +65,7 @@ Wang Lin resta immobile. Après un long moment, son regard devint glacial.
 
 En chemin, le ciel était presque entièrement occulté par des nuages noirs. Ces nuages étaient peuplés de membres du Clan des Immortels Délaissés qui les utilisaient pour fondre sur le continent Suzaku.
 
-Plus Wang Lin en voyait, plus son humeur s'assombrissait. Bien qu'il détestât Zhuque Zi, il restait un cultivateur; en chemin, il abattit d'innombrables membres du Clan des Immortels Délaissés. Hélas, ils étaient si nombreux qu'il dut renoncer et se fondre dans la masse pour continuer sa route vers Chu.
+Plus Wang Lin en voyait, plus son humeur s'assombrissait. Bien qu'il détestât Zhu Quezi, il restait un cultivateur; en chemin, il abattit d'innombrables membres du Clan des Immortels Délaissés. Hélas, ils étaient si nombreux qu'il dut renoncer et se fondre dans la masse pour continuer sa route vers Chu.
 
 Presque tous les pays de culture de rang 3 ou moins avaient été détruits ou étaient tombés sous le joug du Clan des Immortels Délaissés.
 
@@ -103,15 +103,15 @@ Finalement, le pays de Suzaku fut contraint de replier sa ligne de défense sur 
 
 Pourtant, une nouvelle encore plus sidérante se répandit, faisant trembler le cœur de chaque cultivateur de la planète.
 
-Le frère cadet du Suzaku de cette génération, celui qui avait perdu la lutte pour le titre, Yunque Zi, était apparu.
+Le frère cadet du Suzaku de cette génération, celui qui avait perdu la lutte pour le titre, Yun Quezi, était apparu.
 
-Il surgit soudainement sur le même champ de bataille que Zhuque Zi et lui lança une attaque surprise, blessant gravement ce dernier.
+Il surgit soudainement sur le même champ de bataille que Zhu Quezi et lui lança une attaque surprise, blessant gravement ce dernier.
 
-L'identité d'Yunque Zi était celle du second ancêtre du Clan des Immortels Délaissés!
+L'identité d'Yun Quezi était celle du second ancêtre du Clan des Immortels Délaissés!
 
-Wang Lin apprit cela alors qu'il regagnait Chu. Le choc qui le traversa fut indescriptible. Il avait le pressentiment qu'Yunque Zi viendrait à sa rencontre.
+Wang Lin apprit cela alors qu'il regagnait Chu. Le choc qui le traversa fut indescriptible. Il avait le pressentiment qu'Yun Quezi viendrait à sa rencontre.
 
-Cependant, quelqu'un trouva Wang Lin avant Yunque Zi. Ce jour-là, Wang Lin venait d'ouvrir un ancien réseau de transfert dont la destination était Chu.
+Cependant, quelqu'un trouva Wang Lin avant Yun Quezi. Ce jour-là, Wang Lin venait d'ouvrir un ancien réseau de transfert dont la destination était Chu.
 
 Au moment où il pénétra dans le réseau, Wang Lin s'arrêta et se retourna pour regarder au loin, où il vit un homme corpulent portant un chapeau de paille approcher.
 
@@ -119,7 +119,7 @@ Au moment où il pénétra dans le réseau, Wang Lin s'arrêta et se retourna po
 
 Du côté est du continent Suzaku, l'expression de l'ancêtre Ascendant de la Secte de Jade Céleste était exécrable. Plus tôt, il avait été frappé par l'onde de choc de l'Esprit Ancestral, subissant des blessures qu'il avait dû réprimer. Puis, la bataille contre le Clan des Immortels Délaissés avait éclaté, ne lui laissant aucun répit avant de retourner au combat.
 
-Lors de la bataille d'il y a trois jours, le cinquième ancêtre était apparu une fois de plus. Durant leur affrontement, ses blessures s'étaient rouvertes, le contraignant à la fuite. Il se dirigeait vers la Secte de Jade Céleste, ayant décidé qu'il n'aiderait pas Zhuque Zi tant que ses blessures ne seraient pas guéries.
+Lors de la bataille d'il y a trois jours, le cinquième ancêtre était apparu une fois de plus. Durant leur affrontement, ses blessures s'étaient rouvertes, le contraignant à la fuite. Il se dirigeait vers la Secte de Jade Céleste, ayant décidé qu'il n'aiderait pas Zhu Quezi tant que ses blessures ne seraient pas guéries.
 
 « Si cela devait arriver, je quitterais simplement cette planète. Avec mon niveau de culture, je serais une puissance sur n'importe quel monde. »
 
@@ -129,10 +129,10 @@ Un homme marchait vers lui. Vêtu d'une robe rouge, le visage marqué par l'âge
 
 « Frère Chu, cela fait bien des années que nous ne nous sommes pas vus. Tout le monde va-t-il bien? »
 
-Le regard de Chu Yunfei se fit grave alors qu'il fixait l'inconnu: « Yunque Zi! »
+Le regard de Chu Yunfei se fit grave alors qu'il fixait l'inconnu: « Yun Quezi! »
 
 Le vieillard en robe rouge leva la tête, poussa un soupir et dit: « Il semble donc que le frère Chu se souvienne encore de moi. Peu importe. Frère Chu, je ne suis venu que pour vous donner un conseil: quittez la planète Suzaku! »
 
-L'actuel Yunque Zi n'avait plus rien de l'homme désordonné qu'il était autrefois.
+L'actuel Yun Quezi n'avait plus rien de l'homme désordonné qu'il était autrefois.
 
 [1] J'ai renommé Tian Yunzi en "l'Omniscient". C'est le vieillard qui accepte de prendre Wang Lin comme disciple pour 100 ans si celui-ci parvient à atteindre sa planète.

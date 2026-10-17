@@ -6,13 +6,13 @@ bookTitle: Cultivation Planet Crystal
 en: Chapter 425 - Boy
 slug: garcon
 ---
-Zhuque Zi réfléchit un instant. Son expression devint très troublée avant qu'il ne laisse échapper un soupir. Il n'avait vraiment pas le courage de sonder la véritable force de son adversaire. Il frappa le sol du pied, provoquant une immense fissure dans le ciel, tandis qu'il fixait avec férocité la direction de Pilu.
+Zhu Quezi réfléchit un instant. Son expression devint très troublée avant qu'il ne laisse échapper un soupir. Il n'avait vraiment pas le courage de sonder la véritable force de son adversaire. Il frappa le sol du pied, provoquant une immense fissure dans le ciel, tandis qu'il fixait avec férocité la direction de Pilu.
 
-« Deuxième génération Suzaku… » Zhuque Zi s'envola vers le Mont Suzaku.
+« Deuxième génération Suzaku… » Zhu Quezi s'envola vers le Mont Suzaku.
 
 À l'intérieur de la Secte de Raffinement des Âmes à Pilu.
 
-La silhouette de Wang Lin vacilla, puis il tomba du ciel après s'être assuré que Zhuque Zi était parti.
+La silhouette de Wang Lin vacilla, puis il tomba du ciel après s'être assuré que Zhu Quezi était parti.
 
 Du Tian fut stupéfait et se précipita vers Wang Lin. Le visage de ce dernier était pâle et ses yeux clos; il souffrait manifestement.
 
@@ -36,17 +36,17 @@ D'un seul cri, les nuages se dissipèrent sans laisser de trace; même la pluie 
 
 Le corps de Du Tian trembla violemment tandis qu'il contemplait la scène, hébété. Il était incapable de prononcer le moindre mot.
 
-Wang Lin eut un sourire amer et toussa. Lorsque la Flamme Sainte Suzaku arriva, l'âme originelle de Wang Lin était déjà revenue dans son corps et il avait atteint le stade de la Transformation de l'Âme. Cependant, n'ayant aucun moyen d'intervenir dans le combat entre Du Tian et Zhuque Zi, il s'était caché à l'intérieur de la perle défiant le ciel lors de l'apparition de la Flamme Sainte Suzaku.
+Wang Lin eut un sourire amer et toussa. Lorsque la Flamme Sainte Suzaku arriva, l'âme originelle de Wang Lin était déjà revenue dans son corps et il avait atteint le stade de la Transformation de l'Âme. Cependant, n'ayant aucun moyen d'intervenir dans le combat entre Du Tian et Zhu Quezi, il s'était caché à l'intérieur de la perle défiant le ciel lors de l'apparition de la Flamme Sainte Suzaku.
 
 En y pénétrant, il avait réveillé Situ Nan!
 
-Le Situ Nan fraîchement réveillé affichait une image féroce, mais en réalité, il était très faible. Ils n'eurent même pas le temps de discuter avant que Situ Nan ne remarque ce qui se passait à l'extérieur, n'entre dans le corps de Wang Lin et ne chasse Zhuque Zi.
+Le Situ Nan fraîchement réveillé affichait une image féroce, mais en réalité, il était très faible. Ils n'eurent même pas le temps de discuter avant que Situ Nan ne remarque ce qui se passait à l'extérieur, n'entre dans le corps de Wang Lin et ne chasse Zhu Quezi.
 
 Il faut dire que le talent d'acteur de Situ Nan était prodigieux.
 
-Lorsque Situ Nan avait forcé Zhuque Zi à lui trancher les doigts, Wang Lin était extrêmement nerveux, mais Situ Nan n'était pas du tout inquiet et restait aussi arrogant qu'à son habitude.
+Lorsque Situ Nan avait forcé Zhu Quezi à lui trancher les doigts, Wang Lin était extrêmement nerveux, mais Situ Nan n'était pas du tout inquiet et restait aussi arrogant qu'à son habitude.
 
-Par la suite, Wang Lin lui avait demandé pourquoi il avait exigé que Zhuque Zi laisse ces doigts derrière lui. Ne craignait-il pas les représailles de ce dernier?
+Par la suite, Wang Lin lui avait demandé pourquoi il avait exigé que Zhu Quezi laisse ces doigts derrière lui. Ne craignait-il pas les représailles de ce dernier?
 
 La réponse de Situ Nan fut: « Parce que je suis Situ Nan! »
 
@@ -62,7 +62,7 @@ Wang Lin sourit amèrement. Il regarda Du Tian et dit: « C'est Situ Nan. »
 
 Puis Wang Lin ajouta: « La deuxième génération de Suzaku! »
 
-Le corps de Du Tian trembla et il recula en titubant, les yeux écarquillés par un choc extrême. Il comprit enfin pourquoi Zhuque Zi avait pris la fuite.
+Le corps de Du Tian trembla et il recula en titubant, les yeux écarquillés par un choc extrême. Il comprit enfin pourquoi Zhu Quezi avait pris la fuite.
 
 La renommée de la deuxième génération de Suzaku était immense; à certains égards, elle surpassait même celle du premier.
 
@@ -72,7 +72,7 @@ Situ Nan hocha la tête et répondit: « Étant donné que tu as protégé Wang 
 
 Un sourire apparut sur le visage de Du Tian. Il avait sacrifié toute sa vie pour la Secte de Raffinement des Âmes, et c'était son souci le plus constant. C'est pour cette raison qu'il était prêt à utiliser ses derniers instants pour se lier d'amitié avec Wang Lin; tout cela afin de trouver un moyen de maintenir sa Secte en vie.
 
-L'arrivée de Zhuque Zi avait plongé Du Tian dans le désespoir; pourtant, les choses avaient changé si vite qu'il avait l'impression d'avoir vécu une éternité. Maintenant que la deuxième génération de Suzaku s'était personnellement engagé à préserver la Secte de Raffinement des Âmes, Du Tian était apaisé.
+L'arrivée de Zhu Quezi avait plongé Du Tian dans le désespoir; pourtant, les choses avaient changé si vite qu'il avait l'impression d'avoir vécu une éternité. Maintenant que la deuxième génération de Suzaku s'était personnellement engagé à préserver la Secte de Raffinement des Âmes, Du Tian était apaisé.
 
 Il s'assit en position de lotus, un sourire aux lèvres, et ferma lentement les yeux.
 
@@ -106,7 +106,7 @@ Wang Lin leva la main droite et saisit le drapeau, puis il regarda Du Tian qui s
 
 « Bien que vous n'ayez pas été mon maître, vous m'avez traité comme votre disciple… Je ne l'oublierai jamais… » La mélancolie dans les yeux de Wang Lin s'intensifia. En vérité, le temps passé avec Du Tian avait été court, mais la bonté de ce dernier était gravée dans son cœur.
 
-« Zhuque Zi, un jour je te trouverai et je te ferai payer l'anéantissement de la Secte de Raffinement des Âmes! » Wang Lin regarda en direction du pays de Suzaku, le regard glacial.
+« Zhu Quezi, un jour je te trouverai et je te ferai payer l'anéantissement de la Secte de Raffinement des Âmes! » Wang Lin regarda en direction du pays de Suzaku, le regard glacial.
 
 Dans une bourrasque de vent, le corps de Du Tian commença à se désintégrer lentement, comme si tout ce qui constituait cet homme s'effaçait. Seule la mémoire de Wang Lin conservait encore sa silhouette…
 
@@ -138,6 +138,6 @@ C'est pourquoi il ne pouvait pas réclamer la perle défiant le ciel!
 
 Situ Nan renifla et tourna la tête: « Si tu veux me remercier, trouve-moi un corps. Attends un peu, je vais vérifier s'il existe un réceptacle approprié sur cette planète en ce moment. Bien que ce vieil homme ne puisse plus combattre d'ennemis, j'ai toujours mes sorts; trouver un corps devrait être facile. » Sur ces mots, les yeux de Situ Nan brillèrent et son sens divin se propagea.
 
-Les yeux de Wang Lin s'illuminèrent: « Zhuque Zi a un disciple nommé Qian Feng. Son corps devrait être de bonne qualité. »
+Les yeux de Wang Lin s'illuminèrent: « Zhu Quezi a un disciple nommé Qian Feng. Son corps devrait être de bonne qualité. »
 
-« Le disciple de Zhuque Zi… Oublie ça; je dois quelque chose à la première génération de Suzaku. Si tu veux le tuer, cela m'est égal, mais si c'est moi qui le fais, c'est un peu excessif… Hein? Comment un tel corps peut-il exister sur la planète Suzaku? Bien que ce corps ne soit encore qu'un garçon, c'est un matériau de possession de qualité supérieure! Pas mal! Je me fiche qu'il ne soit qu'un gamin, ce garçon est fait pour la possession! » Situ Nan regarda vers l'extrême nord, les yeux pétillants de joie.
+« Le disciple de Zhu Quezi… Oublie ça; je dois quelque chose à la première génération de Suzaku. Si tu veux le tuer, cela m'est égal, mais si c'est moi qui le fais, c'est un peu excessif… Hein? Comment un tel corps peut-il exister sur la planète Suzaku? Bien que ce corps ne soit encore qu'un garçon, c'est un matériau de possession de qualité supérieure! Pas mal! Je me fiche qu'il ne soit qu'un gamin, ce garçon est fait pour la possession! » Situ Nan regarda vers l'extrême nord, les yeux pétillants de joie.

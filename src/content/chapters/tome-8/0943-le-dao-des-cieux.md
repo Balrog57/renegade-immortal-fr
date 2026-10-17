@@ -6,21 +6,21 @@ bookTitle: "Alliance's Secret"
 en: Chapter 943 - Heavens Dao
 slug: le-dao-des-cieux
 ---
-Lou Chen ressentait la douleur du Serpent aux yeux de lune de manière viscérale, tant leur assimilation était profonde. Sans hésiter, il fit un pas en avant et lança un coup de poing.
+Luo Chen ressentait la douleur du Serpent aux yeux de lune de manière viscérale, tant leur assimilation était profonde. Sans hésiter, il fit un pas en avant et lança un coup de poing.
 
-Ce coup se transforma en un grondement surpuissant, décuplant plusieurs fois la force qu'il avait déployée lors de son combat contre Wang Lin! L'éléphant géant poussa un rugissement et se mua en une lueur noire qui enveloppa le poing de Lou Chen. Le cri de la créature résonna de concert avec son assaut; l'éléphant se reforma devant le coup de poing pour charger tête baissée dans les gaz aux sept couleurs.
+Ce coup se transforma en un grondement surpuissant, décuplant plusieurs fois la force qu'il avait déployée lors de son combat contre Wang Lin! L'éléphant géant poussa un rugissement et se mua en une lueur noire qui enveloppa le poing de Luo Chen. Le cri de la créature résonna de concert avec son assaut; l'éléphant se reforma devant le coup de poing pour charger tête baissée dans les gaz aux sept couleurs.
 
 Un fracas assourdissant retentit et une onde de choc terrifiante se propagea. Les gaz aux sept couleurs furent brièvement repoussés, avant de s'étendre plus violemment encore pour dévorer l'éléphant géant.
 
 Alors que les gaz aux sept couleurs convergeaient vers Qing Shui, celui-ci ne recula pas; son regard se fit glacial. Sa main droite pointa entre ses sourcils, faisant apparaître une ligne rouge-pourpre qui traça un arc dans le vide.
 
-En voyant ces gaz, un éclair de lucidité traversa l'esprit de Qing Shui et il s'écria: « J'ai passé ma vie à cultiver en tant que divin et j'ai affiné sept racines du royaume Ji, ce qui m'a permis de devenir un Seigneur Céleste. J'ai massacré d'innombrables êtres, mais je n'ai jamais combattu le Dao des Cieux! »
+En voyant ces gaz, un éclair de lucidité traversa l'esprit de Qing Shui et il s'écria: « J'ai passé ma vie à cultiver l'immortalité et j'ai affiné sept racines du royaume Ji, ce qui m'a permis de devenir un Seigneur Céleste. J'ai massacré d'innombrables êtres, mais je n'ai jamais combattu le Dao des Cieux! »
 
 Au moment où la ligne courbe rouge-pourpre apparut, elle émit un sifflement strident et libéra une force d'une puissance inouïe.
 
 « Le Dao des Cieux? » Une voix grave émana de la fissure, suivie d'un ricanement. À en juger par ce rire, l'être qui s'exprimait n'était point un vieillard!
 
-« Comparé à vous, qui émanez du royaume scellé, je peux effectivement être considéré comme votre Dao des Cieux! Le Serpent aux yeux de lune, deux anciens dieux et vous, qui cultivez le royaume Ji... venez avec moi vers le domaine du Dao des Cieux. Cela peut être considéré comme une grande fortune pour vous tous! »
+« Comparé à vous, qui émanez du royaume scellé, je peux effectivement être considéré comme votre Dao des Cieux! Le Serpent aux yeux de lune, deux anciens dieux et vous, qui possédez la force extrême de l'Asura... venez avec moi vers le domaine du Dao des Cieux. Cela peut être considéré comme une grande fortune pour vous tous! »
 
 Le regard de Qing Shui se glaça et il chargea alors que les gaz aux sept couleurs se refermaient sur lui. La ligne rouge-pourpre fendit les nuées colorées dans un déluge de craquements.
 
@@ -32,17 +32,17 @@ Le rugissement du Serpent aux yeux de lune devint plus intense encore tandis qu'
 
 La moitié du corps colossal du Serpent aux yeux de lune avait déjà été aspirée, et le processus se poursuivait. Grâce à ces gaz, la créature avait perdu toute capacité de résistance; malgré ses efforts, elle ne manifestait plus qu'un désespoir terrifiant.
 
-Lou Chen, assimilé au Serpent aux yeux de lune, fut transpercé par ce rugissement. Alors qu'il s'élançait, les cinq étoiles tournèrent violemment et l'une d'elles fut expulsée avant de se briser!
+Luo Chen, assimilé au Serpent aux yeux de lune, fut transpercé par ce rugissement. Alors qu'il s'élançait, les cinq étoiles tournèrent violemment et l'une d'elles fut expulsée avant de se briser!
 
 L'étoile brisée d'un ancien dieu!
 
-L'astre vola en éclats et une puissance déchaînée surgit du vide. Alors que cette énergie était sur le point de se propager, Lou Chen l'inhala avec une fureur sauvage!
+L'astre vola en éclats et une puissance déchaînée surgit du vide. Alors que cette énergie était sur le point de se propager, Luo Chen l'inhala avec une fureur sauvage!
 
 En inhalant la puissance de l'étoile brisée, des gémissements de douleur s'échappèrent de sa bouche tandis que son corps passait de 3 000 à plus de 7 000 pieds!
 
 D'un seul pas, il se libéra des gaz et atteignit la fissure. Dans un rugissement, il décocha un coup de poing magistral. Au moment de l'impact, l'une des quatre étoiles entre ses sourcils vola en éclats!
 
-Cette étoile brisée généra un impact inimaginable qui se propagea dans son bras droit, lui permettant de porter un coup d'une puissance absolue! Ce coup emprunta la force de deux étoiles brisées, permettant à Lou Chen d'atteindre un niveau de puissance frôlant son apogée!
+Cette étoile brisée généra un impact inimaginable qui se propagea dans son bras droit, lui permettant de porter un coup d'une puissance absolue! Ce coup emprunta la force de deux étoiles brisées, permettant à Luo Chen d'atteindre un niveau de puissance frôlant son apogée!
 
 Alors que son cri résonnait, dix éléphants géants apparurent et chargèrent.
 
@@ -54,27 +54,27 @@ Même les gaz entourant Wang Lin et Qing Shui furent repoussés. La fissure qui 
 
 La figure était désormais totalement exposée: un jeune homme à l'apparence très ordinaire, mais dont les yeux étaient d'une froideur extrême. Ce qui frappait chez lui, c'était une marque en forme de croissant de lune entre ses sourcils!
 
-Il observa froidement le groupe de Wang Lin et resta indifférent face à l'attaque quasi absolue de Lou Chen. Il leva la main droite et déclara calmement: « Formation 99 du royaume scellé, Formation d'Absorption, activez! »
+Il observa froidement le groupe de Wang Lin et resta indifférent face à l'attaque quasi absolue de Luo Chen. Il leva la main droite et déclara calmement: « Des quatre-vingt-dix-neuf formations du royaume scellé, la Formation d'Absorption, activez! »
 
-Sitôt la parole prononcée, un vortex en rotation rapide apparut devant le jeune homme. Sombre comme l'abîme, ce vortex ressemblait à une gueule capable de tout dévorer. Il s'étendit avec frénésie, semblant vouloir engloutir le coup de poing de Lou Chen!
+Sitôt la parole prononcée, un vortex en rotation rapide apparut devant le jeune homme. Sombre comme l'abîme, ce vortex ressemblait à une gueule capable de tout dévorer. Il s'étendit avec frénésie, semblant vouloir engloutir le coup de poing de Luo Chen!
 
 Cependant, ce seul vortex ne suffisait pas à dissoudre la puissance d'un ancien dieu. Après avoir absorbé l'impact, le vortex gronda et s'effondra aussitôt.
 
-L'expression du jeune homme changea et il recula. Ses mains formèrent alors un sceau tandis qu'il criait: « Formation 9 du royaume scellé, Formation Brisant les Cieux, activez! » En parlant, il mordit le bout de sa langue et cracha une large traînée de sang. Ce sang pénétra la fissure, provoquant l'envol d'éclats lumineux qui se condensèrent pour former une immense hache de guerre!
+L'expression du jeune homme changea et il recula. Ses mains formèrent alors un sceau tandis qu'il criait: « Neuvième formation du royaume scellé, Formation Brisant les Cieux, activez! » En parlant, il mordit le bout de sa langue et cracha une large traînée de sang. Ce sang pénétra la fissure, provoquant l'envol d'éclats lumineux qui se condensèrent pour former une immense hache de guerre!
 
 Dès l'apparition de la hache, une pression capable de faire trembler les cieux surgit, accompagnée de multiples effondrements spontanés.
 
-La hache de guerre fulgurante chargea Lou Chen et percuta son poing. Tandis que le fracas retentissait, la hache se brisa et Lou Chen cracha du sang. Repoussé de quelques pas, l'une des trois étoiles d'ancien dieu restantes sur son front vola en éclats, et il se rua à nouveau dans la mêlée!
+La hache de guerre fulgurante chargea Luo Chen et percuta son poing. Tandis que le fracas retentissait, la hache se brisa et Luo Chen cracha du sang. Repoussé de quelques pas, l'une des trois étoiles d'ancien dieu restantes sur son front vola en éclats, et il se rua à nouveau dans la mêlée!
 
 La destruction de la troisième étoile provoqua des tempêtes autour de lui. Son corps passa instantanément de 7 000 à plus de 10 000 pieds de haut. Il était désormais un véritable géant, un ancien dieu! Bien que loin de son apogée, il possédait déjà une puissance dépassant l'entendement!
 
-Les yeux de Wang Lin s'illuminèrent. Si Lou Chen succombait, il serait en grand danger. Il fit un pas en avant, et la puissance de ses quatre étoiles d'ancien dieu royal jaillit avec fureur. Il lança la Lance Tueuse de Dieux qu'il tenait, puis forma un diamant avec ses mains pour projeter l'attaque!
+Les yeux de Wang Lin s'illuminèrent. Si Luo Chen succombait, il serait en grand danger. Il fit un pas en avant, et la puissance de ses quatre étoiles d'ancien dieu royal jaillit avec fureur. Il lança la Lance Tueuse de Dieux qu'il tenait, puis forma un diamant avec ses mains pour projeter l'attaque!
 
 Une lumière de diamant s'échappa et fusionna avec la lance. Elle perça le vide et fonça vers le jeune homme.
 
 Qing Shui n'était pas en reste. Sans perdre un instant, ses mains formèrent un sceau: sept arcs de fils du royaume Ji se lièrent pour s'élancer avec rapidité.
 
-Alors que Lou Chen rugissait, son corps de 10 000 pieds chargea. Le regard sans peur, il déchaîna une pluie de coups de poing.
+Alors que Luo Chen rugissait, son corps de 10 000 pieds chargea. Le regard sans peur, il déchaîna une pluie de coups de poing.
 
 L'attaque combinée des trois provoqua la panique chez le jeune homme, dont les pupilles se rétractèrent. À cet instant, une main desséchée surgit et tira le jeune homme en arrière. Un vieillard aux cheveux blancs apparut et se tint devant lui.
 
@@ -90,18 +90,18 @@ Une hache de guerre de 1 000 pieds apparut soudainement! Formée d'éclats lumin
 
 Bang! Bang! Bang! Dans un vacarme assourdissant, Qing Shui cracha un flot de sang et fut projeté au loin. Wang Lin trembla tandis que des fissures apparaissaient sur son corps. Les quatre étoiles de son front tournèrent frénétiquement pour compenser l'impact inimaginable, mais il fut lui aussi repoussé.
 
-Le corps de Lou Chen commença à rétrécir alors que la puissance des étoiles brisées se dissipait. Ses yeux étaient empreints de tristesse tandis qu'il contemplait la hache dans le ciel et s'écria: « Wang Lin, ton héritage connaît-il cet objet? C'est le trésor sacré du clan des anciens dieux! »
+Le corps de Luo Chen commença à rétrécir alors que la puissance des étoiles brisées se dissipait. Ses yeux étaient empreints de tristesse tandis qu'il contemplait la hache dans le ciel et s'écria: « Wang Lin, ton héritage connaît-il cet objet? C'est le trésor sacré du clan des anciens dieux! »
 
 La Hache Brisant les Cieux explosa en d'innombrables particules de lumière, permettant au réseau fragmenté de se reconstituer rapidement.
 
 Le vieillard à l'extérieur du réseau afficha une expression étrange. Puis, d'un geste de la main, il transforma les particules de lumière en trois mains gigantesques. L'une d'elles saisit le Serpent aux yeux de lune et le tira sans pitié hors du réseau!
 
-La seconde main tendit Lou Chen, qui n'avait plus aucune force pour résister. La troisième main géante se dirigea vers Wang Lin.
+La seconde main se tendit vers Luo Chen, qui n'avait plus aucune force pour résister. La troisième main géante se dirigea vers Wang Lin.
 
-À cet instant précis, une détermination absolue brilla dans les yeux de Lou Chen, comme s'il avait pris une décision irrévocable. Au moment où la main géante le saisit, sa main droite monta entre ses sourcils. Il prit les deux dernières étoiles d'ancien dieu et les lança vers Wang Lin avec un sourire amer. Son regard envers ce dernier était empreint d'une douceur inédite, semblable à celle d'un aîné contemplant son propre enfant.
+À cet instant précis, une détermination absolue brilla dans les yeux de Luo Chen, comme s'il avait pris une décision irrévocable. Au moment où la main géante le saisit, sa main droite monta entre ses sourcils. Il prit les deux dernières étoiles d'ancien dieu et les lança vers Wang Lin avec un sourire amer. Son regard envers ce dernier était empreint d'une douceur inédite, semblable à celle d'un aîné contemplant son propre enfant.
 
 « Ton passage à l'âge adulte fut exemplaire! Même mon propre enfant n'était pas aussi remarquable que toi... Tous les enfants du clan des anciens dieux reçoivent un présent après leur épreuve. Ces deux étoiles d'ancien dieu seront mon cadeau pour toi! »
 
-La voix de Lou Chen était chargée d'un mélange de soulagement et de mélancolie alors qu'il contemplait le vide. Saisi par la main géante, il fut arraché hors du réseau...
+La voix de Luo Chen était chargée d'un mélange de soulagement et de mélancolie alors qu'il contemplait le vide. Saisi par la main géante, il fut arraché hors du réseau...
 
-« Dieu ancien... Dieu ancien... Vous pouvez renverser les cieux, mais vous ne pouvez pas renverser la vie... Moi, Lou Chen, je ne suis pas un dieu ancien, mais un dieu solitaire... »
+« Dieu ancien... Dieu ancien... Vous pouvez renverser les cieux, mais vous ne pouvez pas renverser le destin... Moi, Luo Chen, je ne suis pas un dieu ancien, mais un dieu solitaire... »

@@ -44,7 +44,7 @@ D'innombrables sorts sillonnèrent l'air et une multitude de trésors magiques a
 
 Une offensive déchaînée et incontrôlable venait d'éclater.
 
-« Tuez! » Un cultivateur Ascendant contrôlant près de cent épées volantes chargea sans hésitation vers un messager du Temple Céleste du Tonnerre. Les lames foncèrent sur lui, portées par son rugissement. À ses côtés, une quinzaine d'autres Ascendants aux yeux rouges lançaient leurs attaques simultanément.
+« Tuez! » Un cultivateur Ascendant contrôlant une centaine d'épées volantes chargea sans hésitation vers un messager du Temple Céleste du Tonnerre. Les lames foncèrent sur lui, portées par son rugissement. À ses côtés, une quinzaine d'autres Ascendants aux yeux rouges lançaient leurs attaques simultanément.
 
 De l'autre côté, sous les ordres d'un cultivateur Yin Illusoire, six ou sept autres fusionnèrent leur puissance pour frapper un messager du Temple Céleste.
 
@@ -94,7 +94,7 @@ Pourtant, le rayon argenté était trop rapide. À l'instant même où il disper
 
 Le messager cracha une large traînée de sang et fit quelques pas titubants vers l'avant. Les yeux de Wang Lin restèrent froids. Ignorant totalement la main formée par le brouillard, il pointa sa main droite vers l'avant et un éclair de tonnerre violet jaillit. Il frappa entre les sourcils du messager en un instant. Le corps du messager trembla, puis son âme d'origine fut anéantie avec lui!
 
-À cet instant, la lumière argentée s'estompa pour révéler un homme d'âge moyen au corps émacié. C'était l'un des deux cultivateurs Yang Corporel qui avaient dissimulé leur niveau de culture et étaient restés sur le fragment de cent pieds. Il joignit les mains en signe de respect envers Wang Lin, puis s'élança pour aider les autres.
+À cet instant, la lumière argentée s'estompa pour révéler un homme d'âge moyen au corps émacié. C'était l'un des deux cultivateurs Yang Corporel qui avaient dissimulé leur niveau de culture et étaient restés sur le fragment de 330 mètres. Il joignit les mains en signe de respect envers Wang Lin, puis s'élança pour aider les autres.
 
 Wang Lin hocha légèrement la tête. Il avait déjà percé à jour le niveau de culture des deux Yang Corporel plus tôt; cependant, puisqu'ils avaient payé en jades, il n'avait rien dit et les avait laissés rester.
 

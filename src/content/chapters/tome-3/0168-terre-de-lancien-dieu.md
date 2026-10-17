@@ -14,7 +14,7 @@ Le crapaud descendit du ciel comme une petite montagne s'effondrant sur elle-mê
 
 Une fois la brume écartée, le crapaud géant fut révélé. D'innombrables pustules couvraient son corps; chacune bougeait lentement et émettait une puissante fluctuation d'énergie spirituelle.
 
-Alors que les yeux du crapaud se mouvaient, ils trahissaient un désir de sang impétueux. Un homme était assis sur le dos de la créature. Vêtu d'une robe verte, il était de petite taille, avec un dos voûté comme celui d'un bossu. Ses yeux étaient triangulaires, son menton pointu et sa bouche rappelait celle d'un singe.
+Alors que les yeux du crapaud se mouvaient, ils trahissaient un désir de sang impétueux. Un homme était assis sur le dos de la créature. Vêtu d'une robe verte, il était de petite taille, avec un dos voûté comme celui d'un bossu. Ses yeux étaient triangulaires, son menton pointu et sa bouche rappelait celle d'un singe. Une lueur sinistre brillait dans ses yeux et son visage était couvert de pustules semblables aux bosses du crapaud, d'où se dégageait une odeur fétide; il paraissait extrêmement laid.
 
 Il toucha une pustule sur son visage en riant et dit d'une voix rauque: « Ces vieux du Clan des Démons Géants qui me pourchassaient depuis plus de 300 ans ont tous été empoisonnés jusqu'à la mort par moi. Si ce n'était pas parce que l'échéance des mille ans approchait et que cet endroit était sur le point de s'ouvrir, je serais déjà allé me venger auprès du Clan des Démons Géants. »
 
@@ -52,7 +52,7 @@ Le Seigneur Démon des Six Désirs pointa le doigt. Des liquides de diverses cou
 
 Une nouvelle matrice de transfert apparut là où se trouvait l'ancienne. Celle-ci contenait au moins le double de symboles de la précédente, ainsi que dix piliers de lumière s'élançant vers le ciel.
 
-Une à une, des créatures désincarnées poussèrent des cris silencieux en circulant dans les piliers de lumière. Le Seigneur Démon des Six Désirs prit une profonde inspiration et cria: « La matrice de transfert est ouverte! Lancez rapidement les pierres spirituelles de qualité supérieure comme convenu. J'en utiliserai quatre cette fois-ci. »
+Une à une, des créatures désincarnées poussèrent des cris silencieux en circulant dans les piliers de lumière. Le Seigneur Démon des Six Désirs prit une profonde inspiration et cria: « La matrice de transfert est sur le point de s'ouvrir! Lancez rapidement les pierres spirituelles de qualité supérieure comme convenu. J'en utiliserai quatre cette fois-ci. »
 
 Sur ces mots, quatre pierres spirituelles de qualité supérieure apparurent de son sac de rangement. Chacune des quatre pierres vola vers un pilier et s'y immobilisa.
 
@@ -70,13 +70,13 @@ Cependant, l'unique moyen d'utiliser ces matrices était de posséder des pierre
 
 Duanmu Ji serra les dents et sortit ses deux dernières pierres de son sac de rangement. Le cœur serré, il les lança vers la lumière. Sur les dix piliers, huit étaient désormais alimentés par des pierres de qualité supérieure.
 
-Le dernier était le bossu Meng. Il tapota le crapaud sur son épaule; l'animal gonfla le ventre et cracha deux objets dans les piliers de lumière.
+Le dernier était le bossu Meng. Il tapota le crapaud sur son épaule; l'animal gonfla le ventre et cracha deux rayons de lumière dans les piliers de lumière.
 
 Désormais, les dix piliers contenaient chacun une pierre de qualité supérieure. Les colonnes de lumière disparurent soudainement, toute la luminosité s'étant concentrée sur les pierres elles-mêmes.
 
 Ces dix pierres brillaient comme dix soleils éclatants. Elles descendirent lentement vers la matrice de transfert, la faisant tourner avec lenteur.
 
-Le Seigneur Démon des Six Désirs afficha une expression d'excitation et s'écria: « Il y a mille ans, plus de cent d'entre nous étaient entrés, mais nous n'avons même pas atteint la zone intérieure! Les restrictions extérieures nous ont fait lutter et nous avons été contraints de battre en retraite au troisième essai; seuls quatre d'entre nous ont survécu par chance. Mille ans plus tard, nos niveaux de culture ont considérablement augmenté. Nous devons briser ces restrictions et voir ce qui s'y cache! »
+Le Seigneur Démon des Six Désirs afficha une expression d'excitation et s'écria: « Il y a mille ans, près d'une centaine d'entre nous étaient entrés, mais nous n'avons même pas atteint la zone intérieure! Les restrictions extérieures nous ont fait lutter et nous avons été contraints de battre en retraite au troisième essai; seuls quatre d'entre nous ont survécu par chance. Mille ans plus tard, nos niveaux de culture ont considérablement augmenté. Nous devons briser ces restrictions et voir ce qui s'y cache! »
 
 Même l'Empereur Antique ne put s'empêcher de laisser ses yeux briller alors qu'il pénétrait dans la matrice.
 
@@ -114,7 +114,7 @@ Les yeux de Wang Qingyue s'illuminèrent alors qu'il contemplait l'anneau ovale 
 
 Le bossu Meng toucha sa pustule et demanda: « Six Désirs, Duanmu, peu importe si nous ne brisons pas la restriction, mais si nous y parvenons, comment partagerons-nous les butins? »
 
-Le Seigneur Démon des Six Désirs répondit à Wang Qingyue: « Quant aux objets, ils seront répartis équitablement. Mais s'il y a une Pilule de Transformation de l'Âme, alors que nos capacités décident. »
+Le Seigneur Démon des Six Désirs répondit à Wang Qingyue: « Quant aux objets, ceux qui y entreront en recevront un chacun. Mais s'il y a une Pilule de Transformation de l'Âme, alors ce seront nos capacités qui décideront. »
 
 Duanmu Ji laissa échapper un rire sournois: « Il est bien trop tôt pour en parler. Nous déciderons une fois la restriction brisée. »
 
@@ -148,7 +148,7 @@ Après les avoir soigneusement rangées, Wang Lin entra dans l'anneau sans mot d
 
 Le spectacle qui s'offrit à lui lui coupa le souffle et le laissa stupéfait.
 
-L'endroit ressemblait fort au monde de la décrépitude, un lieu d'obscurité infinie. La seule différence résidait dans les innombrables piliers de pierre géants qui flottaient ici, portés par une force mystérieuse, progressant lentement vers l'avant.
+L'endroit ressemblait fort au Nirvana, un lieu d'obscurité infinie. La seule différence résidait dans les innombrables piliers de pierre coniques géants qui flottaient ici, portés par une force mystérieuse, progressant lentement vers l'avant.
 
 Wang Lin se tenait sur l'un de ces piliers. Le sommet mesurait trois cents pieds de large et il était seul dessus. Sous lui, rien qu'un vide abyssal.
 
@@ -166,11 +166,11 @@ Son Sens Divin pénétra le sac, mais sans réaction. Wang Lin fut surpris, mais
 
 Soudain, Wang Qingyue, qui regardait par-delà le bord du pilier, s'écria: « Qu'est-ce que c'est? »
 
-Dans le vide infini sous eux, deux lampes éclatantes s'allumèrent soudainement. Ces lueurs mesuraient plusieurs pieds de large. Wang Lin déploya son Sens Divin et comprit qu'il ne s'agissait pas de lampes, mais d'une paire d'yeux.
+Dans le vide infini sous eux, deux lampes éclatantes s'allumèrent soudainement. Ces lueurs mesuraient plusieurs dizaines de pieds de large. Wang Lin déploya son Sens Divin et comprit qu'il ne s'agissait pas de lampes, mais d'une paire d'yeux.
 
 Peu après, la paire d'yeux disparut, pour réapparaître aussitôt, bien plus grande cette fois. Le bossu Meng s'approcha du bord de son pilier et regarda en bas avec une expression sombre. Il agita sa main droite, laissant tomber une poudre bleue qui libéra une lueur spectrale. Plus la poudre descendait, plus la lumière devenait intense; lorsqu'elle atteignit enfin les yeux, une scène qui fit frissonner tout le monde se dévoila.
 
-La créature en dessous était un monstre serpentiforme colossal, dont la taille était inestimable. À la seule lueur de la poudre spectrale, elle mesurait au moins dix mille pieds de long et mille pieds de large. Un corps aux reflets rouge-violet brillait dans l'obscurité.
+La créature en dessous était un monstre serpentiforme colossal, dont la taille était inestimable. À la seule lueur de la poudre spectrale, elle mesurait au moins plusieurs dizaines de milliers de pieds de long et mille pieds de large. Un corps aux reflets rouge-violet brillait dans l'obscurité.
 
 Neuf cornes ornaient sa tête massive, et lorsque la gueule s'ouvrit, la netteté de ses dents fit frémir quiconque les voyait.
 
@@ -198,4 +198,4 @@ Une odeur de poisson envahit l'espace. Wang Lin, la pilule entre les dents, saut
 
 La progression était effrénée. Le plus rapide était Wang Qingyue, grâce à sa maîtrise de la technique d'évasion des cinq éléments. Son corps semi-transparent volait selon une trajectoire différente: il fonçait en ligne droite et, chaque fois qu'un pilier lui barrait la route, son corps disparaissait au contact pour réapparaître instantanément de l'autre côté.
 
-La bête désolée serpentiforme observa froidement les individus bondir devant elle. Après une série de rugissements, elle redressa son corps massif, révélant sa longueur de plus de dix mille pieds, et s'abattit sur eux.
+La bête désolée serpentiforme observa froidement les individus bondir devant elle. Après une série de rugissements, elle redressa son corps massif, révélant sa longueur de plusieurs dizaines de milliers de pieds, et s'abattit sur eux.

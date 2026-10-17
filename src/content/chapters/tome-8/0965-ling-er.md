@@ -10,11 +10,11 @@ Wang Lin ouvrit la porte et vit Maître Yi Chen qui se tenait à l'extérieur av
 
 « Cher cultivateur, vous êtes trop aimable. Je vous en prie, entrez. » Wang Lin sourit.
 
-Au nord de cette cour, se dressait un pavillon. Bien que de taille modeste, il était d'une grande beauté. Façonné dans le jade céleste, il disposait d'une formation d'accumulation d'énergie spirituelle afin de garantir un environnement propice à la culture.
+Au nord de cette cour, se dressait un pavillon. Bien que de taille modeste, il était d'une grande beauté. Orné de dragons et de phénix sculptés et façonné dans le jade céleste, il disposait d'une formation d'accumulation d'énergie spirituelle afin de garantir un environnement propice à la culture.
 
-À l'extérieur du pavillon, un ruisseau s'écoulait, dont le murmure apaisant pouvait améliorer l'humeur. De petits poissons nageaient dans le courant et sautaient parfois hors de l'eau, créant des ondulations et des éclaboussures.
+À l'extérieur du pavillon, un ruisseau s'écoulait, dont le murmure semblait pouvoir balayer la poussière du monde mortel. De petits poissons nageaient dans le courant et sautaient parfois hors de l'eau, créant des ondulations et des éclaboussures.
 
-À l'intérieur du pavillon, un homme d'âge moyen vêtu d'une robe violette et un vieil homme en robe verte étaient assis face à une table. Celle-ci, faite de jade blanc, était parfaitement lisse.
+À l'intérieur du pavillon, un homme d'âge moyen vêtu d'une robe violette et un vieil homme en robe verte étaient assis face à une table. Celle-ci, faite de jade blanc, brillait d'un éclat doux.
 
 À leurs côtés se tenait une femme magnifique aux grands yeux pétillants. Elle observait l'arrivée de Maître Yi Chen et de Wang Lin.
 
@@ -22,11 +22,11 @@ Au nord de cette cour, se dressait un pavillon. Bien que de taille modeste, il �
 
 Wang Lin observa le pavillon, puis la superbe jeune femme qui les regardait. Elle était elle aussi une cultivatrice, bien que son niveau de culture ne fût pas très élevé, seulement au stade de l'Âme Naissante. Elle était d'une beauté saisissante mais conservait une innocence rare dans le monde de la culture. Seule une personne protégée par un être puissant pouvait préserver une telle pureté; cet être devait la garder sous sa garde pour éviter qu'elle ne soit trop exposée aux turpitudes du monde des cultivateurs.
 
-Cette femme ressemblait fort à Maître Yi Chen.
+Cette femme présentait une légère ressemblance avec Maître Yi Chen.
 
 Lorsqu'elle remarqua le regard de Wang Lin, ses joues s'empourprèrent et elle baissa la tête. Pourtant, elle continuait de l'observer du coin de l'œil, animée par une curiosité manifeste.
 
-Wang Lin esquissa un léger sourire. Avec sa ruse naturelle, il avait immédiatement perçu leurs intentions. Bien que le malentendu entre eux ne fût pas profond, tout pouvait arriver dans le monde de la culture. Ils craignaient que Wang Lin ne se méfie si les trois d'entre eux l'avaient invité seuls; ils auraient alors craint de ne pouvoir discuter librement. Ils avaient donc décidé de faire venir cette jeune femme, une parente, comme un moyen indirect de prouver qu'ils n'avaient aucune malveillance.
+Wang Lin esquissa un léger sourire. Avec son intelligence, il avait immédiatement perçu leurs intentions. Bien que le malentendu entre eux ne fût pas profond, tout pouvait arriver dans le monde de la culture. Ils craignaient que Wang Lin ne se méfie si les trois d'entre eux l'avaient invité seuls; ils auraient alors craint de ne pouvoir discuter librement. Ils avaient donc décidé de faire venir cette jeune femme, une parente, comme un moyen indirect de prouver qu'ils n'avaient aucune malveillance.
 
 Autrement, ils n'auraient pas amené une junior de niveau Âme Naissante ici.
 
@@ -50,11 +50,11 @@ En entendant la voix de cette femme magnifique, Wang Lin entra brièvement en tr
 
 Après ce soupir secret, le regard de Wang Lin revint sur la magnifique jeune fille. Celle-ci, mal à l'aise, n'osait croiser son regard.
 
-Effleurant doucement sa sacoche de rangement, Wang Lin en sortit un chapeau de paille. En le voyant, il eut l'impression de voir Yun Quezi. Après avoir posé le chapeau sur la table, il dit calmement: « Ceci est un cadeau d'un vieil ami. Il peut aider à dissimuler votre aura. Une fois que cher cultivateur Maître Yi Chen l'aura raffiné, son pouvoir pourrait s'en trouver accru. Je souhaite l'offrir à cette enfant. »
+Effleurant doucement sa sac de rangement, Wang Lin en sortit un chapeau de paille. En le voyant, il eut l'impression de voir Yun Quezi. Après avoir posé le chapeau sur la table, il dit calmement: « Ceci est un cadeau d'un vieil ami. Il peut aider à dissimuler votre aura. Une fois que cher cultivateur Maître Yi Chen l'aura raffiné, son pouvoir pourrait s'en trouver accru. Je souhaite l'offrir à cette enfant. »
 
 La jeune fille fronça le nez; il était évident qu'elle trouvait ce chapeau un peu laid.
 
-Maître Yi Chen examina attentivement l'objet et fut surpris: « Frère Wang, bien que cet objet ne soit pas un trésor céleste, il est extrêmement exquis. Le nombre de formations à l'intérieur est si grand que même moi, je ne peux en percevoir toute la complexité instantanément. Ces restrictions travaillant de concert peuvent masquer toute aura. Un expert en restrictions pourrait apprendre d'innombrables techniques en étudiant ce chapeau et ainsi accroître son niveau de culture. Frère Wang, ce cadeau est bien trop précieux... »
+Maître Yi Chen examina attentivement l'objet et fut surpris: « Frère Wang, bien que cet objet ne soit pas un trésor céleste, il est extrêmement exquis. Le nombre de restrictions à l'intérieur est si grand que même moi, je ne peux en percevoir toute la complexité instantanément. Ces restrictions travaillant de concert peuvent masquer toute aura. Un expert en restrictions pourrait apprendre d'innombrables techniques en étudiant ce chapeau et ainsi accroître son niveau de culture. Frère Wang, ce cadeau est bien trop précieux... »
 
 En entendant cela, les yeux de la jeune fille s'illuminèrent de curiosité.
 
@@ -62,7 +62,7 @@ Wang Lin secoua la tête: « Cet objet ne me sert à rien, offrez-le simplement 
 
 Maître Yi Chen hésita un instant avant d'acquiescer en signe de gratitude.
 
-En regardant la jeune fille, le regard de Wang Lin se fit légèrement plus doux. Il frappa sa sacoche et en sortit trois clochettes. Il sourit: « Je vous offre ceci également. »
+En regardant la jeune fille, le regard de Wang Lin se fit légèrement plus doux. Il frappa son sac de rangement et en sortit trois clochettes. Il sourit: « Je vous offre ceci également. »
 
 La joie brilla dans les yeux de la jeune fille alors qu'elle saisissait les clochettes. En entendant leur tintement cristallin, elle éclata de rire. Plus elle les contemplait, plus elle les aimait. Elle se tourna vers Wang Lin: « Ling Er remercie Senior. »
 
@@ -70,13 +70,13 @@ Sa voix était encore plus mélodieuse qu'auparavant, mais cela n'eut aucun effe
 
 Lorsque Maître Yi Chen vit les clochettes, sa perspicacité lui permit de comprendre immédiatement qu'elles n'étaient pas ordinaires. Il soupira, se leva et joignit les mains devant Wang Lin: « Cher cultivateur Wang, ce vieil homme vous remercie infiniment. »
 
-Il se sentait profondément embarrassé. C'était à eux trois d'avoir commis une maladresse, et pourtant, leur junior recevait maintenant de magnifiques présents de la part de l'autre partie. Après s'être rassis, il réfléchit un instant, puis sortit une pierre noire: « Cher cultivateur Wang, veuillez accepter cette Pierre du Ciel Obscur. Lorsque les cultivateurs atteignent notre niveau, nous avons besoin de ces pierres pour y confier notre âme d'origine afin de créer des avatars ou pour préserver des sorts puissants. Si vous refusez, ce vieil homme en éprouvera une grande honte. »
+Il se sentait profondément embarrassé. C'était à eux trois d'avoir commis une maladresse, et pourtant, leur junior recevait maintenant de magnifiques présents de la part de l'autre partie. Après s'être rassis, il réfléchit un instant, puis sortit une pierre noire: « Cher cultivateur Wang, veuillez accepter cette Pierre du Ciel Obscur. Lorsque les cultivateurs atteignent notre niveau, nous avons besoin de ces pierres pour y confier notre âme originelle afin de créer des avatars ou pour préserver des sorts puissants. Si vous refusez, ce vieil homme en éprouvera une grande honte. »
 
 Wang Lin sourit en prenant la pierre et la parcourut de son Sens Divin. Bien que son expression restât neutre, il fut intérieurement impressionné. Cette pierre noire était très étrange, parsemée de minuscules orifices dégageant une force d'aspiration. Non seulement elle pouvait stocker et préserver le Sens Divin, mais elle permettait aussi de préparer un sort à l'avance. Elle était similaire aux talismans du Clan des Immortels Délaissés. De plus, on pouvait créer un avatar illusoire par la simple pensée. C'était un trésor fort pratique.
 
-Bien que ce ne fût pas un objet d'une valeur inestimable, il n'en demeurait pas moins rare. Wang Lin acquiesça et le rangea dans sa sacoche.
+Bien que ce ne fût pas un objet d'une valeur inestimable, il n'en demeurait pas moins rare. Wang Lin acquiesça et le rangea dans son sac de rangement.
 
-« Ce vieil homme est distrait et n'a pas encore présenté mes deux frères cadets. Voici mon deuxième frère, Liu Yulong, dont le surnom est Maître Yi Long. » Maître Yi Chen désigna le vieil homme en robe verte.
+« Ce vieil homme est distrait et n'a pas encore présenté mes deux frères cadets. Voici mon deuxième frère, Liu Yuelong, dont le surnom est Maître Yi Long. » Maître Yi Chen désigna le vieil homme en robe verte.
 
 Ce dernier se leva, joignit les mains devant Wang Lin et rit: « Le nom de Maître Yi Long n'est rien face au Frère Wang. Vous pouvez simplement m'appeler par mon nom. »
 

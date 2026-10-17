@@ -6,13 +6,13 @@ bookTitle: Cultivation Planet Crystal
 en: Chapter 465 - Battling Qian Feng
 slug: affrontement-avec-qian-feng
 ---
-Qian Feng était à bout de souffle. Zhuque Zi lui avait dérobé une immense part de sa force vitale plus tôt, le laissant extrêmement affaibli. Sa haine envers Zhuque Zi était monstrueuse.
+Qian Feng était à bout de souffle. Zhu Quezi lui avait dérobé une immense part de sa force vitale plus tôt, le laissant extrêmement affaibli. Sa haine envers Zhu Quezi était monstrueuse.
 
-« Heureusement, je ne l'ai pas utilisé lors d'un combat comme il me l'avait ordonné, sinon il m'aurait vidé de mon sang avant même que je n'aie pu tuer l'ennemi. » Qian Feng était furieux, mais ce n'était pas le moment de s'emporter contre Zhuque Zi. Il devait maintenant se concentrer sur la manière de contrer l'intention meurtrière qui le visait.
+« Heureusement, je ne l'ai pas utilisé lors d'un combat comme il me l'avait ordonné, sinon il m'aurait vidé de mon sang avant même que je n'aie pu tuer l'ennemi. » Qian Feng était furieux, mais ce n'était pas le moment de s'emporter contre Zhu Quezi. Il devait maintenant se concentrer sur la manière de contrer l'intention meurtrière qui le visait.
 
-En vérité, Zhuque Zi n'avait pas commencé à comploter contre lui à la dernière minute. S'il n'y avait pas eu l'apparition du Clan Immortel Abandonné, il aurait peut-être trouvé un moyen d'échapper au destin lorsque sa durée de vie s'épuiserait, afin de continuer à vivre en volant le corps de Qian Feng.
+En vérité, Zhu Quezi n'avait pas commencé à comploter contre lui à la dernière minute. S'il n'y avait pas eu l'apparition du Clan Immortel Abandonné, il aurait peut-être trouvé un moyen d'échapper au destin lorsque sa durée de vie s'épuiserait, afin de continuer à vivre en volant le corps de Qian Feng.
 
-Zhuque Zi planifiait cela depuis que Qian Feng était enfant. La raison pour laquelle il avait fait dévorer tous ces domaines par Qian Feng n'était pas pour le bien de ce dernier, mais pour le sien.
+Zhu Quezi planifiait cela depuis que Qian Feng était enfant. La raison pour laquelle il avait fait dévorer tous ces domaines par Qian Feng n'était pas pour le bien de ce dernier, mais pour le sien.
 
 La méthode qu'il utilisait sur Qian Feng était en réalité un sort secret que les précédents Suzakus avaient développé. Ce sort était incomplet et n'avait moins de 10 % de chances de réussir; même en cas de succès, il ne retarderait la mort que de quelques décennies.
 
@@ -22,7 +22,7 @@ La poupée de cuivre était la clé. Elle avait été créée par le quatrième 
 
 En réalité, si cette poupée de cuivre possédait un tel pouvoir, c'était en raison de la mutation du Cristal de Planète de Culture, et les précédents Suzakus avaient appris à maîtriser cette puissance en étudiant le cristal.
 
-Cependant, cet objet n'était pas encore achevé et présentait de nombreux défauts. Actuellement, bien que Zhuque Zi l'ait utilisé pour prendre forme et paraisse plein de vitalité, ce n'était qu'une apparence temporaire.
+Cependant, cet objet n'était pas encore achevé et présentait de nombreux défauts. Actuellement, bien que Zhu Quezi l'ait utilisé pour prendre forme et paraisse plein de vitalité, ce n'était qu'une apparence temporaire.
 
 Wang Lin agita le drapeau des âmes d'un milliard dans sa main, et d'innombrables fragments d'âmes s'envolèrent immédiatement, couvrant les cieux. Des gémissements fantomatiques incessants, capables de faire trembler l'univers même, émanèrent des fragments d'âmes.
 

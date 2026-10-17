@@ -6,7 +6,7 @@ bookTitle: "Alliance's Secret"
 en: Chapter 1063 - Qing Lins Words Before Being Possessed
 slug: les-dernieres-paroles-de-qing-lin-avant-detre-possedee
 ---
-Le Maître du Vide fixa Wang Lin. Après avoir été contraint de réprimer sa colère pendant si longtemps, il ne pouvait plus se contenir. À cet instant, oubliant qu'il ne devait pas perdre son sang-froid aussi facilement compte tenu de la chute de sa culture, il chargea Wang Lin.
+Le Maître du Vide fixa Wang Lin. Après avoir été contraint de réprimer sa colère pendant si longtemps, il ne pouvait plus se contenir. À cet instant, oubliant qu'il ne devait pas perdre son sang-froid aussi facilement compte tenu de son niveau de culture, il chargea Wang Lin.
 
 « Petit bâtard, je vais te dépécer vivant aujourd'hui! »
 
@@ -62,9 +62,9 @@ C'était le véritable corps de l'Ancien Démon Bei Lou. Dès qu'il apparut, il 
 
 Tout en poursuivant Bei Lou, l'ancien démon lança un regard glacial à Wang Lin, au loin.
 
-Wang Lin se déplaçait aussi vite que possible pour éviter le Maître du Vide, qui se comportait comme un chien enragé, mais sa vitesse restait bien trop lente face à celle de son poursuivant. En ce moment de crise, Wang Lin sortit le tatouage du clan du Tatouage Flétris et l'appliqua sur son corps, portant immédiatement sa vitesse à son paroxysme.
+Wang Lin se déplaçait aussi vite que possible pour éviter le Maître du Vide, qui se comportait comme un chien enragé, mais sa vitesse restait bien trop lente face à celle de son poursuivant. En ce moment de crise, Wang Lin sortit le talisman de vitesse du clan des Tatouages et l'appliqua sur son corps, portant immédiatement sa vitesse à son paroxysme.
 
-« Va vers le palais. Ma femme est là... Elle était éveillée avant que le Maître ne soit possédé, elle doit donc avoir reçu un message. » La voix de Wang Wei parvint derrière Wang Lin. Ses blessures étaient totalement guéries. Après avoir parlé, il quitta Wang Lin pour charger le Maître du Vide.
+« Va vers le palais. Ma femme est là... Elle a été emmenée avant que le Maître ne soit possédé, il doit donc y avoir eu un message. » La voix de Wang Wei parvint derrière Wang Lin. Ses blessures étaient totalement guéries. Après avoir parlé, il quitta Wang Lin pour charger le Maître du Vide.
 
 Wang Lin changea immédiatement de direction sans s'arrêter. Il atteignit en un éclair le palais effondré et, d'un balayage de son sens divin, il repéra Hu Juan, inconsciente.
 
@@ -74,11 +74,11 @@ S'approchant d'elle, Wang Lin rassembla une énergie d'origine de feu dans sa ma
 
 À son réveil, une trace de confusion passa dans les yeux de Hu Juan, mais elle se rétablit promptement. Elle se leva, ses mains formant un sceau, puis elle pointa le ciel. Un grondement résonna dans l'éther et six piliers de lumière s'abattirent à moins de cent pieds de Hu Juan.
 
-Au loin, la main droite de Wang Wei traça un sceau, créant un rideau d'eau qui emprisonna le Maître du Vide. Une intention meurtrière brilla dans ses yeux, mais ce n'était manifestement pas le moment de combattre. Il laissa échapper un reniflement froid, et l'eau emprisonnant le Maître du Vide se mua soudain en une multitude d'épées qui se rétractèrent rapidement. Sans attendre le résultat, Wang Wei apparut instantanément aux côtés de Hu Juan et Wang Lin. Le pilier de lumière brilla et les trois disparurent aussitôt.
+Au loin, la main droite de Wang Wei traça un sceau, créant un rideau d'eau qui emprisonna le Maître du Vide. Une intention meurtrière brilla dans ses yeux, mais ce n'était manifestement pas le moment de combattre. Il laissa échapper un reniflement froid, et l'eau emprisonnant le Maître du Vide se mua soudain en une multitude de flèches d'eau qui se rétractèrent rapidement. Sans attendre le résultat, Wang Wei apparut instantanément aux côtés de Hu Juan et Wang Lin. Le pilier de lumière brilla et les trois disparurent aussitôt.
 
 Au même moment, l'homme en noir arriva également, paniqué. Il se précipita dans les piliers de lumière et disparut à son tour.
 
-Le corps du Maître du Vide fut encerclé par des épées d'eau. Alors qu'elles le transperçaient, il poussa un rugissement et une tempête de terre jaune surgit. Des bruits de collisions retentirent alors qu'il parvenait à bloquer les attaques, mais il cracha du sang. Cela le fit frissonner de froid et le tira de son état de démence.
+Le corps du Maître du Vide fut encerclé par des flèches d'eau. Alors qu'elles le transperçaient, il poussa un rugissement et une tempête de terre jaune surgit. Des bruits de collisions retentirent alors qu'il parvenait à bloquer les attaques, mais il cracha du sang. Cela le fit frissonner de froid et le tira de son état de démence.
 
 Tout ce qui s'était produit aurait semblé incroyable à n'importe qui d'autre. Comment avait-il pu perdre le contrôle de son intention meurtrière et attaquer en un tel moment de crise? S'il avait été un tant soit peu négligent, il serait mort ici même.
 
@@ -88,7 +88,7 @@ Les yeux du Maître du Vide se remplirent de peur et d'amertume. Son corps vacil
 
 L'Ancien Démon Bei Lou, poursuivi par l'ancien démon, laissait échapper des rugissements de rage. Lorsqu'il vit que le réseau de transfert pour quitter les lieux s'était ouvert, il se précipita vers lui sans hésiter. Cependant, alors qu'il approchait, l'ancien démon qui le traquait afficha un regard sanguinaire. Il lâcha la lame qu'il tenait et ouvrit soudainement les bras.
 
-« Le Démon dévore tous les esprits! » Alors qu'il criait, l'armure de l'ancien démon libéra une brume noire infinie qui envahit à nouveau le monde. Cette brume se mua en un mont géant qui tenta de dévorer impitoyablement Bei Lou en fuite.
+« Le Démon dévore tous les esprits! » Alors qu'il criait, l'armure de l'ancien démon libéra une brume noire infinie qui envahit à nouveau le monde. Cette brume se mua en une gueule géante qui tenta de dévorer impitoyablement Bei Lou en fuite.
 
 Bei Lou poussa un gémissement de douleur avant que son corps ne s'effondre dans un fracas. La moitié de son être fut dévorée, et l'autre moitié retrouva la taille d'un homme ordinaire. Il disparut ensuite dans le réseau de transfert.
 

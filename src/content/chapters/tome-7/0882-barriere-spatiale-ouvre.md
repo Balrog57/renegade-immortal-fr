@@ -18,7 +18,7 @@ D'innombrables fragments recouvraient la voûte céleste. À cet instant, sous l
 
 Alors que ces fragments tournaient autour d'un point central, un vortex apparut dans le ciel. Ce vortex était d'une puissance colossale et générait une tempête. Tandis que les grondements et les sifflements persistaient, la scène devint véritablement apocalyptique!
 
-Les nuages disparurent comme par enchantement. Le ciel étoilé apparut, comme si une paire de mains géantes était en train de le déchirer. Le vortex formé par ces mains immenses brillait d'un éclat extrême dans l'obscurité spatiale. Il s'étendit jusqu'à couvrir la totalité du ciel au-dessus du Temple Céleste du Tonnerre.
+Les nuages disparurent comme par enchantement. Le ciel étoilé apparut, comme si une paire de mains géantes était en train de le déchirer. Le vortex formé par la rotation des fragments brillait d'un éclat extrême dans le ciel étoilé. Il s'étendit jusqu'à couvrir la totalité du ciel au-dessus du Temple Céleste du Tonnerre.
 
 Ce vortex contenait une puissance inimaginable, capable de tuer instantanément un cultivateur de niveau Scruteur du Nirvana. Même des cultivateurs de niveau Purificateur du Nirvana ne pourraient y survivre longtemps!
 
@@ -50,7 +50,7 @@ Le corps de Lie Yunzi trembla, son visage pâlit et il fut contraint de reculer.
 
 Le bruit d'un miroir se brisant résonna une nouvelle fois. Le Dieu Sanguin, enveloppé d'une lueur sanglante, se précipita dans le vortex, son poing en avant. Ce coup de poing dégageait une lueur rouge éblouissante et perça les profondeurs du vortex.
 
-L'ancêtre de la famille Xian et l'homme nommé Gongsun firent un pas en avant. Puis, divers vieux monstres lancèrent leurs attaques. Pendant un long moment, le vortex commença à s'étendre davantage, sous une pluie ininterrompue d'explosions!
+Le vieil homme de la famille Xiang et l'homme nommé Gongsun firent un pas en avant, l'un après l'autre. Puis, divers vieux monstres lancèrent leurs attaques. Pendant un long moment, le vortex commença à s'étendre davantage, sous une pluie ininterrompue d'explosions!
 
 Finalement, Maître Yan Leizi mordit le bout de sa langue et cracha son essence de sang. Le sang se mua en une brume écarlate qui fusionna avec le monde.
 
@@ -66,11 +66,11 @@ L'éclair rouge imprégné du pouvoir du Royaume Ji s'enfonça dans les profonde
 
 Boum!
 
-Le Temple Céleste du Tonnerre tout entier trembla, le ciel changea de couleur et les nuages furent balayés. Tous les cultivateurs du Système Stellaire de Luotian furent témoins d'une scène que les pierres de transmission sonore ne leur feraient jamais oublier!
+Le Temple Céleste du Tonnerre tout entier trembla, le ciel changea de couleur et les nuages furent balayés. Tous les cultivateurs du Système Stellaire de Luotian virent, par les pierres de transmission sonore, une scène grandiose qu'ils n'oublieraient jamais de leur vie!
 
 Le vortex dans le ciel trembla soudainement et une petite fissure fut déchirée de force. Dès son apparition, la brèche se propagea rapidement pour atteindre, en un instant, plus de cent pieds de large. C'était une cicatrice qui faisait frémir les cœurs.
 
-Des tourbillons noirs s'agitaient sur les bords de la faille.
+Des tourbillons noirs s'agitaient sur les bords de la faille et de grandes bouffées de froid en jaillissaient. Sous leur mouvement, la faille se refermait à une vitesse extrême.
 
 Il avait fallu tant d'efforts pour ouvrir une brèche dans la barrière spatiale vers le Système Stellaire de l'Alliance; comment Maître Yan Leizi aurait-il pu la laisser se refermer? Il avait trop attendu ce jour. Ses yeux étaient injectés de sang et son visage affichait une expression féroce. Sa main droite forma un sceau, il pointa le ciel et hurla: « Contenez les Cieux! »
 

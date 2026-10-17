@@ -74,7 +74,7 @@ Sa vision se brouilla. Lorsqu'elle se clarifia, il découvrit qu'il se trouvait 
 
 L'obscurité régnait partout, si ce n'est autour d'une flamme vacillante au centre, conférant au lieu une atmosphère sinistre. On aurait dit que des spectres se cachaient dans les ténèbres entourant la lueur, cherchant à la dévorer, pour être systématiquement repoussés par le feu.
 
-« Cet endroit est le 18e niveau. Cette flamme est un fragment de l'origine primordiale de leur ancêtre. Tente de la comprendre; si tu en tires quelque chose, cela dépendra de ta chance! » La voix du vieil homme résonna dans la pièce. Wang Lin réfléchit un instant avant de poser son regard sur la flamme.
+« Cet endroit est le 18e niveau du Clan Fu. Cette flamme est un fragment de l'origine primordiale du Clan Fu. Tente de la comprendre; si tu en tires quelque chose, cela dépendra de ta chance! » La voix du vieil homme résonna dans la pièce. Wang Lin réfléchit un instant avant de poser son regard sur la flamme.
 
 Dès que ses yeux se fixèrent sur elle, son esprit trembla. Une force mystérieuse sembla jaillir de la flamme pour s'engouffrer dans l'esprit de Wang Lin.
 
@@ -88,17 +88,17 @@ Les poissons du Yin et du Yang apparurent dans son esprit. En tournoyant, ils ba
 
 À ce moment-là, la silhouette de l'ancien cultivateur apparut aux côtés de Wang Lin. Il l'observa avec admiration et murmura: « Pas mal. Ce petit gars était sur le point d'acquérir une compréhension de ce niveau d'origine primordiale. Après observation, je pourrai le laisser entrer dans la Série de l'Oiseau Vermillon! »
 
-À cet instant, Wang Lin était immergé dans un ciel étoilé. Il voyait d'innombrables êtres célestes maniant divers trésors magiques. Devant eux s'étendaient des talismans jaunes de dizaines, de centaines, de milliers, voire de dizaines de milliers de pieds de long!
+À cet instant, Wang Lin était immergé dans un ciel étoilé. Il voyait d'innombrables êtres célestes maniant divers trésors magiques. Devant eux s'étendaient des talismans jaunes de dizaines, de centaines, voire de milliers de pieds de long!
 
-Sur chaque talisman se tenaient d'étranges individus. Bien que leurs vêtements ne diffèrent guère de ceux des cultivateurs, ils arboraient des tatouages représentant les plantes du Clan des Immortels Délaissés. La distinction résidait dans le nombre de feuilles sur ces tatouages.
+Sur chaque talisman se tenaient d'étranges individus. Bien que leurs vêtements ne diffèrent guère de ceux des cultivateurs, ils arboraient des totems représentant les plantes du Clan des Immortels Délaissés. La distinction résidait dans le nombre de feuilles sur ces totems.
 
-Chacun d'eux portait un tatouage scintillant entre les sourcils.
+Chacun d'eux avait une rune scintillante entre les sourcils.
 
 C'était une guerre!
 
-Au fur et à mesure que les deux camps s'affrontaient, les tatouages brillaient par éclairs. Les porteurs de ces marques utilisaient des sorts étranges et imprévisibles; leurs techniques étaient centrées sur les tatouages et pouvaient sceller le ciel et la terre, faisant trembler l'énergie originelle du monde.
+Au fur et à mesure que les deux camps s'affrontaient, toutes sortes de sorts immortels se déployaient. Quant aux porteurs de runes, leurs techniques étaient étranges et imprévisibles; centrées sur les runes, elles pouvaient sceller le ciel et la terre, faisant trembler l'énergie originelle du monde.
 
-Peu de temps après, un vieil homme monté sur l'un des immenses talismans jaunes chargea. Son tatouage arborait de nombreuses feuilles, dont une dorée. Il ouvrit les bras et les tatouages autour de lui s'élancèrent. L'espace lui-même trembla sous les exclamations des êtres célestes. Ils furent encerclés par d'innombrables marques et perdirent soudainement leur origine céleste.
+Peu de temps après, un vieil homme monté sur l'un des immenses talismans jaunes chargea. Le totem sur ses vêtements arborait de nombreuses feuilles, dont une dorée. Il ouvrit les bras et les runes autour de lui s'élancèrent. L'espace lui-même trembla sous les exclamations des êtres célestes. Ils furent encerclés par d'innombrables runes et perdirent soudainement leur origine céleste.
 
 Juste à ce moment critique, un éclair de lumière noire jaillit du lointain. Une silhouette apparut, enveloppée d'une obscurité telle qu'on ne pouvait distinguer ses traits. L'inconnu atteignit le vieil homme et entama le combat. En un instant, l'être entouré de noir agrippa la zone entre les sourcils du vieil homme et en arracha sans pitié une masse de flammes vibrante de vitalité!
 
@@ -106,7 +106,7 @@ Dès qu'elle fut extraite, la flamme se fragmenta en d'innombrables étincelles.
 
 Le front de Wang Lin brûla et son corps fut secoué. Un impact puissant semblait forcer son corps à reculer, une force si intense qu'elle paraissait pouvoir percer le temps lui-même. Il sentit un choc et ouvrit les yeux, se réveillant brusquement.
 
-À son réveil, il regarda immédiatement la flamme. Plus il l'observait, plus elle ressemblait à celle qui trônait entre les sourcils du vieil homme tatoué.
+À son réveil, il regarda immédiatement la flamme. Plus il l'observait, plus elle ressemblait à celle qui trônait entre les sourcils du vieil homme aux runes.
 
 La scène précédente ressemblait à un rêve, mais la chaleur émanant de ses sourcils lui rappelait que tout cela était bien réel!
 

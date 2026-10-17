@@ -50,7 +50,7 @@ Chi Hu fixa l'endroit où Wang Lin avait disparu. La complexité de ses émotion
 
 Un vieil homme était assis au milieu d'un lieu jonché de squelettes dans la Mer des Démons. Il se trouvait au stade avancé de la Formation de l'Âme. À cet instant, il absorbait une immense quantité d'énergie Yin, son visage marqué par une lutte douloureuse.
 
-Les veines de son visage saillaient, révélant des lignes rouges. Tandis qu'il absorbait l'énergie Yin, les traînées noires étaient réprimées.
+Les veines de son visage saillaient, révélant un réseau de lignes noires. Tandis qu'il absorbait l'énergie Yin, les traînées noires étaient réprimées.
 
 Après un long moment, il laissa échapper un profond soupir. Son visage paraissait épuisé et il était couvert de sueur.
 

@@ -34,7 +34,7 @@ Sa vision se brouilla. Lorsqu'elle revint à la normale, il vit les cultivateurs
 
 Le corps de Wang Lin vacilla et il atterrit au sol. Nangong Han toucha terre presque simultanément.
 
-Les 108 cultivateurs sur la place s'étaient tous réveillés. L'expression de Xu Ting était extrêmement sombre alors qu'il fixait silencieusement Wang Lin. Le cultivateur aux six doigts, lui aussi, lançait un regard malicieux vers Wang Lin.
+Les 108 cultivateurs sur la place s'étaient tous réveillés. L'expression de Xu Ting était extrêmement sombre alors qu'il fixait silencieusement Wang Lin. Le cultivateur aux six doigts, lui aussi, lançait un regard malveillant vers Wang Lin.
 
 Maître Yan Leizi affichait un sourire alors qu'il se redressait et déclarait d'une voix lente: « Mon Temple Céleste du Tonnerre octroie 108 titres célestes! » Sur ces mots, sa main droite s'élança vers le vide. Le chant du Royaume Céleste du Tonnerre commença soudainement à résonner.
 
@@ -66,7 +66,7 @@ Maître Yan Leizi marqua une pause. Son regard balaya les cultivateurs devant lu
 
 Les yeux de Wang Lin se plissèrent. Il s'envola alors et joignit les mains. « Présent! »
 
-L'expression de Maître Yan Leizi se fit solennelle: « Tu as été classé premier lors des épreuves humaines, terrestres et célestes, ainsi que sur la ligne vers le ciel. Xu Mu, je te confère le titre de Céleste du Tonnerre! Tu dirigeras une armée de 3 000 hommes en tant qu'avant-garde lors de l'attaque du Système Stellaire de l'Alliance! »
+L'expression de Maître Yan Leizi se fit solennelle: « Après les épreuves du Ciel, de la Terre et de l'Humain, ainsi que celle de la ligne vers le ciel, Xu Mu, je te confère le titre de Céleste du Tonnerre! Tu dirigeras une armée de 3 000 hommes en tant qu'avant-garde lors de l'attaque du Système Stellaire de l'Alliance! »
 
 Tandis qu'il parlait, sa main droite plongea dans le vide et un pinceau céleste doré apparut. D'un geste assuré, il écrivit la première ligne sur le parchemin jaune:
 
@@ -115,4 +115,4 @@ Par la suite, Maître Yan Leizi continua l'appel. Les 108 titres célestes furen
 
 L'eau bleue à l'intérieur du bassin dégageait une aura capable de bouleverser l'esprit!
 
-« Entrez dans le bassin céleste pour permettre la fusion de votre domaine et la formation de votre origine céleste. Vous deviendrez alors de véritables êtres célestes! » La voix de Maître Yan Leizi résonna à travers les cieux et la terre.
+« Entrez dans le bassin céleste pour dissiper votre domaine et permettre la fusion de votre origine céleste. Vous deviendrez alors de véritables êtres célestes, pour l'éternité! » La voix de Maître Yan Leizi résonna à travers les cieux et la terre.

@@ -53,7 +53,7 @@ L'Ancien de la Secte des Cadavres rit: « Je suis en retard car j'ai rencontré 
 
 L'homme d'âge moyen le regarda avec un calme imperturbable, attendant la nouvelle.
 
-Les yeux de l'Ancien s'illuminèrent et, esquissant un sourire qui n'en était pas un, il déclara: « Zhuque Zi s'est rendu à la Secte de l'Affinement de l'Âme; il combat Du Tian pour dérober le Drapeau des Mille Millions d'Âmes! »
+Les yeux de l'Ancien s'illuminèrent et, esquissant un sourire qui n'en était pas un, il déclara: « Zhu Quezi s'est rendu à la Secte de l'Affinement de l'Âme; il combat Du Tian pour dérober le Drapeau des Mille Millions d'Âmes! »
 
 L'expression de l'homme d'âge moyen resta de marbre, puis il sourit. « Quel en est le résultat? »
 
@@ -61,9 +61,9 @@ L'Ancien de la Secte des Cadavres rit: « Cela, je l'ignore. Mais avec la connai
 
 L'expression de l'homme d'âge moyen n'avait pas encore changé. Il allait prendre la parole quand son visage se décomposa soudainement. Il tourna le regard vers Pilu, à l'extrémité nord du continent Suzaku. De là, il ressentit une aura qui le fit trembler.
 
-Zhuque Zi avait depuis longtemps oublié ce que signifiait la douleur de son âme originelle. À cet instant, il ressentit une terreur qu'il n'avait éprouvée que face à la génération précédente de Suzaku.
+Zhu Quezi avait depuis longtemps oublié ce que signifiait la douleur de son âme originelle. À cet instant, il ressentit une terreur qu'il n'avait éprouvée que face à la génération précédente de Suzaku.
 
-Zhuque Zi occupait pourtant une position éminente; il se calma donc rapidement et demanda: « Votre Excellence, qui êtes-vous? »
+Zhu Quezi occupait pourtant une position éminente; il se calma donc rapidement et demanda: « Votre Excellence, qui êtes-vous? »
 
 Un rayon de lumière arc-en-ciel traversa l'espace et Wang Lin apparut. Il flottait dans les airs, ses cheveux flottant sans qu'aucun vent ne les agitât, dégageant une aura d'une étrangeté absolue.
 
@@ -77,11 +77,11 @@ Cette aura maléfique dans le regard de Wang Lin ne pouvait être résumée qu'e
 
 Une arrogance démesurée, une arrogance extrême qui considérait tout ce qui existait comme inférieur à lui et personne au monde ne pouvait lui égaler.
 
-Il jeta un regard nonchalant vers Zhuque Zi. Ce regard fut plus fulgurant que la foudre.
+Il jeta un regard nonchalant vers Zhu Quezi. Ce regard fut plus fulgurant que la foudre.
 
-Le corps de Zhuque Zi trembla. À cet instant, il retrouva précisément ses sensations passées. Il ressentit la même terreur qu'en affrontant l'ancien Suzaku. Il recula précipitamment et, pour la première fois depuis longtemps, une sueur froide perla sur son front.
+Le corps de Zhu Quezi trembla. À cet instant, il retrouva précisément ses sensations passées. Il ressentit la même terreur qu'en affrontant l'ancien Suzaku. Il recula précipitamment et, pour la première fois depuis longtemps, une sueur froide perla sur son front.
 
-« Vous... vous êtes Wang Lin! Non, vous n'êtes pas Wang Lin. Votre Excellence, qui êtes-vous? » Zhuque Zi prit une profonde inspiration pour dissimuler la terreur dans ses yeux.
+« Vous... vous êtes Wang Lin! Non, vous n'êtes pas Wang Lin. Votre Excellence, qui êtes-vous? » Zhu Quezi prit une profonde inspiration pour dissimuler la terreur dans ses yeux.
 
 « Ce vieil homme te demande de quelle génération de Suzaku tu es. » Ces mots empreints d'arrogance sortirent de la bouche de Wang Lin. Son ton portait l'autorité absolue d'une injonction: « Tu dois répondre. »
 
@@ -89,21 +89,21 @@ Du Tian observait la scène. En regardant Wang Lin, il ressentit un profond sent
 
 Il était impossible que Wang Lin dégage une telle pression et une telle arrogance de supériorité absolue. Ce genre de présence ne pouvait émaner que de vieux monstres ayant cultivé durant d'innombrables années.
 
-Zhuque Zi ne voulait pas répondre, mais il finit par lâcher malgré lui: « Quatorzième génération de Suzaku... »
+Zhu Quezi ne voulait pas répondre, mais il finit par lâcher malgré lui: « Quatorzième génération de Suzaku... »
 
-Wang Lin réfléchit un instant avant de fixer froidement Zhuque Zi et de dire: « Au nom de Ye Wuyou, ce vieil homme ne te tuera pas. Maintenant, disparais. »
+Wang Lin réfléchit un instant avant de fixer froidement Zhu Quezi et de dire: « Au nom de Ye Wuyou, ce vieil homme ne te tuera pas. Maintenant, disparais. »
 
 « Ye Wuyou? » Du Tian fut stupéfait. Il n'avait jamais entendu ce nom.
 
-Cependant, dès que Zhuque Zi entendit ce nom, son expression changea radicalement. Il recula encore davantage, et la terreur qui l'habitait ne put plus être contenue; elle se lut sans fard sur son visage.
+Cependant, dès que Zhu Quezi entendit ce nom, son expression changea radicalement. Il recula encore davantage, et la terreur qui l'habitait ne put plus être contenue; elle se lut sans fard sur son visage.
 
-« Vous... » Zhuque Zi prit une inspiration saccadée, son corps secoué comme par un coup de foudre. Son regard vers Wang Lin n'était plus seulement empreint de choc, il était chargé d'une horreur profonde.
+« Vous... » Zhu Quezi prit une inspiration saccadée, son corps secoué comme par un coup de foudre. Son regard vers Wang Lin n'était plus seulement empreint de choc, il était chargé d'une horreur profonde.
 
 Ye Wuyou était un nom que seule chaque génération de Suzaku connaissait. Personne d'autre ne le savait, pas même les ancêtres des sectes de Suzaku. Ils savaient seulement qu'il existait quelqu'un portant le nom taoïste de Suzaku.
 
 Ye Wuyou était le véritable nom de la première génération de Suzaku!
 
-En observant l'aura bleue entourant le corps de Wang Lin, Zhuque Zi remonta l'histoire des anciens Suzakus jusqu'à ce qu'il identifie une personnalité.
+En observant l'aura bleue entourant le corps de Wang Lin, Zhu Quezi remonta l'histoire des anciens Suzakus jusqu'à ce qu'il identifie une personnalité.
 
 À cet instant, la terreur dans ses yeux devint encore plus intense. Il joignit respectueusement les mains devant Wang Lin sans la moindre hésitation et dit: « Salutations, Ancêtre. Ce junior s'en va immédiatement! »
 
@@ -111,7 +111,7 @@ Sur ces mots, il se retira à toute vitesse.
 
 Les yeux de Du Tian s'illuminèrent et il cria: « Laisse derrière toi la quatrième âme! »
 
-Zhuque Zi s'interrompit. Ses yeux trahissaient une lutte intérieure pour prendre une décision, puis il se retourna brusquement vers Wang Lin.
+Zhu Quezi s'interrompit. Ses yeux trahissaient une lutte intérieure pour prendre une décision, puis il se retourna brusquement vers Wang Lin.
 
 Une trace du passé traversa le regard de Wang Lin lorsqu'il dit: « Autrefois, ce vieil homme avait une dette envers Ye Wuyou. Peu importe; puisque tu l'utilises pour combattre le Clan de l'Immortel Déchu, ce vieil homme te la prêtera pour trois ans. Dans trois ans, tu me la rendras. »
 
@@ -119,23 +119,23 @@ Du Tian paniqua et s'apprêta à parler quand Wang Lin tourna son regard vers lu
 
 Le cœur de Du Tian trembla et il n'osa plus ouvrir la bouche.
 
-Zhuque Zi poussa un soupir de soulagement. Si cet homme avait voulu récupérer la quatrième âme coûte que coûte, il aurait dû combattre. Cependant, d'après ce qu'il savait de lui, Zhuque Zi ne possédait pas la moindre once de confiance pour l'affronter.
+Zhu Quezi poussa un soupir de soulagement. Si cet homme avait voulu récupérer la quatrième âme coûte que coûte, il aurait dû combattre. Cependant, d'après ce qu'il savait de lui, Zhu Quezi ne possédait pas la moindre once de confiance pour l'affronter.
 
-Zhuque Zi joignit les mains et s'apprêta à partir.
+Zhu Quezi joignit les mains et s'apprêta à partir.
 
 Mais une lueur d'arrogance brilla dans les yeux de Wang Lin: « Puisque tu as deviné l'identité de ce vieil homme, tu dois connaître mes règles. Comptes-tu partir ainsi sans rien laisser? »
 
-Zhuque Zi réfléchit un instant et leva sa main droite. D'un geste rapide de la main gauche, il se coupa deux doigts de la main droite. « C'est la faute de ce junior. Est-ce que deux doigts suffisent? »
+Zhu Quezi réfléchit un instant et leva sa main droite. D'un geste rapide de la main gauche, il se coupa deux doigts de la main droite. « C'est la faute de ce junior. Est-ce que deux doigts suffisent? »
 
 Wang Lin secoua la tête et déclara avec arrogance: « Laisse-en un autre! »
 
-Zhuque Zi serra les dents. Il utilisa sa main gauche pour trancher un autre doigt. Son visage était livide alors qu'il fixait Wang Lin.
+Zhu Quezi serra les dents. Il utilisa sa main gauche pour trancher un autre doigt. Son visage était livide alors qu'il fixait Wang Lin.
 
 Wang Lin finit par dire: « Disparais! »
 
-Zhuque Zi s'enfuit rapidement sans se retourner. En un clin d'œil, il se changea en un rayon de lumière et disparut.
+Zhu Quezi s'enfuit rapidement sans se retourner. En un clin d'œil, il se changea en un rayon de lumière et disparut.
 
-À cinquante mille kilomètres de là, Zhuque Zi serra les dents et poussa un rugissement vers le ciel.
+À cinquante mille kilomètres de là, Zhu Quezi serra les dents et poussa un rugissement vers le ciel.
 
 « Deuxième génération de Suzaku! Comment peut-il être encore en vie?! Comment peut-il toujours être sur la planète Suzaku?! Comment est-ce possible!?!?! La troisième génération de Suzaku avait comploté contre lui en attirant des cultivateurs étrangers. Comment n'est-il pas mort!?!?! »
 

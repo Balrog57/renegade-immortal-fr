@@ -38,7 +38,7 @@ Tous ceux qui avaient pénétré dans le Tombeau de Suzaku étaient perspicaces 
 
 Cela faisait près de quinze jours que Qian Feng était assis devant cette grotte. Son anxiété grandissait et l'irritait au plus haut point. Il ignorait combien de temps il lui restait avant l'effondrement du Cristal de la Planète de Culture. S'il ne parvenait pas à récupérer son fragment d'âme, la mort serait sa seule issue.
 
-« Zhuque Zi, espèce de vieux sac d'os! Si tu dois mourir, meurs, et basta! Pourquoi faut-il que tout le monde soit entraîné dans ta chute?! » Qian Feng serra les dents et frappa violemment le sol.
+« Zhu Quezi, espèce de vieux sac d'os! Si tu dois mourir, meurs, et basta! Pourquoi faut-il que tout le monde soit entraîné dans ta chute?! » Qian Feng serra les dents et frappa violemment le sol.
 
 Il prit une profonde inspiration, ses yeux s'illuminèrent alors qu'il fixait la grotte devant lui. Il commença à calculer mentalement avant de sortir soudainement une calebasse noire.
 

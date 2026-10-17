@@ -52,7 +52,7 @@ Le regard de Wang Lin s'éclaira tandis qu'il contemplait les environs avec admi
 
 C'était l'expérience qu'il avait acquise au fil de mille ans de culture. S'il avait été un mortel ou s'il venait d'intégrer la Secte Heng Yue, il l'aurait cru sans réserve.
 
-« Que ce soit vrai ou faux, peu importe. Au moins, j'ai pu cerner une partie de la personnalité de Qing Lin. Je ne peux pas activer les restrictions ici! » Les yeux de Wang Lin brillèrent tandis qu'il manipulait avec précaution la bulle pour descendre plus profondément.
+« Que ce soit vrai ou faux, peu importe. Au moins, j'ai pu cerner une partie de la personnalité de Qing Lin. Il ne faut surtout pas que les restrictions d'ici soient de nouveau déclenchées! » Les yeux de Wang Lin brillèrent tandis qu'il manipulait avec précaution la bulle pour descendre plus profondément.
 
 Après un long moment, il atteignit le fond marin. Le lit de l'océan était gris et dégageait une sensation brumeuse. Wang Lin s'assit au fond des eaux et ferma les yeux pour guérir.
 
@@ -94,7 +94,7 @@ En observant le gaz vert, Wang Lin put en conclure que ce talisman était bien u
 
 Après avoir examiné minutieusement les runes complexes du talisman, Wang Lin commença à réfléchir. Un instant plus tard, il mordit son index gauche pour en extraire une goutte de sang. Sa main gauche traça rapidement le sceau enregistré dans le gaz vert et pointa le sang.
 
-La goutte resta suspendue dans l'air, sa surface se parquant d'innombrables protubérances. Puis, elle explosa en un brouillard rouge qui fonça vers le talisman.
+La goutte resta suspendue dans l'air, sa surface se couvrant d'innombrables protubérances. Puis, elle explosa en un brouillard rouge qui fonça vers le talisman.
 
 Le mouvement fut si rapide que le sang pénétra instantanément dans l'objet. Wang Lin fixa le talisman; le sort qu'il venait d'utiliser servait à identifier la nature du Tatou Flétri.
 

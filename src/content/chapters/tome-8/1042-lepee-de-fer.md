@@ -8,7 +8,7 @@ slug: lepee-de-fer
 ---
 Contemplant la tête de l'ancien dieu, empreinte de regrets et de rage, Wang Lin médita en silence. Après tant d'épreuves, il comprenait désormais que les anciens dieux n'étaient pas des existences éternelles parmi les étoiles. Cependant, ils formaient le clan le plus puissant!
 
-À cette époque, le clan des anciens dieux était presque éteint. Wang Lin ne croyait pas que cela fût dû aux cultivateurs. Même le puissant Royaume Céleste du Tonnerre avait dû déployer une puissance colossale pour combattre un ancien dieu de seulement 8 étoiles. Ce n'est qu'en lançant d'innombrables êtres célestes qu'ils avaient réussi à l'emporter, au prix de lourdes pertes.
+À cette époque, le clan des anciens dieux était presque éteint. Wang Lin ne croyait pas que cela fût dû aux cultivateurs. Même le puissant Royaume Céleste du Tonnerre avait dû déployer une puissance colossale pour combattre un ancien dieu de 8 étoiles affaibli. Ce n'est qu'en lançant d'innombrables êtres célestes qu'ils avaient réussi à l'emporter, au prix de lourdes pertes.
 
 Quel genre de puissance pouvait encore trancher la tête de cet ancien dieu après que celui-ci eut brisé ses huit étoiles?
 
@@ -24,7 +24,7 @@ Après un soupir, Wang Lin descendit lentement le long de la tête de l'ancien d
 
 Tout en fixant le cou de l'ancien dieu, son expression demeura calme, mais ses pupilles se rétractèrent et un choc envahit son cœur. À en juger par cette blessure, la tête de cet ancien dieu avait été tranchée en un instant. Il n'y eut aucun délai; la coupe était d'une précision absolue!
 
-La signification de cette plaie fit frissonner Wang Lin. Il ne pouvait imaginer qui possédait une telle puissance, capable de décapiter un ancien dieu d'un seul sort!
+La signification de cette plaie fit frissonner Wang Lin. Il ne pouvait imaginer qui possédait une telle puissance, capable de décapiter un ancien dieu d'un seul coup de lame!
 
 « Pourrait-il s'agir de Qing Lin? » Les yeux de Wang Lin s'illuminèrent, frappé par la situation. Si Qing Lin possédait une telle force, elle était bien trop puissante, dépassant déjà l'imagination de Wang Lin.
 
@@ -60,7 +60,7 @@ Quelle puissance pouvait sceller un ancien dieu et le contraindre à devenir un 
 
 « Le Dao des Cieux! » Wang Lin fixa le cristal. Dès qu'il eut ressenti cette énergie invisible, son intuition lui indiqua qu'elle était liée au sceau de l'ancien dieu, le messager des cieux.
 
-Cependant, le Dao des Cieux était une chose éthérée; comment pouvait-il accomplir de telles choses? Wang Lin médita silencieusement et se remémora les paroles de l'Ancien Démon Bei Lou concernant le secret de l'Ordre Ancien et leur défi envers le ciel.
+Cependant, le Dao des Cieux était une chose éthérée; comment pouvait-il accomplir de telles choses? Wang Lin médita silencieusement et se remémora les paroles de l'Ancien Démon Bei Luo concernant le secret de l'Ordre Ancien et leur défi envers le ciel.
 
 En fermant les yeux, une image surgit dans son esprit. Un ancien dieu de 8 étoiles ravageait l'immensité des astres, quand soudain, une force indescriptible descendit des cieux. Pour résister, l'ancien dieu brisa toutes ses étoiles, mais sa tête fut tout de même tranchée!
 
@@ -78,13 +78,13 @@ Après une courte réflexion, l'énergie originelle remplit la main droite de Wa
 
 Tandis que le tunnel progressait, Wang Lin regardait droit devant lui, sans ciller. Bientôt, l'ouverture pénétra profondément dans le bloc de glace. À cet instant précis, Wang Lin vit ce qui avait provoqué le flash rouge!
 
-C'était une épée de fer, recouverte d'innombrables lignes rouges. Ces lignes étaient mouvantes et s'entrelacent autour de l'arme. Cette épée de fer semblait très ordinaire, sans rien d'anormal. Pourtant, en la voyant, Wang Lin ressentit immédiatement un sentiment de familiarité, comme s'il l'avait déjà vue.
+C'était une épée de fer, recouverte d'innombrables lignes rouges. Ces lignes étaient mouvantes et s'entrelaçaient autour de l'arme. Cette épée de fer semblait très ordinaire, sans rien d'anormal. Pourtant, en la voyant, Wang Lin ressentit immédiatement un sentiment de familiarité, comme s'il l'avait déjà vue.
 
-Avant qu'il ne puisse se remémorer l'endroit où il l'avait aperçue, un danger terrifiant émanant des lignes rouges l'assaillit. L'expression de Wang Lin changea. Lorsque son Sens Divin balayait la zone, la glace faisait obstacle à sa vision; mais maintenant que la glace avait fondu, l'épée et ses lignes rouges apparaissaient clairement devant lui.
+Avant qu'il ne puisse se remémorer l'endroit où il l'avait aperçue, un danger terrifiant émanant des lignes rouges l'assaillit. L'expression de Wang Lin changea. Lorsque son Sens Divin avait balayé la zone à travers la glace, il n'avait pas remarqué l'épée ni les lignes rouges; mais maintenant que la glace avait fondu, l'épée et ses lignes rouges apparaissaient clairement devant lui.
 
 Par prudence, il déploya lentement son Sens Divin, mais une fois de plus, il ne put détecter ni l'épée ni les lignes rouges. C'était identique à ce qu'il avait observé auparavant: aucune anomalie n'était détectée par le sens, et pourtant, ses yeux voyaient distinctement l'objet, ce qui le rendait extrêmement vigilant.
 
-Wang Lin se retira calmement. L'épée de fer et les lignes rouges qui l'entouraient étaient trop étranges; il valait mieux ne pas y toucher. Tout en reculant, son regard restait fixé sur l'arme. Elle présentait des traces de rouille, comme un objet mortel.
+Wang Lin se retira calmement. L'épée de fer et les lignes rouges qui l'entouraient étaient trop étranges; il valait mieux ne pas y toucher. Tout en reculant, son regard restait fixé sur l'arme. Elle présentait des traces de rouille, comme un objet de simple mortel.
 
 « Très familier... » Wang Lin s'arrêta brusquement, comme si un coup de tonnerre avait explosé dans son esprit. Ses yeux s'écarquillèrent et il prit une grande inspiration. Il s'en souvenait!
 

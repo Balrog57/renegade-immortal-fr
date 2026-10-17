@@ -56,7 +56,7 @@ La douceur disparut du visage de Qian Feng, remplacée par une trace d'hostilit�
 
 « Le Poinçon de Suzaku! » Du Tian fronça les sourcils. Il pensait que l'actuel Suzaku choyait trop ce Qian Feng, sans quoi il ne lui aurait pas confié un tel trésor.
 
-Du Tian envoya une transmission vocale: « Ceng Niu, ce trésor appartient à Zhuque Zi. C'est un pseudo-trésor céleste, il est donc extrêmement puissant. »
+Du Tian envoya une transmission vocale: « Ceng Niu, ce trésor appartient à Zhu Quezi. C'est un pseudo-trésor céleste, il est donc extrêmement puissant. »
 
 Les yeux de Wang Lin s'illuminèrent. Homme d'une grande détermination, son regard devint glacial alors qu'il ordonnait: « Exploser! »
 

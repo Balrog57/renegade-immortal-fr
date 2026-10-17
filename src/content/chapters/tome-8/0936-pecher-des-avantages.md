@@ -28,7 +28,7 @@ Bien qu'il n'y ait pas eu beaucoup d'énergie originelle ici auparavant, il pouv
 
 Son cœur sombra. Si cela avait été le seul problème, il ne s'en serait pas soucié outre mesure, mais non seulement il ne ressentait plus aucune énergie originelle, mais celle qui résidait dans son propre corps disparaissait lentement.
 
-Cette découverte le choqua grandement. Il vérifia rapidement et découvrit que l'énergie ne disparaissait pas, mais qu'elle était supprimée par une force invisible. Cette suppression agissait comme un sceau et, bien que lente, si il restait ici assez longtemps, elle scellerait totalement toute son énergie originelle.
+Cette découverte le choqua grandement. Il vérifia rapidement et découvrit que l'énergie ne disparaissait pas, mais qu'elle était supprimée par une force invisible. Cette suppression agissait comme un sceau et, bien que lente, s'il restait ici assez longtemps, elle scellerait totalement toute son énergie originelle.
 
 « Cela n'a rien à voir avec le Serpent aux yeux de lune, cela a tout à voir avec l'endroit où il se trouve. Si l'intérieur du Serpent aux yeux de lune est ainsi, je crains que mon énergie originelle ne disparaisse encore plus vite à l'extérieur! »
 
@@ -56,43 +56,43 @@ Son Sens Divin s'étendit et il observa attentivement ses environs. Un moment pl
 
 Après inspection, Wang Lin recula sans hésiter jusqu'à se retrouver à nouveau près de l'os du Serpent aux yeux de lune. Ses yeux pétillèrent alors qu'il pensait: « Je ne suis pas de taille face à ceux qui sont entrés, mais j'ai aussi mes avantages. Plus ils consommeront d'énergie originelle, plus mon avantage sera grand! »
 
-L'endroit que Wang Lin avait aperçu grâce à son Sens Divin était une zone ouverte d'environ mille pieds de large. Bien que cette zone fût remplie de Serpents aux yeux de lune, tous étaient en pleine retraite.
+L'endroit que Wang Lin avait aperçu grâce à son Sens Divin était une zone ouverte d'environ mille pieds de large. Bien que ses parois fussent toutes faites de la chair du Serpent aux yeux de lune, elles ondulaient et reculaient de toutes parts.
 
 Et deux personnes s'y trouvaient.
 
-Le visage de Wudo Chan était pâle et sa robe violette était en lambeaux; il était dans un état lamentable. Cependant, il se tenait là, dégageant une aura puissante comme une épée dégainée, ne permettant à personne de s'approcher.
+Le visage de Wu Dongchan était pâle et sa robe violette était en lambeaux; il était dans un état lamentable. Cependant, il se tenait là, dégageant une aura puissante comme une épée dégainée, ne permettant à personne de s'approcher.
 
 Derrière lui se trouvait une ouverture dans la paroi de chair. C'était l'entrée menant à l'endroit où se trouvait l'enfant Ancien Dieu.
 
-Face à Wudo Chan se tenait Yi Muzi, vêtu d'une robe verte. Bien que son visage fût également légèrement pâle, ses yeux restaient calmes.
+Face à Wu Dongchan se tenait Yi Muzi, vêtu d'une robe verte. Bien que son visage fût également légèrement pâle, ses yeux restaient calmes.
 
-Des fluctuations de sorts emplissaient l'espace entre eux. Apparemment, un combat bref mais féroce venait de se dérouler. Bien que le Sens Divin de Wang Lin n'ait été présent dans cette pièce qu'un instant, il n'avait pu échapper à leur présence. Cependant, ni Wudo Chan ni Yi Muzi ne prêtèrent attention à lui.
+Des fluctuations de sorts emplissaient l'espace entre eux. Apparemment, un combat bref mais féroce venait de se dérouler. Bien que le Sens Divin de Wang Lin n'ait été présent dans cette pièce qu'un instant, il n'avait pu leur échapper. Cependant, ni Wu Dongchan ni Yi Muzi ne prêtèrent attention à lui.
 
-« Petit, notre énergie originelle est limitée ici. La cible de ce vieil homme n'est pas cet insignifiant céleste. Alors pourquoi es-tu là à me barrer la route au lieu d'aider Xuan Bao à combattre Qing Shui? Ce que tu fais est tout simplement absurde! » lança Yi Muzi à l'attention de Wudo Chan.
+« Petit, notre énergie originelle est limitée ici. La cible de ce vieil homme n'est pas cet insignifiant céleste. Alors pourquoi es-tu là à me barrer la route au lieu d'aider Xuan Bao à combattre Qing Shui? Ce que tu fais est tout simplement absurde! » lança Yi Muzi à l'attention de Wu Dongchan.
 
-Wudo Chan ne répondit pas, se contentant de fixer froidement Yi Muzi. Il leva la main et une bulle aux cinq couleurs flotta au-dessus de sa paume.
+Wu Dongchan ne répondit pas, se contentant de fixer froidement Yi Muzi. Il leva la main et une bulle aux cinq couleurs flotta au-dessus de sa paume.
 
-Il posa son regard sur la bulle et dit calmement: « Peu m'importe ce que fait l'estimé Xuan Bao, mais tant que je serai ici, personne ne pourra entrer! »
+Il posa son regard sur la bulle et dit calmement: « Peu m'importe ce que fait le vénérable Xuan Bao, mais tant que je serai ici, personne ne pourra entrer! »
 
 Yi Muzi eut une expression sombre et laissa échapper un reniflement glacial avant de s'avancer. Sa main droite traça un sceau et une gigantesque bûche apparut devant lui. Cette énorme pièce de bois occupa tout l'espace disponible et s'élança avec fracas.
 
 « Je ne peux pas gaspiller trop d'énergie originelle ici, je dois terminer ce combat rapidement. Ensuite, j'irai au plus profond du Serpent aux yeux de lune pour accomplir la tâche confiée par le Grand Ancien! »
 
-La bûche géante devant le vieil homme en robe verte chargea. À cet instant, Wudo Chan agita la main et la bulle aux cinq couleurs s'envola pour percuter l'énorme bloc de bois.
+La bûche géante devant le vieil homme en robe verte chargea. À cet instant, Wu Dongchan agita la main et la bulle aux cinq couleurs s'envola pour percuter l'énorme bloc de bois.
 
 Dans un fracas retentissant, la bulle explosa!
 
 La bûche géante vacilla et se désintégra en même temps que la bulle.
 
-Un éclair de froideur traversa les yeux de Yi Muzi. Il agita sa manche droite et un fragment de bois vert, de la taille d'un doigt, s'envola. Au moment où l'objet partit, Yi Muzi cria: « Une bûche, un royaume! »
+Un éclair de froideur traversa les yeux de Yi Muzi. Il agita sa manche droite et un fragment de bois vert, de la taille d'un doigt, s'envola. Au moment où l'objet partit, Yi Muzi cria: « Un Bois, Un Royaume! »
 
 Sitôt la parole prononcée, la bûche verte trembla soudainement et grandit instantanément. Puis, une brume verte se répandit dans toute la zone.
 
-Lorsque cette brume remplit l'espace, il fut comme si cette zone s'était isolée du reste du monde, comme si le gaz avait formé son propre royaume. Elle créa un sceau qui enveloppa Wudo Chan.
+Lorsque cette brume remplit l'espace, il fut comme si cette zone s'était isolée du reste du monde, comme si le gaz avait formé son propre royaume. Elle créa un sceau qui enveloppa Wu Dongchan.
 
-Saisissant cette opportunité, Yi Muzi se déplaça en un éclair pour contourner Wudo Chan. Il chargea dans l'ouverture et disparut.
+Saisissant cette opportunité, Yi Muzi se déplaça en un éclair pour contourner Wu Dongchan. Il chargea dans l'ouverture et disparut.
 
-Wudo Chan était encerclé par la brume verte, mais seulement trois respirations après le départ de Yi Muzi, des explosions retentirent à l'intérieur du gaz. Wudo Chan créait des bulles qu'il faisait exploser.
+Wu Dongchan était encerclé par la brume verte, mais seulement trois respirations après le départ de Yi Muzi, des explosions retentirent à l'intérieur du gaz. Wu Dongchan créait des bulles qu'il faisait exploser.
 
 L'explosion de chaque bulle dissipait une partie de la brume verte. Après trois respirations, toute la brume avait disparu. Il regarda l'ouverture par laquelle Yi Muzi s'était engouffré et esquissa un sourire. D'un pas décidé, il chargea à son tour dans le trou.
 

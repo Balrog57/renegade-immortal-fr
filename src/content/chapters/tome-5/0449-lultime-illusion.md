@@ -105,7 +105,7 @@ Une fois son fragment d'âme en sa possession, les affaires de la planète Suzak
 
 Ces dernières années, Wang Lin avait le pressentiment que Tuo Sen, issu de la Terre des Dieux Anciens, s'échapperait bientôt. Il était convaincu qu'il n'avait aucune chance de l'affronter.
 
-Pendant ce temps, sur le flanc est du continent Suzaku, dans une zone enveloppée de nuages noirs, l'ancêtre du Clan des Immortels Délaissés, Yunque Zi, le troisième ancêtre et deux esprits ancestraux à dix feuilles étaient réunis.
+Pendant ce temps, sur le flanc est du continent Suzaku, dans une zone enveloppée de nuages noirs, l'ancêtre du Clan des Immortels Délaissés, Yun Quezi, le troisième ancêtre et deux esprits ancestraux à dix feuilles étaient réunis.
 
 Leurs plantes de vie scintillaient sur leurs fronts et, entre eux, reposait un crâne.
 
@@ -113,7 +113,7 @@ Un tatouage était gravé sur cet os. Ce motif était bien plus complexe que tou
 
 Une aura puissante s'accumulait au-dessus du crâne.
 
-Yunque Zi observa l'objet avec respect et déclara d'un ton grave: « L'ancêtre a reçu les conseils des dieux antiques de la planète Fu Wen et a transcendé le stade des onze feuilles pour devenir le troisième shaman à douze feuilles de l'histoire du clan. Ce tatouage possède un pouvoir tel que, si nous unissons nos forces, nous devrions être capables d'envoyer l'un d'entre nous à l'intérieur. »
+Yun Quezi observa l'objet avec respect et déclara d'un ton grave: « L'ancêtre a reçu les conseils des dieux antiques de la planète Fu Wen et a transcendé le stade des onze feuilles pour devenir le troisième shaman à douze feuilles de l'histoire du clan. Ce tatouage possède un pouvoir tel que, si nous unissons nos forces, nous devrions être capables d'envoyer l'un d'entre nous à l'intérieur. »
 
 Le premier ancêtre demanda lentement: « Qui s'y rendra alors? »
 

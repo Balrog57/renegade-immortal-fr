@@ -10,13 +10,13 @@ Cette insignifiante goutte de sang fut projetée par Wang Lin sur le dragon dém
 
 Le dragon démoniaque ouvrit la gueule, libérant d'immenses quantités d'énergie glaciale pour tenter de dévorer tout le monde. Cependant, à cet instant précis, la goutte de sang de Qing Shuang toucha un brin de gaz noir émanant du dragon.
 
-Instantanément, alors que tous étaient stupéfaits, des crépitements jaillirent du brouillard noir, semblables au bruit de l'eau projetée sur du charbon ardent. Tandis que ces sifflements résonnaient, le brouillard noir se dissipa inopinément, comme s'il ne pouvait supporter cette goutte de sang céleste.
+Instantanément, alors que tous étaient stupéfaits, des crépitements jaillirent du brouillard noir, semblables au bruit de l'eau projetée sur du charbon ardent. Tandis que ces sifflements résonnaient, le brouillard noir se dissipa inopinément, comme s'il ne pouvait supporter cette goutte de sang.
 
 La goutte de sang pénétra la brume noire et atterrit sur la tête du dragon démoniaque. Ce dernier marqua un arrêt soudain, suivi immédiatement d'un rugissement de douleur et de rage!
 
 Dans son élan, le corps du dragon démoniaque se tordit et balaya les environs dans un grondement assourdissant. Comme si des mains gigantesques remuaient le sol, tous les édifices s'effondrèrent et l'ensemble du plancher fut réduit en ruines.
 
-Les yeux de Wang Lin s'illuminèrent; il en extrait une nouvelle dose du sang de Qing Shuang et la lança sans ménagement. D'un geste de la main, il projeta l'énergie d'origine puissante qui bouillonnait en lui. Le sang explosa aussitôt en un brouillard écarlate qui fonça droit devant.
+Les yeux de Wang Lin s'illuminèrent; il en extirpa une nouvelle dose du sang de Qing Shuang et la lança sans ménagement. D'un geste de la main, il projeta l'énergie d'origine puissante qui bouillonnait en lui. Le sang explosa aussitôt en un brouillard écarlate qui fonça droit devant.
 
 Ce nuage de sang percuta le dragon démoniaque. Au contact renouvelé du sang, le dragon lutta avec une intensité accrue. Les rugissements se succédèrent et le corps du dragon commença à se contracter rapidement. Tel un tourbillon, après la retraite complète du brouillard noir, l'ancien démon apparut devant tous.
 
@@ -26,9 +26,9 @@ Quoi que faisait l'ancien démon, il ne parvenait pas à les expulser. Même en 
 
 « Qing Lin, est-ce là le plan que tu as élaboré pour me résister après d'innombrables années de machinations? Si quiconque occupe ton corps tente de tuer ton descendant, tous les sorts deviennent inutiles! Tes techniques sont impuissantes et ton corps est entravé par le sang de ton descendant!!! »
 
-« Il ne s'agit plus de modifier les lois, mais de les créer! Tu es si puissante, Qing Lin! » L'ancien démon afficha une expression hideuse en chargeant Wang Lin.
+« Il ne s'agit plus de modifier les lois, mais de les créer! Tu es si puissant, Qing Lin! » L'ancien démon afficha une expression hideuse en chargeant Wang Lin.
 
-« Ce démon veut voir comment le simple sang d'un mortel peut me faire plier! » hurla l'ancien démon en tendant la main droite. Une lame noire apparut soudainement dans sa paume et il trancha l'air vers Wang Lin.
+« Ce démon veut voir comment le sang d'un simple corps peut me faire plier! » hurla l'ancien démon en tendant la main droite. Une lame noire apparut soudainement dans sa paume et il trancha l'air vers Wang Lin.
 
 « Je ne peux pas tuer le descendant de Qing Lin, mais je peux te tuer, misérable dieu antique! »
 
@@ -62,7 +62,7 @@ Une puissance divine de dieu antique inonda son corps et s'engouffra dans le fou
 
 Alors qu'il poussait ce cri déchirant, le dragon de feu entourant l'homme en noir sembla incapable de supporter l'augmentation soudaine de puissance de la lumière. L'homme en noir recula précipitamment pour s'enfuir.
 
-Cependant, avant qu'il ne puisse échapper à sa destinée, la lumière envahit son corps et il disparut. Au moment même où le bouclier azur semblait sur le point de céder face à l'énergie de la lame, Wang Lin disparut également.
+Cependant, avant qu'il ne puisse aller bien loin, la lumière envahit son corps et il disparut. Au moment même où le bouclier azur semblait sur le point de céder face à l'énergie de la lame, Wang Lin disparut également.
 
 Lorsque Wang Lin réapparut, il se trouvait à la place de l'homme en noir, tandis que ce dernier se retrouvait face à l'énergie de la lame.
 

@@ -31,13 +31,13 @@ De plus, d'après leurs échanges, Wang Lin comprit qu'elle ne se souciait guèr
 
 Cependant, pour Wang Lin, ce fragment d'âme du domaine était d'une utilité immense. C'était son atout pour faire face à une certaine personne.
 
-Zhuque Zi cultivait actuellement dans les montagnes arrières du Mont Suzaku. Un cristal rouge flottait devant lui. Ce cristal, en forme de cœur, était le Cœur de la Planète de Culture, l'instrument servant à contrôler le Cristal de la Planète de Culture.
+Zhu Quezi cultivait actuellement dans les montagnes arrières du Mont Suzaku. Un cristal rouge flottait devant lui. Ce cristal, en forme de cœur, était le Cœur de la Planète de Culture, l'instrument servant à contrôler le Cristal de la Planète de Culture.
 
-Peu après, Zhuque Zi ouvrit les yeux. Une trace de folie y brillait. Un tel regard n'apparaissait que rarement sur lui.
+Peu après, Zhu Quezi ouvrit les yeux. Une trace de folie y brillait. Un tel regard n'apparaissait que rarement sur lui.
 
-« Yunque Zi, je ne hais pas le Clan des Immortels Délaissés, mais ma haine pour toi est immense! Traître, haha, quelle magnifique trahison! Bien que j'aie été blessé par ton attaque surprise, j'en ai ressenti de l'excitation. Qian Pinghai, si tu possèdes encore une âme, regarde bien: voici l'homme que tu as choisi!
+« Yun Quezi, je ne hais pas le Clan des Immortels Délaissés, mais ma haine pour toi est immense! Traître, haha, quelle magnifique trahison! Bien que j'aie été blessé par ton attaque surprise, j'en ai ressenti de l'excitation. Qian Pinghai, si tu possèdes encore une âme, regarde bien: voici l'homme que tu as choisi!
 
-« Yunque Zi, nous avons grandi ensemble et possédons des talents similaires; alors pourquoi l'ancien Suzaku, Qian Pinghai, ne faisait-il que te favoriser? Il ne cessait de te louer, tandis qu'envers moi, il était toujours prompt aux critiques. Il me lançait sans cesse des regards glacials, comme s'il m'aurait tué à la moindre erreur.
+« Yun Quezi, nous avons grandi ensemble et possédons des talents similaires; alors pourquoi l'ancien Suzaku, Qian Pinghai, ne faisait-il que te favoriser? Il ne cessait de te louer, tandis qu'envers moi, il était toujours prompt aux critiques. Il me lançait sans cesse des regards glacials, comme s'il m'aurait tué à la moindre erreur.
 
 « Quand il m'a transmis la Formation Mystérieuse de Suzaku, j'étais transporté par l'excitation et la gratitude. J'en ai même oublié mes amertumes passées, n'ayant qu'une seule pensée en tête: donner ma vie à la planète Suzaku et devenir un digne Suzaku.
 
@@ -45,7 +45,7 @@ Peu après, Zhuque Zi ouvrit les yeux. Une trace de folie y brillait. Un tel reg
 
 « Si je n'avais pas secrètement comploté pendant de longues années pour finalement dérober le Cœur de la Planète de Culture au dernier Suzaku lors de son trépas, je crains que le Suzaku de cette génération n'ait pas été moi.
 
-« Qian Pinghai, tu as été aveugle de nommer Yunque Zi comme prochain Suzaku! Si j'avais suivi tes ordres en remettant le Cœur de la Planète de Culture à Yunque Zi, la planète aurait été conquise par le Clan des Immortels Délaissés. Qian Pinghai, vieux renard, je n'ai pas enterré ton corps dans la tombe de Suzaku, je l'ai vendu à la Secte des Cadavres! C'était le seul moyen d'apaiser ma haine envers toi.
+« Qian Pinghai, tu as été aveugle de nommer Yun Quezi comme prochain Suzaku! Si j'avais suivi tes ordres en remettant le Cœur de la Planète de Culture à Yun Quezi, la planète aurait été conquise par le Clan des Immortels Délaissés. Qian Pinghai, vieux renard, je n'ai pas enterré ton corps dans la tombe de Suzaku, je l'ai vendu à la Secte des Cadavres! C'était le seul moyen d'apaiser ma haine envers toi.
 
 « Qian Pinghai, la vérité prouve que je suis l'homme le plus apte à devenir le prochain Suzaku. Tu t'es trompé à l'époque, tellement...
 
@@ -53,17 +53,17 @@ Peu après, Zhuque Zi ouvrit les yeux. Une trace de folie y brillait. Un tel reg
 
 « C'est là mon unique façon de te rendre ce que tu m'as fait subir.
 
-« Yunque Zi, tu connais l'existence du Cristal de la Planète de Culture. Tu m'as laissé trois mois pour décider s'il valait la peine de tout détruire pour solliciter l'aide de l'Alliance de Culture...
+« Yun Quezi, tu connais l'existence du Cristal de la Planète de Culture. Tu m'as laissé trois mois pour décider s'il valait la peine de tout détruire pour solliciter l'aide de l'Alliance de Culture...
 
 « Bien que le Cristal de la Planète de Culture ait été scellé par le deuxième Suzaku, empêchant les futurs Suzakus de le contrôler, tant que le Cœur de la Planète de Culture est brisé, il peut entraîner la destruction du Cristal lui-même. Cependant, le prix est trop lourd car une partie de mon âme réside en son sein. Si le Cristal se brise, je mourrai avec lui.
 
 « L'Alliance de Culture n'intervient pas arbitrairement dans les affaires de chaque planète de culture, mais cela n'est vrai que tant que le Cristal de la Planète de Culture reste intact. L'Alliance est presque obsédée par l'idée de préserver l'intégrité des Cristaux de Planète de Culture. Cette affaire est empreinte de mystères que même les anciens Suzakus n'ont pu élucider. Mais une chose est certaine: si le Cristal se brise, l'Alliance enverra immédiatement des enquêteurs. À cet instant, ton insignifiant Clan des Immortels Délaissés sera anéanti!
 
-« Tu m'as accordé trois mois pour réfléchir, car tu ne voulais pas me pousser à bout. Yunque Zi, ce vieil homme va jouer avec toi. Si tu parviens à l'emporter avant la fin de mes jours, je n'aurai aucun mal à te céder cette planète. Mais si tu échoues, ce vieil homme sombrera dans la folie et détruira la planète pour entraîner ton Clan des Immortels Délaissés dans ma chute!
+« Tu m'as accordé trois mois pour réfléchir, car tu ne voulais pas me pousser à bout. Yun Quezi, ce vieil homme va jouer avec toi. Si tu parviens à l'emporter avant la fin de mes jours, je n'aurai aucun mal à te céder cette planète. Mais si tu échoues, ce vieil homme sombrera dans la folie et détruira la planète pour entraîner ton Clan des Immortels Délaissés dans ma chute!
 
 « Si ce vieil homme ne peut être le premier Suzaku, il peut encore être le dernier. Ne me donne pas cette opportunité! »
 
-La folie dans les yeux de Zhuque Zi s'intensifia et il se mit à rire comme un dément.
+La folie dans les yeux de Zhu Quezi s'intensifia et il se mit à rire comme un dément.
 
 À l'ouest du continent Suzaku s'étendait une plaine couverte de milliers de simples huttes. Des cultivateurs s'y exerçaient, à l'intérieur comme à l'extérieur des habitations. La plupart étaient des disciples de sectes issues de pays de culture de rang 5; cet endroit constituait la ligne de défense occidentale.
 
@@ -107,4 +107,4 @@ Il reviendrait certainement sur la planète Suzaku à l'avenir, mais le moment v
 
 Wang Lin prit une profonde inspiration. En levant les yeux vers le ciel, son désir de partir s'intensifia.
 
-« Cependant, avant de partir, bien que je n'aie aucun moyen de m'attaquer à Zhuque Zi, je dois tester ses deux disciples, Liu Mei et Qian Feng. »
+« Cependant, avant de partir, bien que je n'aie aucun moyen de m'attaquer à Zhu Quezi, je dois tester ses deux disciples, Liu Mei et Qian Feng. »

@@ -24,13 +24,13 @@ Wang Lin fixa la sphère de tonnerre jusqu'à ce que sa perception en change vag
 
 « Je n'ai obtenu que la moitié du dragon de tonnerre ancien; l'autre moitié a disparu dans l'Abîme des Marées. Par conséquent, le pouvoir du tonnerre est incomplet et même la loi qu'il contient est imparfaite. »
 
-Après un moment de réflexion, Wang Lin pressa l'air et la sphère de tonnerre se dispersa en d'innombrables éclairs. À cet instant, des flammes jaillirent de son œil gauche, formant une mer de feu.
+Après un moment de réflexion, Wang Lin serra la main droite et la sphère de tonnerre se dispersa en d'innombrables éclairs. À cet instant, des flammes jaillirent de son œil gauche, formant une mer de feu.
 
 Un fantôme d'Oiseau Vermillon apparut au sein de cette mer de flammes.
 
 Wang Lin observa attentivement, et l'Oiseau Vermillon devint transparent. La mer de flammes infinie se transforma en lignes rouges que Wang Lin pouvait désormais voir clairement.
 
-« Selon ma compréhension de la culture, pour atteindre le stade du Purificateur du Nirvana, je dois maîtriser complètement l'une de ces lois. Je pourrai alors utiliser cette loi pour absorber l'énergie originelle du monde et faire en sorte que l'énergie originelle dans mon corps ne s'épuise jamais.
+« Selon ma compréhension de la culture, pour atteindre le stade du Purificateur du Nirvana, je dois maîtriser complètement une ou plusieurs lois. Je pourrai alors utiliser cette loi pour absorber l'énergie originelle du monde et faire en sorte que l'énergie originelle dans mon corps ne s'épuise jamais.
 
 La force des cultivateurs du stade du Purificateur du Nirvana est étroitement liée à la loi qu'ils choisissent. »
 
@@ -52,7 +52,7 @@ Un instant plus tard, Wang Lin ouvrit lentement les yeux; l'aura meurtrière se 
 
 Un rayon de lumière fantomatique jaillit du puits profond. Il progressait en ligne droite vers Wang Lin et, au moment où celui-ci recula, il arriva tout près de lui.
 
-L'animal avait les plumes noires légèrement ébouriffées, mais ses yeux brillaient d'intelligence. C'était le Blaireau Marqué d'Étoiles!
+L'animal avait le pelage noir légèrement ébouriffé, mais ses yeux brillaient d'intelligence. C'était le Blaireau Marqué d'Étoiles!
 
 Le blaireau paraissait très adorable. En s'approchant, il agrippa les vêtements de Wang Lin avec sa bouche et se balança comme sur une balançoire, tout en poussant des cris aigus.
 
@@ -82,7 +82,7 @@ Cependant, au moment où il allait s'éloigner, le Blaireau Marqué d'Étoiles p
 
 Les yeux de Wang Lin s'illuminèrent et il scruta le fond du puits. Après une courte réflexion, il descendit à son tour, suivi par le blaireau.
 
-« Les Blaireaux Marqués d'Étoiles adorent l'aura des dieux anciens. Se pourrait-il que quelque chose appartenant à un dieu ancien soit enfoui sous le Bassin Funéraire Céleste? » Wang Lin pensa immédiatement au tendon rouge qui avait piégé l'Ancêtre Saint du Clan du Tatouage.
+« Les Blaireaux Marqués d'Étoiles adorent l'aura des dieux anciens. Se pourrait-il que quelque chose appartenant à un dieu ancien soit enfoui sous le Bassin Funéraire Céleste? » Wang Lin pensa immédiatement au tendon rouge qui avait piégé l'Ancêtre Saint du Clan du Tatouage, Qiu Yao.
 
 Ce puits semblait sans fond. Peu importe la profondeur atteinte par Wang Lin, il ne semblait jamais se rapprocher de l'issue. L'énergie glaciale émanant des profondeurs devenait de plus en plus intense, jusqu'à ce qu'une couche de givre recouvre les parois du puits.
 
@@ -116,4 +116,4 @@ Cette chose gigantesque était un crâne! Le crâne d'un dieu ancien! Bien que g
 
 Le regard que Wang Lin avait ressenti plus tôt émanait de ce crâne.
 
-Bien que des millénaires aient passé et que le dieu ancien soit mort, ne laissant aucune trace de son pouvoir divin, son regard ultime était si vif qu'il aurait terrassé quiconque l'aurait croisé! Il n'en restait désormais que les traces de huit étoiles brisées.
+Bien que d'innombrables dizaines de milliers d'années aient passé et que le dieu ancien soit mort, ne laissant aucune trace de son pouvoir divin, son regard ultime était si vif qu'il aurait terrassé quiconque l'aurait croisé! Entre ses sourcils, il ne restait plus que les traces de huit étoiles brisées.

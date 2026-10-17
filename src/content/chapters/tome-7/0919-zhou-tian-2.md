@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 919 - Zhou Tian (2)
 slug: zhou-tian-2
 ---
-Des grondements tonitruants résonnèrent à travers le monde. Des éclairs de foudre descendirent devant Wang Lin, et ces dizaines de milliers d'ombres illusoires s'effondrèrent toutes.
+Des grondements tonitruants résonnèrent à travers le monde. Des éclairs de foudre descendirent devant Wang Lin, et ces plus de dix mille ombres illusoires s'effondrèrent toutes.
 
 Les yeux de Zhou Tian brillèrent alors que ses mains formaient un sceau; il pointa ensuite l'espace entre ses sourcils. Des lignes noires apparurent tandis qu'il hurlait: « Âme, tue! »
 
@@ -18,7 +18,7 @@ Dès que l'anneau noir toucha le corps de Wang Lin, il se transforma en d'innomb
 
 La vitesse de Wang Lin ne faiblit aucunement. Il atteignit Zhou Tian et lui décocha un coup de poing.
 
-L'expression de Zhou Tian changea radicalement; il frappa son sac de stockage tout en reculant. Une sphère de lumière violette apparut dans sa main qu'il écrasa aussitôt. La lueur pourpre enveloppa alors immédiatement Zhou Tian.
+L'expression de Zhou Tian changea radicalement; il frappa son sac de rangement tout en reculant. Une sphère de lumière violette apparut dans sa main qu'il écrasa aussitôt. La lueur pourpre enveloppa alors immédiatement Zhou Tian.
 
 Dans un déluge de craquements, la lumière violette s'effondra et le corps de Zhou Tian fut projeté en arrière avec encore plus de force.
 

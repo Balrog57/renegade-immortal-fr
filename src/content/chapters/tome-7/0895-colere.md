@@ -36,7 +36,7 @@ L'environnement devint totalement silencieux, mais ce silence ne dura qu'un inst
 
 Le regard de Wang Lin se fit glacial. Lorsqu'il déploya son Sens Divin, il ne remarqua rien d'anormal. Cependant, en examinant de plus près, il comprit immédiatement que quelqu'un utilisait les vies des membres de la famille Wang pour nourrir des esprits vengeurs!
 
-Wang Lin avait déjà entendu parler de ce genre de sortilège. C'était comparable au raffinage d'une épée: une personne servait d'esprit pour absorber le ressentiment. Si suffisamment de ressentiment était absorbé, sa puissance n'en demeurait pas moins redoutable.
+Wang Lin avait déjà entendu parler de ce genre de sortilège. C'était comparable au raffinage d'une épée: une personne servait d'esprit pour absorber le ressentiment. Si les esprits vengeurs devenaient nombreux, leur puissance n'en était que plus redoutable.
 
 En combinant cela avec l'immense ressentiment qui pesait sur la capitale, Wang Lin pouvait imaginer que quelqu'un contrôlait tout ceci. Plus il y avait de ressentiment, plus l'esprit vengeur pouvait devenir puissant.
 
@@ -48,7 +48,7 @@ Le meurtre d'un prince dans la capitale était naturellement une affaire d'une i
 
 Des cultivateurs de diverses sectes sur la planète Suzaku chevauchaient ces énergies d'épée. Leurs yeux brillaient comme des éclairs et ils ne s'embêtèrent même pas à parler à Wang Lin avant de l'attaquer avec leurs trésors magiques.
 
-L'expression de Wang Lin resta impassible tandis qu'il agitait ses manches. Tous les trésors magiques furent balayés. Les cultivateurs sur les épées volantes furent terrifiés, projetés malgré eux par le vent. En un clin d'œil, ils furent envoyés à cinq mille kilomètres de là.
+L'expression de Wang Lin resta impassible tandis qu'il agitait ses manches. Tous les trésors magiques furent balayés. Les cultivateurs sur les épées volantes furent terrifiés, projetés malgré eux par le vent. En un clin d'œil, ils furent envoyés à des dizaines de milliers de kilomètres de là.
 
 « Ceci... Quel genre de sort est-ce là?! »
 
@@ -60,7 +60,7 @@ Les yeux de Wang Lin étaient glacials. Il était extrêmement en colère! Alors
 
 Il se rapprochait de plus en plus du palais impérial. À ce moment-là, dans la salle principale, un homme d'âge moyen portant une robe de dragon affichait une expression sombre. À ses côtés se tenait une femme très noble et belle, vêtue d'une robe colorée. Cependant, une brume noire emplissait son regard et une trace de panique y passa furtivement.
 
-Au même moment, d'innombrables membres de la famille Wang, vêtus de soie, fixaient l'avant avec mélancolie.
+Au même moment, d'innombrables membres de la famille Wang, vêtus de soie, fixaient l'avant d'un regard sinistre.
 
 À l'extérieur de la salle, sur la place, d'innombrables escouades de soldats se préparaient à affronter un grand ennemi. Une aura meurtrière imprégnait l'air.
 
@@ -72,7 +72,7 @@ L'expression de l'homme d'âge moyen devint lugubre et il ricana: « Il semble q
 
 Sur ces mots, un rire résonna dans le palais impérial.
 
-« Mon seigneur n'a pas à s'inquiéter. Mes disciples peuvent s'en charger! »
+« Votre Majesté n'a pas à s'inquiéter. Mes disciples peuvent s'en charger! »
 
 Des filaments de gaz noir se rassemblèrent dans l'air au-dessus de la place et, en un instant, trois silhouettes prirent forme. Bien qu'enveloppées d'un brouillard noir, il était évident qu'il s'agissait de deux hommes et d'une femme. Aucun d'eux n'était très âgé.
 
@@ -86,7 +86,7 @@ Wang Lin comprit immédiatement que le niveau de culture de ces trois individus 
 
 Il n'y avait aucune trace du lignage des Wang dans ces trois corps, seulement un ressentiment infini. C'étaient clairement des esprits vengeurs ayant déjà été raffinés à un certain degré.
 
-Les yeux de Wang Lin furent emplis d'une intention meurtrière. En avançant, il arriva instantanément devant les trois. Ses deux doigts formèrent une épée et pointèrent immédiatement l'un d'eux. Sa vitesse était telle que son doigt atteignit l'épaule de la cible. À cet instant, son énergie originelle du Nirvana au stade initial déferla et s'engouffra dans le corps de l'individu.
+Les yeux de Wang Lin furent emplis d'une intention meurtrière. En avançant, il arriva instantanément devant les trois. Ses deux doigts formèrent une épée et pointèrent immédiatement l'un d'eux. Sa vitesse était telle que son doigt atteignit l'épaule de la cible. À cet instant, son immense énergie du stade initial de Scruteur du Nirvana déferla et s'engouffra dans le corps de l'individu.
 
 Le corps de celui-ci trembla et s'effondra sans aucune résistance. Il se transforma en gaz noir pour tenter de s'échapper, mais il était trop tard.
 
@@ -114,4 +114,4 @@ Quant à la femme à ses côtés, le brouillard noir avait disparu et elle ne d�
 
 La voix de Wang Lin résonna comme un vent d'hiver glacial. En passant, elle fit trembler l'âme de chacun.
 
-Lorsque l'homme d'âge moyen vit Wang Lin, il fut saisi de stupeur et ses yeux se remplirent de choc. Cependant, ce choc fut immédiatement remplacé par une intention meurtrière et il hurla: « Par ordre de la famille Wang, tuez cet homme! »
+Lorsque l'homme d'âge moyen vit Wang Lin, il fut saisi de stupeur et ses yeux se remplirent de choc. Cependant, ce choc fut immédiatement remplacé par une intention meurtrière et il hurla: « Vous, serviteurs de la famille Wang depuis des générations, tuez cet homme! »

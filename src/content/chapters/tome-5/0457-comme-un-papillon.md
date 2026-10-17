@@ -30,11 +30,11 @@ Zhou Wutai répondit: « Zi Xin et moi avons rencontré Wang Lin, puis elle est 
 
 Le vieil homme soupira: « Peu importe. Laissons-la. Suis-moi jusqu'à la montagne spirituelle. » Sur ces mots, le nuage rouge fonça vers la montagne spirituelle.
 
-Ce vieil homme était Yunque Zi.
+Ce vieil homme était Yun Quezi.
 
-Le Clan des Immortels Délaissés utilisait le crâne de l'Ancêtre. Grâce au pouvoir de tatouage d'un shaman à douze feuilles, ils avaient réussi à briser le sceau du Cristal de la Planète de Culture pour y envoyer Yunque Zi.
+Le Clan des Immortels Délaissés utilisait le crâne de l'Ancêtre. Grâce au pouvoir de tatouage d'un shaman à douze feuilles, ils avaient réussi à briser le sceau du Cristal de la Planète de Culture pour y envoyer Yun Quezi.
 
-Cependant, si l'Ancêtre avait été encore en vie, il aurait peut-être pu lever totalement les restrictions sur le Cristal. Comme ils ne disposaient que du pouvoir issu de son crâne, la situation n'était pas idéale. Bien qu'ils aient pu introduire Yunque Zi, il y avait une limite de temps; une fois ce délai expiré, Yunque Zi serait tué par la puissance mystérieuse du Cristal.
+Cependant, si l'Ancêtre avait été encore en vie, il aurait peut-être pu lever totalement les restrictions sur le Cristal. Comme ils ne disposaient que du pouvoir issu de son crâne, la situation n'était pas idéale. Bien qu'ils aient pu introduire Yun Quezi, il y avait une limite de temps; une fois ce délai expiré, Yun Quezi serait tué par la puissance mystérieuse du Cristal.
 
 C'est pourquoi, dès son entrée, il ne perdit pas un instant et se précipita droit vers la montagne spirituelle située au centre.
 

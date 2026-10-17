@@ -21,7 +21,7 @@ Ce dernier lui lança un regard glacial. De sa main droite, il pinça le liquide
 
 Aussitôt, le géant disparut sans même accorder un second regard au nouveau-né.
 
-Une pensée traversa l'esprit de Wang Lin alors qu'il contemplait la scène. Un éclair de choc brilla dans ses yeux. *Cette personne doit être un Dieu Ancien!* Wang Lin comprenait enfin la puissance des Dieux Anciens. Ces sphères étaient manifestement ce que Si Tu Nan avait mentionné auparavant: le monde dans lequel ils vivaient n'était qu'un objet sphérique appelé planète.
+Une pensée traversa l'esprit de Wang Lin alors qu'il contemplait la scène. Un éclair de choc brilla dans ses yeux. *Cette personne doit être un Dieu Ancien!* Wang Lin comprenait enfin la puissance des Dieux Anciens. Ces sphères étaient manifestement ce que Situ Nan avait mentionné auparavant: le monde dans lequel ils vivaient n'était qu'un objet sphérique appelé planète.
 
 En y regardant de plus près, chaque étoile n'était en réalité qu'une planète. Elles paraissaient minuscules en raison de la distance immense qui les séparait, mais leur taille réelle était sans comparaison. D'un simple geste de la main, le Dieu Ancien pouvait anéantir une planète. Quelle puissance était-ce là? Quelle sorte de technique magique?
 

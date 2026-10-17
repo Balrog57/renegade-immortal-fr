@@ -6,13 +6,13 @@ bookTitle: "Alliance's Secret"
 en: Chapter 1006 - Crisis
 slug: crise
 ---
-Tandis que Maître Yi Long contenait temporairement deux soldats, Maître Yi Xiang se rua sur les deux autres. Ses mains formèrent un sceau, puis il en saisit un et le lança vers Maître Yi Long.
+Tandis que Maître Yi Long contenait temporairement deux soldats, Maître Yi Xing se rua sur les deux autres. Ses mains formèrent un sceau, puis il en saisit un et le lança vers Maître Yi Long.
 
 Désormais, il ne restait plus qu'un seul soldat!
 
 Juste au moment où le soldat allait charger dans la brume blanche, les yeux de Maître Fu Fengzi s'illuminèrent. Sa main tendue fit trembler le soldat, puis le tira en arrière. Maître Fu Fengzi affrontait désormais quatre soldats célestes.
 
-Bien que ces dix soldats célestes possédaient des corps puissants, ce n'était pas une tâche insurmontable pour Maître Fu Fengzi et ses compagnons. Wang Lin se sentit chanceux en voyant cela. S'il ne s'était pas enfui de la Terre de l'Esprit Démoniaque à l'époque et s'il n'avait pas été déterminé à briser les restrictions, même en atteignant ce stade, il n'aurait eu aucun moyen de faire face à l'esprit floral ou aux soldats célestes.
+Bien que ces dix soldats célestes possédaient des corps puissants, ce n'était pas une tâche insurmontable pour Maître Fu Fengzi et ses compagnons. Wang Lin se sentit chanceux en voyant cela. S'il ne s'était pas enfui de la Terre des Esprits Démoniaques à l'époque, mais s'était obstiné à briser les restrictions de ce palais céleste, même en arrivant jusqu'ici, il n'aurait eu aucun moyen de faire face aux esprits de fleur ou aux soldats célestes.
 
 L'expression de Wang Lin demeurait calme alors qu'il marchait vers le palais central. Cependant, avant même qu'il ne puisse s'en approcher, un changement choquant se produisit.
 
@@ -24,25 +24,25 @@ Au même moment, quatre volutes de fumée verte s'échappèrent de la carapace e
 
 Wang Lin garda son calme en observant les quatre anciens. Tous étaient des âmes dont le niveau de culture oscillait entre le début et le milieu du stade Scruteur du Nirvana.
 
-Les quatre anciens dégageaient tous une aura céleste et une énergie spirituelle céleste dense. L'un d'eux, dont les yeux brillaient comme la foudre, fixa Wang Lin et hurla: « Saleté des bas-mondes, tu oses envahir la grotte céleste? Ta punition est la mort! »
+Les quatre anciens dégageaient tous une aura céleste et une énergie spirituelle céleste dense. L'un d'eux, dont les yeux brillaient comme la foudre, fixa Wang Lin et hurla: « Paria des bas-mondes, tu oses envahir la grotte céleste? Ta punition est la mort! »
 
 Sitôt ses paroles prononcées, il ne laissa même pas le temps à Wang Lin de s'expliquer; il fit un pas en avant et pointa le ciel. Toute l'énergie spirituelle céleste de la grotte se rassembla pour former un vortex au creux de sa main.
 
 Le vortex s'effondra sous le geste de l'homme, mais un rugissement en jaillit aussitôt. Une bête surgit du vortex effondré!
 
-Cette créature était couverte d'une fourrure noire; il s'agissait manifestement d'un immense singe primitif. Mesurant environ dix pieds de haut, elle se rua directement sur Wang Lin.
+Cette créature était couverte d'une fourrure noire; il s'agissait manifestement d'un immense singe primitif. Haute de plusieurs dizaines de pieds, les bras descendant plus bas que les genoux, elle se rua directement sur Wang Lin.
 
-L'ancien bougea avec une expression sombre. Il se transforma en un rayon de lumière verte et chargea Wang Lin, passant derrière le singe primitif.
+L'ancien bougea avec une expression sombre. Il se transforma en un rayon de lumière verte et chargea Wang Lin à la suite du singe primitif.
 
-Les trois autres anciens s'élancèrent également. L'un d'eux leva la main, provoquant l'apparition d'une tempête de sable et de poussière qui prit la forme d'un python tentant d'engloutir Wang Lin.
+Les trois autres anciens s'élancèrent également. L'un d'eux leva la main, provoquant l'apparition d'une tempête de sable et de poussière qui l'enveloppa pour prendre la forme d'un python noir de mille pieds de long, qui tenta d'engloutir Wang Lin.
 
-Un autre étendit le bras, lequel se mua en fumée verte. Tandis que l'énergie spirituelle céleste de la grotte convergeait, il se transforma en un aigle géant qui fonça sur Wang Lin tel un éclair.
+Un autre étendit les bras, et de la fumée verte jaillit de son corps. Tandis que l'énergie spirituelle céleste de la grotte convergeait, il se transforma en un aigle géant qui fonça sur Wang Lin tel un éclair.
 
 Les yeux du dernier ancien s'illuminèrent et ses mains formèrent un sceau. Il pointa le ciel et cria: « Attaque de la Montagne Céleste! »
 
 À l'instant même où il parla, un grondement retentit dans la grotte, puis une montagne massive apparut et s'abattit sur Wang Lin!
 
-En un instant, les quatre anciens attaquèrent de concert. Leurs sorts célestes fusionnèrent avec une intention meurtrière!
+En un instant, les quatre anciens attaquèrent de concert. Leurs sorts célestes s'accordèrent entre eux et produisirent une variation d'une létalité absolue!
 
 Les yeux de Wang Lin brillèrent intensément et, loin de reculer, il chargea en avant. Alors que le singe approchait, la main droite de Wang Lin se serra en un poing et il lança un coup. Un fracas assourdissant accompagna son mouvement et, dans leur élan respectif, le poing de Wang Lin percuta la poitrine du singe.
 
@@ -52,7 +52,7 @@ Sans perdre un instant, Wang Lin bondit dans les airs. Il pointa vers le bas et 
 
 À sa parole, la Paire de Flétrissement du Dao sur le dos de sa main libéra une lueur sombre et s'élança. Un crâne de bête sinistre, enveloppé d'une brume noire, vola vers l'ennemi. Une lumière fantomatique émanait des orbites du crâne!
 
-À cet instant, une aura meurtrière terrifiante apparut; alors que la lumière spectrale brillait, une lueur grise recouvrit l'aigle géant qui fonçait sur lui. En un éclair, l'aigle se mua en une statue de pierre!
+À cet instant, une aura meurtrière terrifiante apparut; alors que la lumière spectrale brillait, l'aigle géant qui fonçait sur lui fut figé net en plein ciel, et une lueur grise le recouvrit. En un éclair, l'aigle se mua en une statue de pierre!
 
 Au même moment, le python noir s'approcha. Il ouvrit la gueule, créant une puissante force d'aspiration. Une odeur de sang écœurante s'en dégagea tandis qu'il tentait de dévorer Wang Lin. Un éclat de froideur passa dans les yeux de Wang Lin qui, en reculant, frappa son sac de contenance et cria: « Trois séries de neuf épées! »
 
@@ -76,7 +76,7 @@ L'expression de l'ancien qui avait invoqué le singe géant changea radicalement
 
 Parmi les trois restants, outre celui qui avait invoqué la montagne, les deux autres ne purent s'échapper et furent engloutis par les dragons noirs.
 
-Tout cela se produisit avec une rapidité fulgurante. L'ancien survivant se retira pour atterrir sur la tortue. Il entonna un étrange incantation, et une lumière commença à couler de la carapace vers lui, tel un flux d'eau.
+Tout cela se produisit avec une rapidité fulgurante. L'ancien survivant se retira pour atterrir sur la tortue. Il entonna une étrange incantation, et une lumière commença à couler de la carapace vers lui, tel un flux d'eau.
 
 Voyant l'aura du vieil homme croître, comment Wang Lin pouvait-il le laisser faire? Il leva la main droite et ordonna: « Arrête! »
 
@@ -86,7 +86,7 @@ Wang Lin remarqua l'expression singulière qui traversa le visage du vieil homme
 
 Un grondement assourdissant retentit, comme si la grotte entière tremblait, et d'innombrables fissures parcoururent le sol. La carapace de la tortue vacilla violemment, mais ne montra aucun signe de rupture.
 
-À ce moment-là, Maître Fu Fengzi et ses compagnons avaient achevé les soldats célestes, et le cadavre argenté avait fini d'absorber les esprits floraux. Son visage était désormais rosé, semblant avoir subi une transformation mystérieuse.
+À ce moment-là, Maître Fu Fengzi et ses compagnons avaient achevé les soldats célestes, et le Cadavre d'Argent avait fini d'absorber les esprits de fleur. Son visage était désormais rosé, semblant avoir subi une transformation mystérieuse.
 
 « Brisez cette formation! » Sur un ordre de Wang Lin, chacun utilisa ses divers sorts en ciblant la carapace.
 
@@ -110,7 +110,7 @@ L'expression de Maître Fu Fengzi changea; il fit circuler l'énergie d'origine 
 
 Cependant, les trois frères Chen, Da Tou et Lei Ji n'avaient pas une culture suffisante pour y parvenir. À mesure que les pas approchaient, leurs visages devinrent livides.
 
-Seul le cadavre argenté resta de marbre. Étant un cadavre doté d'intelligence, l'absence de battements cardiaques la rendait insensible.
+Seul le Cadavre d'Argent resta de marbre. Étant un cadavre doté d'intelligence, l'absence de battements cardiaques la rendait insensible.
 
 Le visage de Wang Lin s'assombrit progressivement. Possédant le corps d'un Dieu Ancien, il pouvait endurer ce genre d'attaque mentale.
 
@@ -120,6 +120,6 @@ Lei Ji, qui avait le niveau de culture le plus bas, tremblait de tout son corps.
 
 Les pas semblaient avoir atteint l'entrée du palais. À cet instant, une silhouette blanche apparut de l'intérieur.
 
-Un rayon de lumière perça la carapace de la tortue et se posa sur Wang Lin.
+Un regard perça la carapace de la tortue et se posa sur Wang Lin.
 
 Une sensation de crise vitale, une menace de mort qu'il n'avait pas ressentie depuis longtemps, enveloppa soudainement Wang Lin comme une tempête. Cela fit dresser tous les poils de son corps!

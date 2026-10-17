@@ -20,7 +20,7 @@ Wang Lin était parfaitement conscient de ce point.
 
 Tuo Sen se mit à rire follement alors qu'il avançait, leva son poing et lança un coup dévastateur.
 
-Ce coup semblait ordinaire, mais les visages de Zhuque Zi et d'Yunque Zi devinrent livides. Tous deux furent gravement blessés par cette seule attaque et projetés violemment en arrière.
+Ce coup semblait ordinaire, mais les visages de Zhu Quezi et d'Yun Quezi devinrent livides. Tous deux furent gravement blessés par cette seule attaque et projetés violemment en arrière.
 
 Le fragment d'âme Ascendant agita la main, faisant apparaître une lance pourpre dans sa paume. Il fit tournoyer l'arme avant de la projeter, puis il saisit Wang Lin et disparut.
 
@@ -102,29 +102,29 @@ Le cœur de Wang Lin trembla tandis qu'il fixait l'homme masqué.
 
 À cet instant, non seulement celui de Wang Lin, mais tous les regards présents étaient braqués sur cet individu.
 
-Les yeux d'Yunque Zi étaient emplis de terreur. Il reconnut immédiatement que cet homme était un cultivateur dont il ne pouvait percevoir le niveau de culture!
+Les yeux d'Yun Quezi étaient emplis de terreur. Il reconnut immédiatement que cet homme était un cultivateur dont il ne pouvait percevoir le niveau de culture!
 
 Il faut dire qu'il pouvait sonder les cultivateurs jusqu'au stade tardif de l'Ascendant. S'il ne parvenait pas à voir clair en quelqu'un, c'est que cet individu devait se situer au-delà du stade Ascendant!
 
-Envisageant cela, le cœur d'Yunque Zi trembla violemment.
+Envisageant cela, le cœur d'Yun Quezi trembla violemment.
 
-Le regard de Zhuque Zi devint grave alors qu'il fixait l'homme et le cristal blanc dans sa main. En pensant à la manière dont cet individu avait extrait le cristal du vide, le corps de Zhuque Zi frémit. Il afficha un air d'incrédulité et s'exclama: « Tu... tu es... »
+Le regard de Zhu Quezi devint grave alors qu'il fixait l'homme et le cristal blanc dans sa main. En pensant à la manière dont cet individu avait extrait le cristal du vide, le corps de Zhu Quezi frémit. Il afficha un air d'incrédulité et s'exclama: « Tu... tu es... »
 
-L'homme masqué poussa un soupir. Il regarda calmement Zhuque Zi et dit: « Zhuque Zi, comprends-tu que ce que tu as fait était mal? »
+L'homme masqué poussa un soupir. Il regarda calmement Zhu Quezi et dit: « Zhu Quezi, comprends-tu que ce que tu as fait était mal? »
 
-Yunque Zi fixa l'inconnu et murmura pour lui-même: « Ye Wuyou? »
+Yun Quezi fixa l'inconnu et murmura pour lui-même: « Ye Wuyou? »
 
-« Il n'est pas le premier Suzaku. Ne lance pas de suppositions au hasard! » Zhuque Zi coupa rapidement la parole à Yunque Zi. Il regarda l'homme masqué et dit respectueusement: « Ce junior salue le Messager de l'Alliance. Concernant cette affaire, ce junior reconnaît ses torts. »
+« Il n'est pas le premier Suzaku. Ne lance pas de suppositions au hasard! » Zhu Quezi coupa rapidement la parole à Yun Quezi. Il regarda l'homme masqué et dit respectueusement: « Ce junior salue le Messager de l'Alliance. Concernant cette affaire, ce junior reconnaît ses torts. »
 
-« Le Messager de l'Alliance... le Messager de l'Alliance de Culture! » Yunque Zi prit une inspiration glacée.
+« Le Messager de l'Alliance... le Messager de l'Alliance de Culture! » Yun Quezi prit une inspiration glacée.
 
-« Zhuque Zi, ta durée de vie a atteint son terme, tu devrais être mort. Il est inutile de te forcer à rester! Tenter de briser le Cristal de la Planète de Culture est considéré comme un crime majeur au sein de l'Alliance de Culture. Compte tenu du fait que tu avais tes raisons, je ne poursuivrai pas cette affaire pour l'instant, mais tu dois quitter ce monde immédiatement! »
+« Zhu Quezi, ta durée de vie a atteint son terme, tu devrais être mort. Il est inutile de te forcer à rester! Tenter de briser le Cristal de la Planète de Culture est considéré comme un crime majeur au sein de l'Alliance de Culture. Compte tenu du fait que tu avais tes raisons, je ne poursuivrai pas cette affaire pour l'instant, mais tu dois quitter ce monde immédiatement! »
 
-Le visage de Zhuque Zi était empreint d'amertume alors qu'il hochait silencieusement la tête. Ses yeux s'illuminèrent et il dit: « Je peux partir, mais le Clan des Immortels Délaissés... »
+Le visage de Zhu Quezi était empreint d'amertume alors qu'il hochait silencieusement la tête. Ses yeux s'illuminèrent et il dit: « Je peux partir, mais le Clan des Immortels Délaissés... »
 
 L'homme masqué l'interrompit: « Je m'en occuperai! »
 
-Zhuque Zi prit une profonde inspiration, s'assit en tailleur et ferma les yeux. Un sourire amer resta sur son visage alors qu'il rendait l'âme...
+Zhu Quezi prit une profonde inspiration, s'assit en tailleur et ferma les yeux. Un sourire amer resta sur son visage alors qu'il rendait l'âme...
 
 Sa durée de vie touchait déjà à sa fin, mais il avait volé celle de Qian Feng pour prolonger son existence. Maintenant qu'il avait rencontré le Messager de l'Alliance de Culture, il devait tout abandonner...
 

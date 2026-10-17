@@ -50,17 +50,17 @@ Tandis que Wang Lin et Situ Nan s'entraidaient, le corps de Ling Tianhou chuta l
 
 Cependant, la culture de Ling Tianhou étant supérieure à celle de Situ Nan, elle se rétablit légèrement durant sa chute. Mais il était trop proche de la mer de sang. S'il avait retrouvé sa pleine puissance, il aurait pu s'échapper, mais ses chances étaient désormais infimes!
 
-À ce moment précis, l'Omniscient, posté au-dessus du vortex, fronça les sourcils avant de laisser échapper un soupir. D'un revers de manche, il fit exactement ce que Wang Lin avait fait: il plongea tel un météore.
+À ce moment précis, l'Omniscient, posté au-dessus du vortex, fronça les sourcils avant de laisser échapper un soupir. D'un revers de manche, il fit exactement ce que Wang Lin avait fait: il plongea comme l'éclair.
 
 Bien plus rapide que Wang Lin, il atteignit Ling Tianhou en un instant. Il le saisit et s'élança vers les cieux.
 
-La mer de sang rugit et la silhouette vague émergea du centre. La figure leva la main et tendit doucement les doigts.
+La mer de sang rugit et la silhouette vague émergea du centre. La figure leva son bras desséché et saisit doucement le vide devant elle.
 
 L'expression de l'Omniscient changea et, sans réfléchir, un rayon de lumière grise jaillit entre ses sourcils. Dès que l'Omniscient en robe grise apparut, sa main forma un sceau et un sifflement strident retentit du fond du vortex.
 
 Des brins d'énergie de la boucherie surgirent du vide pour encercler la zone. De loin, leur nombre était si immense qu'ils étaient extrêmement alarmants.
 
-Sous le commandement du doigt pointé de l'Omniscient en robe grise, les innombrables filaments d'énergie de la boucherie convergèrent de toutes les directions. Ils se condensèrent en un seul brin massif qui chargea la silhouette vague.
+Sous le commandement du doigt pointé de l'Omniscient en robe grise, les innombrables filaments d'énergie de la boucherie convergèrent de toutes les directions. Ils se condensèrent en un seul brin massif qui chargea la main droite de la silhouette vague.
 
 À l'apparition de l'Omniscient en robe grise, les pupilles du Maître du Vide, qui portait la belle femme d'âge moyen et la présumée Sainte du Vide Brillant, se rétractèrent. Il murmura: « Robe grise... »
 
@@ -72,37 +72,37 @@ Sitôt la parole prononcée, le brin d'énergie de la boucherie s'effondra souda
 
 La mer de sang fut repoussée par cette puissante explosion, et les fragments d'âmes à l'intérieur poussèrent des cris de désespoir avant de s'éteindre.
 
-Ling Tianhou resta silencieux, réfléchissant à la situation. Il répondit à l'aide de l'Omniscient par un regard froid.
+Ling Tianhou resta silencieux et répondit à l'aide de l'Omniscient par un regard froid.
 
 L'Omniscient ignora Ling Tianhou alors qu'un cri perçant jaillissait du vortex. Une silhouette s'en échappa à une vitesse inimaginable et tenta de griffer l'Omniscient en robe grise.
 
 Ce cri portait une force terrifiante. Lorsque Wang Lin et Situ Nan furent frappés par cette onde, ils crachèrent immédiatement du sang et accélérèrent leur fuite. Quant aux autres, ils continuèrent de s'élever en utilisant leur énergie originelle pour résister à l'impact.
 
-Les yeux de l'Omniscient en robe grise se plissèrent alors qu'il fixait la silhouette floue qui chargeait vers lui. Ses yeux devinrent rouges et il afficha un sourire narquois avant de pointer le bas et de dire lentement: « Boucherie, deviens un monde! »
+Les yeux de l'Omniscient en robe grise se plissèrent alors qu'il fixait la silhouette floue qui chargeait vers lui. Ses yeux devinrent rouges et il afficha un sourire narquois avant de pointer le ciel au-dessus de lui et de dire lentement: « Boucherie, deviens un monde! »
 
 À peine eut-il parlé qu'un grondement sourd ébranla le vide où ils se trouvaient. Soudain, une fissure gigantesque apparut au-dessus du vortex!
 
 Des brins d'énergie de la boucherie jaillirent de la faille avec frénésie. Ils étaient bien plus nombreux qu'auparavant! En un instant, toute la zone fut saturée par cette énergie! Dix mille, cent mille, un million, dix millions, cent millions!
 
-Cent millions de brins d'énergie de la boucherie apparurent au-dessus du Vortex de l'Enterrement Céleste. La quantité était telle que, sans leur capacité à fusionner, il aurait été impossible de les contenir ici!
+Cent millions de brins d'énergie de la boucherie apparurent au-dessus du Vortex Funéraire Céleste. La quantité était telle que, sans leur capacité à fusionner, il aurait été impossible de les contenir ici!
 
-Wang Lin retint son souffle devant ce spectacle inimaginable. La voix froide et calme de l'Omniscient en robe grise résonna alors dans son esprit:
+Wang Lin retint son souffle devant ce spectacle inimaginable. Il lui sembla entendre de nouveau, à son oreille, la voix calme mais autoritaire de l'Omniscient en robe grise d'autrefois:
 
 « Si j'avais cent millions de brins d'énergie de la boucherie, je serais serein même si une planète explosait! »
 
 Wang Lin n'avait jamais vu une telle concentration d'énergie de la boucherie. En être le témoin direct lui infligea un choc indescriptible.
 
-Bien que le Vortex de l'Enterrement Céleste fût vaste, il paraissait minuscule face à cette énergie infinie. À cet instant, l'énergie de la boucherie se rassemblait sous le contrôle absolu de l'Omniscient en robe grise.
+Bien que le Vortex Funéraire Céleste fût vaste, il paraissait un peu plus petit que cette énergie infinie. À cet instant, l'énergie de la boucherie se rassemblait sous le contrôle absolu de l'Omniscient en robe grise.
 
 Le vortex formé par ces cent millions de brins apparut soudainement devant tous. Il possédait le pouvoir de tout briser sur son passage et, à mesure qu'il se compressait, une aura terrifiante se dégagea.
 
-« Boucherie Monstrueuse! » hurla l'Omniscient en robe grise alors que le vortex chargeait la silhouette vague au sein du Vortex de l'Enterrement Céleste.
+« Boucherie Monstrueuse! » hurla l'Omniscient en robe grise alors que le vortex chargeait la silhouette vague au sein du Vortex Funéraire Céleste.
 
-Rumble, rumble, rumble!
+Boum, boum, boum, boum!
 
-Des vagues de grondements assourdissants résonnèrent sans interruption. Sous l'impact incessant, la mer de sang s'effondra et le Vortex de l'Enterrement Céleste lui-même commença à trembler.
+Des vagues de grondements assourdissants résonnèrent sans interruption. Sous l'impact incessant, la mer de sang s'effondra et le Vortex Funéraire Céleste lui-même commença à trembler.
 
-Profitant de cette onde de choc, Wang Lin et Situ Nan accélérèrent leur ascension. Ils sortirent du vortex et regardèrent en bas, le visage pâle. Même les yeux du vieil homme sur la gourde étaient empreints de crainte, et les pupilles de l'homme en noir portant la marque du dragon entre ses sourcils se rétractèrent.
+Profitant de cette onde de choc, Wang Lin et Situ Nan accélérèrent leur ascension. Ils sortirent du vortex et regardèrent en bas, le visage pâle. Même les yeux du vieil homme sur la gourde étaient empreints de crainte, et les pupilles de l'homme en noir portant la marque du dragon noir cachée entre ses sourcils se rétractèrent.
 
 « L'Omniscient... »
 
@@ -110,21 +110,21 @@ Maître du Vide prit une profonde inspiration en fixant l'Omniscient en robe gri
 
 « Ce qui est encore plus effrayant, c'est ce pouvoir terrifiant de la Loi qui lui permet de tout prévoir. S'il est redoutable lorsqu'il massacre, c'est son regard capable de tout percer lorsqu'il ne combat pas qui a captivé l'attention de l'Alliance... » Maître du Vide observa l'Omniscient en robe grise, puis le corps originel de l'Omniscient qui avait sauvé Ling Tianhou.
 
-« C'est uniquement parce que ce Senior Frère craignait cet homme qu'il a sacrifié sa vie et accepté que son troisième Fléau Céleste arrive prématurément pour lancer un sort puissant utilisant Ling Tianhou afin de briser son cœur Dao. Cela a créé une faille dans son cœur Dao lors de son deuxième Fléau Céleste, faisant éclater son cœur en d'innombrables morceaux et l'empêchant de fusionner!
+« C'est uniquement parce que ce Senior Frère craignait cet homme qu'il a sacrifié sa longévité et accepté que son troisième Fléau Céleste arrive prématurément pour lancer un sort puissant utilisant Ling Tianhou afin de briser son cœur Dao. Cela a créé une faille dans son cœur Dao lors de son deuxième Fléau Céleste, faisant éclater son cœur en d'innombrables morceaux et l'empêchant de fusionner!
 
-Sinon, l'Omniscient aurait atteint un niveau terrifiant aujourd'hui. S'il n'est pas encore au troisième stade, il n'en est pas loin! »
+Sinon, l'Omniscient aurait atteint un niveau terrifiant aujourd'hui. Même s'il n'égalait pas la troisième étape, il n'en serait certainement pas loin! »
 
-À l'intérieur du Vortex de l'Enterrement Céleste, au moment où la mer de sang s'effondrait, la femme floue agita sa main droite. Un tatouage pourpre et doré brilla entre ses sourcils. D'un geste, le vortex de boucherie vicieux s'interrompit soudainement et des millions de brins d'énergie disparurent sans laisser de trace.
+À l'intérieur du Vortex Funéraire Céleste, au moment où la mer de sang s'effondrait, la femme floue agita sa main droite. Un tatouage pourpre et doré brilla entre ses sourcils. D'un geste, le tourbillon de boucherie déferlant s'interrompit soudainement, puis s'effondra, et les cent millions de brins d'énergie disparurent sans laisser de trace.
 
 Ce changement brusque fit trembler l'esprit de tous les spectateurs.
 
 Les yeux de l'Omniscient en robe grise s'illuminèrent. Il fronça les sourcils, prêt à lancer un autre sort, quand le corps originel de l'Omniscient qui avait sauvé Ling Tianhou ordonna calmement: « Reviens! »
 
-L'Omniscient en robe grise lança un regard froid vers son corps originel. Cependant, il se retira tout en réfléchissant, avant de disparaître entre les sourcils de l'Omniscient.
+L'Omniscient en robe grise lança un regard froid vers son corps originel. Cependant, il se retira en silence, se changea en un rai de lumière grise et disparut entre les sourcils de l'Omniscient.
 
 Puis l'Omniscient s'éleva du vortex et flotta dans les airs. Hormis ceux qui avaient été aspirés plus tôt, tous étaient encore là. Pourtant, le silence régnait; tous les regards étaient rivés sur la femme qui émergeait lentement du vortex!
 
-À mesure qu'elle approchait, Wang Lin vit clairement que ses pieds étaient fermement retenus par une sorte de tendon écarlate. Tandis qu'elle s'élevait vers le ciel, ce tendon se tendait droit. La Bête de l'Ébène Marquée, qui avait disparu, surgit du vortex et atterrit sur le tendon entourant les pieds de la femme. Elle renifla quelques fois avant de s'allonger par-dessus, ses yeux brillant d'une lueur étrange.
+À mesure qu'elle approchait, Wang Lin vit clairement que ses pieds étaient fermement retenus par une sorte de tendon écarlate. Tandis qu'elle s'élevait vers le ciel, ce tendon se tendait droit. Le Blaireau Marqué par les Étoiles, qui avait disparu, surgit du vortex et atterrit sur le tendon entourant les pieds de la femme. Elle renifla quelques fois avant de s'allonger par-dessus sans bouger, ses yeux brillant d'une lueur vive.
 
 La femme s'arrêta à 2 000 pieds de tout le monde. Elle leva ses orbites vides comme pour sonder l'assemblée. Du sang noir s'écoulait encore de ses yeux et coulait le long de son menton.
 
@@ -132,9 +132,9 @@ La femme s'arrêta à 2 000 pieds de tout le monde. Elle leva ses orbites vides 
 
 Face à cette question soudaine, personne n'osa parler. Après un long silence, Maître du Vide prit une expression respectueuse et déclara: « Il reste encore de nombreux membres du clan du Tatouage en vie. »
 
-La femme resta pensive et poussa un soupir. Elle avait lutté pour sortir des profondeurs du Bassin de l'Enterrement Céleste pour n'autre chose que poser cette question et voir une seule personne. Ses orbites vides semblèrent libérer un regard invisible qui se posa sur Wang Lin.
+La femme resta pensive et poussa un soupir. Elle avait lutté pour sortir des profondeurs du Bassin Funéraire Céleste pour rien d'autre que poser cette question et voir une seule personne. Ses orbites vides semblèrent libérer un regard invisible qui se posa sur Wang Lin.
 
-« Invoquez la Garde Céleste dans votre ombre. »
+« Invoquez le Gardien Céleste fondu dans votre ombre. »
 
 Wang Lin réfléchit un instant, puis Ta Shan apparut de son ombre par la force de la pensée. Il fixa froidement la femme.
 

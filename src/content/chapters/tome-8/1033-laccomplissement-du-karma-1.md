@@ -20,7 +20,7 @@ On ne pouvait pas y échapper!
 
 Soit on vivait, soit on mourait, et l'on n'avait souvent qu'une seule chance.
 
-« Si tu t'étais contenté de me faire cela, tout en serait resté là, mais tu as dû être si cruelle envers mon père. Wang Lin, y avait-il une telle haine entre toi et moi? Dans ce monde de culture, il est courant de comploter les uns contre les autres. Bien que j'aie eu tort, Yao Xixue, cela suffisait-il pour me condamner à mort? » Yao Xixue fixa Wang Lin. La haine brûlait dans ses yeux et sa voix était empreinte de douleur.
+« Si tu t'étais contenté de me faire cela, tout en serait resté là, mais tu as dû être si cruel envers mon père. Wang Lin, y avait-il une telle haine entre toi et moi? Dans ce monde de culture, il est courant de comploter les uns contre les autres. Bien que j'aie eu tort, Yao Xixue, cela suffisait-il pour me condamner à mort? » Yao Xixue fixa Wang Lin. La haine brûlait dans ses yeux et sa voix était empreinte de douleur.
 
 Wang Lin réfléchit en silence. Il regarda l'horizon et son regard s'assombrit.
 
@@ -30,7 +30,7 @@ Wang Lin poussa un soupir. Plus de 1 000 ans de culture avaient endurci son cœu
 
 Si l'on ne m'offense pas, je n'offenserai personne!
 
-Le complot de Yao Xixue avait touché la limite de Wang Lin, elle devait donc mourir! Cependant, par inquiétude pour l'Ancêtre de Sang et la Pilule de Sang, il ne l'avait pas tuée! Puis, face à l'Ancêtre de Sang, il avait dû lutter pour survivre. Si l'Ancêtre de Sang ne mourait pas, lui, Wang Lin, serait mort!
+Le complot de Yao Xixue avait touché la limite de Wang Lin, elle devait donc mourir! Cependant, par inquiétude pour l'Ancêtre Sanguin et la Pilule de l'Âme Sanguine, il ne l'avait pas tuée! Puis, face à l'Ancêtre Sanguin, il avait dû lutter pour survivre. Si l'Ancêtre Sanguin ne mourait pas, lui, Wang Lin, serait mort!
 
 Il n'avait pas le choix! Du point de vue de Wang Lin, il n'avait pas tort!
 
@@ -38,15 +38,15 @@ Pourtant, du point de vue de Yao Xixue, elle avait payé le prix d'être scellé
 
 Mais avec la mort de son père, devait-elle encore chercher à raisonner avec le meurtrier de celui-ci? Elle était incapable de distinguer le bien du mal. En tant qu'enfant, peu importait la raison, elle devait se venger. Du point de vue de Yao Xixue, elle non plus n'avait pas tort.
 
-« Tout cela est karma... La cause karmique d'hier produira l'effet karmique d'aujourd'hui. Chaque étape n'était ni quelque chose qu'elle pouvait contrôler, ni quelque chose que je pouvais contrôler... Si elle ne m'avait pas comploté contre moi en premier, ou si je n'avais pas craint l'Ancêtre de Sang, rien de tout cela ne serait arrivé.
+« Tout cela est karma... La cause karmique d'hier produira l'effet karmique d'aujourd'hui. Chaque étape n'était ni quelque chose qu'elle pouvait contrôler, ni quelque chose que je pouvais contrôler... Si elle n'avait pas comploté contre moi en premier, ou si je n'avais pas craint l'Ancêtre Sanguin, rien de tout cela ne serait arrivé.
 
 « Une fois la cause engendrée, elle ne s'éteint jamais; elle ne fait que croître. J'ai été piégé pendant des centaines d'années. C'est comme si le résultat de la tentative de maintenir un mensonge était de devoir multiplier les mensonges.
 
 « Le "moi" d'autrefois ne comprenait pas le karma et ne réalisait pas que j'en faisais déjà partie.
 
-« Puis, quand l'Ancêtre de Sang est venu me traquer, j'ai pensé que c'était l'effet. Cependant, il semble que l'Ancêtre de Sang n'était pas l'effet, mais seulement une partie de la cause!
+« Puis, quand l'Ancêtre Sanguin est venu me traquer, j'ai pensé que c'était l'effet. Cependant, il semble que l'Ancêtre Sanguin n'était pas l'effet, mais seulement une partie de la cause!
 
-« Le véritable effet n'est pas de devoir combattre l'Ancêtre de Sang ou ce que Yao Xixue a dit, mais mon propre cœur Dao! » Une lueur apparut dans les yeux de Wang Lin.
+« Le véritable effet n'est pas de devoir combattre l'Ancêtre Sanguin ou ce que Yao Xixue a dit, mais mon propre cœur Dao! » Une lueur apparut dans les yeux de Wang Lin.
 
 « Mon domaine karmique n'est pas encore achevé, et sa progression est lente. Peu importe mes illuminations, il semble que je ne puisse comprendre ce qu'est réellement le karma... Autrefois, je sentais vaguement que pour compléter mon domaine karmique, je devrais accomplir tout le karma lié à moi. Il semble que mon intuition de l'époque n'était que partiellement correcte. » Les yeux de Wang Lin commencèrent à briller de plus belle.
 
@@ -118,6 +118,6 @@ Maintenant que tout était accompli, elle, le Démon du Vent, ne prendrait aucun
 
 Si la personne que Yao Xixue voulait tuer avait été faible, elle aurait pu aider; mais l'individu face à elle lui inspirait une terreur profonde.
 
-De plus, son niveau de culture actuel était bien inférieur à celui de l'homme en face d'elle, elle ne pouvait se permettre aucun risque.
+De plus, son niveau de culture actuel était bien inférieur à celui d'autrefois, elle ne pouvait se permettre aucun risque.
 
 « Ceci est l'une des restrictions de la Grotte de l'Empereur Céleste. Si toutes les restrictions sont déclenchées, cela ne sera bon ni pour toi, ni pour moi. Puisqu'il n'y a pas de querelle entre nous, je m'en vais. » Après avoir parlé, le Démon du Vent continua de reculer.

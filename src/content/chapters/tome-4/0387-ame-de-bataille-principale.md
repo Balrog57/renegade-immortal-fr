@@ -8,7 +8,7 @@ slug: ame-de-bataille-principale
 ---
 Alors que Wang Lin fixait l'endroit où Liu Mei avait disparu, son regard se glaça.
 
-« Je ne parviens pas à percer le niveau de culture de Liu Mei, elle doit donc avoir un niveau plus élevé que le mien; sinon, elle ne serait pas devenue la disciple de Zhuque Zi. Seulement, j'ignore pourquoi cette femme cherche à entrer en contact avec moi... » Wang Lin fronça les sourcils encore plus profondément. D'un revers de manche, il fit atterrir Xu Yun et Liu Wei à une centaine de mètres de là.
+« Je ne parviens pas à percer le niveau de culture de Liu Mei, elle doit donc avoir un niveau plus élevé que le mien; sinon, elle ne serait pas devenue la disciple de Zhu Quezi. Seulement, j'ignore pourquoi cette femme cherche à entrer en contact avec moi... » Wang Lin fronça les sourcils encore plus profondément. D'un revers de manche, il fit atterrir Xu Yun et Liu Wei à une centaine de mètres de là.
 
 Wang Lin n'était pas un homme de bien, mais constatant que l'inconscience des deux lui avait permis de déceler la nature de Liu Mei, il ne les chassa pas.
 

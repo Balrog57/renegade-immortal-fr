@@ -8,7 +8,7 @@ slug: lintention-meurtriere-de-tuo-sen
 ---
 Une fois que Qian Feng eut fini de parler, il brandit son épée. Une aura primordiale s'en dégagea; une aura qui semblait émaner d'un esprit primordial.
 
-Dès l'apparition de l'épée de fer, même Zhuque Zi et Yunque Zi, qui se livraient à un combat au loin, furent stupéfaits.
+Dès l'apparition de l'épée de fer, même Zhu Quezi et Yun Quezi, qui se livraient à un combat au loin, furent stupéfaits.
 
 Les yeux de Wang Lin s'illuminèrent alors qu'il fixait intensément l'épée de fer. Pour être plus précis, il scrutait la rouille qui la recouvrait.
 
@@ -24,11 +24,11 @@ Qian Feng avait été contraint d'utiliser cette épée. Elle était le plus gra
 
 Lorsqu'il avait légué l'épée, l'ancien Suzaku avait déclaré: « Avec ma culture actuelle, je ne peux percer les secrets de cette épée. Générations futures, à moins qu'une catastrophe ne menace de détruire votre lignée, vous ne devez jamais l'utiliser! »
 
-Après que Qian Feng fut devenu le disciple de Zhuque Zi et juste avant la guerre contre le Clan des Immortels Délaissés, il s'était rendu secrètement sur le lieu où l'épée de fer était dissimulée pour s'en emparer.
+Après que Qian Feng fut devenu le disciple de Zhu Quezi et juste avant la guerre contre le Clan des Immortels Délaissés, il s'était rendu secrètement sur le lieu où l'épée de fer était dissimulée pour s'en emparer.
 
-Il voulait tuer Wang Lin et ne faisant pas confiance au trésor que Zhuque Zi lui avait confié, il avait sorti l'épée de fer. C'était sa véritable contrepartie face au Drapeau des Âmes d'un Milliard.
+Il voulait tuer Wang Lin et ne faisant pas confiance au trésor que Zhu Quezi lui avait confié, il avait sorti l'épée de fer. C'était sa véritable contrepartie face au Drapeau des Âmes d'un Milliard.
 
-À cet instant, un rire soudain retentit dans la brume rouge où se battaient Zhuque Zi et Yunque Zi. Peu après, une ombre jaillit vers l'endroit où se trouvaient Wang Lin et Qian Feng.
+À cet instant, un rire soudain retentit dans la brume rouge où se battaient Zhu Quezi et Yun Quezi. Peu après, une ombre jaillit vers l'endroit où se trouvaient Wang Lin et Qian Feng.
 
 En un clin d'œil, l'ombre perça l'encerclement des fragments d'âme, faisant disparaître tous les fragments sur son passage dans des hurlements de douleur.
 
@@ -60,9 +60,9 @@ La silhouette regarda Wang Lin avec un sourire de prédateur et dit: « Petit mo
 
 Sur ces mots, il passa sa main sur l'épée. La rouille commença à s'agiter comme si elle était vivante pour finir par former une goutte de sang rouge sombre.
 
-L'individu afficha un air de joie et avala la goutte. Puis, tout en tenant l'épée, il disparut. Lorsqu'il réapparut, il se trouvait déjà dans la brume rouge où Zhuque Zi et Yunque Zi combattaient.
+L'individu afficha un air de joie et avala la goutte. Puis, tout en tenant l'épée, il disparut. Lorsqu'il réapparut, il se trouvait déjà dans la brume rouge où Zhu Quezi et Yun Quezi combattaient.
 
-Les exclamations de surprise de Zhuque Zi et les rugissements furieux d'Yunque Zi s'élevèrent de la brume, suivis par le fracas des sorts lancés.
+Les exclamations de surprise de Zhu Quezi et les rugissements furieux d'Yun Quezi s'élevèrent de la brume, suivis par le fracas des sorts lancés.
 
 Qian Feng, bien que gravement blessé par sa chute, réussit à stabiliser son corps et s'apprêtait à s'enfuir.
 
@@ -104,15 +104,15 @@ La haine dans les yeux de Zi Xin s'évanouit. Elle regarda le corps de Qian Feng
 
 « Qian Feng! » Les yeux de Zi Xin devinrent froids; elle s'assit rapidement et ses mains formèrent un sceau mystérieux. Simultanément, des éclairs de lumière jaillirent de son front et plusieurs cultivateurs-marionnettes apparurent pour assurer sa protection.
 
-« Un fourneau de culture... en fin de compte, qui est le fourneau de qui... Wang Lin, tu n'as toujours pas compris... En tuant Qian Feng, tu as exaucé le vœu de Zi Xin! Hélas, même moi, j'ignore quel genre de sort Yunque Zi a utilisé. Un tel sort est inouï... c'est tout simplement trop étrange. Même avec un fragment de l'héritage du Dragon Vert qui s'est éveillé en moi, je n'ai aucun souvenir d'une telle technique... » Zhou Wutai afficha une expression complexe en observant Zi Xin.
+« Un fourneau de culture... en fin de compte, qui est le fourneau de qui... Wang Lin, tu n'as toujours pas compris... En tuant Qian Feng, tu as exaucé le vœu de Zi Xin! Hélas, même moi, j'ignore quel genre de sort Yun Quezi a utilisé. Un tel sort est inouï... c'est tout simplement trop étrange. Même avec un fragment de l'héritage du Dragon Vert qui s'est éveillé en moi, je n'ai aucun souvenir d'une telle technique... » Zhou Wutai afficha une expression complexe en observant Zi Xin.
 
 Zi Xin dégageait alors une lumière arc-en-ciel et une aura puissante emplissait son corps. Cette aura était très similaire à celle de Qian Feng.
 
 Wang Lin, enveloppé par le drapeau des âmes, s'apprêtait à s'extirper de cette mer dorée.
 
-Mais soudain, un bruit assourdissant retentit depuis la brume rouge libérée par Zhuque Zi. Une seconde plus tard, la silhouette d'Yunque Zi fut projetée hors de la brume. Du sang coulait de sa bouche, son regard était trouble et, lors de son atterrissage, il faillit s'effondrer.
+Mais soudain, un bruit assourdissant retentit depuis la brume rouge libérée par Zhu Quezi. Une seconde plus tard, la silhouette d'Yun Quezi fut projetée hors de la brume. Du sang coulait de sa bouche, son regard était trouble et, lors de son atterrissage, il faillit s'effondrer.
 
-Au même moment, Zhuque Zi fut également expulsé. Son expression était affreuse. La vitalité qu'il affichait avait disparu; il était désormais enveloppé d'une aura mortelle, la bouche pleine de sang.
+Au même moment, Zhu Quezi fut également expulsé. Son expression était affreuse. La vitalité qu'il affichait avait disparu; il était désormais enveloppé d'une aura mortelle, la bouche pleine de sang.
 
 Un rire dément résonna depuis l'intérieur de la brume rouge. Peu après, celle-ci se dissipa, révélant la silhouette rouge de Tuo Sen tenant le cristal blanc. Ses yeux projetaient une lueur écarlate.
 

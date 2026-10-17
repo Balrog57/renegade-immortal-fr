@@ -12,7 +12,7 @@ Le niveau de culture actuel de Wang Lin n'était plus celui d'autrefois; peu de 
 
 Pourtant, dès l'instant où la silhouette blanche apparut, le sentiment de crise de Wang Lin atteignit son paroxysme.
 
-Cela faisait longtemps que Wang Lin n'avait pas ressenti cette sensation de chair de poule qui parcourt tout le corps. Ses pupilles se rétractèrent et il recula inconsciemment de quelques pas. La lueur bleue dans ses yeux brilla tandis qu'il fixait la silhouette blanche.
+Cela faisait longtemps que Wang Lin n'avait pas ressenti cette sensation de chair de poule qui parcourt tout le corps. Ses pupilles se rétractèrent et il recula inconsciemment de quelques pas. La lueur bleue jaillit soudain de son œil droit tandis qu'il fixait la silhouette blanche.
 
 Un soupir silencieux émana de l'intérieur du palais. La silhouette blanche en sortit, et ce qui apparut devant Wang Lin et son entourage fut une femme d'une beauté époustouflante!
 
@@ -24,21 +24,21 @@ Cependant, un simple coup d'œil suffit à Wang Lin pour avoir l'impression qu'u
 
 Si Wang Lin en était réduit à cet état, les autres étaient dans un sort pire encore.
 
-Les yeux du Maître Fu Fengzi s'écarquillèrent et devinrent injectés de sang avant qu'il ne crache une bouchée de sang. Son corps montagneux trembla et se rétracta rapidement jusqu'à n'atteindre plus que la moitié de sa taille originale. Une immense quantité d'énergie originelle envahit son esprit alors qu'il reculait de plusieurs dizaines de pieds avant de s'immobiliser. Le visage pâle, terrifié par la situation, il hurla: « Fleur Céleste! »
+Les yeux du Maître Fu Fengzi s'écarquillèrent et devinrent injectés de sang avant qu'il ne crache une bouchée de sang. Son corps montagneux trembla et se rétracta rapidement jusqu'à n'atteindre plus que la moitié de sa taille originale. Une immense quantité d'énergie originelle envahit son esprit alors qu'il reculait de plusieurs centaines de pieds avant de s'immobiliser. Le visage pâle, terrifié par la situation, il hurla: « Céleste Fleur! »
 
-Les trois frères Chen furent incapables de résister. Sous l'effet d'un seul regard, les yeux du Maître Yi Chen devinrent vitreux et des craquements sinistres résonnèrent dans sa poitrine. Il cracha une large traînée de sang et chuta du ciel, la panique atteignant ses yeux un sommet de terreur.
+Les trois frères Chen furent incapables de résister. Sous l'effet d'un seul regard, les yeux du Maître Yi Chen devinrent vitreux et des craquements sinistres résonnèrent dans sa poitrine. Il cracha une large traînée de sang et faillit chuter du ciel; la terreur dans ses yeux atteignit son paroxysme.
 
-Quant au Maître Yi Xiang et au Maître Yi Long, c'était comme si leurs cœurs avaient été transpercés; le sang jaillit de leurs pores, trempant leurs vêtements. Ils tombèrent du ciel et commencèrent à cultiver sans la moindre hésitation.
+Quant au Maître Yi Xing et au Maître Yi Long, c'était comme si leurs cœurs avaient été transpercés; le sang jaillit de leurs pores, trempant leurs vêtements. Ils tombèrent du ciel et s'assirent en méditation sans la moindre hésitation.
 
 Da Tou et Lei Ji subirent le même sort.
 
 Le corps massif de Lei Ji ne put supporter le choc psychologique. Il tomba à genoux, le visage livide.
 
-Seule la dépouille d'argent resta normale, bien qu'une lueur étrange brille dans ses yeux.
+Seul le Cadavre d'Argent resta normale, bien qu'une lueur étrange brille dans ses yeux.
 
-Un simple regard contenait une puissance aussi terrifiante; cela plongea Wang Lin dans l'obscurité de ses pensées. Ce n'était là que l'une des quatre grottes extérieures, et elle était déjà si périlleuse! Une fois qu'ils auraient pénétré dans la grotte finale, il était évident que le danger se trouverait à chaque coin de rue!
+Un simple regard contenait une puissance aussi terrifiante; l'expression sombre, Wang Lin se mit à redouter davantage encore ce palais céleste. Ce n'était là que l'une des quatre grottes extérieures, et elle était déjà si périlleuse! Une fois qu'ils auraient pénétré dans la grotte finale, il était évident que le danger se trouverait à chaque coin de rue!
 
-« Je crains que ce voyage vers la Terre des Esprits Démoniaques ne soit l'expédition la plus dangereuse de toute ma vie! » Wang Lin s'était attendu au danger, mais il n'imaginait pas que leur puissance serait si dérisoire face à une simple grotte extérieure avec les compagnons qu'il avait emmenés.
+« Je crains que ce voyage vers la Terre des Esprits Démoniaques ne soit l'expédition la plus dangereuse de la première moitié de ma vie! » Wang Lin s'était attendu au danger, mais il n'imaginait pas que, face à une simple grotte extérieure, la force des compagnons qu'il avait emmenés se révélerait tout juste insuffisante.
 
 Voyant la silhouette blanche disparaître dans l'obscurité du palais, les yeux de Wang Lin s'illuminèrent. Avec son intelligence, il comprit immédiatement que ce regard était un avertissement!
 
@@ -46,11 +46,11 @@ Un avertissement leur intimant, et surtout à lui, de ne pas entrer!
 
 En d'autres circonstances, face à une telle mise en garde et une attaque aussi dévastatrice, Wang Lin aurait choisi d'éviter cet endroit. Après tout, ce qu'il faisait revenait à envahir la demeure de quelqu'un.
 
-Cependant, c'était un voyage que Wang Lin devait accomplir. Tout cela était pour Zhou Yi. Son vœu le plus cher était de ressusciter Qing Shuang, et celui qui avait les meilleures chances de le faire était son père, Qing Lin!
+Cependant, c'était un voyage que Wang Lin devait accomplir. Tout cela était pour Zhou Yi, dont on ignorait aujourd'hui s'il était vivant ou mort. Son vœu le plus cher était de ressusciter Qing Shuang, et celui qui avait les meilleures chances de le faire était son père, Qing Lin!
 
-Wang Lin éprouvait toujours une profonde gratitude envers Zhou Yi, tout comme il l'était envers Situ Nan. Situ Nan avait guidé Wang Lin sur le chemin de la culture, et Zhou Yi avait joué un rôle crucial dans sa progression. Sans le Cristal Ascendant de Zhou Yi, Wang Lin serait déjà mort sur la voie de la culture.
+Wang Lin éprouvait toujours une profonde gratitude envers Zhou Yi, tout comme envers Situ Nan. Situ Nan avait guidé Wang Lin sur le chemin de la culture, et Zhou Yi avait joué un rôle crucial dans sa progression. Sans le Cristal Ascendant de Zhou Yi, Wang Lin serait déjà mort sur la voie de la culture.
 
-De plus, bien que le poison en Situ Nan soit actuellement réprimé, ils savaient tous deux que si ce n'était pas traité, les conséquences seraient catastrophiques.
+De plus, bien que le poison en Situ Nan soit actuellement réprimé, ils savaient tous deux que, si ce poison ne pouvait être dissipé à court terme, les conséquences seraient extrêmement graves.
 
 On pourrait dire que l'espoir de ses deux plus grands bienfaiteurs, Situ et Zhou Yi, reposait entre ses mains. Même si c'était dangereux, il ne pouvait se résoudre à battre en retraite!
 
@@ -58,11 +58,11 @@ Même s'il devait envahir une grotte et commettre des actes injustes, Wang Lin n
 
 Cependant, pour la silhouette blanche dans le palais, celui qui envahissait la demeure était dans l'erreur.
 
-« Puisque j'ai fait ce choix, je dois suivre cette voie! » Wang Lin prit une profonde inspiration face à la carapace de tortue et tendit sa main droite vers le vide. Un grondement tonnerre résonna dans la grotte, comme si une faille spatiale s'y déchirait.
+« Puisque j'ai fait ce choix, je dois suivre cette voie! » Wang Lin prit une profonde inspiration face à la carapace de tortue et tendit sa main droite vers le vide. Un grondement de tonnerre résonna dans la grotte, comme si une faille spatiale s'y déchirait.
 
 Alors que le vent froid soufflait, des filaments de lumière noire commencèrent à converger. Bientôt, l'illusion d'une lance apparut dans la main de Wang Lin!
 
-Un tonnerre assourdissant emplit la zone et des craquements électriques résonnèrent dans la grotte silencieuse. À cet instant, l'ombre d'un Dieu Ancien apparut derrière Wang Lin. Alors qu'il saisissait la Lance Tueuse de Dieux, l'ombre du Dieu tendit également la main, provoquant un fracas retentissant.
+De grands arcs de foudre noire envahirent la zone et des crépitements résonnèrent dans la grotte silencieuse. À cet instant, l'ombre d'un Dieu Ancien apparut derrière Wang Lin. Alors qu'il saisissait la Lance Tueuse de Dieux, l'ombre du Dieu tendit également la main, provoquant un fracas retentissant.
 
 Une Lance Tueuse de Dieux apparut inopinément dans la main de l'ombre elle aussi!
 
@@ -74,19 +74,19 @@ Non seulement le gravier, mais même l'eau de la rivière semblait cesser de cou
 
 « Je ne souhaite blesser personne. Même les quatre âmes d'il y a un instant n'étaient que des vestiges et non les corps originaux. En ce moment même, je veux seulement briser cette coquille pour ouvrir le passage vers la grotte! » Le troisième œil de Wang Lin apparut lentement, et sous celui-ci, les cinq étoiles tournèrent avec frénésie. La puissance d'un Dieu Ancien imprégna son corps.
 
-Le corps de Wang Lin bondit soudainement et la Lance Tueuse de Dieux s'élança avec une grâce meurtrière. À mesure qu'elle avançait, c'était comme si l'espace lui-même était tranché.
+Le corps de Wang Lin bougea soudainement et la Lance Tueuse de Dieux, levée dans sa main droite, trancha doucement l'air. Un bruit de déchirure retentit et, à mesure qu'elle se déplaçait, le vide semblait littéralement fendu.
 
-Tenant fermement sa lance, Wang Lin fendit l'air tel un éclair vers la carapace de tortue. En approchant, la détermination embrasa son regard et il hurla: « Maître Fu Fengzi, dépouille d'argent, aidez-moi à briser cette coquille! »
+Tenant fermement sa lance, Wang Lin fendit l'air tel un éclair vers la carapace de tortue. En approchant, la détermination embrasa son regard et il hurla: « Maître Fu Fengzi, Cadavre d'Argent, aidez-moi à briser cette coquille! »
 
 Le Maître Fu Fengzi serra les dents et s'élança. Son corps se rétracta rapidement jusqu'à atteindre la taille d'un homme ordinaire. Puis, il dégagea une lueur dorée et une gigantesque tablette de pierre apparut!
 
 De nombreuses runes ornaient cette tablette qui émettait un éclat d'or. Lorsque le Maître Fu Fengzi la projeta vers l'avant, elle fendit l'air dans un sifflement en direction de la carapace.
 
-Un choc violent retentit lorsque la tablette percuta la coquille, provoquant des éclats de lumière frénétiques. La dépouille d'argent cracha alors une fumée multicolore qui se dirigea droit sur la cible. Cette brume enveloppa la carapace et commença à la dissoudre.
+Un choc violent retentit lorsque la tablette percuta la coquille, provoquant des éclats de lumière frénétiques. Le Cadavre d'Argent cracha alors une fumée multicolore qui se dirigea droit sur la cible. Cette brume enveloppa la carapace et commença à la dissoudre.
 
 La carapace de tortue se mit à scintiller de plus belle. À cet instant précis, Wang Lin lança impitoyablement sa Lance Tueuse de Dieux.
 
-Cette lance était telle un dragon enragé sifflant à travers l'éther vers la carapace. Elle était si rapide que la pointe de l'arme toucha presque instantanément la cible!
+Cette lance était tel un dragon enragé sifflant à travers l'éther vers la carapace. Elle était si rapide que la pointe de l'arme toucha presque instantanément la cible!
 
 Une onde circulaire se propagea soudainement depuis la lance, provoquant un grondement sourd. Simultanément, de fines fissures apparurent sur la coquille au point d'impact.
 
@@ -100,7 +100,7 @@ Une paume blanche émergea du palais et pointa vers la Lance Tueuse de Dieux. D'
 
 Quant à la fumée multicolore, elle se mua immédiatement en une fleur polychrome flottant dans les airs.
 
-La silhouette blanche s'avança et leva sa main magnifique. Elle fixa froidement Wang Lin du regard et le pointa du doigt!
+La silhouette blanche s'avança et leva son incomparable visage. Elle fixa froidement Wang Lin du regard et le pointa de sa main de jade!
 
 À cet instant précis, les pupilles de Wang Lin se rétractèrent brusquement; il ouvrit la bouche et expulsa un objet. C'était le trésor de protection que Maître Yan Leizi lui avait offert: un fragment du Royaume Céleste du Tonnerre!
 
@@ -110,4 +110,4 @@ L'artefact céleste s'éleva et grandit instantanément jusqu'à atteindre mille
 
 Cependant, au moment même où le fragment apparut, d'innombrables fleurs s'épanouirent sur sa surface. Ces fleurs étaient d'une splendeur extrême et dégageaient un parfum délicat.
 
-« Je vous avais pourtant prévenu! » Une voix douce mais d'une froideur absolue résonna. À l'instant même où ce son retentit, le fragment céleste recouvert de fleurs vola soudainement en éclats!
+« Je t'ai déjà averti! » Une voix douce mais d'une froideur absolue résonna. À l'instant même où ce son retentit, le fragment céleste recouvert de fleurs vola soudainement en éclats!

@@ -30,7 +30,7 @@ Après l'apparition des quatre gardes célestes en armure dorée, l'expression d
 
 Alors que le Serpent aux yeux de lune rugissait, ses tentacules balayaient tout sur leur passage. Simultanément, le Dieu de Sang et les autres qui l'entouraient s'élancèrent immédiatement contre les quatre gardes célestes. Le Dieu de Sang forma un sceau en avançant; une lumière sanglante se propagea alors qu'il agit de la main.
 
-Une mer de sang surgit de nulle part et chargea en avant. Cependant, lorsque cette mer de sang percuta les gardes célestes, elle ne fit que les faire hésiter un instant. Les gardes se scindèrent en quatre directions pour encercler le Serpent aux yeux de lune aux côtés des cultivateurs de Luotian.
+Une mer de sang surgit de nulle part et chargea en avant. Cependant, lorsque cette mer de sang percuta les gardes célestes, elle ne fit que les ébranler légèrement, sans leur faire marquer la moindre pause. Les gardes se scindèrent en quatre directions pour encercler le Serpent aux yeux de lune aux côtés des cultivateurs de Luotian.
 
 La main droite de l'Estimé Xuan Bao s'enfonça à nouveau dans le vide et une autre fissure apparut. Soudain, neuf papillons noirs en sortirent.
 
@@ -74,13 +74,13 @@ Pourtant, au moment où il allait s'en saisir, un rayon d'énergie d'épée jail
 
 Wang Lin n'était pas étranger à cette énergie; elle appartenait à Ling Tianhou!
 
-« Ce trésor appartient à Chen Long de ma Secte de l'Épée Dao Lou! » La voix glaciale résonna tandis que le rayon d'énergie se rapprochait. Si Wang Lin tentait de prendre le trésor, il serait frappé par cette attaque.
+« Ce trésor appartient à Chen Long de ma Secte de l'Épée Da Lou! » La voix glaciale résonna tandis que le rayon d'énergie se rapprochait. Si Wang Lin tentait de prendre le trésor, il serait frappé par cette attaque.
 
 L'expression de Wang Lin resta neutre et il n'hésita pas une seconde à saisir la sculpture en bois à moitié détruite. Ses yeux brillaient d'une lueur mystérieuse alors qu'il ouvrait la bouche pour cracher un objet afin de se protéger.
 
 Le Sceau Céleste des 18 Enfers apparut instantanément; l'énergie d'épée s'écrasa contre lui avant de se dissiper. Le sceau ne bougea pas d'un pouce, et Wang Lin le rétracta aussitôt.
 
-« Un vieil ami qui a survécu de justesse avec son âme pour compte ose voler un trésor devant moi?! » Wang Lin laissa ces mots cinglants, faisant changer l'expression de Chen Long. Ce dernier comprit que ce n'était pas le moment de chercher la confrontation et se retira.
+« Un vieil ami d'autrefois, échappé de mes mains avec sa seule âme, ose voler un trésor devant moi?! » Wang Lin laissa ces mots cinglants, faisant changer l'expression de Chen Long. Sachant que ce n'était pas le moment de tuer, Wang Lin s'éloigna.
 
 Il y avait trop de cultivateurs durant cette bataille pour distinguer clairement les visages. De plus, Wang Lin ne restait jamais immobile et se déplaçait sans cesse, si bien que Chen Long ne l'avait pas reconnu.
 
@@ -106,7 +106,7 @@ Les yeux de l'Estimé Xuan Bao s'illuminèrent et il pointa l'avant en riant. La
 
 Les quatre gardes célestes poussèrent des rugissements; leurs corps vibrèrent et grandirent soudainement pour devenir des géants de mille pieds. Ils lancèrent alors leurs attaques de concert.
 
-Un sourire étira le visage de l'Estimé Xuan Bao tandis qu'il tendait la main droite, provoquant une nouvelle fissure. Un gaz vert s'en échappa. Accompagné de cette brume émeraude, une aura fit trembler l'esprit de tous les cultivateurs dans un rayon de 5 000 kilomètres.
+Un sourire étira le visage de l'Estimé Xuan Bao tandis qu'il tendait la main droite, provoquant une nouvelle fissure. Un gaz vert s'en échappa. Accompagné de cette brume émeraude, une aura fit trembler l'esprit de tous les cultivateurs dans un rayon de plus de dix mille kilomètres.
 
 Le corps de Wang Lin trembla. En regardant de plus près, il vit une flèche jaillir de la faille.
 
@@ -114,6 +114,6 @@ Cette flèche était démesurée: elle mesurait plus de 300 pieds de long et sep
 
 Ce qui fit vaciller tous les cultivateurs environnants, c'étaient ces taches de sang rouge foncé!
 
-Dès l'apparition de la flèche, même l'expression du Dieu de Sang et de ses compagnons changea. Même Maître Yan Leizi, qui combattait Wudo Chan, trembla en voyant cette flèche de 300 pieds.
+Dès l'apparition de la flèche, même l'expression du Dieu de Sang et de ses compagnons changea. Même Maître Yan Leizi, qui combattait Wu Dongchan, trembla en voyant cette flèche de 300 pieds.
 
-« Flèche du Pseudo Vide du Nirvana! »
+« Flèche du Pseudo-Vide du Nirvana! »

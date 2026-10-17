@@ -10,7 +10,7 @@ Après s'être transformé en son véritable corps de Dieu Ancestral, Wang Lin l
 
 Au même moment, l'Ancien Démon Bei Lou, qui tentait de s'échapper, s'arrêta soudainement, ses yeux brillant d'une lueur démoniaque et folle.
 
-« Aujourd'hui, les trois clans de l'Ordre Ancien sont réunis au même endroit. Quel spectacle grandiose! Je suis dans un état pitoyable pour un ancien démon! » Le corps de Bei Lou vacilla et grandit instantanément. Le corps du démon ancestral à sept étoiles mesurait des milliers de pieds de haut, atteignant presque la stature du corps de Dieu Ancestral de Wang Lin.
+« Aujourd'hui, les trois clans de l'Ordre Ancien sont réunis au même endroit. Quel spectacle grandiose! Si je fuyais encore, je serais indigne de mon statut d'ancien démon! » Le corps de Bei Lou vacilla et grandit instantanément. Le corps du démon ancestral à sept étoiles mesurait des milliers de pieds de haut, atteignant presque la stature du corps de Dieu Ancestral de Wang Lin.
 
 À cet instant, la bataille n'appartenait plus aux cultivateurs, mais aux trois clans de l'Ordre Ancien qui existaient depuis les temps immémoriaux!
 
@@ -24,7 +24,7 @@ Les rugissements furieux des trois clans de l'Ordre Ancien engendrèrent une tem
 
 L'Ancien Démon Bei Lou fit un pas en avant et hurla: « Dieu Ancestral, oses-tu affronter ce démon ancestral avec moi?! »
 
-La main droite de Wang Lin s'étira vers le vide devant lui, déchirant l'espace pour créer une immense brèche. Des éclairs violets jaillirent de la faille, et il en tira la Lance Tueuse de Dieux longue de mille pieds. Saisissant l'arme, il cria: « Pourquoi l'hésiterais-je?! »
+La main droite de Wang Lin s'étira vers le vide devant lui, déchirant l'espace pour créer une immense brèche. Des éclairs violets jaillirent de la faille, et il en tira la Lance Tueuse de Dieux longue de mille pieds. Saisissant l'arme, il cria: « Pourquoi n'oserais-je pas?! »
 
 L'Ancien Démon Bei Lou rit tandis que sa main droite plongeait également dans le vide. Un immense drapeau apparut instantanément, semblant couvrir le monde entier, et vola droit vers le démon ancestral.
 
@@ -42,7 +42,7 @@ Des grondements soudains résonnèrent et une puissante onde de choc balaya la z
 
 Le corps divin ancestral de Wang Lin subit un impact inimaginable lors de cette collision, et des craquements sinistres résonnèrent dans son organisme. Il cracha une bouchée de sang et les étoiles du Dieu Ancestral entre ses sourcils s'estompèrent.
 
-Dans le ciel, le drapeau du démon ancestral percuta l'énergie de la lame, propageant un choc colossal. De nouvelles fissures déchirèrent la voûte céleste, laissant passer une lumière rouge sang. À ce moment précis, on aurait dit que le ciel pouvait s'effondrer d'un simple toucher.
+Dans le ciel, le drapeau de l'Ancien Démon Bei Lou percuta l'énergie de la lame, propageant un choc colossal. De nouvelles fissures déchirèrent la voûte céleste, laissant passer une lumière rouge sang. À ce moment précis, on aurait dit que le ciel pouvait s'effondrer d'un simple toucher.
 
 « Wang Lin, nous devons tout donner contre lui; sinon, aucun de nous n'échappera à cette Grotte de l'Empereur Céleste! » rugit l'Ancien Démon Bei Lou en chargeant le démon ancestral. Cependant, son corps commença soudainement à battre en retraite. Il fut si rapide qu'il laissa une image rémanente derrière lui, se précipitant vers le ciel fracturé.
 
@@ -52,7 +52,7 @@ Le ciel, déjà extrêmement fragile, fut pulvérisé par le coup de poing de Wa
 
 Au moment où le ciel s'effondra, une pluie de magma infini s'abattit sur eux. Le corps de Wang Lin plongea dans la lave et chargea droit vers le haut.
 
-Le démon ancestral jura, mais sans ralentir, il chargea lui aussi vers les hauteurs.
+L'Ancien Démon Bei Lou jura en silence, mais sans ralentir, il chargea lui aussi vers les hauteurs.
 
 Maître du Vide avait cultivé pendant de nombreuses années. Bien que son esprit eût été troublé par l'arrivée précoce du premier Fléau Céleste, il était d'une clarté sans précédent à cet instant. Lorsque le ciel s'effondra, il cracha du sang et utilisa l'Évasion Sanguine pour se précipiter dans le magma. Il fit fi de la température extrême et des blessures infligées par la bataille entre les trois membres de l'Ordre Ancien. En s'engouffrant dans la lave, il n'eut même pas le temps de songer à en vouloir à Wang Lin; sa seule priorité était de fuir cet endroit.
 

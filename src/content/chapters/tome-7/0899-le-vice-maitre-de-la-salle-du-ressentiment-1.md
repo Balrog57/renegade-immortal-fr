@@ -30,13 +30,13 @@ S'il avait encore possédé un corps, il n'aurait pas eu peur, mais il n'était 
 
 Plus il observait les trois adversaires, plus son effroi grandissait. Sans même parler de son absence de corps physique, même s'il en avait eu un, il aurait dû fuir sans délai face à une telle puissance.
 
-Sa seule chance de combat résidait dans sa capacité à posséder avec succès le corps du Clan des Démons Géants; il pourrait alors envoyer l'un d'eux au tapis, utiliser la force de ce corps pour en affronter un deuxième, et enfin utiliser ses propres sorts contre le dernier. Pourtant, tout cela n'était qu'une chimère. L'homme en robe noire esquissa un sourire amer intérieurement et s'empressa de dire: « Cher compagnon cultivateur, je crains qu'il ne s'agisse d'un malentendu. Je viens de m'éveiller et mes propos ont pu vous offenser; j'espère que vous me pardonnerez. Si ce corps du Clan des Démons Géants vous plaît, je peux vous l'offrir en gage d'amitié. »
+Sa seule chance de combat résidait dans sa capacité à posséder avec succès le corps du Clan des Démons Géants; il pourrait alors écarter l'un d'eux, utiliser la force de ce corps pour en affronter un deuxième, et enfin utiliser ses propres sorts contre le dernier. Pourtant, tout cela n'était qu'une chimère. L'homme en robe noire esquissa un sourire amer intérieurement et s'empressa de dire: « Cher compagnon cultivateur, je crains qu'il ne s'agisse d'un malentendu. Je viens de m'éveiller et mes propos ont pu vous offenser; j'espère que vous me pardonnerez. Si ce corps du Clan des Démons Géants vous plaît, je peux vous l'offrir en gage d'amitié. »
 
 Tout en parlant, il continuait de reculer.
 
 Wang Lin ne répondit pas. Il se déplaça avec la rapidité de l'éclair pour poursuivre l'homme. De légères ondulations apparaissaient sous ses pas tandis que son regard perçant traquait sa proie.
 
-« Un esprit originel du stade Scruteur du Nirvana en début de cycle... un esprit affaibli. Avec cela, je suis certain de pouvoir permettre au corps de Ta Shan d'atteindre le stade Scruteur du Nirvana! »
+« Un esprit originel du stade Scruteur du Nirvana... et de surcroît un esprit affaibli. Avec cela, je suis certain de pouvoir permettre au corps de Ta Shan d'atteindre le stade Scruteur du Nirvana! »
 
 Les yeux de Liu Qingyun étaient empreints de méfiance et il fulmina intérieurement. S'il avait choisi cette planète à moitié abandonnée, c'était parce qu'elle ne possédait rien de valeur capable d'attirer des cultivateurs de ce rang. Son plan était de passer tranquillement des milliers d'années ici pour posséder ce corps, puis de retourner à la Salle pour briguer le poste de Maître de Salle.
 

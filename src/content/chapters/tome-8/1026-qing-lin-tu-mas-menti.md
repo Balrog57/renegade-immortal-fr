@@ -28,11 +28,11 @@ Elle avait tout vu.
 
 Lorsqu'elle constata que l'empreinte d'esclave affectait des générations entières du clan du Tatouage, un flot encore plus abondant de sang noir jaillit de ses orbites vides!
 
-« Qing Lin... Tu m'as menti!!! » La femme leva la tête et poussa un cri strident, chargé de rage. Ce hurlement était d'une virulence extrême, et le Vortex de l'Enterrement Céleste sous ses pieds devint soudainement plus intense encore. Le gémissement d'innombrables âmes s'échappait du vortex.
+« Qing Lin... Tu m'as menti!!! » La femme leva la tête et poussa un cri strident, chargé de rage. Ce hurlement était d'une virulence extrême, et le Vortex Funéraire Céleste sous ses pieds devint soudainement plus intense encore. Le gémissement d'innombrables âmes s'échappait du vortex.
 
 Alors que le vortex tournait avec frénésie, une aura maléfique infinie en jaillit, jusqu'à ce qu'il soit sur le point de s'effondrer. Le visage de la femme était déformé par une expression hideuse, consumée par un ressentiment inimaginable. C'était comme si toutes les années de rancœur refoulées en elle étaient sur le point d'éclater.
 
-Alors que son cri résonnait, le vortex sembla prêt à être aspiré vers le haut. Cependant, à cet instant précis, la veine rouge qui entourait sa jambe brilla d'un éclat rubis. Cette lumière rouge sembla envelopper son corps et la clouer sur place.
+Alors que son cri résonnait, le vortex sembla prêt à être aspiré vers le haut. Cependant, à cet instant précis, le tendon rouge qui entourait ses pieds brilla d'un éclat rubis. Cette lumière rouge sembla envelopper son corps et la clouer sur place.
 
 Pourtant, le ressentiment incommensurable scellé depuis des éternités et la colère de découvrir le mensonge de Qing Lin furent tels que la lumière qui la retenait s'effondra instantanément!
 
@@ -40,7 +40,7 @@ Elle leva sa main droite et griffa sans pitié le vortex sous ses pieds!
 
 D'un seul geste, la terre trembla, tout comme le vortex. Même la Grotte de l'Empereur Céleste vacilla, comme si elle allait s'écrouler!
 
-Le vortex formé par le Bassin de l'Enterrement Céleste commença à se désintégrer sous sa griffe. Comme s'il était déchiré, il commença à converger vers la main droite de la femme.
+Le vortex formé par le Bassin Funéraire Céleste commença à se désintégrer sous sa griffe. Comme s'il était déchiré, il commença à converger vers la main droite de la femme.
 
 C’était comme si elle s'apprêtait à arracher le vortex même du sol!
 
@@ -52,9 +52,9 @@ Sa voix lugubre résonnait, saturée de ressentiment. Tandis que sa main droite 
 
 D'innombrables âmes s'en échappèrent. La plupart étaient des Célestiels que Qing Lin avait massacrés. Elles emplirent l'espace, offrant un spectacle terrifiant.
 
-La veine rouge brilla de plus belle et des couches de lumière pourpre l'enveloppèrent. Mais au moment même où cette lumière la cerclait, elle se brisa!
+Le tendon rouge brilla de plus belle et des couches d'anneaux de lumière l'enveloppèrent. Mais à peine ces anneaux la cerclaient-ils qu'ils se brisaient!
 
-À cet instant, d'innombrables runes apparurent sur la veine rouge. Dès leur apparition, elles libérèrent une lueur cristalline qui s'éleva de la veine. Ces innombrables éclats de lumière se rassemblèrent devant la femme pour former une silhouette éthérée!
+À cet instant, d'innombrables runes apparurent sur le tendon rouge. Dès leur apparition, elles libérèrent une lueur cristalline qui s'éleva du tendon. Ces innombrables éclats de lumière se rassemblèrent devant la femme pour former une silhouette éthérée!
 
 L'être ainsi formé était un homme d'âge moyen, à la silhouette semi-transparente. Vêtu d'une robe dorée et portant ses longs cheveux attachés par un ruban jaune, il était d'une grande beauté et dégageait l'aura d'un Célestiel.
 
@@ -64,12 +64,12 @@ Dès que son ombre apparut, une aura telle qu'on aurait dit que lui seul pouvait
 
 « Il était encore plus puissant que cet homme!! » L'Omniscient prit une inspiration glacée, les yeux écarquillés par la peur. Il n'avait ressenti un tel choc qu'une seule fois auparavant, face à cet être!
 
-Lorsque Wang Lin aperçut l'apparition, il eut un haut-le-cœur et ses pupilles se contractèrent. Il reconnut immédiatement que cet homme ressemblait trait pour trait à la sculpture de Qing Lin qu'il avait vue avec le Célestiel Floral!
+Lorsque Wang Lin aperçut l'apparition, il eut un haut-le-cœur et ses pupilles se contractèrent. Il reconnut immédiatement que cet homme ressemblait trait pour trait à la sculpture de Qing Lin qu'il avait vue dans le grand palais de la Concubine Impériale Fleur!
 
 « Qing Lin! »
 
-« Ce n'est pas le vrai Qing Lin, mais un avatar de Sens Divin qu'il a laissé lors du scellement de l'Ancêtre Sainte du clan du Tatouage. Il est dépourvu d'intelligence, de souvenirs et de sorts; il ne possède que l'instinct d'empêcher cet Ancêtre Sainte de s'échapper! » L'esprit du Maître du Vide fut ébranlé. À son niveau de culture, il pouvait influencer les lois du monde dans une certaine mesure. Pourtant, face à cette figure, il se sentit redevenir un simple mortel; si fragile qu'un souffle pourrait l'anéantir.
+« Ce n'est pas le vrai Qing Lin, mais un avatar de Sens Divin servant de restriction qu'il a laissé dans le Bassin Funéraire Céleste lors du scellement de l'Ancêtre Sainte du clan du Tatouage. Il est dépourvu d'intelligence, de souvenirs et des pouvoirs divins de son corps véritable; il ne possède que l'instinct d'empêcher l'Ancêtre Sainte du clan du Tatouage, Qiu Yao, de s'échapper! » L'esprit du Maître du Vide fut ébranlé. À son niveau de culture, il pouvait influencer les lois du monde dans une certaine mesure. Pourtant, face à cette figure, il se sentit redevenir un simple mortel; si fragile qu'un souffle pourrait l'anéantir.
 
-À ce moment-là, loin des Terres de l'Esprit Démon et en dehors de la zone contrôlée par l'Alliance, un système stellaire était en proie aux flammes. Au moment même où Wang Lin sortait du monde-bouteille après son éveil, un événement fracassant se produisait dans la Secte Divine de l'Oiseau Vermillon!
+À ce moment-là, loin de la Terre des Esprits Démoniaques de la Mer de l'Est, au-delà de la sphère de la planète Tian Yun, dans le champ stellaire de l'Alliance mais en un lieu que l'Alliance de Culture elle-même ne pouvait contrôler, un système stellaire était en proie aux flammes. Au moment même où l'Oiseau Vermillon de Wang Lin s'éveillait et où celui-ci sortait du monde-bouteille, un bouleversement fracassant se produisait dans toute la Secte Divine de l'Oiseau Vermillon!
 
 Tout cela n'était dû qu'à l'éveil de l'Oiseau Vermillon!

@@ -84,7 +84,7 @@ Situ Nan prit le jade et, d'une seule inspiration, le draina jusqu'à ce qu'il s
 
 Sur ces mots, il disparut.
 
-Lorsque Situ Nan réapparut et fit fuir Zhuque Zi, tous les cultivateurs Ascendants ressentirent cette aura puissante.
+Lorsque Situ Nan réapparut et fit fuir Zhu Quezi, tous les cultivateurs Ascendants ressentirent cette aura puissante.
 
 Un vieil homme vêtu de blanc apparut dans le ciel à l'est du pays de Suzaku. C'était Chu Yunfei, l'unique cultivateur Ascendant de la Secte du Jade Céleste. À cet instant, son expression était troublée. Après un moment, il soupira: « Une aura d'une puissance inouïe... »
 
@@ -94,7 +94,7 @@ Derrière eux, on comptait plus de cent cultivateurs de l'Âme Naissante.
 
 Dans le ciel au sud du continent de Suzaku, une armée de culture composée de plusieurs centaines d'individus volait vers le sud. L'homme en tête était un homme d'âge mûr, l'Ascendant de la Secte de la Terre Brisée. Il esquissa un sourire amer: « Quelle malchance de me retrouver mêlé à une guerre aussi chaotique... »
 
-Après que Zhuque Zi fut retourné au Mont Suzaku, il se reposa brièvement avant de repartir précipitamment. Cette fois, sa cible se trouvait dans la partie occidentale du continent.
+Après que Zhu Quezi fut retourné au Mont Suzaku, il se reposa brièvement avant de repartir précipitamment. Cette fois, sa cible se trouvait dans la partie occidentale du continent.
 
 Dans les nuages noirs bordant l'est du continent de Suzaku, le cinquième ancêtre détourna son regard avec mélancolie.
 

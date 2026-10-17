@@ -32,7 +32,7 @@ Les éclats de lumière se condensèrent vers le centre de l'os. Tandis qu'une m
 
 Il ne fallut que quelques instants pour qu'un cristal brillant, de la taille d'un poing, se forme à l'intérieur de l'os de bête.
 
-À l'instant où le cristal apparut, il libéra un éclat fulgurant. La lumière jaillissait comme des dizaines de milliers d'épées perçant vers l'extérieur, faisant suffoquer l'assistance.
+À l'instant où le cristal apparut, il libéra un éclat fulgurant. D'immenses rayons de lumière jaillirent comme autant d'épées perçant vers l'extérieur, faisant suffoquer l'assistance.
 
 « Quelle méthode de scellement tyrannique. Elle ne consomme pas le moindre fragment de l'avatar de Sens Divin. Au lieu de cela, elle extrait la puissance des lois du sort de l'adversaire pour sceller complètement l'attaque. Même un Senior Frère ne pourrait accomplir cela si aisément! » Maître du Vide haleta, les pupilles rétractées. Bientôt, une trace d'avidité apparut dans son regard.
 
@@ -40,7 +40,7 @@ Il ne fallut que quelques instants pour qu'un cristal brillant, de la taille d'u
 
 Un grondement de tonnerre résonna et l'os de bête trembla tandis que la lumière en perçait la structure. Lorsque la lumière jaillit enfin, l'os se brisa en d'innombrables fragments.
 
-Bien qu'il ait semblé s'y passer une éternité, tout cela ne prit qu'un instant. Alors que la lumière vive se propageait, elle provoqua une douleur fulgurante dans les yeux de chacun, les forçant à reculer.
+Bien que le récit en paraisse long, tout cela ne prit qu'un instant. Alors que la lumière vive se propageait, elle provoqua une douleur fulgurante dans les yeux de chacun, les forçant à reculer.
 
 Qing Lin regarda froidement l'Ancêtre Sainte du Clan du Tatouage. Il leva une nouvelle fois sa main droite et une rune mystérieuse apparut. La rune siffla dans les airs jusqu'à planer au-dessus de la femme avant de libérer une lumière verte.
 
@@ -64,9 +64,9 @@ Cependant, chose étrange, cette force de succion n'affectait que la femme et n'
 
 Qing Lin ne marqua pas de pause. Ses mains bougèrent et une autre rune apparut pour encercler également la femme. À l'instant où cette rune se manifesta, le vortex tourna deux fois plus vite, comme s'il était devenu la gueule de l'enfer cherchant à la dévorer totalement.
 
-Le sang noir s'écoulant de ses orbites commença à couler plus rapidement, comme si elle versait des larmes; seules, ces larmes étaient terrifiantes à contempler.
+Le sang noir s'écoulant de ses orbites commença à couler plus abondamment, comme si elle versait des larmes; seules, ces larmes étaient terrifiantes à contempler.
 
-« Pourquoi m'as-tu menti... Pourquoi m'as-tu menti, pourquoi!?! » La voix de la femme possédait une force de pénétration redoutable. À mesure que sa voix se propageait, les deux runes devant elle tremblèrent comme si elles allaient s'effondrer à tout moment.
+« Pourquoi m'as-tu menti... Pourquoi m'as-tu menti, pourquoi!?! » La voix de la femme possédait une force de pénétration redoutable. À mesure que sa voix se propageait, les deux runes autour d'elle tremblèrent comme si elles allaient s'effondrer à tout moment.
 
 Plus terrifiant encore, l'espace autour d'elle se brisa sous l'effet de son cri strident. L'espace était sur le point de s'effondrer.
 
@@ -82,13 +82,13 @@ Wang Lin était stupéfait par la situation; il vit que Situ Nan et les autres �
 
 Le son de sa voix forma une tempête qui chargea vers Qing Lin. Ce dernier garda une expression de marbre, leva la main droite et pointa l'avant. À cet instant, la tempête s'interrompit brusquement!
 
-C'était comme si une loi inimaginable était descendue des cieux; selon la volonté de celui qui l'avait lancée, cette loi privait tout objet du droit de bouger. Elle se transforma ensuite en d'innombrables filaments de puissance légale qui entravèrent la tempête pour l'immobiliser.
+C'était comme si une loi inimaginable était descendue des cieux; selon la volonté de celui qui l'avait lancée, cette loi privait tout objet du droit de bouger. Elle se transforma ensuite en d'innombrables filaments de pouvoir de la Loi qui entravèrent la tempête pour l'immobiliser.
 
 « Le Sort d'Arrêt! » Les yeux de Wang Lin brillèrent d'une lueur étrange, teintée d'une trace d'excitation. Pour lui, le Sort d'Arrêt était un sort céleste d'une importance capitale.
 
 Wang Lin avait surmonté de nombreux dangers grâce au Sort d'Arrêt. On pouvait dire que ce sort était devenu indispensable à sa survie.
 
-Cependant, le Sort d'Arrêt qu'il maîtrisait était celui qu'il avait appris de la tablette céleste laissée par l'Empereur Céleste Qing Lin. Il n'avait jamais vu personne d'autre l'utiliser. Peu importait l'intensité de ses études, il n'avait jamais pu repousser les limites de ce sort.
+Cependant, le Sort d'Arrêt qu'il maîtrisait était celui qu'il avait appris du jade laissé par l'Empereur Céleste Qing Lin. Il n'avait jamais vu personne d'autre l'utiliser. Peu importait l'intensité de ses études, il n'avait jamais pu repousser les limites de ce sort.
 
 Pourtant, c'était la première fois qu'il témoignait de l'usage du Sort d'Arrêt par un tiers, et cette personne n'était autre que Qing Lin!
 

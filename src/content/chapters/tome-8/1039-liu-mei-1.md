@@ -40,11 +40,11 @@ La Perle Défiant le Ciel sortit lentement du vortex et flotta devant lui. Des o
 
 À cet instant, l'esprit de Wang Lin fusionna avec la Perle Défiant le Ciel. Il ressentit un grondement tonitruant dans sa tête et sa vision se brouilla. C'était comme si une force colossale s'était emparée de son esprit pour briser tous les obstacles de la grotte et s'élancer directement vers le ciel.
 
-Au même moment, un rayon de lumière jaillit du centre de la Terre des Esprits Démoniaques et disparut à l'horizon.
+Au même moment, un rayon de lumière jaillit du centre de la Terre des Esprits Démoniaques et s'élança vers les cieux.
 
 Wang Lin vit le ciel. L'azur se transforma instantanément en de longues lignes bleues entrelacées.
 
-Il vit les nuages blancs, la terre, la végétation et les innombrables habitations de la Terre des Esprits Démoniaques. Il vit également les rivières et les montagnes.
+Il vit les nuages blancs, la terre, la végétation et les innombrables habitants de la Terre des Esprits Démoniaques. Il vit également les rivières et les montagnes.
 
 Grâce au pouvoir mystérieux de la Perle Défiant le Ciel, l'esprit de Wang Lin se propagea à travers le monde, contemplant toutes les lois de l'existence.
 
@@ -70,7 +70,7 @@ C'était semblable au moment où Wang Lin s'était tenu devant la porte de la Pe
 
 Cependant, cette fois, il recherchait la Loi.
 
-Alors que son esprit s'étendant à l'infini, il balayait les planètes une à une. Son cœur était calme; totalement immergé dans cette expérience, il ignorait son état actuel.
+Alors que son esprit s'étendait à l'infini, il balayait les planètes une à une. Son cœur était calme; totalement immergé dans cette expérience, il ignorait son état actuel.
 
 Chaque planète traversée, chaque forme de vie — qu'il s'agisse de mortels, de cultivateurs, d'animaux ou même de plantes — était clairement perçue par Wang Lin.
 
@@ -80,17 +80,17 @@ Aucun des cultivateurs sur ces planètes ne remarqua le passage de son esprit, p
 
 Après tout, l'esprit de Wang Lin était protégé par la Perle Défiant le Ciel. S'il ne souhaitait pas que l'on connaisse son existence, alors personne ne le saurait, pas même les cultivateurs au stade du Briseur du Nirvana!
 
-Alors que son esprit se propageait avec la Terre des Esprits Démoniaques pour centre, le temps semblait s'étirer à l'infini. On ignorait combien de temps s'était écoulé, mais l'esprit de Wang Lin avait déjà couvert une grande partie de l'Alliance.
+Alors que son esprit se propageait avec la Terre des Esprits Démoniaques pour centre, le temps semblait s'étirer à l'infini. On ignorait combien de temps s'était écoulé, mais l'esprit de Wang Lin avait déjà couvert une petite moitié de l'Alliance.
 
 Il ne s'arrêta pas là. Tout en poursuivant son illumination, il étira son esprit encore davantage grâce au pouvoir de la perle. Il le propagea plus loin, plus largement et plus profondément...
 
 Il vit trop de cultivateurs et d'innombrables bêtes féroces qu'il n'avait jamais rencontrées; il aperçut même des personnes qu'il avait connues par le passé.
 
-Ces rencontres n'arrêtèrent pas Wang Lin. Lui, à cet instant, était plongé dans un état étrange où il comprenait les lois avec une intensité frénétique. À mesure que son esprit grandissait, son niveau de culture atteignait également un sommet.
+Ces rencontres n'arrêtèrent pas Wang Lin. Lui, à cet instant, était plongé dans un état étrange où il comprenait les lois avec une intensité frénétique. À mesure que son esprit grandissait, sa culture se rapprochait elle aussi lentement de la complétude.
 
 Atteindre le sommet du stade avancé du Scruteur du Nirvana n'était pas difficile pour la plupart des cultivateurs de ce rang. Tant qu'ils observaient suffisamment de lois, ils atteignaient naturellement leur apogée.
 
-Cependant, c'était un processus de longue haleine, car il fallait expérimenter et voir l'immensité du monde pour réussir. Personne ne pouvait égaler Wang Lin, dont l'esprit pouvait s'étendre sur la majeure partie du Système Stellaire de l'Alliance grâce à la Perle Défiant le Ciel pour observer toutes les lois existantes.
+Cependant, c'était un processus de longue haleine, car il fallait expérimenter et voir l'immensité du monde pour réussir. Personne ne pouvait égaler Wang Lin, dont l'esprit pouvait s'étendre sur tout le Système Stellaire de l'Alliance grâce à la Perle Défiant le Ciel pour observer toutes les lois existantes.
 
 L'esprit de Wang Lin continua sa progression et il vit une mer de flammes approcher. Un géant Oiseau Vermillon émettant une chaleur extrême menait cette mer de feu.
 
@@ -114,13 +114,13 @@ Ils ignoraient pourquoi l'Esprit de l'Oiseau Vermillon avait poussé un tel cri.
 
 L'esprit de Wang Lin continua de s'étendre. Au centre de l'Alliance, il y avait un champ d'étoiles rempli de météores pourpre foncé. Dans les profondeurs de ce champ stellaire reposait un autre monde.
 
-Un bâtiment circulaire extrêmement vaste flottait parmi les étoiles, entouré d'au moins cent édifices plus petits. Des décharges d'éclairs noirs jaillissaient constamment, dégageant une pression étrange.
+Un bâtiment circulaire extrêmement vaste flottait parmi les étoiles, entouré d'au moins plusieurs centaines d'édifices plus petits. Des décharges d'éclairs noirs jaillissaient constamment, dégageant une pression étrange.
 
-C'était l'entrée de l'Alliance de la Culture. On ne pouvait atteindre le siège de l'Alliance qu'en passant par là.
+C'était l'entrée de l'Alliance de Culture. On ne pouvait atteindre le siège de l'Alliance qu'en passant par là.
 
 L'esprit de Wang Lin atteignit ce lieu singulier. Il pénétra même l'entrée pour parvenir jusqu'au siège de l'Alliance.
 
-Le siège de l'Alliance occupait son propre royaume séparé. Il appartenait autrefois au Royaume Céleste de la Pluie, avant d'être découvert et occupé par l'Alliance de la Culture.
+Le siège de l'Alliance occupait son propre royaume séparé. Il appartenait autrefois au Royaume Céleste de la Pluie, avant d'être découvert et occupé par l'Alliance de Culture.
 
 173 planètes de culture géantes formaient le siège de l'Alliance. 172 d'entre elles étaient disposées en cercle et n'étaient pas statiques; elles se mouvaient lentement.
 

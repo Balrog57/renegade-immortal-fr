@@ -12,9 +12,9 @@ Dans un recoin de l'univers, il existait des particules de poussière si ténues
 
 Ces grains de poussière étaient minuscules, et pourtant, d'autres mondes s'y nichaient!
 
-La Terre des Esprits Démoniacs, l'ancien Royaume Céleste des Esprits, et la grotte de l'Empereur Céleste Qing Lin se trouvaient là.
+La Terre des Esprits Démoniques, l'ancien Royaume Céleste des Esprits, et la grotte de l'Empereur Céleste Qing Lin se trouvaient là.
 
-Hormis la Mer des Esprits Démoniacs de l'Est, située à une distance incommensurable, il n'existait aucun autre accès vers ces lieux. Au sein de cette poussière, un grand palais trônait au centre de la Grotte de l'Empereur Céleste.
+Hormis la Mer des Esprits Démoniques de l'Est, située à une distance incommensurable, il n'existait aucun autre accès vers ces lieux. Au sein de cette poussière, un grand palais trônait au centre de la Grotte de l'Empereur Céleste.
 
 Ce palais majestueux était entièrement pourpre et dégageait une aura souveraine. Quatre-vingt-dix-neuf bougies étaient disposées en formation sur le sol. À cet instant, soixante-quatre d'entre elles s'étaient déjà éteintes...
 
@@ -40,15 +40,15 @@ L'homme mystérieux était celui qui lui avait offert le cristal jaune!
 
 « Je ne l'ai pas cru au premier abord, mais lorsque je me suis rendu dans le royaume du clan du Tatouage, j'ai vu votre clan s'emparer des âmes d'êtres célestes pour activer le Saint Tatouage de votre lignée...
 
-« Puisque vous avez agi de la sorte, comment ne pouvions-nous que faire la guerre? Comment moi, Qing Lin, aurais-je pu ne pas être en colère? Si cela ne s'était pas produit, la guerre la plus tragique depuis mon accession au trône d'Empereur Céleste aurait-elle pu avoir lieu? Et sans cela, comment le Royaume Céleste aurait-il pu perdre une telle vitalité, nous laissant incapables de résister à la catastrophe qui provoqua son effondrement?
+« Puisque vous avez agi de la sorte, comment aurions-nous pu ne pas faire la guerre? Comment moi, Qing Lin, aurais-je pu ne pas être en colère? Si cela ne s'était pas produit, la guerre la plus tragique depuis mon accession au trône d'Empereur Céleste aurait-elle pu avoir lieu? Et sans cela, comment le Royaume Céleste aurait-il pu perdre une telle vitalité, nous laissant incapables de résister à la catastrophe qui provoqua son effondrement?
 
 « De plus, l'effondrement du Royaume Céleste était l'un de vos plans!
 
 « L'Ancêtre Sainte du Clan du Tatouage n'est qu'un avatar. Ta véritable identité est celle de la fille du Suprême du royaume extérieur. Ton but en venant ici n'était pas ce que tu avais prétendu au début, mais de détruire toutes les forces à l'intérieur du royaume scellé. » Le visage de l'homme s'assombrit encore d'amertume. Ses yeux troubles brillaient d'une pointe de nostalgie.
 
-« Tu es devenue ma Concubine des Grottes Célestes et tu as forcé la Concubine Impériale Fleur à devenir une âme florale, pour qu'elle ne puisse exister que comme un Être Céleste Fleur, tout cela parce qu'elle avait découvert ton secret. J'en ai été le témoin personnel dès que mes soupçons sont apparus. Tu as échoué, mais loin de te repentir, tu voulais que j'aille dans le royaume extérieur avec toi pour devenir le disciple de ton père, le Suprême. Je suis l'Empereur Céleste, souverain et natif du royaume scellé: comment aurais-je pu trahir ma patrie?!
+« Tu es devenue ma Concubine du Tatouage et tu as forcé la Concubine Impériale Fleur à devenir une âme florale, pour qu'elle ne puisse exister que comme un Être Céleste Fleur, tout cela parce qu'elle avait découvert ton secret. J'en ai été le témoin personnel dès que mes soupçons sont apparus. Tu as échoué, mais loin de te repentir, tu voulais que j'aille dans le royaume extérieur avec toi pour devenir le disciple de ton père, le Suprême. Je suis l'Empereur Céleste, souverain et natif du royaume scellé: comment aurais-je pu trahir ma patrie?!
 
-« Tes yeux contenaient la force primordiale, mais c'est parce que tu as profité de notre intimité pour l'activer. Cette force était la graine semée par ton père pour détruire le royaume scellé. Si elle s'était propagée, tous les habitants du royaume scellé auraient été anéantis avec d'innombrables mortels. Tout cela pour transformer le royaume scellé en un champ de ruines, afin de faciliter votre recherche de la soi-disant Porte Céleste.
+« Tes yeux contenaient la force primordiale, mais c'est parce que tu as profité de notre intimité pour l'activer. Cette force était la puissance ultime par laquelle ton père voulait détruire notre royaume. Si elle s'était propagée, tous les habitants du royaume scellé auraient été anéantis avec d'innombrables mortels. Tout cela pour transformer le royaume scellé en un champ de ruines, afin de faciliter votre recherche de la soi-disant Porte Céleste.
 
 « J'ai arraché tes yeux, mais la douleur que tu as ressentie peut-elle seulement égaler le dix-millième de celle que je ressens?!
 

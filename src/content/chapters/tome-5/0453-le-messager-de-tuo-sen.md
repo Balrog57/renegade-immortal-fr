@@ -14,7 +14,7 @@ Ce tremblement ne dura que dix respirations, mais après ces dix instants, la To
 
 À cet instant, la Tombe de Suzaku était devenue bien plus périlleuse qu'auparavant.
 
-L'effondrement du Cristal de Planète de Culture ne se produisait pas instantanément, mais lentement au fil du temps. Tout cela était contrôlé par Zhuque Zi; c'était un jeu né de sa folie à l'approche de la mort, qu'il partageait avec Yunque Zi.
+L'effondrement du Cristal de Planète de Culture ne se produisait pas instantanément, mais lentement au fil du temps. Tout cela était contrôlé par Zhu Quezi; c'était un jeu né de sa folie à l'approche de la mort, qu'il partageait avec Yun Quezi.
 
 Une fois que le sol eut cessé de trembler, la chaîne de montagnes où se trouvait Wang Lin n'était plus qu'une plaine. C'était comme si tout ce qui s'était produit avant le séisme n'avait été qu'un rêve.
 

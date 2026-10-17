@@ -14,7 +14,7 @@ Cependant, pour les cultivateurs de l'Alliance qui chargeaient, leurs esprits fu
 
 Même leur vision se brouilla.
 
-Ces dix-huit sphères de sang étaient composées d'un sang recueilli par les deux familles depuis des temps immémoriaux, sur des dizaines de milliers d'années. Ce sang avait été lentement raffiné au prix de nombreux sacrifices au fil des âges. Il s'agissait de l'un des deux trésors de protection de ces lignées.
+Ces dix-huit sphères de sang étaient composées d'un sang recueilli par les deux familles depuis des temps immémoriaux, sur des dizaines de milliers d'années. Ce sang avait été lentement raffiné au prix de nombreux sacrifices au fil des âges. Il s'agissait de l'un des trésors de protection de ces deux lignées.
 
 Cet objet était extrêmement célèbre dans l'ancien monde de la culture!
 
@@ -36,7 +36,7 @@ L'expression du Saint Démon Noir était sombre; il s'apprêtait à charger pour
 
 Le visage de Maître Yan Leizi demeura impassible tandis qu'il pointait l'arrière. Ce geste semblait capable de percer le vide. Il déchira les fissures spatiales qui recouvraient la région ouest et pénétra le tunnel reliant au Système Stellaire de Luotian.
 
-Dans le Système Stellaire de Luotian, des dizaines de milliers de cultivateurs avaient activé leur culture. Un objet se dressait parmi eux!
+Dans le Système Stellaire de Luotian, plus de dix mille cultivateurs avaient activé leur culture. Un objet se dressait parmi eux!
 
 Cet objet était un morceau de bois. Cependant, ce bois mesurait cent mille pieds de long et dix mille pieds de large!
 
@@ -44,7 +44,7 @@ Le Bois Perçant le Ciel! Il avait été découvert par le Temple Céleste du To
 
 Une puissante vague d'énergie spirituelle céleste surgit. Après sa découverte par le Temple Céleste du Tonnerre, ils l'avaient dissimulé. Désormais, il était déployé comme une méthode d'attaque redoutable contre l'Alliance.
 
-Les dizaines de milliers de cultivateurs qui entouraient ce bois géant crièrent à l'unisson. Ils poussaient sans relâche cette masse colossale vers l'avant! À l'arrière se trouvaient même des vieux monstres, tels que l'ancêtre de la famille Xiang et l'homme d'âge mûr de la famille Gongsun. Grâce à leur aide, le bois géant s'élança vers le tunnel dans un grondement tonitruant.
+Ces plus de dix mille cultivateurs qui entouraient ce bois géant crièrent à l'unisson. Ils poussaient sans relâche cette masse colossale vers l'avant! À l'arrière se trouvaient même des vieux monstres, tels que l'ancêtre de la famille Xiang et l'homme d'âge mûr de la famille Gongsun. Grâce à leur aide, le bois géant s'élança vers le tunnel dans un grondement tonitruant.
 
 Ce morceau de bois possédait le pouvoir de tout transpercer et gagna progressivement en vitesse. Il accéléra jusqu'à former une tempête en traversant le tunnel, surgissant ainsi dans la région ouest du Système Stellaire de l'Alliance.
 
@@ -52,7 +52,7 @@ Sa célérité était telle que le sifflement qu'il produisait pouvait ébranler
 
 Une multitude de cultivateurs de Luotian suivirent le bois géant, chargeant dans l'Alliance avec une intention meurtrière!
 
-Les expressions des cultivateurs de l'Alliance arrivés par les tableaux de transfert changèrent radicalement. Ils voulurent esquiver, mais l'impact du bois géant les en empêcha totalement. Même s'ils étaient éloignés, ils furent aspirés par la puissante tempête engendrée par l'objet.
+Les expressions des cultivateurs de l'Alliance arrivés par les matrices de transfert changèrent radicalement. Ils voulurent esquiver, mais l'impact du bois géant les en empêcha totalement. Même s'ils étaient éloignés, ils furent aspirés par la puissante tempête engendrée par l'objet.
 
 Certains cultivateurs furent frappés de plein fouet par le bois. Leurs corps et leurs âmes originelles furent pulvérisés, ne laissant derrière eux qu'une brume de sang. Cependant, comparée à la taille du bois, cette quantité de sang était insignifiante.
 
@@ -68,7 +68,7 @@ Dès qu'elle apparut, la brume autour de la planète se retira rapidement jusqu'
 
 Les yeux du Serpent aux yeux de lune étaient injectés de sang et empreints d'une colère infinie, suffisante pour le rendre fou. Ses tentacules s'agitaient frénétiquement alors qu'il chargeait.
 
-Roar!
+Rugissement!
 
 La gueule du Serpent aux yeux de lune s'ouvrit et, avec son rugissement, une onde de choc dévastatrice fut projetée. Ce cri se mua en tempête et fonça droit devant. En un instant, les fissures spatiales furent repoussées comme de simples lambeaux de papier!
 

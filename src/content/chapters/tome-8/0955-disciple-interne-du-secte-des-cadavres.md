@@ -61,11 +61,11 @@ Alors qu'il battait en retraite, le jeune homme en bleu, l'air sombre, cria: « 
 
 Le jeune homme afficha un regard venimeux. Profitant de l'instant d'hésitation de Wang Lin, il agita la main sans vaciller et hurla: « Roue du Dieu Yin des Cinq Fantômes! »
 
-Cinq rayons de lumière verte jaillirent de sa main pour devenir cinq spectres. Ils poussèrent des cris lugubres avant de se transformer en empreintes vertes qui foncèrent sur Wang Lin. Les cinq fantômes affichaient des visages féroces, dégageant une aura extrêmement puissante qui convergea instantanément vers lui.
+Cinq rayons de lumière verte jaillirent de sa main pour devenir cinq spectres. Ils poussèrent des cris lugubres avant de se condenser en une empreinte de main verte qui fonça sur Wang Lin. Les cinq fantômes affichaient des visages féroces, dégageant une aura extrêmement puissante qui convergea instantanément vers lui.
 
-Wang Lin, imperturbable, agita négligemment la main. Une bourrasque de vent puissant s'élança vers les empreintes. Celles-ci explosèrent sous l'impact et les cinq fantômes poussèrent des gémissements de douleur. Wang Lin fit un pas en avant, serra le poing et lança un coup dévastateur!
+Wang Lin, imperturbable, agita négligemment la main. Une bourrasque de vent puissant s'élança vers l'empreinte. Celle-ci explosa sous l'impact et les cinq fantômes poussèrent des gémissements de douleur. Wang Lin fit un pas en avant, serra le poing et lança un coup dévastateur!
 
-Un grondement retentit et une tempête balaya les lieux. Le visage du jeune homme en bleu devint livide, mais il ne céda pas à la panique. Il observa attentivement Wang Lin, puis pressa ses mains sur le corps du membre du Clan des Démons Géants qui gisait au sol.
+Un grondement retentit et une tempête balaya les lieux. Le visage du jeune homme en bleu devint livide, mais il ne céda pas à la panique. Il observa attentivement Wang Lin, puis pressa sa main droite sur le corps du membre du Clan des Démons Géants qui gisait au sol.
 
 Le corps du géant trembla et une expression amère marqua son visage. Ses mains formèrent un sceau et il pointa vers le ciel en criant: « Capacité de lignée du Clan des Démons Géants! »
 

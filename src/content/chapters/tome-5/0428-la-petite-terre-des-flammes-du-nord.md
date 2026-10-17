@@ -122,7 +122,7 @@ Tout se passa à une vitesse fulgurante. En un instant, Situ Nan et le quatrièm
 
 Situ Nan afficha un air de joie au milieu des flammes avant de s'en extraire mystérieusement. Il vola vers la flamme de glace où se trouvait l'enfant démoniaque et pénétra dans son corps.
 
-« Wang Lin, cette Brume de Jiuli est une formation naturelle qui constitue pour moi la protection idéale. Je ne mettrai pas longtemps à retrouver ma culture. Je viendrai te retrouver quand j'aurai terminé. Tu devras faire attention à Zhuque Zi entre-temps; ne meurs pas avant mon retour! » La voix de Situ Nan résonna depuis la Brume de Jiuli.
+« Wang Lin, cette Brume de Jiuli est une formation naturelle qui constitue pour moi la protection idéale. Je ne mettrai pas longtemps à retrouver ma culture. Je viendrai te retrouver quand j'aurai terminé. Tu devras faire attention à Zhu Quezi entre-temps; ne meurs pas avant mon retour! » La voix de Situ Nan résonna depuis la Brume de Jiuli.
 
 Wang Lin réfléchit un instant. Il regarda l'enfant au sein de la brume et demanda: « Tu n'as pas besoin que je te garde? »
 

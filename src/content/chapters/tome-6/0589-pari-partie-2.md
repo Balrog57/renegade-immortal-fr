@@ -78,7 +78,7 @@ Parmi les généraux démons se trouvait également Shi Xiao. Le visage sombre, 
 
 Chen Tao réfléchit un instant et répondit: « Si j'étais à pleine puissance, je pourrais dépasser les 10 fois. Je n'en connais pas le nombre exact. Cependant, en ce moment... même avec la pilule, je ne peux que le faire résonner sept fois, ce qui n'est pas supérieur à Mo Fei! Ce Mo Fei est incroyablement puissant. Dans le monde de la culture, il peut être considéré comme le numéro un juste sous le stade Ascendant! Même des cultivateurs Ascendants devraient être au stade intermédiaire pour rivaliser avec lui! »
 
-Shi Xiao laissa poindre une intention meurtrière en regardant Mo Fei qui, s'étant retourné, avait fermé les yeux pour cultiver en laissant échapper un reniflement de mépris.
+Shi Xiao laissa poindre une intention meurtrière en regardant Mo Fei qui, de retour parmi eux, avait fermé les yeux pour cultiver, puis il laissa échapper un reniflement de mépris.
 
 À part eux, plusieurs généraux démons calculaient déjà combien de fois ils pourraient frapper le tambour et leurs chances d'intégrer le top 10!
 
@@ -130,7 +130,7 @@ Arrivé directement sous le tambour, Wang Lin s'éleva dans les airs. En contemp
 
 Les yeux de Wang Lin se rétrécirent. À cet instant, tous les sceaux de vie sur son corps se rassemblèrent. Plus de 3 000 sceaux de vie l'encerclèrent totalement.
 
-« Pari tenu: je le ferai résonner plus de cinq fois... » Wang Lin tapota sa sacoche et en sortit une cruche de vin. Il la saisit de la main gauche, prit une grande gorgée, puis sourit. « Grand Intendant Doré, regardez bien! »
+« Il parie que je ne dépasserai pas cinq coups... » Wang Lin tapota sa sacoche et en sortit une cruche de vin. Il la saisit de la main gauche, prit une grande gorgée, puis sourit. « Grand Intendant Doré, regardez bien! »
 
 La main droite de Wang Lin forma un sceau, puis il frappa violemment le tambour démoniaque!
 

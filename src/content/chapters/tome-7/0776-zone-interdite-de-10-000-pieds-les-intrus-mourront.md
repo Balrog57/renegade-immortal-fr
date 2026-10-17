@@ -10,15 +10,15 @@ Une silhouette se tenait debout sur l'énergie de l'épée. Il portait une large
 
 Une riche énergie originelle émanait de son corps. Il était évident qu'il avait atteint le sommet du stade Yin Illusoire. À mesure qu'il s'avançait, la foule devant lui se dispersa immédiatement, n'osant l'entraver.
 
-Il se rapprochait de plus en plus de la zone de 3,3 kilomètres. Ce n'était pas qu'il n'avait pas remarqué le cercle de poussière ou qu'il en ignorait la signification, mais sa vitesse ne ralentit aucunement alors qu'il s'élançait vers cette limite.
+Il se rapprochait de plus en plus de la zone de 3,3 kilomètres. Ce n'était pas qu'il n'avait pas remarqué le cercle de poussière ou qu'il en ignorait la signification, mais sa vitesse ne ralentit aucunement et il s'élança directement à l'intérieur de la zone.
 
 L'énergie originelle qu'il dégageait en chargeant fit reculer la poussière.
 
 Cette scène attira l'attention de tous les cultivateurs aux alentours. D'après ce que l'on savait, Wang Lin était un cultivateur puissant, et ce jeune homme en robe jaune l'était tout autant. Ces deux-là allaient inévitablement s'affronter à cause du trou sombre dans la formation céleste.
 
-Un tel combat n'était pas rare. Certains cultivateurs espéraient même que les deux s'infligeraient de graves blessures afin de pouvoir profiter des bénéfices qui en découleraient.
+Un combat de ce niveau n'était pas courant. Certains cultivateurs espéraient même que les deux s'infligeraient de graves blessures afin de pouvoir profiter des bénéfices qui en découleraient.
 
-L'expression de Li Yuan changea légèrement. Alors qu'il était anxieux, la voix calme de Wang Lin parvint à ses oreilles: « Frère Li, descends d'abord! »
+L'expression de Li Yuan changea légèrement. Alors qu'il hésitait, la voix calme de Wang Lin parvint à ses oreilles: « Frère Li, descends d'abord! »
 
 Li Yuan ne répondit pas et s'engouffra directement dans le trou sombre. À l'instant même où il disparut, le jeune homme en robe jaune se rapprocha.
 
@@ -32,9 +32,9 @@ Il laissa échapper un rire, sa main prenant la forme d'une griffe tandis que ci
 
 Alors que les cinq dragons noirs encerclaient l'individu, ils commencèrent aussitôt à croître. En un instant, ils atteignirent 330 mètres de long. Par conséquent, l'aura du jeune homme augmenta soudainement.
 
-Le jeune homme en robe jaune déclara d'un ton lent: « L'attaque de ce compagnon de culture est plutôt remarquable. Veuillez patienter un instant, car moi, Tang Yanyun, je souhaite explorer le trou laissé par le Céleste. Qu'en dites-vous? » Il était déjà extrêmement difficile pour lui de tenir un tel discours. S'il n'avait pas eu la certitude que le niveau de culture de Wang Lin était supérieur au sien et comparable à celui de son frère, qui se trouvait au stade Corporel Yang, il n'aurait jamais osé parler ainsi.
+Le jeune homme en robe jaune déclara d'un ton lent: « L'attaque de ce compagnon de culture est plutôt remarquable. Cessons d'abord le combat, car moi, Tang Yanyun, je souhaite explorer avec vous le trou laissé par le Céleste. Qu'en dites-vous? » Il était déjà extrêmement difficile pour lui de tenir un tel discours. S'il n'avait pas eu la certitude que le niveau de culture de Wang Lin était supérieur au sien et comparable à celui de son frère, qui se trouvait au stade Corporel Yang, il n'aurait jamais osé parler ainsi.
 
-À l'instant où il prononça ces mots, les visages des cultivateurs proches changèrent radicalement. L'un d'eux s'exclama: « La famille Tang! Serait-ce la famille Tang du Domaine Sud?! »
+À l'instant où il prononça ces mots, les visages des cultivateurs proches changèrent radicalement. L'un d'eux s'exclama: « La famille Tang! Serait-ce la famille Tang du domaine sud de Luotian?! »
 
 À cet instant, tous les cultivateurs semblèrent réaliser quelque chose.
 
@@ -42,7 +42,7 @@ Wang Lin le regarda froidement et dit calmement: « Tu n'en es pas digne! »
 
 Tang Yanyun fut stupéfait. Il avait anticipé que l'autre partie refuserait, et il s'était imaginé comment son expression changerait en apprenant son appartenance à la famille Tang. Cependant, il n'aurait jamais pu concevoir qu'un tel homme puisse faire preuve d'une telle arrogance.
 
-Son visage se voila de noirceur et il rit amèrement: « Si tel est le cas, je ne vous dérangerai pas. » Sur ces mots, il commença à battre en retraite tout en pensant: « Le niveau de culture de cet homme est supérieur au mien. Je vais me retirer pour attendre mon frère. Il ne sera pas trop tard pour agir alors. »
+Son visage se voila de noirceur et il ricana froidement: « Si tel est le cas, je ne vous dérangerai pas. » Sur ces mots, il commença à battre en retraite tout en pensant: « Le niveau de culture de cet homme est supérieur au mien. Je vais me retirer pour attendre mon frère. Il ne sera pas trop tard pour agir alors. »
 
 Bien que la famille Tang n'ait pas reçu d'héritage direct du Royaume Céleste, elle n'en demeurait pas moins puissante. Nombreux étaient ceux de son clan à être venus dans le Royaume Céleste du Tonnerre cette fois-ci, et plutôt que de se disperser, ils restaient groupés. Il n'était ici qu'en éclaireur.
 
@@ -60,7 +60,7 @@ Alors qu'il reprenait son souffle, une sueur froide perlant sur son front, la co
 
 Cependant, avant qu'il n'ait pu questionner son adversaire, le regard de Wang Lin devint glacial. Il leva la main droite et le Tatouage d'Os de Bête sur le dos de sa main commença à bouger. Il glissa le long du doigt de Wang Lin avant de s'élancer.
 
-En un instant, un gigantesque Tatouage d'Os de Bête apparut devant Wang Lin, ses quatre cornes dégageant une aura glaciale. Dès son apparition, il fonça vers Tang Yanyun.
+En un instant, un gigantesque Tatouage d'Os de Bête apparut devant Wang Lin, ses quatre pointes acérées dégageant une aura glaciale. Dès son apparition, il fonça vers Tang Yanyun.
 
 Tang Yanyun recula avec une expression sombre tandis qu'un dragon noir scintillait à nouveau entre ses sourcils, libérant une brume noire. Cette fois, une quantité encore plus grande d'énergie originelle jaillit, et l'intégralité de la marque noire s'envola de son front. Elle se mua en un dragon noir qui ouvrit la gueule pour tenter impitoyablement de dévorer l'os de la bête.
 
@@ -68,7 +68,7 @@ Ce dragon noir mesurait environ 3,3 kilomètres de long et exerçait une pressio
 
 C'était comme s'il cherchait à dévorer le monde, et d'infinies fluctuations d'énergie originelle émanaient du dragon noir.
 
-« Dragon d'origine, dévore! » cria Tang Yanyun en reculant sans s'arrêter.
+« Dragon originel, dévore! » cria Tang Yanyun en reculant sans s'arrêter.
 
 Pourtant, au moment même où le dragon noir tentait de dévorer sa proie, deux flammes fantomatiques apparurent dans les orbites de l'os de la bête. À l'instant même de leur apparition, l'os sembla prendre vie et une aura maléfique surgit soudainement. Cette aura était d'une puissance inouïe, mais elle ne dura qu'un instant avant de disparaître sans laisser de trace.
 

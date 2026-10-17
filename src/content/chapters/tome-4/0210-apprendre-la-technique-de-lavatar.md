@@ -9,11 +9,11 @@ slug: apprendre-la-technique-de-lavatar
 
 Les yeux de Wang Lin s'illuminèrent. Il déploya son sens divin et balaya les environs tout en volant à une vitesse fulgurante. Soudain, il s'arrêta et regarda vers le nord. À 1000 kilomètres de là, deux cultivateurs se dirigeaient vers l'est.
 
-Il s'agissait de deux hommes. L'un était assez jeune et n'était qu'au stade initial de l'Établissement des Fondations. L'autre était un homme d'âge moyen, au stade initial de la Formation du Noyau.
+Il s'agissait de deux hommes. L'un était assez jeune et n'était qu'au stade initial de l'Établissement des Fondations. L'autre était un homme d'âge moyen, au stade initial de la Formation du Noyau. Après les avoir balayés du regard, Wang Lin s'élança vers eux avec la rapidité du tonnerre.
 
-Mai Guorong était un disciple de la Secte Hao Ran. Suivant les ordres de son maître, il se rendait à la Secte Ciel Nuageux pour leur rassemblement bi-annuel Kai-Ling. Ce prétendu rassemblement n'était en réalité qu'une vente aux enchères de pilules organisée par la Secte Ciel Nuageux.
+Mai Guorong était un disciple de la Secte Hao Ran. Suivant les ordres de son maître, il se rendait à la Secte Ciel Nuageux pour leur rassemblement biennal Kai-Ling. Ce prétendu rassemblement n'était en réalité qu'une vente aux enchères de pilules organisée par la Secte Ciel Nuageux.
 
-La Secte Ciel Nuageux était célèbre pour sa production de pilules dans le pays de culture Chu. Même certains pays de rang 4 venaient y échanger des ressources, mais cela ne se produisait que tous les dix ans, lors du plus grand rassemblement Kai-Ling. Quant à ces rencontres bi-annuelles, elles étaient principalement destinées aux jeunes générations du pays de culture Chu pour se rencontrer et rivaliser.
+La Secte Ciel Nuageux était célèbre pour sa production de pilules dans le pays de culture Chu. Même certains pays de rang 4 venaient y échanger des ressources, mais cela ne se produisait que tous les dix ans, lors du plus grand rassemblement Kai-Ling. Quant à ces rencontres biennales, elles étaient principalement destinées aux jeunes générations du pays de culture Chu pour se rencontrer et rivaliser.
 
 Lors de ces petits rassemblements Kai-Ling, on ne trouvait pas de pilules précieuses, seulement des produits standards. Cependant, pour ces jeunes cultivateurs, cela restait une aubaine dont ils ne se lassaient jamais.
 
@@ -49,7 +49,7 @@ Xu Li ayant passé sa vie à étudier l'alchimie, il possédait un sens très ai
 
 Sur ce, il joignit rapidement les mains et dit: « Collègue cultivateur, je suis Xu Li de la Secte Hao Ran, et voici mon disciple. Monsieur semble pressé. Quel est le problème? Si je peux vous être utile, je le ferai sans tarder. »
 
-Le jeune homme aux cheveux blancs était Wang Lin. Il balaya les deux cultivateurs du regard et ses yeux se posèrent sur Xu Li. Il joignit les mains et demanda: « Collègue cultivateur, dans quel pays de culture me trouve-t-je? »
+Le jeune homme aux cheveux blancs était Wang Lin. Il balaya les deux cultivateurs du regard et ses yeux se posèrent sur Xu Li. Il joignit les mains et demanda: « Collègue cultivateur, dans quel pays de culture me trouvé-je? »
 
 Xu Li fut déconcerté. Il observa Wang Lin un instant avant de répondre: « Nous sommes dans le pays de culture Chu. D'où vient ce collègue? »
 
@@ -81,31 +81,31 @@ Xu Li secoua la tête: « Cet homme dégageait une intention meurtrière telle q
 
 Mai Guorong était stupéfait. « Une intention meurtrière? »
 
-Xu Li expliqua lentement: « Chaque fois que l'on tue, on accumule un peu d'intention meurtrière. Lorsqu'elle est suffisante, elle se transforme en une aura hostile. Cette aura est un excellent matériau de culture pour certains. Mais si cette hostilité s'accumule sur une personne pendant très longtemps, elle devient une intention meurtrière. Celle de cet homme est monstrueuse. Il n'a utilisé aucune technique; sa simple présence suffit à semer la terreur dans les cœurs. J'ignore s'il sait utiliser son intention meurtrière, mais si c'est le cas, cela pourrait affecter même des cultivateurs de l'Âme Naissante. »
+Xu Li expliqua lentement: « Chaque fois que l'on tue, on accumule un peu d'aura meurtrière. Lorsqu'elle est suffisante, elle se transforme en une aura hostile. Cette aura est un excellent matériau de raffinage pour certains. Mais si cette hostilité s'accumule sur une personne pendant très longtemps, elle devient une intention meurtrière. Celle de cet homme est monstrueuse. Il n'a utilisé aucune technique; sa simple présence suffit à semer la terreur dans les cœurs. J'ignore s'il sait utiliser son intention meurtrière, mais si c'est le cas, cela pourrait influencer même des cultivateurs de l'Âme Naissante et leur causer des hallucinations. »
 
 Mai Guorong prit une inspiration. Il demanda avec hésitation: « Maître, d'après vos paroles, cet homme n'a pas encore atteint le stade de l'Âme Naissante? »
 
-Xu Li réfléchit un instant, puis acquiesça: « Bien qu'il ne soit pas au stade de l'Âme Naissante, il est très proche. Si ma perception est juste, il a déjà atteint le sommet du stade avancé de la Formation du Noyau. Pour éviter tout problème inutile, ne parle de cela à personne. Même après notre retour à la Secte Hao Ran, garde le silence. Compris? »
+Xu Li réfléchit un instant, puis acquiesça: « Bien qu'il ne soit pas au stade de l'Âme Naissante, il est très proche. Si ma perception est juste, il a déjà atteint le sommet du stade avancé de la Formation du Noyau, celui de la fausse Âme Naissante. Pour éviter tout problème inutile, ne parle de cela à personne. Même après notre retour à la Secte Hao Ran, garde le silence. Compris? »
 
 Mai Guorong hocha vigoureusement la tête. Même si Xu Li n'avait rien dit, il n'aurait pas osé parler du redoutable cultivateur qu'ils venaient de croiser; l'impression laissée par cet homme était trop terrifiante pour risquer de tels ennuis.
 
-Quant à Wang Lin, une fois sa position déterminée, il s'élança en balayant les environs de son sens divin. Selon la carte, la Secte Ciel Nuageux devait se trouver juste devant. Il hocha la tête, satisfait que ce duo maître-disciple ne lui ait pas menti. Lorsqu'il fut à proximité de sa destination, il s'arrêta. Puisque la secte était proche, il décida de trouver un endroit pour s'isoler en culture.
+Quant à Wang Lin, une fois sa position déterminée, il s'élança en balayant les environs de son sens divin. Selon la carte, la Secte Ciel Nuageux devait se trouver juste devant. Il hocha la tête, satisfait que ce duo maître-disciple ne lui ait pas menti. Lorsqu'il fut à proximité de sa destination, il s'arrêta. Après avoir jeté un regard vers la secte au loin, il fit demi-tour sans un mot. Puisque la secte était proche, il décida de trouver un endroit pour s'isoler en culture.
 
 Il s'arrêta sur un versant montagneux, à environ 3 500 ou 4 000 kilomètres de la Secte Ciel Nuageux. Après avoir inspecté les lieux, il tapa sur son sac de rangement et une épée volante en sortit. Il la projeta contre le flanc de la montagne.
 
-Bientôt, une grotte fut creusée dans la paroi de la falaise. Elle fut aménagée selon ses préférences avec deux pièces. Une fois à l'intérieur, Wang Lin réfléchit un instant puis ouvrit la seconde pièce. Après avoir terminé ses préparatifs, il sortit de la grotte et fit sortir son drapeau de restriction de son sac de rangement. Ses mains formèrent des sceaux qu'il pointa vers le drapeau. Celui-ci commença à onduler sans vent et grandit dix fois.
+Bientôt, une grotte fut creusée dans la paroi de la falaise. Elle fut aménagée selon ses préférences avec deux pièces. Une fois à l'intérieur, Wang Lin réfléchit un instant puis ouvrit une troisième pièce. Après avoir terminé ses préparatifs, il sortit de la grotte et fit sortir son drapeau de restriction de son sac de rangement. Ses mains formèrent des sceaux qu'il pointa vers le drapeau. Celui-ci commença à onduler sans vent et grandit de plus de dix fois.
 
 Puis, les mains de Wang Lin enchaînèrent de multiples sceaux, projetant des rayons de lumière. Le drapeau de restriction s'étira indéfiniment, formant une canopée capable de recouvrir tout le ciel.
 
 Wang Lin cria calmement: « Dispersion! »
 
-À cet ordre, la voûte noire trembla. Des milliers de restrictions tombèrent du drapeau pour se répandre sur la chaîne de montagnes. Une fois toutes les restrictions déployées, Wang Lin fit rétrécir le drapeau pour qu'il revienne dans sa main, puis il l'enfonça dans la montagne par un mouvement de la main droite.
+À cet ordre, la voûte noire trembla. Plus d'un millier de restrictions tombèrent du drapeau pour s'enfoncer dans la falaise et l'envelopper tout entière. Une fois toutes les restrictions déployées, Wang Lin fit rétrécir le drapeau pour qu'il revienne dans sa main, puis il l'enfonça dans la montagne par un mouvement de la main droite.
 
 De l'extérieur, la grotte avait totalement disparu et le paysage semblait inchangé. Après avoir placé plusieurs autres restrictions à différents points stratégiques pour former une formation défensive imprenable, Wang Lin se détendit. Il avança vers la paroi de la montagne, son corps disparut et il pénétra dans sa demeure. À l'intérieur, il sortit un objet de son sac: le jade du dragon vert offert par Li Muwan. Bien qu'il fût légèrement fissuré, cela n'altérait en rien ses propriétés. Wang Lin activa une technique spirituelle sur le jade; soudain, un rugissement s'en échappa et un dragon vert en sortit pour tournoyer autour de lui. Le dragon grandissait à mesure qu'il parcourait la pièce, traversant les murs comme si rien ne l'obstruait. Dans un ultime rugissement, le dragon fusionna avec la grotte, créant une couche de protection supplémentaire.
 
 Cette demeure était sans doute l'endroit le plus sûr que Wang Lin ait jamais créé. Il y avait consacré énormément d'efforts car, à moins d'un événement imprévu, il comptait y résider pour une longue période.
 
-Wang Lin resta immobile un long moment, l'air déterminé, puis pointa son front. Le démon Xu Liguo et le second démon en sortirent. Dès leur apparition, leurs réactions divergèrent. Le second démon regarda instantanément Wang Lin avec une dévotion absolue; désormais, il obéirait à n'importe quel ordre, même celui de combattre un cultivateur de la Formation de l'Âme au péril de sa vie. Quant à Xu Liguo, bien qu'il inspectât les lieux du regard, il afficha un sourire servile et respectueux devant son maître.
+Wang Lin resta immobile un long moment, l'air déterminé, puis pointa son front. Le démon Xu Liguo et le second démon en sortirent. Dès leur apparition, leurs réactions divergèrent. Le second démon regarda instantanément Wang Lin avec une dévotion absolue; désormais, il obéirait à n'importe quel ordre, même celui de dévorer un cultivateur de la Formation de l'Âme, quitte à y laisser la vie. Quant à Xu Liguo, bien qu'il inspectât les lieux du regard, il afficha un sourire servile et respectueux devant son maître.
 
 Wang Lin désigna une pièce de pierre: « À partir d'aujourd'hui, vous deux vivrez dans cette pièce. Si vous en sortez sans ma permission, vous serez effacés. »
 
@@ -113,22 +113,22 @@ Xu Liguo fut stupéfait. Alors qu'il allait répliquer, le second démon flotta 
 
 Une fois les démons installés, Wang Lin déploya son Royaume Ji et scanna la zone, laissant une partie de son sens divin en sentinelle avant de le retirer. Si les deux démons tentaient de s'échapper, ils seraient frappés par le Royaume Ji. Il devait être prudent; bien qu'il les ait créés, il ne pouvait se permettre aucun accident pour ce qu'il s'apprêtait à accomplir.
 
-Ensuite, Wang Lin entra dans la pièce centrale, s'assit en tailleur et prit une profonde inspiration. Il pointa son front, d'où émergea une sphère de lumière multicolore qui devint de plus en plus solide, affichant un éclat défiant les cieux. Après l'avoir observée un instant, il la mit de côté et disposa plusieurs fioles de jade de chaque côté de lui. Puis, il ferma les yeux pour entrer en méditation.
+Ensuite, Wang Lin entra dans la pièce centrale, s'assit en tailleur et prit une profonde inspiration. Il pointa son front, d'où émergea une sphère de lumière multicolore qui devint de plus en plus solide, révélant finalement l'apparence de la perle défiant le ciel. Après l'avoir observée un instant, il la mit de côté et disposa plusieurs fioles de jade de chaque côté de lui. Puis, il ferma les yeux pour entrer en méditation.
 
 Le temps s'écoula, et une année passa. Durant cette période, hormis la collecte du liquide issu de la perle, Wang Lin était resté pratiquement immobile. Au cours de sa méditation, il avait condensé tout son surplus d'énergie spirituelle en trois tourbillons, au sein desquels résidait la ligne rouge de la rétribution divine.
 
-En un an, Wang Lin avait réussi à supprimer totalement cette ligne rouge, mais il ne relâchait pas sa vigilance. Bien que minuscule, elle contenait le pouvoir d'une rétribution divine; une manipulation erronée aurait pu détruire son corps. Bien que celui-ci eût déjà subi une reconstruction, il refusait de s'en servir comme cobaye.
+En un an, Wang Lin avait réussi à réprimer totalement cette ligne rouge, mais il ne relâchait pas sa vigilance. Bien que minuscule, elle contenait le pouvoir d'une rétribution divine; une manipulation erronée aurait pu détruire son corps. Bien que celui-ci eût déjà subi une reconstruction, il refusait de s'en servir comme cobaye.
 
 En parallèle, Wang Lin consacrait son temps à l'étude de la technique de l'avatar. C'était là son moyen de contourner son incapacité à franchir le stade de l'Âme Naissante. Il se remémorait avec précision la grotte du temple du Dieu de la Guerre pour en extraire les secrets de cette technique d'incarnation.
 
-Cette technique consistait à créer un second corps réel, un double. L'idée était d'utiliser l'avatar pour accélérer la vitesse de culture, puis, au moment de franchir le stade de l'Âme Naissante, de sauvegarder l'avatar et de le fusionner avec le corps principal pour maximiser les chances de réussite. Cependant, l'avatar présentait un défaut fatal: il ne possédait aucune culture lors de sa création et sa durée de vie n'était que de trente ans.
+Cette technique consistait à créer un second corps réel, un double. L'idée était d'utiliser l'avatar pour accélérer la vitesse de culture, puis, au moment de franchir le stade de l'Âme Naissante, de fusionner les deux corps pour maximiser les chances de réussite. Cependant, l'avatar présentait un défaut fatal: il ne possédait aucune culture lors de sa création et sa durée de vie n'atteignait pas trente ans.
 
 À l'époque, Wang Lin n'avait pas pu utiliser cette méthode faute de pilules suffisantes pour lui-même et son double. Mais aujourd'hui, il voyait dans cette technique un moyen non seulement de préserver sa culture, mais aussi d'atteindre le stade de l'Âme Naissante. Son plan était d'utiliser l'avatar pour atteindre ce stade en trente ans, puis de le fusionner avec son corps actuel afin de briser le blocage qui l'empêchait de progresser.
 
-De cette manière, il n'aurait pas besoin de détruire sa culture pour évoluer. Le défi majeur résidait dans la capacité de l'avatar à atteindre l'Âme Naissante en seulement trente ans. Grâce à l'Espace de Rébellion Céleste, le temps pouvait être dilaté. Avec le multiplicateur de six fois la vitesse normale, Wang Lin disposait en réalité de 180 ans pour son avatar.
+De cette manière, il n'aurait pas besoin de détruire sa culture pour évoluer. Le défi majeur résidait dans la capacité de l'avatar à atteindre l'Âme Naissante en seulement trente ans. Grâce à l'espace de la perle défiant le ciel, le temps pouvait être dilaté. Avec le multiplicateur de six fois la vitesse normale, Wang Lin disposait en réalité de 180 ans pour son avatar.
 
 Mais un autre problème crucial subsistait: les pilules! Ce problème serait résolu à la Secte Ciel Nuageux. C'est d'ailleurs pour cette raison qu'il avait choisi de s'isoler ici dès qu'il apprit que la secte était proche.
 
-L'expression de Wang Lin restait sereine. Devant lui reposaient trois fioles blanches remplies du liquide recueilli auprès de la perle de rébellion céleste durant l'année écoulée. Ce liquide constituerait le premier présent offert à son avatar.
+L'expression de Wang Lin restait sereine. Devant lui reposaient trois fioles blanches remplies du liquide recueilli auprès de la perle défiant le ciel durant l'année écoulée. Ce liquide constituerait le premier présent offert à son avatar.
 
 Après une réflexion, ses yeux brillèrent d'une détermination sans faille. Ses mains formèrent un sceau et il entama les étapes de la technique pour créer son incarnation. Cette technique n'était pas difficile pour qui en comprenait tous les détails, car elle ne dépendait ni du talent ni de la puissance brute. Autrement, Chen Chong, qui possédait le pire talent du temple du Dieu de la Guerre, n'aurait pu être le seul, avec le créateur, à percer le secret de cette technique d'avatar.

@@ -18,7 +18,7 @@ Face à un tel ennemi, tenter une attaque surprise était inutile.
 
 Les environs étaient plongés dans un silence absolu, seule la fragrance ténue des fleurs et la chute des pétales formant une mer de fleurs délicates.
 
-Le temps passa lentement tandis que les deux méditaient. Après quinze minutes, la femme en blanc ouvrit les yeux et regarda le corps de Qing Shuang. Elle entrouvrit la bouche, comme si elle s'apprêtait à parler.
+Le temps s'écoula lentement dans leur silence à tous deux. Après quinze minutes, la femme en blanc ouvrit les yeux et regarda le corps de Qing Shuang. Elle entrouvrit la bouche, comme si elle s'apprêtait à parler.
 
 Cependant, à cet instant précis, un grondement retentit au loin dans la grotte. Dans ce silence oppressant, ce bruit fut d'une violence extrême!
 
@@ -26,7 +26,7 @@ Simultanément, des jurons commencèrent à résonner depuis la distance.
 
 « Fuir? Aucun trésor que je convoite ne peut m'échapper! » La voix arrogante de Situ Nan retentit alors qu'il poursuivait un rayon de lumière blanche. Une petite bouteille se trouvait au cœur de cet éclat.
 
-Cette bouteille était faite de jade blanc. De loin, elle dégageait une lueur douce et chaleureuse, semblable à la graisse d'un mouton bien nourri.
+Cette bouteille était faite de jade blanc. De loin, elle dégageait une lueur douce et chaleureuse, semblable à de la graisse de mouton.
 
 Situ Nan dégageait un gaz noir qui l'enveloppait tandis qu'il traquait le précieux objet. Voyant la bouteille s'accélérer, Situ Nan forma un sceau de la main et une brume noire apparut devant elle. Cette brume se mua en une bête féroce qui tenta d'engloutir la bouteille.
 
@@ -54,7 +54,7 @@ Saisissant cette opportunité, Situ Nan recula prestement et chargea vers l'entr
 
 Les fragments brisés de la bouteille blanche se précipitèrent vers le visage de la femme. Pourtant, d'un simple regard, elle figea les éclats en plein vol. D'un pas calme, elle avança.
 
-Les innombrables vortex engendrés par le sort céleste de Situ Nan s'élancèrent, mais étrangement, ils passèrent à travers la femme en blanc sans l'entraver le moins que soit.
+Les innombrables vortex engendrés par le sort céleste de Situ Nan s'élancèrent, mais étrangement, ils passèrent à travers la femme en blanc sans l'entraver le moins du monde.
 
 « Ne souhaitez-vous pas entrer dans la grotte...? » demanda lentement la femme en blanc tout en avançant.
 
@@ -102,19 +102,19 @@ Le palais retomba dans le silence. Bien que l'expression de Wang Lin fût neutre
 
 De plus, un troisième œil apparut entre ses sourcils. Bien qu'il ne fût pas ouvert, l'énergie originelle qu'il contenait pouvait se déployer par une simple pensée.
 
-Wang Lin craignait énormément cette femme. Il était au sommet du stade intermédiaire de la Scruteur du Nirvana et pouvait combattre des cultivateurs Purificateurs du Nirvana grâce à son corps de Dieu Ancien. Pourtant, il savait qu'il ne faisait pas le poids face à elle.
+Wang Lin craignait énormément cette femme. Sa culture avait atteint le Scruteur du Nirvana et, grâce à son corps de Dieu Ancien, il pouvait déployer la force d'un Purificateur du Nirvana de stade intermédiaire. Pourtant, il savait qu'il ne faisait pas le poids face à elle.
 
 Toutefois, il y avait des choses qu'il devait accomplir, même au péril de sa vie. C'était là la nature même de Wang Lin.
 
-Alors qu'il réfléchissait, la femme sembla agiter sa main droite et un rayon de lumière jaillit. Cette lueur n'était pas ordinaire; elle brûlait comme un feu dans les ténèbres, illuminant rapidement la zone d'un éclat tamisé.
+Alors qu'il réfléchissait, la femme sembla agiter sa main droite et un rayon de lumière jaillit. Cette lueur n'était pas ordinaire; elle luisait telle une luciole dans les ténèbres, illuminant rapidement la zone d'un éclat tamisé.
 
 Grâce à cette faible clarté, Wang Lin vit enfin l'intérieur du palais et eut le souffle coupé.
 
-L'édifice ressemblait à un temple taoïste de mortels. Neuf statues s'y dressaient. Huit étaient disposées sur les côtés, tandis que celle du centre, sculptée avec une complexité infinie, dégageait un reflet doré.
+L'édifice ressemblait à un temple taoïste de mortels. Neuf statues s'y dressaient. Huit étaient disposées sur les côtés, tandis que celle du centre, sculptée dans des matières diverses et indéterminables, dégageait un reflet doré.
 
 Cependant, cette lumière dorée était très faible. À l'instant même où elle apparaissait, elle semblait être dévorée par l'obscurité. Par conséquent, elle ne subsistait qu'au cœur de la statue, lui conférant une aura mystérieuse.
 
-Il s'agissait d'une statue représentant un homme d'âge moyen. Il était d'une grande beauté et son regard était empreint d'une profondeur infinie. Vêtu d'une robe jaune, il dégageait l'aura d'un noble!
+Il s'agissait d'une statue représentant un homme d'âge moyen. Il avait une allure très martiale, des traits majestueux, et son regard était empreint d'une profondeur infinie. Vêtu d'une robe jaune, il dégageait l'aura d'un noble!
 
 La robe jaune était brodée de neuf dragons violets dont les expressions étaient féroces. Bien qu'ils ne soient que des images, on pouvait ressentir leur férocité inimaginable.
 
@@ -138,4 +138,4 @@ Une pression inimaginable exigeait qu'il tombe à genoux pour se soumettre à la
 
 Les yeux de Wang Lin virèrent au rouge; il poussa un rugissement et sa puissance de Dieu Ancien explosa.
 
-Les Dieux Anciens ne respectaient ni les cieux, ni le Tao; ils marchaient contre les cieux. Cela faisait partie de l'Ordre Ancien!
+Les Dieux Anciens ne respectaient ni les cieux, ni les lois du Dao; ils marchaient contre les cieux. Cela faisait partie de l'Ordre Ancien!

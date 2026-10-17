@@ -18,13 +18,13 @@ Ce jour-là, quatre rayons de lumière traversèrent le ciel, et le vieil homme 
 
 Wang Lin atterrit sur le sol et observa la fosse profonde ainsi que le vieil homme qui dévorait des yeux Ta Shan. Après une courte réflexion, il dit lentement: « Cela fait longtemps, Senior Yun Quezi. »
 
-Le vieil homme était Yun Quezi, et ses yeux étaient empreints de choc. Il détourna son regard de Ta Shan, une tempête s'emparant de son cœur. Il fixa Wang Lin et dit d'un ton amer: « Je n'ai commencé la culture qu'après toi, nul besoin de m'appeler "Senior". Compagnon cultivateur Wang Lin, est-il un membre de mon Clan des Immortels Délaissés? »
+Le vieil homme était Yun Quezi, et ses yeux étaient empreints de choc. Il détourna son regard de Ta Shan, une tempête s'emparant de son cœur. Il fixa Wang Lin et dit d'un ton amer: « Je n'ai commencé la culture qu'avant toi, nul besoin de m'appeler "Senior". Compagnon cultivateur Wang Lin, est-il un membre de mon Clan des Immortels Délaissés? »
 
 Yun Quezi pointa Ta Shan du doigt.
 
 L'expression de Ta Shan était glaciale. Il ne daigna même pas regarder Yun Quezi.
 
-« Il est un membre du Clan des Immortels Délaissés! » Wang Lin soupira et descendit dans la fosse profonde. Ta Shan le suivit, tandis que le garçon à la grosse tête adressa un sourire idiot à Yun Quezi avant de suivre Wang Lin.
+« Il est un membre du Clan des Immortels Élus! » Wang Lin soupira et descendit dans la fosse profonde. Ta Shan le suivit, tandis que le garçon à la grosse tête adressa un sourire idiot à Yun Quezi avant de suivre Wang Lin.
 
 En voyant le sourire du garçon, une pression émanant de son âme explosa. Le visage de Yun Quezi pâlit et l'émotion complexe qui le traversait s'intensifia.
 
@@ -46,7 +46,7 @@ Cependant, cette énergie Yin était dérisoire. Il n'avait même pas besoin d'a
 
 Au fil de sa descente, l'énergie Yin formait un vortex devant lui, comme pour lui ouvrir le passage.
 
-Tout en avançant, Wang Lin réfléchissait. Le Clan des Immortels Délaissés et le Clan des Immortels Délaissés étaient manifestement issus du même peuple. Il en était désormais certain après avoir observé la réaction de Yun Quezi face au garçon à la grosse tête.
+Tout en avançant, Wang Lin réfléchissait. Le Clan des Immortels Délaissés et le Clan des Immortels Élus étaient manifestement issus du même peuple. Il en était désormais certain après avoir observé la réaction de Yun Quezi face au garçon à la grosse tête.
 
 Ce clan ne craignait pas l'énergie spirituelle céleste issue des jades célestes, mais dès que l'énergie originelle céleste émanait d'un être céleste, une force surgissait de leur âme pour les contraindre à la soumission.
 

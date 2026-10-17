@@ -16,11 +16,11 @@ Cependant, bien que la belle femme maîtrisât les restrictions, elle n'égalait
 
 Le rugissement furieux qui résonnait au loin se rapprochait de plus en plus, ponctué par des bruits secs et successifs, signes évidents de restrictions en train de voler en éclats. Wang Lin accéléra encore et bondit dans les airs devant un pavillon. Des lueurs de restrictions jaillirent de la structure, et une lumière envahit la zone comme pour interdire tout passage à Wang Lin.
 
-Les yeux de Wang Lin s'illuminèrent; son corps exécuta sept pas vers la droite selon un angle inimaginable. À l'issue de ces sept pas, il s'était déjà enfoncé dans les restrictions du pavillon avant de les transpercer en un éclair.
+Les yeux de Wang Lin s'illuminèrent; son corps exécuta sept pas sur le côté selon un angle inimaginable. À l'issue de ces sept pas, il s'était déjà enfoncé dans les restrictions du pavillon avant de les transpercer en un éclair.
 
 Derrière lui, l'homme en noir suivit de près. Il reproduisit exactement les mouvements de Wang Lin et parvint, contre toute attente, à franchir les restrictions lui aussi.
 
-Quant à la belle femme, lorsqu'elle finit par briser les barrières et atteignit ce point, elle ne put que regarder impuissante Wang Lin et l'homme en noir s'éloigner. Elle était incapable de rompre les restrictions précédentes dans un délai si court.
+Quant à la belle femme, lorsqu'elle finit par briser les barrières et atteignit ce point, elle ne put que regarder impuissante Wang Lin et l'homme en noir s'éloigner. Elle était incapable de rompre en si peu de temps la restriction qui se dressait devant elle.
 
 C'est à cet instant précis qu'un rugissement violent retentit derrière elle, perçant ses oreilles. Simultanément, les restrictions qui la protégeaient tremblèrent et s'effondrèrent toutes, laissant jaillir une ombre rouge.
 
@@ -38,7 +38,7 @@ Le Maître du Vide était lui aussi profondément stupéfait. Il s'était libér
 
 Il suivit rapidement la provenance du bruit et vit la belle femme en danger.
 
-Étant lié à la puissance à laquelle elle appartenait, il ne pouvait rester les bras croisés. Après avoir utilisé un sort pour repousser la silhouette humaine, il prit la belle femme par la main et chargea à travers les restrictions du pavillon grâce à sa puissante culture.
+Étant lié à la puissance à laquelle elle appartenait, il ne pouvait rester les bras croisés. Après avoir utilisé un sort pour repousser la silhouette humaine, il enveloppa la belle femme d'un ample mouvement de manche et chargea à travers les restrictions du pavillon grâce à sa puissante culture.
 
 Les restrictions jaillirent violemment au-dessus du pavillon, mais sous l'assaut du Maître du Vide, elles s'effondrèrent immédiatement. Ce dernier emporta la belle femme et fonça en avant.
 
@@ -58,13 +58,13 @@ L'homme en noir suivit Wang Lin en maintenant une certaine distance et dit d'une
 
 Ce palais était immense, bien plus vaste que n'importe quel pavillon. Vu de l'extérieur, il exerçait une pression écrasante et le brouillard sombre dégageait une aura sinistre. C'était comme si une bête féroce fixait froidement le petit cultivateur à ses pieds.
 
-Une fois à l'intérieur de la salle, en levant les yeux, on pouvait réaliser l'ampleur colossale du palais. Il y avait une ouverture dans la porte; bien que étroite, elle permettait à dix personnes d'entrer simultanément.
+Au pied du palais, en levant les yeux, on pouvait réaliser l'ampleur colossale du palais. Il y avait une ouverture dans la porte; bien que étroite, elle permettait à dix personnes d'entrer simultanément.
 
 Wang Lin se déplaça avec la rapidité de l'éclair. Lorsqu'il fut à portée, il pénétra directement par la porte et s'engouffra dans le palais situé au premier étage de la Grotte de l'Empereur Céleste!
 
 À l'instant où Wang Lin entra, il fut momentanément saisi de stupeur.
 
-Deux statues gigantesques trônaient dans la salle. Toutes deux effectuaient un sceau et semblaient pointer le vide de leurs yeux exorbités. Les statues dégageaient une pression si intense que l'on aurait dit que la puissance des cieux emplissait la salle. Un tel spectacle aurait ébranlé l'esprit de n'importe quel témoin.
+Deux statues gigantesques trônaient dans la salle. Toutes deux effectuaient un sceau et semblaient pointer le vide, le regard furieux. Les statues dégageaient une pression si intense que l'on aurait dit que la puissance des cieux emplissait la salle. Un tel spectacle aurait ébranlé l'esprit de n'importe quel témoin.
 
 Fixant les statues, Wang Lin prit une profonde inspiration et se ressaisit rapidement. Il avait vécu une expérience similaire avec la Concubine Impériale Fleur; bien que surpris, il ne fut pas déstabilisé.
 
@@ -108,7 +108,7 @@ Elles surgirent avec une rapidité fulgurante. Dès leur apparition, elles libé
 
 À cet instant précis, une lueur bleue jaillit de l'œil droit de Wang Lin et un bouclier de lumière azur apparut devant lui. Les ondulations percutèrent le bouclier dans une explosion assourdissante qui sembla déchirer le monde.
 
-Le bouclier de lumière azur ne put rien soutenir et fut repoussé violemment contre la poitrine de Wang Lin. Des craquements sinistres résonnèrent dans son corps alors qu'il crachait du sang, projeté en arrière tel un cerf-volant dont on aurait coupé la ficelle.
+Pour la première fois, le bouclier de lumière azur ne put offrir aucune résistance et fut repoussé violemment contre la poitrine de Wang Lin. Des craquements sinistres résonnèrent dans son corps alors qu'il crachait du sang, projeté en arrière tel un cerf-volant dont on aurait coupé la ficelle.
 
 Alors que le bouclier était enfoncé, une ondulation pénétra son corps. Elle était d'une puissance extrême et tentait frénétiquement de déchirer ses méridiens. Cette force inimaginable traversa directement l'organisme de Wang Lin dans l'intention de détruire son corps et son âme originelle.
 

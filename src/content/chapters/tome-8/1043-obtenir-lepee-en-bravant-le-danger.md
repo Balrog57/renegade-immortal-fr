@@ -28,35 +28,35 @@ De plus, il se trouvait dans la Grotte de l'Empereur Céleste. S'il ne la prenai
 
 Une fois sa décision prise, Wang Lin leva les yeux vers le puits. De là, il pouvait voir que l'ouverture était scellée par des glaciers massifs et compacts, ne laissant passer que quelques sentiers étroits et sinueux.
 
-Après avoir calculé la distance, il descendit et marqua une pause pour réfléchir. Soudain, il redressa la tête et fixa l'épée de fer enfouie profondément dans la glace.
+Après avoir calculé la distance qu'il avait parcourue en descendant, il réfléchit un instant. Soudain, il redressa la tête et fixa l'épée de fer enfouie profondément dans la glace.
 
 Il serra les dents, ses mains tracèrent un sceau et des flammes jaillirent de ses yeux. À cet instant, sa culture au sommet du stade Scruteur du Nirvana explosa. Les cinq étoiles entre ses sourcils apparurent et tournèrent avec frénésie, tandis que des craquements résonnaient dans tout son corps.
 
-La puissance de l'Ancien Dieu irrigua ses membres et il serra le poing avec une force implacable. Se sentant capable de dompter les cieux, Wang Lin ne l'hésita plus. Il projeta son bras droit en avant.
+La puissance de l'Ancien Dieu irrigua ses membres et il serra le poing avec une force implacable. Se sentant capable de dompter les cieux, Wang Lin n'hésita plus. Il projeta son bras droit en avant.
 
-À cet instant, les flammes de ses yeux s'élancèrent et son énergie d'origine se concentra dans sa main droite. Tandis qu'il tendait le bras, une mer de flammes monstrueuse surgit devant lui!
+À cet instant, les flammes de ses yeux s'élancèrent et son énergie originelle se concentra dans sa main droite. Tandis qu'il tendait le bras, une mer de flammes monstrueuse surgit devant lui!
 
-Sa main droite traça un sceau et l'océan de feu fonça vers la voûte. Les flammes enveloppèrent le sommet, et la glace commença immédiatement à fondre à une échelle colossale. Le brasier s'engouffra aussitôt dans le tunnel de glace par la brèche que Wang Lin avait creusée plus tôt.
+Sa main droite traça un sceau et l'océan de feu fonça vers la tête de l'Ancien Dieu. Les flammes l'enveloppèrent en un instant, et la glace commença immédiatement à fondre à une échelle colossale. Le brasier s'engouffra aussitôt dans le tunnel de glace par la brèche que Wang Lin avait creusée plus tôt.
 
 Les flammes atteignirent instantanément les environs de l'épée de fer.
 
 Les lignes rouges se mirent immédiatement à vibrer et à s'étirer brusquement. De multiples ramifications jaillirent des lignes rouges, projetant une épaisse brume écarlate sur les flammes.
 
-Un fracas assourdissant retentit lorsque la mer de flammes fut éteinte et repoussée par la brume rouge. Les yeux de Wang Lin s'illuminèrent et, sans perdre un instant, il cracha un jet d'énergie d'origine pure.
+Un fracas assourdissant retentit lorsque la mer de flammes fut éteinte et repoussée par la brume rouge. Les yeux de Wang Lin s'illuminèrent et, sans perdre un instant, il cracha une gorgée d'essence d'âme originelle.
 
-L'apport de cette énergie d'origine agit comme de l'huile sur le feu. De vastes fissures parcoururent la glace avant que celle-ci ne s'effondre soudainement!
+L'apport de cette essence agit comme de l'huile sur le feu. De vastes fissures parcoururent la glace avant que celle-ci ne s'effondre soudainement!
 
-D'innombrables éclats de glace incandescente furent projetés dans toutes les directions, percutant les blocs environnants. La glace ayant disparu, la tête de l'Ancien Dieu apparut nettement devant Wang Lin.
+D'innombrables éclats de glace incandescente furent projetés dans toutes les directions, retombant sur les parois du puits. La glace ayant disparu, la tête de l'Ancien Dieu apparut nettement devant Wang Lin.
 
 Elle avait séjourné si longtemps dans la glace qu'au moment même où celle-ci se brisa, le crâne de l'Ancien Dieu commença à se décomposer.
 
 Simultanément, une odeur de chair putride emplit l'air. La tête de l'Ancien Dieu se décomposa rapidement pour ne devenir bientôt qu'un crâne gigantesque!
 
-Ce crâne était d'un noir absolu et une impressionnante brume rouge oscillait continuellement à l'intérieur. L'origine des lignes rouges résidait dans cette brume, et certaines de ces lignes étaient encore enroulées autour de l'épée de fer.
+Ce crâne était d'un noir absolu et une brume rouge d'une trentaine de mètres oscillait continuellement à l'intérieur. L'origine des lignes rouges résidait dans cette brume, et certaines de ces lignes étaient encore enroulées autour de l'épée de fer.
 
-Dès que la glace s'effondra, Wang Lin se changea en ombre et s'élança. Il saisit directement l'épée de fer.
+Dès que la glace s'effondra, Wang Lin se changea en un trait de lumière et s'élança. Il saisit directement l'épée de fer.
 
-Au moment où il la prit en main, l'énergie d'origine qui bouillonnait en lui jaillit sans retenue. Cette énergie se mua instantanément en une mer de flammes tout autour de lui. Le feu pénétra également l'épée et enveloppa immédiatement les lignes rouges qui entravaient l'arme.
+Au moment où il la prit en main, l'énergie originelle qui bouillonnait en lui jaillit sans retenue. Cette énergie se mua instantanément en une mer de flammes tout autour de lui. Le feu pénétra également l'épée et enveloppa immédiatement les lignes rouges qui entravaient l'arme.
 
 Simultanément, la main gauche de Wang Lin se serra en un poing, chargée de toute sa puissance d'Ancien Dieu. Il lança un coup fulgurant. Alors qu'il frappait, le fantôme de l'Ancien Dieu apparut derrière lui pour porter le même coup.
 
@@ -84,7 +84,7 @@ Au fond de la fosse, le rugissement fut violent. Tous les cadavres célestes ain
 
 Ce fantôme étrange était semi-transparent et ne possédait aucun organe interne; seul un vortex rouge tourbillonnait au centre de son corps.
 
-Sa vitesse était telle qu'il atteignit Wang Lin en un éclair.
+Sa vitesse était telle qu'il allait rattraper Wang Lin en un éclair.
 
 Entre les innombrables cadavres aux yeux rouges qui fondaient sur lui par le haut et ce fantôme étrange qui le talonnait par le bas, la situation était critique. Les yeux de Wang Lin brillèrent d'une lueur déterminée alors qu'il chargeait sans hésiter.
 

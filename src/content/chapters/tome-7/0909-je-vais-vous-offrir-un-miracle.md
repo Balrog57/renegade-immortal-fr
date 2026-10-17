@@ -30,7 +30,7 @@ Alors que le tonnerre rugissait, la contraction s'accéléra encore. C'était co
 
 Cette force revenait à comprimer tout le tonnerre de dizaines de milliers de kilomètres en un seul point. Sa puissance était comparable à celle d'une calamité divine!
 
-À cet instant, la contraction devint frénétique, produisant un vacarme tel qu'il semblait que plus aucun autre son n'existait au monde. Même Ta Shan et le garçon à la grosse tête, qui étaient en plein combat, reculèrent immédiatement, le visage grave.
+À cet instant, la contraction devint frénétique, produisant un vacarme tel qu'il semblait que plus aucun autre son n'existait au monde. Même les deux avatars qui affrontaient Ta Shan et le garçon à la grosse tête reculèrent immédiatement, l'air prudent et grave.
 
 En un instant, alors que tout le tonnerre de la région s'était rassemblé, des vagues de foudre s'abattirent sur les trente-cinq épées volantes et les cinq avatars de l'homme en robe rouge!
 
@@ -68,9 +68,9 @@ Yu Fei fut surpris et ses pupilles se rétractèrent. Son énergie originelle ja
 
 Il existait une planète de culture dans le Système Stellaire de l'Alliance, située loin de la planète Suzaku. L'énergie spirituelle y était dense; c'était un pays de culture de rang 6.
 
-On y trouvait cinq pays de culture de rang 5. Dans l'un d'eux, nommé Lune Déchue, une femme se tenait devant la salle d'alchimie, dans une montagne reculée.
+On y trouvait six pays de culture de rang 5. Dans l'un d'eux, nommé Lune Déchue, une femme se tenait devant la salle d'alchimie, dans une montagne reculée.
 
-Elle portait une robe rose en forme de papillon. Elle ne paraissait pas très âgée et était d'une grande beauté. Quelques éclats métalliques sur son sourcil droit lui donnaient un air très mignon.
+Elle portait une robe rose en forme de papillon. Elle ne paraissait pas très âgée et était d'une grande beauté. Quelques éclats de cristal sur son sourcil droit lui donnaient un air très mignon.
 
 Sa peau de jade et ses cheveux comme des nuages la rendaient irrésistible.
 
@@ -80,7 +80,7 @@ Un homme était assis dans la salle d'alchimie. Il avait une chevelure rousse et
 
 À la voix de la femme, l'homme fronça les sourcils et répondit froidement: « Je ne suis pas là! » Puis, il ferma les yeux pour se concentrer sur sa culture.
 
-En entendant cette voix glaciale, la femme fut immédiatement ravie. Elle fit quelques pas et entra directement dans la salle d'alchimie. Elle sourit et dit: « Frère Wang Lin, je ne vous dérangerai pas longtemps. Je vais juste m'asseoir un moment et je repartirai. »
+En entendant cette voix glaciale, la femme fut immédiatement ravie. Elle fit quelques pas et poussa la porte de la cour de la salle d'alchimie pour y entrer directement. Elle sourit et dit: « Senior Frère Wang, je ne vous dérangerai pas longtemps. Je vais juste m'asseoir un moment et je repartirai. »
 
 Tout en parlant, elle s'approcha de l'entrée mais n'entra pas. Elle s'assit à l'extérieur. Elle pouvait ressentir l'aura glaciale émanant de la pièce. Cette aura pénétra son corps et fit rougir ses joues, mais elle se sentit très apaisée.
 

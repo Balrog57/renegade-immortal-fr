@@ -10,7 +10,7 @@ Le tremblement provenant de son corps originel fit briller les yeux de Wang Lin.
 
 Fixant au loin le Serpent aux yeux de lune et ses innombrables tentacules oscillantes, Wang Lin était profondément choqué.
 
-« À l'époque, j'ai emprunté le Serpent aux yeux de lune pour exterminer la famille Yao et je me suis caché à l'intérieur de son corps. Je pensais que quelqu'un dans Luotian savait quelque chose sur cette créature. Quel genre d'individu pourrait capturer le Serpent aux yeux de lune pour l'envoyer dans l'Alliance comme une arme?! Serait-ce... lui?! » Wang Lin haleta, son esprit dérivant vers la silhouette qu'il avait croisée à deux reprises.
+« À l'époque, j'ai emprunté le Serpent aux yeux de lune pour échapper à la traque de la famille Yao et je me suis caché à l'intérieur de son corps. Je pensais que quelqu'un dans Luotian savait quelque chose sur cette créature. Quel genre d'individu pourrait capturer le Serpent aux yeux de lune pour l'envoyer dans l'Alliance comme une arme?! Serait-ce... lui?! » Wang Lin haleta, son esprit dérivant vers la silhouette qu'il avait croisée à deux reprises.
 
 La première fois, c'était lors de la bataille entre Qing Shui et le Dieu de Sang. La seconde, lors des 108 bénédictions célestes, lorsqu'il avait déchiré le passage entre les deux systèmes stellaires!
 
@@ -22,7 +22,7 @@ Wang Lin hésita un bref instant avant de charger lui aussi vers la gigantesque 
 
 D'innombrables cultivateurs, s'appuyant sur divers trésors, suivaient le mouvement du bois géant. Certains se trouvaient déjà dessus, bien qu'ils fussent peu nombreux; on ne comptait même pas cent personnes sur la plateforme.
 
-À l'avant de ce groupe, deux figures dominaient: l'ancêtre de la famille Zhang, Lie Yunzi, et l'ancêtre de la famille Shengong!
+À l'avant de ce groupe, deux figures dominaient: l'ancêtre de la famille Zhan, Lie Yunzi, et l'ancêtre de la famille Shengong!
 
 Ils se tenaient à la proue du bois colossal. Leurs vêtements ondulaient sans qu'aucun vent ne les touchât, leurs yeux brillaient comme des éclairs et leur regard était glacial.
 

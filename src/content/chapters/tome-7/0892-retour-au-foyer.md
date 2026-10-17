@@ -58,9 +58,9 @@ Wang Lin avançait lentement. Tout autour de lui semblait étranger, bien que de
 
 Au fil de sa marche, la mélancolie dans le cœur de Wang Lin s'accentuait. Il entrevoyait vaguement l'issue du chemin.
 
-Une immense cité s'y trouvait, grouillante de vie et de bruit. Une plaque surplombait la porte de la ville, portant trois caractères!
+Une immense cité s'y trouvait, grouillante de vie et de bruit. Une plaque à bordure dorée sur fond violet surplombait la porte de la ville, portant trois caractères!
 
-La Cité Ancestrale des Wang!
+La Cité Ancestrale!
 
 En observant la ville de loin, Wang Lin s'arrêta. L'image de sa ville natale et le souvenir de la voix de ses parents occupaient son esprit.
 
@@ -96,7 +96,7 @@ Le garçon avait une apparence si étrange et terrifiante que le serveur pâlit 
 
 Wang Lin poussa un soupir et demanda: « Serveur, y avait-il autrefois un vieux robinier ici? »
 
-Le serveur n'avait aucune intention de lui répondre, mais après avoir aperçu Ta Shan et le garçon à la grosse tête derrière Wang Lin, il répliqua: « Quel vieux robinier? J'ai grandi dans la Cité Ancestrale des Wang et je n'en ai jamais vu! »
+Le serveur n'avait aucune intention de lui répondre, mais après avoir aperçu Ta Shan et le garçon à la grosse tête derrière Wang Lin, il répliqua: « Quel vieux robinier? J'ai grandi dans la Cité Ancestrale et je n'en ai jamais vu! »
 
 La mélancolie dans les yeux de Wang Lin s'intensifia et son cœur se serra d'amertume. Il continua sa route, s'enfonçant plus profondément dans la ville, suivi par Ta Shan et le garçon à la grosse tête.
 
@@ -110,13 +110,13 @@ Le serveur fut déconcerté, mais ne prit pas cela au sérieux.
 
 Alors que Wang Lin marchait, aucun lieu ne lui parut familier. Tout était étranger. C'était comme si quelque chose obstruait son cœur et le plongeait dans un profond malaise.
 
-Soudain, Wang Lin eut un frisson. Ses mille ans de culture devinrent extrêmement fragiles et commencèrent à vaciller en lui.
+Soudain, Wang Lin eut un frisson. Ses plus de mille ans de culture devinrent extrêmement fragiles et commencèrent à vaciller en lui.
 
 Il était comme un homme ayant quitté son foyer depuis une éternité. Puis, après avoir côtoyé tous ces inconnus, il aperçut soudain quelque chose de familier.
 
 Wang Lin regarda devant lui. À mille pieds de là, une zone était entourée de murs de pierre. Des escouades de soldats patrouillaient les lieux. Il était évident que cet endroit était hautement protégé et que l'accès y était strictement interdit.
 
-De plus, une douzaine d'auras appartenant à des cultivateurs encerclaient la zone.
+De plus, plusieurs dizaines d'auras appartenant à des cultivateurs encerclaient la zone.
 
 On pouvait imaginer qu'il s'agissait du lieu le plus important de la cité!
 

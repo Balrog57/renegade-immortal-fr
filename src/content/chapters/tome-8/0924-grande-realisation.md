@@ -56,7 +56,7 @@ Il était si difficile pour les cultivateurs du deuxième stade d'augmenter leur
 
 Maître Yan Leizi retira sa main, regarda Wang Lin et éclata de rire: « Bien! Bien! Bien! »
 
-« Xu Mu, tu as accompli un exploit grandiose! Ji Xiantian était l'un des quatre saints de l'Alliance. À l'époque, il occupait le neuvième rang! Tu as fait preuve d'un mérite immense. Luotian et moi-même nous en souviendrons! » Maître Yan Leizi laissa échapper un rire satisfait. Ce Ji Xiantian était l'un de ceux qui l'avaient traqué autrefois.
+« Xu Mu, tu as accompli un exploit grandiose! Ji Xiantian était le chef des quatre saints de l'Alliance. À l'époque, il occupait le neuvième rang! Tu as fait preuve d'un mérite immense. Luotian et moi-même nous en souviendrons! » Maître Yan Leizi laissa échapper un rire satisfait. Ce Ji Xiantian était l'un de ceux qui l'avaient traqué autrefois.
 
 Ce revirement soudain des événements laissa les cultivateurs environnants avec des expressions perplexes. En particulier, Lie Yunzi et l'ancêtre de la famille Shengong regardèrent désormais Wang Lin d'un œil nouveau.
 
@@ -64,7 +64,7 @@ Le regard de Lie Yunzi trahissait de l'admiration tandis qu'il inclinait la têt
 
 L'ancêtre de la famille Shengong, toujours aussi froid, esquissa un sourire envers lui.
 
-Quant aux autres cultivateurs, le vieillard en robe noire et le jeune homme affichaient des regards complexes, mais surtout, ils admettaient leur défaite. S'ils avaient été à sa place, ils n'auraient certainement pas eu une telle détermination!
+Quant aux autres cultivateurs, le vieillard en robe noire et le jeune homme affichaient des regards complexes, mais surtout, ils éprouvaient de l'admiration. S'ils avaient été à sa place, ils n'auraient certainement pas eu une telle détermination!
 
 Il y avait aussi cette femme vêtue d'une robe de palais. Elle fixait désormais Wang Lin avec une pointe d'intérêt. Déjà magnifique, son regard lui conférait un charme irrésistible.
 
@@ -72,7 +72,7 @@ Il y avait aussi cette femme vêtue d'une robe de palais. Elle fixait désormais
 
 D'un air serein, Wang Lin activa l'énergie originelle dans son corps. Sentant sa force revenir, il prit une profonde inspiration. Il avait parié sur le bon coup!
 
-Le bois géant continuait de charger vers le champ de bataille du Nord, tandis que les cultivateurs de l'Alliance étaient repoussés. La dévoraison de Ji Xiantian par le Serpent aux yeux de lune avait ébranlé les rangs de l'Alliance, affaiblissant considérablement leur volonté de combattre.
+Le bois géant continuait de charger vers le champ de bataille du Nord, tandis que les cultivateurs de l'Alliance étaient repoussés. La dévoration de Ji Xiantian par le Serpent aux yeux de lune avait ébranlé les rangs de l'Alliance, affaiblissant considérablement leur volonté de combattre.
 
 Le Serpent aux yeux de lune rugissait avec frénésie, ses tentacules balayant la zone. Tout cultivateur touché par ces membres poussait un cri déchirant avant d'être vidé de sa substance.
 
@@ -82,11 +82,11 @@ Le Saint Démon Noir et le Saint Démon du Dragon des Nuages reculaient sans ces
 
 Mais un impact, non moins violent que celui du bois géant, approchait soudainement des profondeurs de la région Nord.
 
-D'innombrables tours, hautes de dizaines de milliers de pieds, fonçaient sur eux, chacune portant des centaines de cultivateurs. Leur intention meurtrière était si intense qu'elle semblait déchirer l'espace environnant.
+D'innombrables tours, hautes de dix mille pieds, fonçaient sur eux, chacune portant près d'une centaine de cultivateurs. Leur intention meurtrière était si intense qu'elle semblait déchirer l'espace environnant.
 
-Depuis le loin, les étoiles semblaient peuplées par ces structures. Pas moins de cent de ces tours coniques s'élançaient dans un sifflement aigu.
+De loin, les étoiles semblaient peuplées par ces structures. Pas moins de cent de ces tours coniques s'élançaient dans un sifflement aigu.
 
-Une pression écrasante s'abattit soudainement. Outre les cent tours, quatre planètes de culture gigantesques apparaissaient également. Quatre géants de dizaines de milliers de pieds transportaient ces planètes.
+Une pression écrasante s'abattit soudainement. Outre les cent tours, quatre planètes de culture gigantesques apparaissaient également. Quatre géants de dix mille pieds transportaient ces planètes.
 
 Chacun de ces quatre géants portait une marque de hache sur le front: c'étaient des membres du Clan des Démons Géants!
 
@@ -94,25 +94,25 @@ Quatre silhouettes flottaient au-dessus des planètes portées par les géants. 
 
 La quatrième personne était une femme. Vêtue d'une robe bleue, ses cheveux retombaient sur son épaule. Elle tenait un lotus à huit pétales et ses yeux de phénix étaient empreints d'une intention meurtrière alors qu'elle fixait l'horizon.
 
-L'apparition de ces cultivateurs de l'Alliance attira l'attention de tous. Les membres de l'Alliance, surpris, se rallièrent rapidement pour contenir leur retraite.
+L'apparition de ces cultivateurs de l'Alliance attira l'attention de tous. Les membres de l'Alliance, ravis, reculèrent précipitamment et se rassemblèrent aussitôt autour d'eux.
 
 Du côté de Luotian, le Dieu de Sang et les trois ancêtres observaient la scène avec froideur.
 
 Maître Yan Leizi s'avança et d'un geste de la main droite, projeta une mer de flammes vers l'avant. Simultanément, le Serpent aux yeux de lune poussa un rugissement et déploya ses tentacules.
 
-Quant aux dizaines de milliers de cultivateurs gravitant autour du bois géant, ils chargèrent immédiatement en déployant leurs trésors magiques. Une guerre totale était sur le point d'éclater!
+Quant aux dix mille et quelques cultivateurs gravitant autour du bois géant, ils chargèrent immédiatement en déployant leurs trésors magiques. Une guerre totale était sur le point d'éclater!
 
 À cet instant précis, la femme en robe bleue déclara calmement:
 
-« Salutations, Senior Wudo Chan! »
+« Je prie le Senior Wu Dongchan de se présenter! »
 
 À peine eut-elle parlé qu'un rire long et sonore retentit au loin, et un nuage noir s'élança dans la même direction.
 
 Une silhouette se tenait au cœur de ce nuage sombre. C'était un homme d'âge moyen au visage carré, vêtu d'une robe pourpre qui imposait le respect sans qu'il n'ait à exprimer la moindre colère. Autour de lui, une brume noire bouillonnait, accompagnée d'un grondement de tonnerre.
 
-« Maître Yan Leizi, votre nom m'est familier depuis longtemps! Aujourd'hui, osez-vous défier Wudo Chan? » Les paroles de l'homme étaient empreintes d'une arrogance extrême. Tandis qu'il parlait, la brume noire sous ses pieds se projeta vers Maître Yan Leizi.
+« Maître Yan Leizi, votre nom m'est familier depuis longtemps! Aujourd'hui, osez-vous défier Wu Dongchan? » Les paroles de l'homme étaient empreintes d'une arrogance extrême. Tandis qu'il parlait, la brume noire sous ses pieds se projeta vers Maître Yan Leizi.
 
-Maître Yan Leizi ne connaissait pas ce Wudo Chan. Il était évident que cet homme avait rejoint l'Alliance après son départ, mais il ne le sous-estima pas. L'aura dégagée par cet individu imposait un sérieux absolu.
+Maître Yan Leizi ne connaissait pas ce Wu Dongchan. Il était évident que cet homme avait rejoint l'Alliance après son départ, mais il ne le sous-estima pas. L'aura dégagée par cet individu imposait un sérieux absolu.
 
 « Si tu veux combattre, alors combattons! » Alors que la voix glaciale de Maître Yan Leizi résonnait, il s'élança pour pénétrer dans la brume noire. Cette dernière s'éleva soudainement et se mit à tourbillonner violemment, tandis que des rafales de sorts de feu provoquaient des explosions successives!
 

@@ -50,17 +50,17 @@ En un instant, la planète Suzaku fut plongée dans le silence.
 
 Cela n'était dû qu'au fait que le garçon à la grosse tête ne souhaitait pas massacrer les mortels. Autrement, d'un simple balayage de son sens divin, tout aurait péri!
 
-Sous l'assaut de son sens divin, seules quelques âmes d'exception continuaient de lutter. Zhou Wutai, possédant la lignée d'un dragon et ayant hérité du Cristal de Culture Planétaire, laissa échapper un rugissement tandis qu'une lumière verte enveloppait son corps. Cette lueur se mua en écailles verdâtres et une aura puissante jaillit de lui. Dans le ciel, un dragon vert de mille pieds de long apparut et poussa un rugissement vers les cieux.
+Sous l'assaut de son sens divin, seules quelques âmes d'exception continuaient de lutter. Zhou Wutai, possédant la lignée d'un dragon et ayant hérité du Cristal d'Ascendant, laissa échapper un rugissement tandis qu'une lumière verte enveloppait son corps. Cette lueur se mua en écailles verdâtres et une aura puissante jaillit de lui. Dans le ciel, un dragon vert de mille pieds de long apparut et poussa un rugissement vers les cieux.
 
-Yun Quezi était couvert de tatouages dorés. Son visage était pâle et ses veines saillantes. À cet instant, il eut l'illusion de faire face aux forces mêmes du ciel et de la terre.
+Yun Quezi était couvert de runes dorées. Son visage était pâle et ses veines saillantes. À cet instant, il eut l'illusion de faire face aux forces mêmes du ciel et de la terre.
 
 Rugissement!
 
-Bien que Yun Quezi fût vieux, il poussa un rugissement. L'ombre illusoire d'un arbre titanesque apparut dans le ciel. Cet arbre dégageait une aura puissante qui ne cessait de croître. Sous cette pression intense, il était en pleine percée! C'était comme si une pensée émanant de ce sens divin le forçait à céder, comme si cette pensée provenait d'une empreinte gravée au plus profond de son âme.
+Bien que Yun Quezi fût vieux, il poussa un rugissement. L'ombre illusoire d'un arbre titanesque apparut dans le ciel. Cet arbre dégageait une aura puissante qui ne cessait de croître. Sous cette pression intense, il était en pleine percée! C'était comme si une pensée émanant de ce sens divin voulait le forcer à céder. Il n'avait jamais connu une telle sensation, comme si cette pensée provenait d'une empreinte gravée au plus profond de son âme.
 
 Un ricanement froid tonna depuis le ciel. Dès que ce bruit retentit, il créa des ondes de choc soniques. La terre trembla et l'on eut l'impression que le ciel basculait.
 
-Le corps de Yun Quezi trembla et il cracha une large bouchée de sang. Tous les tatouages qui le recouvraient s'effondrèrent, et il afficha un sourire misérable. Ce n'était pas la puissance de l'adversaire qui l'avait brisé, mais un instinct viscéral qui l'obligeait à se soumettre.
+Le corps de Yun Quezi trembla et il cracha une large bouchée de sang. Toutes les runes qui le recouvraient s'effondrèrent, et il afficha un sourire misérable. Ce n'était pas la puissance de l'adversaire qui les avait brisées, mais cette volonté qui l'obligeait à se soumettre.
 
 Le garçon à la grosse tête gardait une expression calme alors qu'il descendait, les mains derrière le dos. Le vent soufflait vers lui, mais il s'inversait immédiatement, comme si les éléments n'osaient pas l'approcher.
 
@@ -96,7 +96,7 @@ Après tout, il avait péri de sa main; l'apparence de Xu Mu était gravée dans
 
 Il fixa la statue avec stupeur. Le garçon comprit enfin pourquoi ces deux cultivateurs s'étaient enfuis. Xu Mu était trop célèbre, et même lui ressentait l'impérieuse envie de fuir.
 
-Tie Yan était assis sur la place, près de la statue. Il la contemplait en ricanant.
+Tie Yan était assis sur la place, près de la statue. Il fixait le garçon à la grosse tête en ricanant sans cesse.
 
 Les yeux de Yun Quezi, gravement blessé, s'illuminèrent. Il avait naturellement remarqué l'expression du garçon à la grosse tête. En voyant que même ce dernier était terrifié devant la statue du jeune garçon, Wang Lin, Yun Quezi fut frappé de stupeur.
 

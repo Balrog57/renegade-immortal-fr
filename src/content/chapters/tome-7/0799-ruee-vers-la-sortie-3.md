@@ -14,7 +14,7 @@ Alors qu'il était assis, Wang Lin dévora l'âme originelle qu'il tenait en mai
 
 Un vent noir apparut instantanément. Il se mua en un dragon noir qui chargea l'homme en robe bleue. Le visage de ce dernier changea radicalement et il battit en retraite précipitamment. Cependant, à cet instant précis, le dragon noir ouvrit la gueule et cracha un souffle de vent noir et glacial.
 
-Le rugissement du vent emplira le monde. Les yeux de l'homme en robe bleue s'obscurcirent alors qu'il luttait désespérément. Il ne remarqua pas qu'une faille spatiale de dix mètres de long s'était ouverte derrière lui; en reculant, il fit un pas directement dans la déchirure.
+Le rugissement du vent emplit le monde. Les yeux de l'homme en robe bleue s'obscurcirent alors qu'il luttait désespérément. Il ne remarqua pas qu'une faille spatiale de dix mètres de long s'était ouverte derrière lui; en reculant, il fit un pas directement dans la déchirure.
 
 Son corps disparut sans laisser de trace, emporté par un hurlement de désespoir. Seul ce cri de détresse continua de résonner à travers le vide.
 
@@ -24,7 +24,7 @@ Ceux qui avaient été témoins de son combat contre l'étrange homme aux cheveu
 
 En revanche, les cultivateurs qui n'avaient jamais vu Wang Lin étaient sous le choc. En particulier, ceux qui hésitaient à payer se sentirent soudainement chanceux. Certains, qui avaient eu l'intention de voler le fragment à Wang Lin, en furent couverts de sueur froide, terrifiés par la situation.
 
-Après cela, un silence total enveloppa le fragment. Une pression intangible s'y installa: c'était le respect et la crainte que leur inspirait la majesté dont Wang Lin dégageait.
+Après cela, un silence total enveloppa le fragment. Une pression intangible s'y installa: c'était le respect et la crainte que leur inspirait la majesté que Wang Lin dégageait.
 
 Le fragment volait de plus en plus vite. Après plusieurs heures, les yeux de Wang Lin se plissèrent lorsqu'il aperçut au loin un rayon d'énergie d'épée. La personne située dans ce faisceau lumineux était Shengong Hu.
 
@@ -60,7 +60,7 @@ Wang Lin fronça légèrement les sourcils alors que le fragment vacillait pour 
 
 De plus, une formation y était établie. Plusieurs individus s'y tenaient, manifestement prêts pour le transfert. L'un d'eux était Zhan Konglie. À l'extérieur de la formation, sept ou huit messagers du Temple Céleste du Tonnerre semblaient échanger entre eux.
 
-Soudain, ils semblèrent remarquer une présence et se retournèrent brusquement pour lancer un regard glacial vers Wang Lin. L'un d'eux leva la main et pointa une clé. Une fluctuation d'énergie originelle jaillit soudainement de l'écran de lumière.
+Soudain, ils semblèrent remarquer une présence et se retournèrent brusquement pour lancer un regard glacial vers Wang Lin. L'un d'eux leva la main droite et pointa le ciel. Une fluctuation d'énergie originelle jaillit soudainement de sa paume et se fondit dans l'écran de lumière alentour.
 
 Cette énergie s'assembla pour former une main gigantesque qui balaya immédiatement la zone. Toutes les fissures autour de l'écran commencèrent à s'étendre, comme si elles allaient se rejoindre pour former un fossé infranchissable.
 
@@ -76,7 +76,7 @@ En un instant, le fragment chargea avec une fureur déchaînée, broyant toutes 
 
 Le fragment laissait presque des images rémanentes derrière lui en ravageant le vide. Des grondements assourdissants retentirent alors que l'engin fonçait comme une météorite vers l'écran de lumière, tentant de l'atteindre avant que les failles spatiales ne se rejoignent.
 
-Wang Lin se leva et frappa son sac de rangement. L'épée céleste apparut dans sa main. Il leva l'arme et la abattit derrière lui. Cette fois, Wang Lin ne frappa pas une seule fois, mais neuf!
+Wang Lin se leva et frappa son sac de rangement. L'épée céleste apparut dans sa main. Il leva l'arme et l'abattit. Cette fois, Wang Lin ne frappa pas une seule fois, mais neuf!
 
 Neuf rayons du Coup Céleste fusionnèrent pour former une loi d'épée inimaginable. Elle s'élança comme un trait de lumière noire et percuta les failles spatiales qui commençaient à se rejoindre.
 
@@ -86,9 +86,9 @@ Bien que les failles spatiales fussent connectées, la puissance du Coup Célest
 
 La force du Coup Céleste persista alors qu'elle traversait la faille pour frapper l'écran de lumière. De vastes ondulations parcoururent la surface et tout ce qui se trouvait à l'intérieur fut déformé.
 
-Simultanément, le fragment chargea avec la puissance d'une armée entière. Il percuta l'écran de lumière tel un météore, juste après l'impact du Coup Céleste.
+Simultanément, le fragment chargea avec un élan écrasant. Il percuta l'écran de lumière tel un météore, juste après l'impact du Coup Céleste.
 
-Un bruit fracassant, qui provoqua la fermeture des failles environnantes, résonna soudainement dans le vide. Même les messagers du Temple Céleste du Tonnerre à l'intérieur tournèrent la tête. Lorsque Zhan Konglie aperçut Wang Lin, son visage s'illumina d'excitation.
+Un bruit fracassant, qui provoqua l'effondrement des petites fissures alentour, résonna soudainement dans le vide. Même les messagers du Temple Céleste du Tonnerre à l'intérieur tournèrent la tête. Lorsque Zhan Konglie aperçut Wang Lin, son visage s'illumina d'excitation.
 
 Une fois le bruit passé, une série de craquements retentit alors que d'innombrables fissures se propagèrent sur l'écran de lumière.
 
@@ -104,10 +104,10 @@ Tout s'était produit à une vitesse fulgurante; cela n'avait pris que quelques 
 
 L'un d'eux cria rapidement: « Senior, ne vous souciez pas de lui, nous allons nous en occuper! »
 
-Wang Lin hocha la tête et le fragment recula légèrement. Cette fois, il se prépara pendant dix secondes. Mais il n'était pas le seul: tous les cultivateurs sautèrent du fragment et posèrent leurs mains sur celui-ci.
+Wang Lin hocha la tête et le fragment recula légèrement. Cette fois, il se prépara pendant dix respirations. Mais il n'était pas le seul: tous les cultivateurs sautèrent du fragment et posèrent leurs mains sur celui-ci.
 
 Chacun utilisa toute sa puissance, fusionnant sous la direction de Wang Lin avant d'être projeté en avant. La force combinée de toutes ces personnes forma une arête tranchante à l'avant du fragment.
 
 Un grondement titanesque secoua le vide lorsque le fragment percuta l'écran de lumière, provoquant son effondrement final.
 
-D'innombrables éclats de l'écran se dispersèrent et plus de la moitié du fragment s'écrasa sur ce morceau de ciel. Les cultivateurs s'y précipitèrent immédiatement; soudain, ce fragment céleste abritant la formation de transfert fut envahi par une foule de cultivateurs enragés cherchant désespérément un moyen de survivre!
+D'innombrables éclats de l'écran se dispersèrent et plus de la moitié du fragment pénétra dans ce morceau de ciel. Les cultivateurs s'y précipitèrent immédiatement; soudain, ce fragment céleste abritant la formation de transfert fut envahi par une foule de cultivateurs enragés cherchant désespérément un moyen de survivre!

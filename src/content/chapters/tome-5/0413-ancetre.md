@@ -80,9 +80,9 @@ Le vieil homme s'immobilisa, terrifié.
 
 Le visage du vieil homme était lugubre lorsqu'il dit lentement: « Monsieur, selon l'accord, le pays de Suzaku a renoncé à tous les pays de culture de rang 3 pour nous permettre de retarder notre attaque sur les pays de culture de rang 4. Voulez-vous rompre cet accord? »
 
-Wang Lin fronça les sourcils et demanda: « Qui a conclu cet accord avec vous? Zhuque Zi? »
+Wang Lin fronça les sourcils et demanda: « Qui a conclu cet accord avec vous? Zhu Quezi? »
 
-Le vieil homme fut surpris. Il jeta un regard à Wang Lin et répondit: « Puisque vous êtes un cultivateur de la Transformation de l'Âme, vous devez connaître Qian Feng. C'est lui qui représentait Zhuque Zi et a signé l'accord avec notre jeune maître. »
+Le vieil homme fut surpris. Il jeta un regard à Wang Lin et répondit: « Puisque vous êtes un cultivateur de la Transformation de l'Âme, vous devez connaître Qian Feng. C'est lui qui représentait Zhu Quezi et a signé l'accord avec notre jeune maître. »
 
 « Qian Feng... » Les yeux de Wang Lin devinrent graves. Il avait entendu ce nom à deux reprises: une fois par Liu Mei, et la seconde était maintenant.
 
@@ -126,4 +126,4 @@ Il se trouvait actuellement à un demi-pas du stade de la Transformation de l'Â
 
 Wang Lin regarda l'endroit où le vieil homme du Clan Immortel Abandonné avait péri et commença à réfléchir.
 
-« Zhuque Zi ne ferait pas un tel marché avec le Clan Immortel Abandonné. C'est étrange... Et il y a aussi Qian Feng... » Les yeux de Wang Lin s'illuminèrent.
+« Zhu Quezi ne ferait pas un tel marché avec le Clan Immortel Abandonné. C'est étrange... Et il y a aussi Qian Feng... » Les yeux de Wang Lin s'illuminèrent.

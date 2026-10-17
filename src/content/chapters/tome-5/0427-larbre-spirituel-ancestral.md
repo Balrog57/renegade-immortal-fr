@@ -92,7 +92,7 @@ Les deux diacres cadavres suivirent prestement, et les trois s'évanouirent dans
 
 Le même spectacle se produisit aux confins nord, sud et ouest du continent Suzaku.
 
-Malheureusement, à l'exception de Zhuque Zi qui réussit à détruire l'arbre de la réincarnation à l'ouest, les tentatives au sud et à l'est échouèrent. Cependant, une scène étrange se déroula près de l'arbre du nord.
+Malheureusement, à l'exception de Zhu Quezi qui réussit à détruire l'arbre de la réincarnation à l'ouest, les tentatives au sud et à l'est échouèrent. Cependant, une scène étrange se déroula près de l'arbre du nord.
 
 La silhouette de Situ Nan se déplaçait comme un spectre et pénétra silencieusement dans la brume noire. Personne ne remarqua son arrivée, pas même le quatrième ancêtre qui gardait les lieux.
 

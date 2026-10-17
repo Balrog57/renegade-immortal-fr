@@ -60,7 +60,7 @@ L'Ancien Dieu était le dieu de l'espace!
 
 À l'époque où les Anciens Dieux rôdaient, tous les êtres vivants devaient les respecter!
 
-En cet instant, des millénaires après la disparition des Anciens Dieux, ce rugissement semblait déclarer leur retour!
+En cet instant, d'innombrables dizaines de milliers d'années après la disparition des Anciens Dieux, ce rugissement semblait déclarer leur retour!
 
 C’est seulement à ce moment que Wang Lin acquit la majesté d'un Ancien Dieu! Il était un Ancien Dieu!
 
@@ -78,7 +78,7 @@ Cette empreinte n'était pas un outil que les cultivateurs pouvaient utiliser; c
 
 « Puisque le système stellaire de l'Alliance abrite le Clan des Démons Géants, personne ne pensera que mon corps de trois cents mètres est celui d'un Ancien Dieu! » Ses yeux devinrent glacials. Comparé à un Ancien Dieu adulte, son corps était insignifiant et faible; ainsi, nul ne soupçonnerait sa véritable nature en le voyant.
 
-Sans aucune expression, il traversa la Planète Sanguine. Ayant consulté la carte stellaire donnée par l'Omniscient par le passé, il savait naturellement où se trouvait la Planète Sanguine.
+Sans aucune expression, il se dirigea vers la Planète Sanguine. Ayant consulté la carte stellaire donnée par l'Omniscient par le passé, il savait naturellement où se trouvait la Planète Sanguine.
 
 Alors qu'il progressait dans l'espace, ses yeux se plissèrent. Il aperçut plusieurs fragments rocheux de tailles diverses flottant dans le vide.
 

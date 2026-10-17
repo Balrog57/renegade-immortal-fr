@@ -40,7 +40,7 @@ Wang Lin effleura vaguement l'essence même de la loi. Un sourire apparut sur se
 
 Tout en riant, il regagna le sommet de la montagne d'un seul pas. Il se tint là et leva les yeux vers les nuages. À cet instant, la pluie tombait toujours, mais elle se transformait en vapeur d'eau à trois pouces de lui. Bientôt, une couche de nuages enveloppa Wang Lin.
 
-Cette scène était identique à celle de l'arrivée de Maître Yan Leizi. Cependant, les nuages autour de Wang Lin étaient ténus. Ceux de Maître Yan Leizi semblaient capables de faire s'effondrer le monde sur simple ordre.
+Cette scène était identique à celle de l'arrivée de Maître Yan Leizi. Cependant, les nuages autour de Wang Lin étaient ténus et instables. Ceux de Maître Yan Leizi semblaient capables de faire s'effondrer le monde sur simple ordre.
 
 Pourtant, si le sens divin de Maître Yan Leizi descendait sur la planète et voyait cela, il en serait stupéfait. Car ce nuage n'était pas causé par un sort d'énergie originelle, mais était un signe manifeste des lois.
 
@@ -52,7 +52,7 @@ Ce n'était pas une prouesse qu'un simple sort céleste pouvait offrir. Très pe
 
 « La pluie vient des nuages et ces nuages viennent aussi de l'eau. Cependant, sans vent, le nuage ne peut se former! » Cet héritage venait de Qing Shui, et bien qu'il n'ait pas apporté de compréhension directe à Wang Lin, il lui avait donné une connaissance des lois. Pour cela, Wang Lin éprouvait une gratitude encore plus profonde envers Qing Shui.
 
-« Je ne pensais pas que Situ maîtrisait la loi à l'époque... » La scène où Situ Nan émergeait de la perle défiant le ciel revint dans l'esprit de Wang Lin. Il pleuvait lorsque Situ avait crié: « Dégagez de là! »
+« Je ne pensais pas que Situ maîtrisait la loi à l'époque... » La scène où Situ Nan émergeait de la perle défiant le ciel revint dans l'esprit de Wang Lin. Il pleuvait lorsque Situ avait crié: « Dispersez-vous pour moi! »
 
 À cet instant précis, la pluie s'était transformée en nuages avant de disparaître rapidement. Tous les nuages du ciel s'étaient effondrés, révélant un ciel pur!
 
@@ -108,7 +108,7 @@ Wang Lin s'assit au sol, le regard serein. Il avait compris *Invoquer la Pluie*,
 
 Il n'y avait pas qu'une seule silhouette, mais d'innombrables formes traversant les étoiles. De nombreuses ondulations se propageaient autour d'elles, les faisant avancer encore plus vite.
 
-Après avoir pénétré dans la région occidentale, elles rencontrèrent peu après une équipe de cultivateurs Luotian. Le chef de file était le cultivateur aux six doigts. Il dirigeait l'équipe vers le nord. La région occidentale étant sous le contrôle de Luotian, en tant qu'être céleste, il devait naturellement ouvrir la voie vers le nord.
+Après avoir pénétré dans la région occidentale, elles rencontrèrent peu après une équipe de cultivateurs Luotian. Le chef de file était le cultivateur aux six doigts. Il dirigeait l'équipe vers le nord. La région occidentale étant sous le contrôle de Luotian, en tant qu'avant-garde, il devait naturellement ouvrir la voie vers le nord.
 
 Tout au long du trajet, il faisait preuve d'une prudence extrême. Son sens divin était déployé afin que, au moindre signe de trouble, il puisse réagir immédiatement.
 
@@ -116,7 +116,7 @@ Dès que les silhouettes aperçurent le cultivateur aux six doigts et les cent a
 
 Alors qu'il progressait, le cultivateur aux six doigts ressentit soudain un sentiment de danger. Une douleur aiguë irradia de son sixième doigt, le terrifiant et le forçant à s'arrêter net. C'est alors qu'il vit les innombrables silhouettes s'abattre sur eux.
 
-Ses pupilles se contractèrent sous le choc. Il frappa sa sacoche magique pour en sortir une rune de message et la broya. Plutôt que de fuir, il chargea, mais à cet instant, la moitié des figures illusoires encerclèrent le cultivateur aux six doigts tandis que le reste s'élançait sur les cultivateurs derrière lui.
+Ses pupilles se contractèrent sous le choc. Il frappa son sac de rangement pour en sortir une rune de message et la broya. Plutôt que de fuir, il chargea, mais à cet instant, la moitié des figures illusoires encerclèrent le cultivateur aux six doigts tandis que le reste s'élançait sur les cultivateurs derrière lui.
 
 Des vagues de cris déchirants résonnèrent, accompagnées d'une pluie de sorts. Un instant plus tard, le cultivateur aux six doigts recula en panique, mais au moment où il tentait de s'échapper, une masse d'ombres noires pénétra son corps.
 

@@ -32,7 +32,7 @@ Du début à la fin, Li Qiqing n'avait pas levé la tête, comme s'il n'était n
 
 Le temps passa. Après un long moment, Li Qiqing prit une profonde inspiration et retrouva sa lucidité. Il regarda attentivement Li Muwan à l'intérieur du cercueil, comme s'il voulait graver l'image de sa sœur dans son cœur. Puis, il se leva et s'éloigna dans le lointain sans même un regard pour Wang Lin.
 
-Avec la mort de l'Ancêtre du Sang Écarlate, les lignes rouges sur le visage de Li Qiqing se brisèrent.
+Avec la mort de l'Ancêtre du Sang Écarlate, les runes de sang sur le visage de Li Qiqing furent brisées.
 
 Wang Lin observa la silhouette de Li Qiqing sans dire un mot. Il comprenait ses pensées. L'indifférence de Li Qiqing signifiait qu'il ne souhaitait aucun lien avec lui.
 
@@ -88,13 +88,13 @@ Dans le pays de Suzaku, devant une secte, un vieux cultivateur ressemblant trait
 
 Wang Lin contempla la terre avant de faire un pas et de disparaître. Lorsqu'il réapparut, il se trouvait dans une vallée. Celle-ci était restée identique à son départ.
 
-« Le karma est réglé, il est temps de partir... Cependant, avant de m'en aller, je dois me rendre dans ce lieu au sein du Clan Immortel Délaissé. Hélas, je ne trouve toujours pas de moyen d'augmenter l'énergie d'origine céleste en mon corps... Sinon, je pourrais étudier l'Arsenal Magique. » Le regard de Wang Lin restait calme tandis qu'il contemplait l'horizon.
+« Le karma est réglé, il est temps de partir... Cependant, avant de m'en aller, je dois me rendre dans ce lieu au sein du Clan Immortel Délaissé. Hélas, je ne trouve toujours pas de moyen d'augmenter l'énergie d'origine céleste des haricots célestes en mon corps... Sinon, je pourrais étudier l'Arsenal Magique. » Le regard de Wang Lin restait calme tandis qu'il contemplait l'horizon.
 
 Dans le Système Stellaire de l'Alliance, il existait un système isolé où s'élevaient d'innombrables édifices noirs. Ces bâtiments, de styles variés, ressemblaient à de gigantesques épées plantées dans le vide.
 
 Au centre se dressait une tour, haute de dizaines de milliers de pieds. Des chaînes noires parcouraient toute la structure, la reliant aux bâtiments environnants.
 
-L'Alliance des Cultivateurs était divisée en deux sectes, quatre temples et huit domaines. Il s'agissait du domaine de l'Abattage!
+L'Alliance des Cultivateurs était divisée en deux palais, quatre vénérables et huit domaines. Il s'agissait du domaine de l'Abattage!
 
 Une silhouette fantomatique surgit du vide. Elle se déplaça avec la rapidité de l'éclair pour atterrir au-dessus d'un bâtiment. La figure s'agenouilla, révélant qu'il s'agissait d'un vieil homme. Il s'inclina vers la tour centrale et déclara: « Des traces du nouveau Céleste du Tonnerre de Luotian, Xu Mu, ont été découvertes! »
 

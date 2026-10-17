@@ -82,7 +82,7 @@ Une fleur trônait au sommet de cette entité végétale. Lorsqu'elle s'ouvrit, 
 
 Un rugissement strident retentit, créant une tempête qui chargea vers Wang Lin. L'expression du jeune homme devint glaciale. Il y avait un Sens Divin à l'intérieur de cette plante; ce n'était pas une simple créature végétale.
 
-« Senior, le Sens Divin d'un Vice-Maître de Salle de la Secte des Cadavres se trouve dans la plante. Mon corps a été préparé pour ce chef de section. Si vous n'étiez pas venu, je crains que lorsque ma force vitale sera épuisée dans quelques centaines d'années, il ne puisse posséder mon corps sans aucune entrave... » Bien que son Sens Divin faiblisse, Lei Ji luttait encore pour parler.
+« Senior, le Sens Divin d'un Vice-Maître de Salle de la Secte des Cadavres se trouve dans la plante. Mon corps a été préparé pour ce Vice-Maître de Salle. Si vous n'étiez pas venu, je crains que lorsque ma force vitale sera épuisée dans quelques centaines d'années, il ne puisse posséder mon corps sans aucune entrave... » Bien que son Sens Divin faiblisse, Lei Ji luttait encore pour parler.
 
 En entendant cela, un éclair de compréhension traversa l'esprit de Wang Lin.
 

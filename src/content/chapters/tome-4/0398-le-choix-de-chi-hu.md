@@ -154,13 +154,13 @@ La fusion de l'avatar et du corps original, l'union d'un cultivateur au stade av
 
 C'était un Dieu Ancien! Un Dieu Ancien à trois étoiles!
 
-Wang Lin avait tout anticipé. S'il continuait à cacher sa force comme auparavant, il ne ferait qu'attirer les ennuis. Il valait mieux utiliser le meurtre de Li Yuanfeng et de l'ancêtre du clan comme exemples pour montrer au monde entier, et particulièrement à Zhuque Zi, qu'il n'était pas un pion!
+Wang Lin avait tout anticipé. S'il continuait à cacher sa force comme auparavant, il ne ferait qu'attirer les ennuis. Il valait mieux utiliser le meurtre de Li Yuanfeng et de l'ancêtre du clan comme exemples pour montrer au monde entier, et particulièrement à Zhu Quezi, qu'il n'était pas un pion!
 
 Depuis son arrivée dans le pays de Suzaku, Wang Lin ressentait une atmosphère oppressante. Cela était dû au pays et à la montagne de Suzaku. L'apparition de Liu Mei avait agi comme un levier soulevant un coin du brouillard, lui confirmant qu'il était pris dans un complot.
 
 Avec son tempérament, comment aurait-il pu accepter d'être manipulé? C'est pourquoi il n'avait pas hésité à montrer sa pleine puissance. Il ne voulait pas être un pion. Et s'il devait l'être, il serait un pion couvert d'épines, faisant saigner quiconque tenterait de le toucher.
 
-Même si la vérité sur sa nature de Dieu Ancien était révélée, il avait une issue. Les Dieux Anciens avaient disparu depuis des éons et n'étaient plus que des légendes. Même si Zhuque Zi voyait Wang Lin, il ne pourrait confirmer s'il s'agissait réellement d'un tel être. Après tout, certains se concentraient sur le raffinement de leur corps; le Clan des Démons Géants en était l'illustration parfaite.
+Même si la vérité sur sa nature de Dieu Ancien était révélée, il avait une issue. Les Dieux Anciens avaient disparu depuis des éons et n'étaient plus que des légendes. Même si Zhu Quezi voyait Wang Lin, il ne pourrait confirmer s'il s'agissait réellement d'un tel être. Après tout, certains se concentraient sur le raffinement de leur corps; le Clan des Démons Géants en était l'illustration parfaite.
 
 Wang Lin avait déjà tout prévu. Il n'avait pas l'intention de rester longtemps à Suzaku; il comptait partir pour la planète Tian Yun une fois qu'il aurait obtenu le drapeau d'un milliard d'âmes!
 

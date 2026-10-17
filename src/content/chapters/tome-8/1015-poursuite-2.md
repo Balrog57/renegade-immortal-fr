@@ -104,7 +104,7 @@ Il avait vaguement compris la nature de cet espace au sein du vide. En étendant
 
 Cette découverte fut une révélation pour le Wang Lin alors qu'il était dans l'incertitude.
 
-Afin de rassembler davantage d'énergie démoniaque et de réduire le temps nécessaire, il utilisa résolument le Doigt Démoniaque pour l'absorber. Il l'absorbait avec une rapidité propre à un véritable cultivateur démoniaque.
+Afin de rassembler davantage d'énergie démoniaque et de réduire le temps nécessaire, il utilisa résolument le Doigt Démoniaque, des myriades de fois par jour, pour l'absorber. Il l'absorbait avec une rapidité propre à un véritable cultivateur démoniaque.
 
 Cela lui permit de disposer d'une puissance démoniaque colossale, mais le prix était lourd. Non seulement l'apparence de Wang Lin avait changé, mais il portait désormais une intention démoniaque en lui.
 
@@ -124,9 +124,9 @@ Le sens divin en fuite s'arrêta soudainement. Il ne cherchait plus à s'échapp
 
 Au moment où le sens divin fut sectionné, Wang Lin cracha une large bouchée de sang. Le sang brilla intensément; Wang Lin s'y engouffra et s'élança en avant.
 
-L'Évasion par le Sang!
+L'Évasion Sanguine!
 
-Cette technique consistait à se blesser soi-même pour obtenir un gain de vitesse extrême. La raison pour laquelle Wang Lin ne l'avait pas utilisée contre le tourbillon il y a six mois était que ce dernier absorbait constamment du gaz gris et augmentait en vitesse. L'Évasion par le Sang n'offrait qu'une brève poussée de célérité. En fin de compte, il n'aurait pas pu s'échapper.
+Cette technique consistait à se blesser soi-même pour obtenir un gain de vitesse extrême. La raison pour laquelle Wang Lin ne l'avait pas utilisée contre le tourbillon il y a six mois était que ce dernier absorbait constamment du gaz gris et augmentait en vitesse. L'Évasion Sanguine n'offrait qu'une brève poussée de célérité. En fin de compte, il n'aurait pas pu s'échapper.
 
 La lueur sanguine jaillit et la vitesse de Wang Lin augmenta considérablement. Il ignora le fragment de sens divin sectionné et continua de charger dans la direction d'où provenait la perception originale. S'appuyant sur la faible quantité d'énergie démoniaque restante, il s'élança pour poursuivre ce sens divin amputé!
 

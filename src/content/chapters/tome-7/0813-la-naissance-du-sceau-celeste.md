@@ -14,7 +14,7 @@ Bien que ce messager n'ait pas accordé une importance capitale à ce trésor, c
 
 En vérité, non seulement lui, mais n'importe quel cultivateur de l'Yin Illusoire ou du Yang Corporel aurait eu le cœur serré en voyant ce que Wang Lin venait de faire. Après tout, si l'on détruit son trésor pour obtenir quelque chose de sans valeur, ou d'une valeur inférieure à l'objet original, on ne fait preuve que de folie.
 
-Si des cultivateurs du premier niveau avaient vu Wang Lin, ils n'auraient pas eu le cœur serré; ils auraient ressenti un choc, un immense choc! Il faut dire que si ce genre de trésor était apparu sur la planète Suzaku il y a huit cents ans, cela aurait déclenché une tempête, et même Zhuque Zi s'en serait emparée.
+Si des cultivateurs du premier niveau avaient vu Wang Lin, ils n'auraient pas eu le cœur serré; ils auraient ressenti un choc, un immense choc! Il faut dire que si ce genre de trésor était apparu sur la planète Suzaku il y a huit cents ans, cela aurait déclenché une tempête, et même Zhu Quezi s'en serait emparée.
 
 Inconsciemment, après mille ans de culture, Wang Lin avait atteint un tel état d'esprit qu'il était prêt à briser un trésor de cette trempe simplement pour percer le sortilège qui y était scellé.
 

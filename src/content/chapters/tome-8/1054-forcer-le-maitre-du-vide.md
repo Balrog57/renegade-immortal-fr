@@ -20,7 +20,7 @@ De plus, bien qu'il ait été piégé dans la Terre des Esprits Démoniaques dur
 
 « Votre frère aîné, le Maître Zhong Xuan, était déjà une figure illustre avant l'effondrement du Royaume Céleste et était considéré comme l'un des plus puissants cultivateurs. Lors de l'effondrement, il fut parmi les premiers, aux côtés de l'Empereur Divin Dragon Azure des Quatre Sectes Divines, à risquer sa vie pour piller le Royaume Céleste.
 
-« En fin de compte, il utilisa une méthode inconnue pour s'emparer de la majeure partie des héritages du Royaume Céleste de la Pluie, et ce n'est qu'alors que l'Alliance de Culture fut établie! Moi, Bei Lou, j'admire réellement un tel homme, mais vous... » Bei Lou secoua la tête, le regard moqueur.
+« En fin de compte, il utilisa une méthode inconnue pour s'emparer de la majeure partie des héritages du Royaume Céleste, et ce n'est qu'alors que l'Alliance de Culture fut établie! Moi, Bei Lou, j'admire réellement un tel homme, mais vous... » Bei Lou secoua la tête, le regard moqueur.
 
 L'expression du Maître du Vide devint sombre. Leurs regards l'irritaient profondément, mais il réprima sa colère. Il pointa Wang Lin du doigt et déclara: « J'ai un différend personnel avec ce cadet. Puisque vous, autres cultivateurs, êtes intervenus, je vais laisser cette affaire de côté pour l'instant. Je promets de ne pas causer de problèmes à ce junior tant que nous resterons dans cette grotte. Je présume que vous êtes ici pour collaborer afin d'atteindre l'étage suivant. Pourquoi gâcher l'ambiance? Si cela compromet nos chances de progresser, cela n'en vaudra pas la peine. »
 
@@ -52,7 +52,7 @@ Wang Wei dit calmement: « Scellement! »
 
 Ce dernier sembla instantanément cesser de tourner avant de s'effondrer brutalement, se transformant en d'innombrables fragments de terre qui furent projetés dans toutes les directions.
 
-Les stratagèmes du Maître du Vide furent totalement anéantis par l'attaque de Wang Lin. L'audace et la ruse de ce dernier stupéfièrent le Maître du Vide; il savait qu'un tel acte décisif était impossible pour un jeune homme de l'âge de Wang Lin.
+Les stratagèmes du Maître du Vide furent totalement anéantis par l'attaque de Wang Lin. L'audace et la ruse de ce dernier stupéfièrent le Maître du Vide; il devait admettre qu'à l'âge de Wang Lin, lui-même n'aurait jamais été capable d'un tel acte décisif.
 
 Parmi tous les juniors qu'il avait rencontrés, peu égalaient Wang Lin.
 

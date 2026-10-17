@@ -16,7 +16,7 @@ En contemplant l'instrument, ses yeux s'illuminèrent soudainement, et une puiss
 
 Il n'agit pas immédiatement; il resta immobile en silence pour ajuster l'énergie spirituelle démoniaque de son corps afin de s'assurer d'être au sommet de sa forme. Après tout, il n'avait aucune certitude de pouvoir faire retentir ce tambour, car à ses yeux, celui-ci était une relique sacrée.
 
-L'homme en armure dorée observa Yu Sen et pensa: « Avec la culture de Yu Sen, il devrait pouvoir le faire résonner quatre fois. S'il force un cinquième coup, il sera broyé! » Il ne jeta qu'un bref regard avant de fermer les yeux.
+L'homme en armure dorée observa Yu Sen et pensa: « Avec la culture de Yu Sen, il devrait pouvoir le faire résonner quatre fois. S'il force un cinquième coup, son sang et son souffle vital s'effondreront! » Il ne jeta qu'un bref regard avant de fermer les yeux.
 
 Tous les regards convergeaient vers Yu Sen, mais celui-ci leur était totalement indifférent. Pour éviter d'être perturbé par autrui, il ferma les yeux et fit abstraction du monde extérieur.
 
@@ -56,7 +56,7 @@ Le visage de Yu Sen pâlit et ses yeux se remplirent d'une intention meurtrière
 
 Le son du tambour tomba comme la foudre.
 
-Yu Sen poussa un rugissement et l'énergie spirituelle démoniaque autour de lui prit la forme de divers visages. Chacun arborait une expression différente, mais tous disparaissaient aussitôt.
+Yu Sen poussa un rugissement et l'énergie spirituelle démoniaque autour de lui prit la forme de divers visages. Chacun arborait une expression de souffrance, mais tous disparaissaient aussitôt.
 
 À chaque fois qu'un visage s'effaçait, un autre surgissait.
 
@@ -76,7 +76,7 @@ Presque au moment où le troisième coup s'éteignait, le quatrième suivit inst
 
 Yu Sen rétracta précipitamment sa main et recula. Il battit en retraite sur plus de trois cents mètres avant de parvenir à se stabiliser. Son visage devint rouge et il lutta de toutes ses forces pour ne pas cracher du sang.
 
-Sa main droite tremblait et il en avait perdu toute sensation. Il avait consommé plus de 80 % de son énergie spirituelle démoniaque pour ce seul sort.
+Sa main droite tremblait et il en avait perdu toute sensation. Il avait consommé 80 % de son énergie spirituelle démoniaque pour ce seul sort.
 
 L'homme en armure dorée déclara d'une voix lente: « Quatre fois! Assistant du Général démon Yu Sen, avancez! »
 
@@ -96,7 +96,7 @@ Cet homme portait une armure et un masque hideux dissimulait son visage. Ses lon
 
 « Mo Fei! » Le Commandant en chef de la Terre regarda l'homme avec un sourire et ajouta: « Si cet enfant parvient à expérimenter une nouvelle fois le lac du dragon, il pourra être considéré comme l'un des trois meilleurs parmi les vice-commandants en chef! »
 
-Un homme d'âge moyen vêtu de robes violettes, à l'allure très élégante, sourit et demanda: « Se pourrait-il que votre passion pour les génies soit troublée par Mo Fei? »
+Un homme d'âge moyen vêtu de robes violettes, à l'allure très élégante, sourit et demanda: « Se pourrait-il que le Commandant en chef de la Terre se soit pris d'affection pour ce talent? »
 
 Le Commandant en chef de la Terre rit et acquiesça.
 
@@ -104,7 +104,7 @@ Il reprit de plus belle: « Si cet enfant fait sonner le tambour six fois, même
 
 Tandis que Mo Fei marchait d'un pas nonchalant vers le tambour, tous les regards suivaient ses moindres mouvements.
 
-À trente mètres de l'instrument, il s'arrêta et le contempla. Sans perdre un instant pour ajuster sa posture, il lança un coup de poing dans le vide.
+À trente-trois mètres de l'instrument, il s'arrêta et le contempla. Sans perdre un instant pour ajuster sa posture, il lança un coup de poing dans le vide.
 
 *Dong!* Le son du tambour résonna sur la place comme un tonnerre sourd.
 

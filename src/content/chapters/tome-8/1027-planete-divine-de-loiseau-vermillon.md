@@ -26,11 +26,11 @@ La rumeur prétendait que cette mer de feu existait déjà à l'époque du Royau
 
 Nul ne savait depuis combien de temps ce brasier brûlait. Des générations de cultivateurs s'étaient succédé, le Royaume Céleste s'était effondré et l'ancien monde de la Culture avait disparu, mais ces flammes éternelles continuaient de danser.
 
-Personne n'ignorait quel type de force ou de pouvoir permettait à cette mer de feu de brûler ainsi pour toujours, sans jamais s'éteindre malgré le passage des âges.
+Personne ne savait quel type de force ou de pouvoir permettait à cette mer de feu de brûler ainsi pour toujours, sans jamais s'éteindre malgré le passage des âges.
 
 Ce brasier éternel avait transformé ce champ stellaire en un monde de feu.
 
-Toutes les planètes et les astéroïdes avaient été dissipés après d'innombrables années de combustion. Seules neuf planètes subsistaient, disposées en cercle.
+Toutes les planètes et toutes les poussières avaient été dissipées après d'innombrables années de combustion. Seules neuf planètes subsistaient, disposées en cercle.
 
 Seules ces neuf planètes avaient pu résister à ces flammes inimaginables. Même ainsi, elles n'étaient plus intactes et ressemblaient désormais à des croissants de lune.
 
@@ -52,7 +52,7 @@ Sa queue, déployée comme une flamme vive, couvrait cinq kilomètres de terrain
 
 Il occupait des centaines de kilomètres, et cet immense oiseau pouvait être facilement aperçu depuis l'espace!
 
-Les yeux de l'Oiseau Vermillon étaient formés de pur feu. Chaque heure, deux épais filaments de flammes descendaient du ciel pour pénétrer dans ses yeux.
+Les yeux de l'Oiseau Vermillon étaient formés de pur feu. Toutes les deux heures, deux épais filaments de flammes descendaient du ciel pour pénétrer dans ses yeux.
 
 Cette statue n'était pas unique. Les huit autres planètes arboraient exactement la même effigie. C'était le symbole sacré de la Secte Divine de l'Oiseau Vermillon!
 
@@ -110,11 +110,11 @@ Tandis que la Statue Sacrée absorbait les flammes, elle ressemblait à un volca
 
 C'était comme si la statue n'était qu'un vecteur destiné à rassembler toutes les flammes de la planète afin que ce pilier puisse transpercer les nuages et s'élancer dans l'espace!
 
-Alors que le pilier de feu grondait, il traversa les nuages, l'atmosphère et la vague de chaleur pour apparaître dans le champ stellaire embrasé!
+Alors que le pilier de feu grondait, il traversa les nuages, les vents violents et la vague de chaleur pour apparaître dans le champ stellaire embrasé!
 
 Au moment où il jaillit, huit autres piliers de flammes surgirent des huit autres planètes une fois leurs statues respectives gorgées d'énergie! Bientôt, les neuf piliers se rejoignirent au centre du système des neuf planètes!
 
-À l'instant où ils convergèrent, un cri d'Oiseau Vermillon, des milliers de fois plus retentissant que celui que Wang Lin avait produit et bien plus puissant, résonna à travers tout le champ stellaire embrasé!
+À l'instant où ils convergèrent, un cri d'Oiseau Vermillon, d'innombrables fois plus retentissant et plus puissant que celui que Wang Lin avait produit dans le monde-bouteille, résonna à travers tout le champ stellaire embrasé!
 
 Apparaissant avec ce cri, un Oiseau Vermillon de la taille d'une planète se manifesta. C'était comme s'il n'était pas apparu depuis des éons. Les flammes naturelles que tous les cultivateurs de l'Alliance redoutaient commencèrent à converger vers ce point!
 

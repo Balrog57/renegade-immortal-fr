@@ -17,7 +17,7 @@ Une fois apparu, il flotta dans les airs, immobile, attendant les ordres de Wang
 
 Wang Lin pointa le doigt vers lui. La forme spectrale du second démon s'estompa rapidement jusqu'à disparaître, mais si Wang Lin utilisait son pouvoir de dévoreur d'âmes, il pouvait parfaitement ressentir sa présence.
 
-Il envoya un message au second démon par son Sens Divin; celui-ci se dirigea silencieusement vers Yun Fei et se posa sur la restriction que Wang Lin venait de placer sur elle.
+Il envoya un message au second démon par son Sens Divin; celui-ci se dirigea silencieusement vers Yun Fei et se posa sans un bruit sur son chignon.
 
 Yun Fei ne remarqua absolument rien de ce processus.
 
@@ -29,7 +29,7 @@ Après un long moment, Wang Lin laissa échapper un soupir. Bien qu'il ait reçu
 
 Le maître de la Mer de Sang ne renoncerait pas si facilement. Dès qu'il trouverait un moyen de quitter la Terre de l'Ancien Dieu, la première chose qu'il ferait serait de traquer Wang Lin, détenteur de l'héritage des connaissances, pour le lui voler.
 
-Si Wang Lin perdait cet héritage, il n'aurait plus aucun moyen de se protéger. Cette pensée pesait sur son cœur comme une montagne immense.
+Une fois privé des avantages que l'héritage des souvenirs lui conférait dans la Terre de l'Ancien Dieu, s'il croisait l'homme aux cheveux roux, Wang Lin n'aurait presque aucune chance de sauver sa vie. Cette pensée pesait sur son cœur comme une montagne immense.
 
 Toutefois, d'après l'analyse de Wang Lin, si l'homme aux cheveux roux voulait réellement quitter la Terre de l'Ancien Dieu, la tâche ne serait pas aisée; il n'avait donc pas à s'inquiéter de lui pour le moment.
 
@@ -41,15 +41,15 @@ De plus, il avait atteint le sommet du stade avancé de la Formation du Noyau et
 
 Wang Lin ignorait si la formation de l'Âme Naissante était aussi ardue pour les autres que pour lui, mais en ce qui le concernait, c'était bien plus difficile qu'imaginé. Malgré l'usage du fluide médullaire du dragon et de diverses pilules censées faciliter le processus, il n'avait toujours pas réussi à former son Âme Naissante. Aucune trace de sa formation n'était encore apparue.
 
-Wang Lin avait tenté d'analyser si cela était lié à son Royaume Ji. D'après la faible compréhension qu'il avait acquise lors de l'entrée du Royaume Ji dans son âme, cet état étrange rendrait l'atteinte du stade de l'Âme Naissante et le franchissement de ses trois étapes bien plus difficiles. Cependant, une fois passé le stade avancé de l'Âme Naissante pour entrer dans la Formation de l'Âme, le détenteur du Royaume Ji posséderait un avantage absolu sur tout cultivateur de même niveau.
+Wang Lin avait tenté d'analyser si cela était lié à son Royaume Ji. D'après la faible compréhension qu'il avait acquise lors de l'entrée du Royaume Ji dans son âme, il savait seulement que, dans cet état étrange, le stade avancé de l'Âme Naissante était un point final; au-delà, à niveau égal, le détenteur du Royaume Ji dominait les autres cultivateurs avec une autorité céleste.
 
 En réalité, il n'avait jamais vraiment compris le Royaume Ji. Une autre raison de sa présence à Qi Lin était d'essayer de trouver des textes à son sujet.
 
-Les yeux de Wang Lin s'illuminèrent. Après réflexion, il sortit plusieurs sacs de rangement qu'il avait acquis dans la Terre de l'Ancien Dieu.
+Les yeux de Wang Lin s'illuminèrent. Après réflexion, il sortit plusieurs sacs de rangement; tous, sauf celui provenant de la grotte du Temple du Dieu de la Guerre, avaient été acquis dans la Terre de l'Ancien Dieu.
 
 Le premier était le sac de l'Empereur Antique. Lorsqu'il tenta d'y pénétrer avec son Sens Divin, il sentit une énergie douce repousser sa perception. Le regard de Wang Lin se fixa sur le sac; il réfléchit un instant. Il semblait que l'Empereur Antique n'était pas encore mort.
 
-Il eut un ricanement méprisant, mit ce sac de côté et passa aux suivants.
+Il eut un ricanement méprisant, rangea ce sac avec celui obtenu au Temple du Dieu de la Guerre, puis passa aux suivants.
 
 Le sac qui l'excitait le plus contenait les dix instruments du groupe de Dou Mu. D'un geste de la main, les dix objets tombèrent hors du sac. Ils flottèrent devant lui. À l'exception de la lame en demi-lune qui émettait encore une faible lueur, les neuf autres ne brillaient plus.
 
@@ -63,11 +63,11 @@ Par conséquent, il n'était pas impossible de détruire la protection de ce mir
 
 Le temps s'écoula. Un mois et demi plus tard, Wang Lin sortit de la grotte, l'expression toujours aussi calme. Il avait réussi à détruire le Sens Divin sur le miroir et à le faire sien en trente jours, puis il lui avait fallu sept jours pour en comprendre les rudiments. Enfin, il l'avait raffiné avec son propre feu et, après quarante-neuf jours, le miroir lui appartenait totalement.
 
-Il avait pu ressentir les effets de cet objet durant cette période. Le pouvoir de ce miroir antique était véritablement mystérieux, semblable à celui de l'anneau des étoiles chaotiques brisées; il était lié aux avatars. Wang Lin était convaincu qu'il s'agissait d'un trésor célèbre autrefois, sans quoi il n'aurait pas été le trésor salvateur d'un cultivateur antique.
+Il avait pu ressentir les effets de cet objet durant cette période. Le pouvoir de ce miroir antique était véritablement mystérieux, semblable à celui de l'anneau des étoiles chaotiques brisées; il était lié aux avatars. Wang Lin était convaincu qu'il s'agissait d'un trésor célèbre autrefois, sans quoi il n'aurait pas été le trésor de vie d'un cultivateur antique.
 
 Cependant, avec ses seules connaissances, il ignorait son nom. Même grâce aux souvenirs de l'Ancien Dieu, il ne possédait que peu d'informations sur les trésors magiques. Après tout, pour un Ancien Dieu, le corps était la meilleure des armes; ils raffinaient rarement des trésors et, lorsqu'ils le faisaient, ces derniers possédaient une puissance inimaginable.
 
-À présent encore, Wang Lin songeait au chaudron carré que Tu Si avait jeté. Après avoir hérité de ses souvenirs, il avait tenté d'en créer de nombreux, mais les ressources nécessaires étaient colossales. Même en utilisant toutes les richesses du système stellaire Suzaku, il ne pourrait en raffiner un seul.
+À présent encore, Wang Lin songeait au chaudron carré que Tu Si avait jeté. Après avoir hérité de ses souvenirs, il avait tenté d'en créer de nombreux, mais les ressources nécessaires étaient colossales. Même en utilisant toutes les ressources de la planète Suzaku, il ne pourrait en raffiner un seul.
 
 Il connaissait désormais le nom de ce chaudron: le Chaudron de l'Étoile Mystérieuse. Sa fonction était le scellement. Utilisée correctement, elle pouvait emprisonner n'importe quoi, y compris des planètes entières. Ce chaudron exigeait le moins de matériaux de tous les trésors, mais cela restait relatif.
 
@@ -83,9 +83,9 @@ Elle ignorait que tout ce qu'elle faisait était observé par Wang Lin à traver
 
 Wang Lin sortit de sa chambre de pierre et s'apprêtait à quitter la grotte pour rejoindre la ville quand celle-ci s'ouvrit soudainement. Yun Fei entra, le visage renfrogné. Wang Lin s'arrêta, traça un sceau manuel et disparut instantanément.
 
-Une fois seule dans la grotte, la femme regarda vers la chambre de Wang Lin avec amertume. Wang Lin l'observait: les agissements de cette femme lui donnaient déjà envie de la tuer. Une fois qu'elle fut entrée dans sa propre pièce, il quitta la grotte pour s'enfoncer dans le cœur de la ville de Qi Lin.
+Une fois seule dans la grotte, la femme regarda vers la chambre de Wang Lin avec amertume. Wang Lin l'observait: les agissements de cette femme lui donnaient déjà envie de la tuer. Une fois qu'elle fut entrée dans sa propre pièce, il quitta la grotte, bondit le long du dos de la bête Qi Lin et s'enfonça dans le cœur de la ville de Qi Lin.
 
-La ville était vaste et regorgeait de boutiques spécialisées. En marchant, Wang Lin croisa de nombreux cultivateurs: les plus puissants étaient au stade avancé de la Formation du Noyau, tandis que les plus faibles étaient au premier ou deuxième niveau de Condensation de Qi.
+La ville était vaste et regorgeait de boutiques spécialisées. En marchant, Wang Lin croisa de nombreux cultivateurs: les plus puissants étaient au stade avancé de la Formation du Noyau, tandis que les plus faibles étaient au deuxième ou troisième niveau de Condensation de Qi.
 
 Il déambulait nonchalamment, scrutant les enseignes, tout en maintenant une connexion constante avec le second démon pour surveiller Yun Fei. Il la vit s'approcher d'un coin de sa chambre, ouvrir une dalle de pierre pour y sortir un fourneau à pilules, avant de le ranger. Elle resta ensuite là, immobile, sans savoir quoi faire.
 
@@ -113,13 +113,13 @@ Il demanda: « Puis-je savoir d'où elle provient? »
 
 S'il avait posé cette question au début de sa Formation du Noyau, il n'aurait rien obtenu. Mais avec son niveau actuel, la jeune fille lui répondit avec un sourire: « Vous n'êtes pas le premier à poser la question, Senior. Obtenir une peau aussi complète est extrêmement difficile; elle a été prélevée sur le dragon au moment même de sa mort. »
 
-Wang Lin hocha la tête et reporta son attention sur la jeune fille. Celle-ci posa ses graines et ajouta doucement: « Pour être honnête, je ne sais pas qui l'a obtenue. Elle a été échangée ici il y a deux cents ans, dans une succursale de Nan Dou à l'extérieur de la Mer des Démons, contre un fourneau à pilules. La rumeur dit que le cultivateur qui l'a échangée est mort près de la Mer des Démons. »
+Wang Lin hocha la tête et reporta son attention sur la jeune fille. Celle-ci posa ses graines et ajouta doucement: « Pour être honnête, je ne sais pas qui l'a obtenue. Elle a été échangée il y a deux cents ans, dans notre succursale de Nan Dou à la périphérie de la Mer des Démons, contre un fourneau à pilules. Le cultivateur qui possédait cette peau jouissait, à l'époque, d'une belle renommée dans ces parages. »
 
-« Dès qu'il a quitté Nan Dou, il fut poursuivi par de nombreux experts de la Formation du Noyau, dont un au stade intermédiaire. Ce cultivateur n'était alors qu'au stade avancé de l'Établissement des Fondations. Normalement, il aurait dû mourir, mais il a réussi à percer le stade de la Formation du Noyau en pleine poursuite et a massacré tous ses traqueurs. Il a même forcé l'expert intermédiaire à utiliser l'Ordre Céleste des Cent Jours des Dix Mille Démons. »
+« Dès qu'il a quitté Nan Dou, il fut poursuivi par de nombreux experts de la Formation du Noyau, dont un au stade intermédiaire. Ce cultivateur n'était alors qu'au stade avancé de l'Établissement des Fondations. Normalement, il aurait dû mourir, mais il a réussi à percer le stade de la Formation du Noyau en pleine poursuite et a massacré tous ses traqueurs. Il a même forcé l'expert intermédiaire à utiliser l'Ordre de Meurtre des Cent Jours des Dix Mille Démons. »
 
 Le visage de Wang Lin resta impassible. Une fois la jeune fille eut fini, il hocha la tête sans poser davantage de questions.
 
-Il parcourut le pavillon, dépensa trente pierres spirituelles de qualité moyenne pour les matériaux nécessaires, puis investit davantage dans un jade contenant l'emplacement des anciens tableaux de transfert. Il repartit ensuite sans un regard en arrière. La peau de dragon resta fièrement exposée sur le mur.
+Il parcourut le pavillon, dépensa trente pierres spirituelles de qualité moyenne pour les matériaux nécessaires, puis dépensa encore quelques pierres pour un jade censé contenir des informations sur les anciens tableaux de transfert. Il repartit ensuite sans un regard en arrière. La peau de dragon resta fièrement exposée sur le mur.
 
 Wang Lin était satisfait: il possédait désormais tout ce qu'il fallait pour ses drapeaux de restriction. À part la pierre d'encre, les autres composants étaient communs et faciles à trouver. En revanche, il était déçu par le jade; même dans un tel pavillon, les informations sur les anciens tableaux restaient éparses et lacunaires. Quant au Royaume Ji, il n'avait rien trouvé de concret en posant des questions indirectes.
 
@@ -127,11 +127,11 @@ De retour dans la grotte, après s'être assuré de l'état de Yun Fei, il se mi
 
 Après avoir extrait la pierre d'encre et y insufflé son pouvoir spirituel, il fusionna les autres matériaux selon les directives. Puis, suivant le protocole du jade, il libéra une essence de pouvoir spirituel de sang pour entamer le processus de raffinage, appelé « l'Élévation de l'Objet ».
 
-Ce procédé différait radicalement de la méthode de raffinage des trésors apprise au Temple Martial; les deux appartenaient à des domaines totalement distincts. La durée de l'élévation dépendait des besoins du drapeau. Si l'on pouvait y placer 999 999 restrictions, ce serait l'idéal, mais en réalité, les drapeaux se divisaient en quatre niveaux selon le nombre de restrictions: 999, 9 999, 99 999 et enfin 999 999.
+Ce procédé différait radicalement de la méthode de raffinage des trésors apprise au Temple du Dieu de la Guerre; les deux appartenaient à des domaines totalement distincts. La durée de l'élévation dépendait des besoins du drapeau. Si l'on pouvait y placer 999 999 restrictions, ce serait l'idéal, mais en réalité, les drapeaux se divisaient en quatre niveaux selon le nombre de restrictions: 999, 9 999, 99 999 et enfin 999 999.
 
 Le premier objectif de Wang Lin était d'atteindre 999 restrictions.
 
-Plus tard ce jour-là, assis dans sa chambre, il manipulait sa main avec constance. Devant lui se trouvait un petit drapeau blanc marqué de 81 points noirs. Plus concentré, ses mains enchaînèrent divers sceaux avant de pointer brusquement le drapeau. L'image rémanente de son geste forma un cercle illusoire qui se posa sur la toile blanche.
+Tard dans la nuit du même jour, assis en tailleur dans sa chambre, il enchaînait sans cesse les gestes des mains. Devant lui se trouvait un petit drapeau blanc marqué de 81 points noirs. Plus concentré, ses mains enchaînèrent divers sceaux avant de pointer brusquement le drapeau. L'image rémanente de son geste forma un cercle illusoire qui se posa sur la toile blanche.
 
 Au contact, la restriction se brisa puis se reforma en un point noir. Il y avait désormais 12 points. Une fois les 999 points atteints, la création du premier niveau serait achevée. Wang Lin était extrêmement méticuleux; bien qu'il eût créé des dizaines de restrictions cette nuit, toutes ne s'ancraient pas avec succès.
 
@@ -139,9 +139,9 @@ Après plusieurs essais, il découvrit que le drapeau ne pouvait contenir que ne
 
 Alors qu'il s'apprêtait à poser la treizième restriction après un court repos, il leva la tête vers la chambre de Yun Fei, le regard glacial. Grâce au second démon, il vit que celle-ci avait de nouveau sorti son vieux fourneau à pilules, orné d'une bande de papier jaune émettant une faible lueur.
 
-Elle hésita, serra les dents et, au lieu de ranger l'objet, elle le prit en main pour sortir silencieusement. Dehors, elle lança un regard chargé de haine vers la chambre de Wang Lin avant de le dissimuler promptement.
+Elle hésita, serra les dents et, au lieu de ranger l'objet dans son sac de rangement, elle le glissa contre sa poitrine et sortit silencieusement de la pièce. Dehors, elle lança un regard chargé de haine vers la chambre de Wang Lin avant de le dissimuler promptement.
 
-Elle se tint devant sa porte et demanda: « Senior, êtes-vous là? » Elle resta immobile, attendant. Une heure plus tard, elle reprit respectueusement: « Senior, junior doit partir en voyage et souhaite solliciter votre permission. » Après avoir parlé, elle recula lentement. Même lorsqu'elle atteignit l'entrée de la grotte, Wang Lin ne réagit pas.
+Elle se tint devant sa porte et demanda: « Senior, êtes-vous là? » Elle resta immobile, attendant. Le temps d'un bâton d'encens plus tard, elle reprit respectueusement: « Senior, junior doit partir en voyage et souhaite solliciter votre permission. » Après avoir parlé, elle recula lentement. Même lorsqu'elle atteignit l'entrée de la grotte, Wang Lin ne réagit pas.
 
 Les yeux de la femme s'illuminèrent. Elle effleura doucement la porte et partit. Durant le mois où Wang Lin était resté cloîtré, elle procédait ainsi à chaque départ. Wang Lin ricana intérieurement et, après son départ, se leva pour la suivre.
 

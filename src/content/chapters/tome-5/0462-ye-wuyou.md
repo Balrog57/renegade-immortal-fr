@@ -60,9 +60,9 @@ Liu Mei fixait silencieusement la mer, l'expression sombre. Voyant que Qian Feng
 
 Qian Feng eut un regard féroce. Il lança un regard de rage à Liu Mei et dit: « Crois-tu que je n'ai pas remarqué comment vous deux flirtiez en vous lançant des regards? Jeune sœur apprentie, n'oublie pas ce que tu m'as promis! »
 
-Liu Mei le regarda froidement: « Avec Yunque Zi ici, il sera difficile pour Ceng Niu de récupérer son fragment d'âme. Yunque Zi ne le laissera pas réussir si facilement. »
+Liu Mei le regarda froidement: « Avec Yun Quezi ici, il sera difficile pour Ceng Niu de récupérer son fragment d'âme. Yun Quezi ne le laissera pas réussir si facilement. »
 
-Qian Feng prit une profonde inspiration, retrouva un calme précaire, toucha son sac de rangement et déclara: « Le vieil homme m'a donné quelque chose destiné à être utilisé contre le drapeau des âmes d'un milliard. Puisqu'il peut affecter ce drapeau, il devrait avoir un effet sur les cultivateurs Ascendants également. Une fois que Yunque Zi sera sorti, j'utiliserai ceci. Je ne veux que mon fragment d'âme, mais s'il refuse toujours de me le rendre, je n'aurai d'autre choix que de tout donner! »
+Qian Feng prit une profonde inspiration, retrouva un calme précaire, toucha son sac de rangement et déclara: « Le vieil homme m'a donné quelque chose destiné à être utilisé contre le drapeau des âmes d'un milliard. Puisqu'il peut affecter ce drapeau, il devrait avoir un effet sur les cultivateurs Ascendants également. Une fois que Yun Quezi sera sorti, j'utiliserai ceci. Je ne veux que mon fragment d'âme, mais s'il refuse toujours de me le rendre, je n'aurai d'autre choix que de tout donner! »
 
 À l'intérieur du palais sous la mer, ce qui apparut devant Wang Lin fut un immense couloir. Plusieurs lampes bordaient la salle, vacillant et dégageant une lueur profondément démoniaque.
 
@@ -104,32 +104,32 @@ Quant à la sphère de lumière violette, il s'agissait du Cristal de Planète d
 
 Pourtant, Wang Lin sentait que quelque chose clochait. Bien qu'elle ressemble exactement à ce que Situ Nan avait décrit, il ne ressentit aucun lien avec son fragment d'âme lorsque son Sens Divin la toucha.
 
-« Puisque tu es arrivé, entre. » La voix de Yunque Zi résonna depuis le fond du couloir.
+« Puisque tu es arrivé, entre. » La voix de Yun Quezi résonna depuis le fond du couloir.
 
-Les yeux de Wang Lin s'illuminèrent. En projetant son Sens Divin dans la pièce, il vit le premier Suzaku et le Cristal de Planète de Cultivation, mais il ne vit ni Yunque Zi ni le vieil homme, bien que tous deux fussent déjà présents.
+Les yeux de Wang Lin s'illuminèrent. En projetant son Sens Divin dans la pièce, il vit le premier Suzaku et le Cristal de Planète de Cultivation, mais il ne vit ni Yun Quezi ni le vieil homme, bien que tous deux fussent déjà présents.
 
 Wang Lin réfléchit un instant avant d'avancer. Peu après, il atteignit l'extrémité du couloir et pénétra dans la vaste esplanade.
 
 Maintenant qu'il s'y trouvait physiquement, le sentiment de choc était encore plus intense. Face à cette tour de plusieurs centaines de mètres de haut, il se sentit soudainement minuscule.
 
-Wang Lin prit une profonde inspiration, puis ses yeux s'éclairèrent en apercevant la silhouette de Yunque Zi dans un coin.
+Wang Lin prit une profonde inspiration, puis ses yeux s'éclairèrent en apercevant la silhouette de Yun Quezi dans un coin.
 
-Le visage de Yunque Zi était livide. Il était assis en tailleur et du sang suintait du coin de sa bouche.
+Le visage de Yun Quezi était livide. Il était assis en tailleur et du sang suintait du coin de sa bouche.
 
 Il paraissait bien plus affaibli qu'à l'accoutumée. Il regarda Wang Lin et dit d'une voix rauque, avec un sourire: « J'avais raison sur toi; tu es bel et bien la troisième personne à être arrivée ici. »
 
 Wang Lin, empreint de prudence, demanda: « Et lui? »
 
-L'expression de Yunque Zi se durcit: « J'ai utilisé une formation pour le piéger. Il devrait toujours être prisonnier. Wang Lin, je suis gravement blessé, alors va chercher le Cristal de Planète de Cultivation pour moi. Que ce soit pour mon Clan Immortel Abandonné ou pour les cultivateurs, je ne peux pas laisser le Cristal s'effondrer. »
+L'expression de Yun Quezi se durcit: « J'ai utilisé une formation pour le piéger. Il devrait toujours être prisonnier. Wang Lin, je suis gravement blessé, alors va chercher le Cristal de Planète de Cultivation pour moi. Que ce soit pour mon Clan Immortel Abandonné ou pour les cultivateurs, je ne peux pas laisser le Cristal s'effondrer. »
 
-« Oh? » Wang Lin regarda calmement Yunque Zi et demanda: « Tu veux que j'aille chercher le Cristal de Planète de Cultivation? »
+« Oh? » Wang Lin regarda calmement Yun Quezi et demanda: « Tu veux que j'aille chercher le Cristal de Planète de Cultivation? »
 
-Yunque Zi prit une profonde inspiration et soupira: « Je sais que tu es très prudent. Tu peux vérifier mon état avec ton Sens Divin; tu verras que je suis presque totalement épuisé. Ce vieil homme n'est pas originaire de la planète Suzaku. Ses techniques sont très étranges et je ne pourrai pas le maintenir piégé longtemps. Une fois libéré, il volera le Cristal de Planète de Cultivation, et à ce moment-là, tous les habitants de la planète Suzaku feront face à une crise sans précédent. »
+Yun Quezi prit une profonde inspiration et soupira: « Je sais que tu es très prudent. Tu peux vérifier mon état avec ton Sens Divin; tu verras que je suis presque totalement épuisé. Ce vieil homme n'est pas originaire de la planète Suzaku. Ses techniques sont très étranges et je ne pourrai pas le maintenir piégé longtemps. Une fois libéré, il volera le Cristal de Planète de Cultivation, et à ce moment-là, tous les habitants de la planète Suzaku feront face à une crise sans précédent. »
 
 Les yeux de Wang Lin brillèrent. Il leva la tête vers la sphère de lumière violette devant le premier Suzaku. Sans hésiter, il recula.
 
 Avec une vitesse bien supérieure à celle de son entrée, Wang Lin s'élança vers le couloir comme un possédé.
 
-Le regard de Yunque Zi s'illumina et il disparut instantanément. Lorsqu'il réapparut, il bloquait déjà le passage, faisant face à Wang Lin. Il dit d'un ton sombre: « Pourquoi fuis-tu ainsi?! »
+Le regard de Yun Quezi s'illumina et il disparut instantanément. Lorsqu'il réapparut, il bloquait déjà le passage, faisant face à Wang Lin. Il dit d'un ton sombre: « Pourquoi fuis-tu ainsi?! »
 
-Les yeux de Wang Lin s'éclairèrent; il recula de quelques pas et fixa Yunque Zi. D'un geste de la main droite, il fit apparaître le drapeau des âmes d'un milliard, puis déclara calmement: « Le junior ne souhaite pas encore mourir. »
+Les yeux de Wang Lin s'éclairèrent; il recula de quelques pas et fixa Yun Quezi. D'un geste de la main droite, il fit apparaître le drapeau des âmes d'un milliard, puis déclara calmement: « Le junior ne souhaite pas encore mourir. »

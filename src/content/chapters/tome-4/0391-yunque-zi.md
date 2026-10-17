@@ -1,6 +1,6 @@
 ---
 n: 391
-title: Yunque Zi
+title: Yun Quezi
 book: 4
 bookTitle: Clean Sweep
 en: Chapter 391 - Yunque Zi
@@ -120,15 +120,15 @@ Le regard de Du Tian devint solennel. Il fixa Wang Lin et déclara, mot pour mot
 
 « Oh, vraiment? » Wang Lin leva les yeux vers lui.
 
-Du Tian reprit lentement: « Tu es l'un des quatre candidats choisis par Yunque Zi pour devenir le prochain Suzaku! »
+Du Tian reprit lentement: « Tu es l'un des quatre candidats choisis par Yun Quezi pour devenir le prochain Suzaku! »
 
-« Yunque Zi? » Wang Lin fronça les sourcils.
+« Yun Quezi? » Wang Lin fronça les sourcils.
 
 Du Tian agita la main et une sculpture en bois apparut dans sa paume. C'était le portrait d'un homme d'une grande beauté, dont le regard semblait presque vivant.
 
 «... C'est lui! » Wang Lin fut stupéfait, son expression devenant étrange. C'était le vieil homme qui lui avait donné ce chapeau de paille. La culture de ce vieillard était prodigieuse; il en avait eu les soupçons à l'époque, mais il tenait enfin la réponse.
 
-« Il est Yunque Zi. Il est le jeune frère apprenti du Suzaku actuel... » Du Tian observa la sculpture et ajouta: « Cette sculpture a été faite par toi. Elle lui ressemble étrangement... »
+« Il est Yun Quezi. Il est le jeune frère apprenti du Suzaku actuel... » Du Tian observa la sculpture et ajouta: « Cette sculpture a été faite par toi. Elle lui ressemble étrangement... »
 
 « Vous m'avez offert ces trois cadeaux à cause de lui... » L'expression de Wang Lin devint encore plus déconcertée.
 

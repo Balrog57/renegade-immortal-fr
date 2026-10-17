@@ -14,11 +14,11 @@ Cette onde était d'une puissance phénoménale. Lorsqu'elle atteignit la surfac
 
 Une lueur rouge clignota dans l'œil droit de Qing Shui. Il baissa le regard vers la terre devant lui, mais son expression resta imperturbable.
 
-Le vieil homme Xiang dit respectueusement: « La bataille entre le système stellaire Luotian et le système stellaire de l'Alliance a commencé. Cet individu a remporté le premier rang lors de la compétition des titres célestes et a obtenu une promesse de notre famille Xiang. Cependant, ce qu'il réclame est une chose que Junior ne peut accomplir. J'espérais que Senior accepterait d'utiliser le sort Qi Xi! »
+Le vieil homme Xiang dit respectueusement: « La bataille entre le Système Stellaire de Luotian et le Système Stellaire de l'Alliance a commencé. Cet individu a remporté le premier rang lors de la compétition des titres célestes et a obtenu une promesse de notre famille Xiang. Cependant, ce qu'il réclame est une chose que Junior ne peut accomplir. J'espérais que Senior accepterait d'utiliser le sort Qixi! »
 
 À peine Xiang Yundong eut-il fini de parler que Wang Lin sentit immédiatement un Sens Divin inimaginable se verrouiller sur lui. Horrifié, il se força à ne pas reculer et tenta de retrouver son calme autant que possible.
 
-Ce Sens Divin était d'une puissance absolue, mais il ne put le transpercer totalement. À cet instant, l'étincelle d'énergie d'origine de son troisième œil se propagea sur tout son corps.
+Ce Sens Divin était d'une puissance absolue, mais il ne put le transpercer totalement. À cet instant, la force originelle de son troisième œil se propagea sur tout son corps.
 
 Le Sens Divin l'examina une fois, puis se retira promptement.
 
@@ -32,7 +32,7 @@ Wang Lin acquiesça et lança un regard à Qing Shui.
 
 L'œil droit de Qing Shui brilla d'un rouge éclatant et il déclara calmement: « Si quiconque ose te blesser, alors des rivières de sang issues de ceux nommés Xiang couleront sur la planète Dong Lin. » Bien que sa voix fût légère, elle était empreinte d'une intention meurtrière glaciale. Xiang Yundong fronça les sourcils et ne put que sourire amèrement en silence.
 
-Wang Lin laissa poindre une pointe de gratitude. Dans sa vie, il n'y avait eu peu de personnes envers qui il éprouvait de la reconnaissance. Situ, Zhou Yi, Dun Tian[1]... et maintenant Qing Shui!
+Wang Lin laissa poindre une pointe de gratitude. Dans sa vie, il n'y avait eu que peu de personnes envers qui il éprouvait de la reconnaissance. Situ, Zhou Yi, Dun Tian... et maintenant Qing Shui!
 
 Wang Lin prit une profonde inspiration, salua respectueusement Qing Shui et Xiang Yundong en joignant les mains, puis se retourna pour s'enfoncer dans le ravin!
 
@@ -72,13 +72,13 @@ Il y avait tout simplement trop de crânes ici, une quantité impossible à dén
 
 Sous l'impact de cette aura funèbre, Wang Lin eut la sensation de suffoquer. L'effroi dans ses yeux atteignit son paroxysme.
 
-Au cœur de la tempête, au centre de cette mer de crânes, se trouvait une plateforme artificielle sur laquelle reposait un cercueil de couleur terre. Le bois du cercueil était partiellement gangrené, mais une aura presque démente s'en échappait.
+Au cœur de la tempête, au centre de cette mer de crânes, se trouvait une plateforme bâtie de crânes sur laquelle reposait un cercueil de couleur terre. Le bois du cercueil était partiellement gangrené, mais une aura presque démente s'en échappait.
 
 « Quel est ton nom? » Une voix antique émana du cercueil et fit écho dans toute la zone.
 
 Wang Lin prit une grande inspiration pour réprimer le choc de son esprit et l'aura suffocante. Il dit respectueusement: « Junior Xu Mu salue Senior! »
 
-« C'est toi qui souhaites que ce vieil homme utilise le sort Qi Xi? » Il était impossible de dire si la voix était empreinte de colère ou de joie, mais une pression écrasante enveloppait les environs.
+« C'est toi qui souhaites que ce vieil homme utilise le sort Qixi? » Il était impossible de dire si la voix était empreinte de colère ou de joie, mais une pression écrasante enveloppait les environs.
 
 Wang Lin apaisa son cœur et répondit calmement: « C'est bien moi! »
 
@@ -108,15 +108,15 @@ Un ricanement glacial provint du cercueil, et un autre flux d'aura de mort s'él
 
 L'aura de mort s'effondra immédiatement. Wang Lin se déplaça comme un éclair vers la sphère de restriction où se trouvait Li Muwan!
 
-« Trop bruyant. J'ai pris la moitié de ta force vitale, et maintenant j'utiliserai le sort Qi Xi! » Alors que la voix antique résonnait, le corps de Wang Lin se figea. Il fixa le cercueil devant lui, le regard glacial.
+« Trop bruyant. J'ai pris la moitié de ta force vitale, et maintenant j'utiliserai le sort Qixi! » Alors que la voix antique résonnait, le corps de Wang Lin se figea. Il fixa le cercueil devant lui, le regard glacial.
 
 Sous l'influence de l'aura de mort, la sphère de restriction entourant Li Muwan se désintégra. Tandis que Wang Lin ressentait une douleur lancinante au cœur, l'Âme Naissante de Li Muwan ne fut pas blessée et flotta dans les airs.
 
-« Ainsi, il s'agit d'une Âme Naissante brisée qui a perdu toute vie et qui a été contrainte de subsister! Pas étonnant que tu sois venu voir ce vieux monsieur pour le sort Qi Xi! »
+« Ainsi, il s'agit d'une Âme Naissante brisée qui a perdu toute vie et qui a été contrainte de subsister! Pas étonnant que tu sois venu voir ce vieux monsieur pour le sort Qixi! »
 
 Wang Lin resta silencieux, contemplant fixement le cercueil.
 
-« Cependant, si j'étais à mon apogée en utilisant le sort Qi Xi, je pourrais la restaurer. Même si ce n'était que pour l'éveiller, j'y parviendrais de justesse. Mais pour l'instant, ce vieux monsieur n'a plus que 30 % de certitude! » Tandis qu'il parlait, parmi la mer de crânes, de nombreux yeux s'illuminèrent. Soudain, une aura de mort enveloppa Wang Lin.
+« Cependant, si j'étais à mon apogée en utilisant le sort Qixi, je pourrais la restaurer. Même si ce n'était que pour l'éveiller, j'y parviendrais de justesse. Mais pour l'instant, ce vieux monsieur n'a plus que 30 % de certitude! » Tandis qu'il parlait, parmi la mer de crânes, de nombreux yeux s'illuminèrent. Soudain, une aura de mort enveloppa Wang Lin.
 
 Wang Lin ne résista pas. Alors que l'aura de mort le submergeait, elle lui arrachait des filaments de vitalité. Ces filaments étaient sa propre durée de vie!
 
@@ -124,7 +124,7 @@ Wang Lin ne résista pas. Alors que l'aura de mort le submergeait, elle lui arra
 
 Son visage vieillit rapidement, passant de l'âge mûr à la vieillesse extrême. Seule une trace ténue de son apparence originelle subsistait sur ses traits.
 
-Les yeux de Wang Lin devinrent ternes, et sa faiblesse s'intensifia décuplement. Il sentit vaguement quelque chose l'appeler depuis le vide.
+Les yeux de Wang Lin devinrent ternes, et sa faiblesse s'intensifia plusieurs fois. Il sentit vaguement quelque chose l'appeler depuis le vide.
 
 C'était comme si une puissance lui faisait signe, voulant l'emporter avec elle.
 

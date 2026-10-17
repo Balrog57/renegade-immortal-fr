@@ -24,7 +24,7 @@ La pointe de l'arme s'effondra centimètre par centimètre, jusqu'à la garde. P
 
 Malgré cela, son sens divin fut tout de même touché par cette énergie originelle, et une grande partie de celui-ci se dissipa.
 
-Le visage de Wang Lin devint livide et il s'assit près de l'os du Serpent aux yeux de lune. Il lui fallut un certain temps pour recouvrer ses esprits.
+Le visage de Wang Lin prit une rougeur anormale et il s'assit près de l'os du Serpent aux yeux de lune. Il lui fallut un certain temps pour recouvrer ses esprits.
 
 « Quelle violente poussée d'énergie originelle... Si elle n'était pas ressortie par le vortex, rien de mon sens divin ne subsisterait! » Un éclat glacial brilla dans ses yeux. Il savait que l'énergie qui venait de jaillir n'était que les résidus de la décharge.
 
@@ -46,23 +46,23 @@ C'était la seule façon pour lui de contourner de justesse l'onde de choc qui p
 
 Deux silhouettes se croisaient au milieu d'un ballet de sorts divers: c'était Qing Shui et le dragon doré en plein combat.
 
-On ignorait ce qui s'était produit auparavant. L'âme originelle du vénérable Xuan Bao ne se trouvait plus auprès du dragon doré; elle était désormais encerclée par dix tentacules, les yeux clos, paraissant extrêmement affaiblie.
+On ignorait ce qui s'était produit auparavant. L'âme originelle du vénérable Xuan Bao ne se trouvait plus auprès du dragon doré; elle était désormais encerclée par plus de dix tentacules, les yeux clos, paraissant extrêmement affaiblie.
 
-Une quantité massive d'énergie originelle céleste était absorbée par les tentacules. Ces derniers étaient d'une activité frénétique, ondulant et s'agitant bien plus que d'ordinaire. Quiconque aurait assisté à cette scène en aurait été stupéfait.
+Une quantité massive d'énergie originelle céleste était absorbée par les tentacules. Des renflements ondulaient sur les tentacules, et quiconque assistait à cette scène en avait l'esprit ébranlé.
 
-Plus loin, d'imposantes bulles entouraient Yi Muzi. Wudo Chan l'avait rattrapé, et ils étaient engagés dans un combat acharné.
+Plus loin, de nombreuses bulles flottaient autour de Yi Muzi. Wu Dongchan l'avait rattrapé, et ils étaient engagés dans un combat acharné.
 
 Cependant, face à ce spectacle, Wang Lin fronça les sourcils.
 
-Ce tunnel n'avait plus que la moitié de sa longueur initiale; il pouvait en voir l'extrémité d'un simple regard. Le passage menant au Dieu Ancien Enfant était totalement scellé!
+Ce tunnel n'avait plus que la moitié de sa longueur initiale; il pouvait en voir l'extrémité d'un simple regard. Le passage menant à l'enfant Ancien Dieu était totalement scellé!
 
 Wang Lin resta immobile, se cachant pour observer attentivement la bataille.
 
-Tandis que le dragon doré rugissait, il encercla le vénérable Xuan Bao. Cinq talismans jaunes gravitaient étroitement autour de la tête du dragon. Qing Shui se tenait devant lui, l'expression indifférente. Ses yeux brillèrent d'un rouge vif qui se mua en éclairs écarlates. La foudre rouge jaillit vers le dragon doré!
+Tandis que le dragon doré rugissait, il encercla le vénérable Xuan Bao. Cinq talismans jaunes crépitant d'éclairs, étroitement liés à son corps, couvraient le dragon. Qing Shui se tenait devant lui, l'expression indifférente. Son œil droit brilla d'une lueur rouge qui se mua en éclairs écarlates. La foudre rouge jaillit vers le dragon doré!
 
 Au rugissement du dragon, les écailles de son corps s'illuminèrent. Une aura antique émana de sa voix, proclamant: « Métal ruiné! »
 
-À l'instant même où il parla, le dragon doré trembla; des centaines d'écailles s'envolèrent de son corps pour se rassembler. En un clin d'œil, une épée d'écailles dorées apparut!
+À l'instant même où il parla, le dragon doré trembla; une centaine d'écailles s'envolèrent de son corps pour se rassembler. En un clin d'œil, une épée d'écailles dorées apparut!
 
 Cette lame dégageait des ondes de pression colossales et l'aura d'un véritable dragon. Elle fonça sur Qing Shui.
 
@@ -86,17 +86,17 @@ La lumière rouge sous ses pas était éblouissante; lorsqu'elle frappa le drago
 
 Alors que Qing Shui s'approchait, d'innombrables fragments d'âme jaillirent de la lueur rouge. La quantité était telle que cela représentait l'expression ultime de la boucherie de Qing Shui.
 
-Le dragon doré rugit face à lui. Les cinq talismans au-dessus de sa tête tournèrent frénétiquement et un cri sortit de ses mâchoires.
+Le dragon doré rugit face à lui. Les cinq talismans sur son corps tournèrent frénétiquement et un cri sortit de ses mâchoires.
 
 « Métal ruiné, bois punitif, eau tributaire, feu empoisonné, terre ensevelie. Inversion des cinq éléments! »
 
-Au moment où le dragon rugit, les cinq talismans cessèrent leur rotation. Ils tombèrent un à un, s'imprimant sur sa tête comme des marques au fer rouge.
+Au moment où le dragon rugit, les cinq talismans cessèrent leur rotation. Ils tombèrent un à un, s'enfonçant profondément dans son corps comme des marques au fer rouge.
 
-Une aura d'une puissance inouïe explosa du dragon doré. Puis, fixant Qing Shui qui approchait rapidement, il ouvrit la gueule pour cracher cinq rayons de lumière. Tandis que les cinq éléments s'inversaient, ces rayons se transformèrent en métal indécis, bois punitif, eau tributaire fluide, feu empoisonné évanescent et terre ensevelie céleste!
+Une aura d'une puissance inouïe explosa du dragon doré. Puis, fixant Qing Shui qui approchait rapidement, il ouvrit la gueule pour cracher cinq rayons de lumière. Tandis que les cinq éléments s'inversaient, ces rayons se transformèrent en métal privé de toute solidité, bois du châtiment, eau dissolvant le tribut, feu au poison absolu et terre ensevelissant les immortels!
 
-Sous l'effet de cette inversion, la zone sembla s'isoler pour devenir un monde à part entière! Même Yi Muzi et Wudo Chan, qui combattaient au loin, reculèrent pour observer la scène.
+Sous l'effet de cette inversion, la zone sembla s'isoler pour devenir un monde à part entière! Même Yi Muzi et Wu Dongchan, qui combattaient au loin, reculèrent pour observer la scène.
 
-Un éclat de froideur passa dans les yeux de Qing Shui. Le Domaine de la Boucherie sous ses pieds s'anima alors qu'il levait la main pour l'abaisser avec force. Il murmura doucement: « Prison Terrestre! »
+Un éclat de froideur passa dans les yeux de Qing Shui. Le Domaine de la Boucherie sous ses pieds s'anima alors qu'il levait la main pour pointer le doigt vers le bas. Il murmura doucement: « Prison Terrestre! »
 
 Les six sorts de l'Empereur Céleste Bai Fan constituaient les fondements de Qing Shui. Cependant, son talent exceptionnel lui avait permis de créer ses propres sorts célestes. Ils étaient tous basés sur son Domaine de la Boucherie, visant à ouvrir un autre univers pour transformer la terre en prison!
 

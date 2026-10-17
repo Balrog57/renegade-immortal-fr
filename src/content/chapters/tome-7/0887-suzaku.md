@@ -46,7 +46,7 @@ La sensation du cycle de réincarnation des cieux l'appelant devint plus puissan
 
 Après avoir laissé échapper un grand soupir, Wang Lin leva la main droite et forma un sceau. Une lumière noire commença à s'accumuler sur son index. Au début, cette lueur était faible, mais elle devint bientôt époustouflante.
 
-« Le Doigt de la Mort… » Wang Lin observa la lumière noire sur son index. En voyant la troisième étape, il comprit que le processus de perfectionnement serait trop long et renonça à l'idée.
+« Le Doigt de la Mort… » Wang Lin observa la lumière noire sur son index. En voyant la troisième étape, il avait analysé ce sort et compris qu'à force de l'utiliser longtemps, il nuirait au retour à l'origine ; il y avait donc renoncé.
 
 Cependant, après avoir entendu Xiang Yundong dire qu'il lui faudrait une immense quantité de vitalité pour sauver Li Muwan, Wang Lin pensa immédiatement au Doigt de la Mort!
 
@@ -66,19 +66,19 @@ Si l'on observait la scène d'en haut, on verrait immédiatement ce spectacle é
 
 La silhouette de Wang Lin, entourée par ce gaz blanc dense, n'était plus distincte. Des éclairs de foudre jaillirent dans ses yeux alors qu'il inspirait profondément!
 
-Tout le gaz blanc sembla trouver une ouverture lors de son inspiration. Il forma immédiatement un vortex dont l'extrémité n'était autre que la bouche de Wang Lin!
+Tout le gaz blanc sembla trouver une ouverture lors de son inspiration. Il forma immédiatement un vortex dont l'extrémité n'était autre que les sept orifices de Wang Lin!
 
 L'infinie quantité de gaz blanc pénétra le corps de Wang Lin et s'y accumula. Elle se transforma ensuite en force vitale, nourrissant tout son être. Simultanément, elle régénérait toute la vitalité que Wang Lin avait dépensée.
 
 Pendant l'absorption, la rune sanglante commença à scintiller et flotta à trois pouces de son corps. Cependant, des traces de lumière émanaient toujours d'elle pour envelopper le corps de Wang Lin, lui offrant protection et discrétion.
 
-Une demi-heure plus tard, la dernière trace de gaz blanc pénétra dans le corps de Wang Lin. Le gaz avait totalement disparu. La zone située dans un rayon de 500 kilomètres autour de lui était devenue jaune, le sol était aride et toute vitalité s'était évaporée.
+Une heure plus tard, la dernière trace de gaz blanc pénétra dans le corps de Wang Lin. Le gaz avait totalement disparu. La zone située dans un rayon de 500 kilomètres autour de lui était devenue jaune, le sol était aride et toute vitalité s'était évaporée.
 
 Le plus étrange était qu'au-delà de ces 500 kilomètres, tout semblait normal, créant un contraste saisissant. C'était comme si ces deux zones appartenaient à deux mondes différents.
 
 « Le sort utilisé par l'ancêtre de la famille Xiang doit être similaire au Doigt de la Mort, leur permettant d'absorber la force vitale pour s'en nourrir. Il a été trop imprudent en pensant que je ne verrais pas clair dans son jeu! » Wang Lin eut un sourire narquois.
 
-« Comment la moitié de ma propre vitalité aurait-elle pu être si facile à dévorer? Viendra un jour où je la reprendrai tout entière! Je peux moi aussi dévorer la force vitale! » Une lueur de froideur passa dans les yeux de Wang Lin avant qu'il ne les ferme. La lumière noire s'étendit alors avec une fureur folle.
+« Comment la moitié de ma propre vitalité aurait-elle pu être si facile à dévorer? Viendra un jour où je la reprendrai tout entière, avec les intérêts! Je peux moi aussi dévorer la force vitale! » Une lueur de froideur passa dans les yeux de Wang Lin avant qu'il ne les ferme. La lumière noire s'étendit alors avec une fureur folle.
 
 1 000 kilomètres, 1 500 kilomètres… En un instant, elle engloba une zone de 2 500 kilomètres.
 
@@ -96,13 +96,13 @@ Cependant, tout cela s'inversa immédiatement. La force vitale environnante fut 
 
 À ce même moment, dans la partie occidentale du système stellaire de l'Alliance, loin de la planète de culture abandonnée où se trouvait Wang Lin, se situait une autre planète de culture. Elle était nichée au cœur de la région occidentale, proche de l'intersection avec la région sud.
 
-De loin, elle ressemblait à une planète de culture semi-déclinée, dépourvue d'une grande quantité d'énergie spirituelle.
+De loin, elle ressemblait à une planète de culture à moitié abandonnée, dépourvue d'une grande quantité d'énergie spirituelle.
 
 Plusieurs rayons d'énergie d'épée encerclaient la planète. Des cultivateurs chevauchaient ces trajectoires, arborant des expressions sombres. Leurs yeux étaient froids tandis qu'ils patrouillaient autour de la planète pour observer les environs.
 
 Une aura oppressante continuait de se propager.
 
-Les cultivateurs sur ces rayons d'énergie n'étaient pas de haut niveau; il ne s'agissait que de cultivateurs de l'Âme Naissante. Pourtant, une intention meurtrière puissante émanait de leurs corps alors qu'ils encerclaient la planète. Bien que leurs sens divins fussent dispersés, une trace d'inquiétude perçait dans leur regard.
+Les cultivateurs sur ces rayons d'énergie n'étaient pas de haut niveau; il ne s'agissait que de cultivateurs de la Transformation de l'Âme. Pourtant, une intention meurtrière puissante émanait de leurs corps alors qu'ils encerclaient la planète. Bien que leurs sens divins fussent dispersés, une trace d'inquiétude perçait dans leur regard.
 
 Peu de temps après, un rayon d'énergie d'épée s'échappa de la planète de culture. La personne à bord était une vieille femme. Bien que son visage fût marqué par les rides, on devinait qu'elle avait été très belle dans sa jeunesse. Si Wang Lin avait été présent, il l'aurait trouvée familière.
 
@@ -114,4 +114,4 @@ Le corps du cultivateur trembla et il baissa la tête en signe d'acquiescement.
 
 La vieille femme poussa un soupir. Elle s'apprêtait à parler quand son expression changea radicalement. Ses yeux brillèrent intensément alors qu'elle fixait l'horizon. Cela attira l'attention des autres cultivateurs. Lorsqu'ils regardèrent dans la même direction, leurs visages pâlirent, mais leur monstrueuse intention meurtrière se rassembla aussitôt.
 
-Des rayons d'énergie d'épée surgirent des étoiles au loin. Plusieurs centaines de cultivateurs fonçaient vers la planète Suzaku. Celui qui les menait était un garçon à la tête massive. Il traversait les étoiles avec un sourire idiot sur le visage.
+Des rayons d'énergie d'épée surgirent des étoiles au loin. Plusieurs centaines de cultivateurs fonçaient vers la planète Suzaku. Celui qui les menait était un garçon à la tête massive. Les mains dans le dos, il traversait les étoiles avec un sourire idiot sur le visage.

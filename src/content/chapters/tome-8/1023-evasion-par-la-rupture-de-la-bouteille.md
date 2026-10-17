@@ -42,13 +42,13 @@ Le stade avancé du Purificateur du Nirvana exige la fusion de la loi et du doma
 
 Des flammes infinies rugissaient en chargeant le dernier royaume. Des bruits de craquements retentirent, puis celui-ci finit par s'effondrer!
 
-C'était comme si le ciel se brisait en mille morceaux, comme un morceau de papier déchiré et emporté par les vents. La silhouette du Démon Ancien Bei Lou apparut dans ce dernier royaume!
+C'était comme si le ciel se brisait en mille morceaux, comme un morceau de papier déchiré et emporté par les vents. La silhouette de l'Ancien Démon Bei Luo apparut dans ce dernier royaume!
 
-Il tenait un parchemin gris dans sa main droite. Une énergie spirituelle céleste dense s'en échappait, se précipitant vers Bei Lou. C'était comme si ce parchemin possédait une âme et refusait d'être contrôlé par le démon ancien, luttant pour sa liberté.
+Il tenait un parchemin gris dans sa main droite. Une énergie spirituelle céleste dense s'en échappait, se précipitant vers Bei Luo. C'était comme si ce parchemin possédait une âme et refusait d'être contrôlé par l'ancien démon, luttant pour sa liberté.
 
-Le regard froid de Bei Lou perça le dernier royaume brisé et balaya tous ceux qui se trouvaient dans la bouteille, jusqu'à ce que ses yeux se posent sur Wang Lin.
+Le regard froid de Bei Luo perça le dernier royaume brisé et balaya tous ceux qui se trouvaient dans la bouteille, jusqu'à ce que ses yeux se posent sur Wang Lin.
 
-À cet instant, l'énergie spirituelle céleste du parchemin redoubla d'intensité, telle un rugissement émanant de l'objet lui-même. Bei Lou laissa échapper un froid renoncement et serra impitoyablement sa main droite. Les sept étoiles de son œil droit scintillèrent et une masse colossale d'énergie démoniaque s'engouffra immédiatement dans le parchemin.
+À cet instant, l'énergie spirituelle céleste du parchemin redoubla d'intensité, telle un rugissement émanant de l'objet lui-même. Bei Luo laissa échapper un reniflement froid et serra impitoyablement sa main droite. Les sept étoiles de son œil droit scintillèrent et une masse colossale d'énergie démoniaque s'engouffra immédiatement dans le parchemin.
 
 Le parchemin craqua sous la pression, comme si tous ses sceaux se rompaient. Il poussa un rugissement indomptable, mais bientôt, une lumière verte enveloppa l'intégralité du rouleau.
 
@@ -68,13 +68,13 @@ L'homme dans la brume afficha un regard glacial. Il leva sa main droite desséch
 
 Cependant, juste au moment où l'énergie démoniaque s'apprêtait à s'infiltrer, une explosion capable de faire trembler les cieux éclata soudainement dans la Grotte de l'Empereur Céleste!
 
-Alors que le son résonnait, le bouchon de la bouteille en jade blanc vola en éclats et fut projeté vers le haut comme une montagne.
+Alors que le son résonnait, le bouchon de la bouteille en jade blanc vola en éclats et fut projeté vers le haut comme une fontaine.
 
-Cette force était si puissante qu'elle créa un souffle colossal, repoussant la brume noire de trois pouces!
+Cette force était si puissante qu'elle créa un souffle colossal, repoussant la brume noire de trois pieds!
 
 Cela révéla une silhouette floue!
 
-On distinguait nettement une armure noire gravée de runes complexes, dégageant une froide énergie démoniaque dans le monde.
+On distinguait nettement une armure noire gravée de motifs complexes, dégageant une froide énergie démoniaque dans le monde.
 
 Son doigt desséché fut repoussé par l'explosion du bouchon! Deux yeux sombres brillèrent derrière le casque et se fixèrent sur la bouteille.
 
@@ -94,13 +94,13 @@ Même l'homme dans la brume fut affecté par cette apparition soudaine. La brume
 
 Ses cheveux pâles flottaient au-dessus d'une armure noir pourpre. Dès que les flammes apparurent, il bondit dans les airs avec une expression sombre.
 
-À cet instant, un homme sortit soudainement de l'entrée de la bouteille en suivant la mer de flammes. Il avait une allure audacieuse et tenait un parchemin vert. C'était le Démon Ancien Bei Lou.
+À cet instant, un homme sortit soudainement de l'entrée de la bouteille en suivant la mer de flammes. Il avait une allure audacieuse et tenait un parchemin vert. C'était l'Ancien Démon Bei Luo.
 
-Il esquissa un sourire en regardant l'homme en armure et secoua la tête: « Un ancien membre des quatre gardes de l'Empereur Céleste, Lame Sauvage, n'est plus qu'un simple démon errant pour les démons antiques. Pitoyable! »
+Il esquissa un sourire en regardant l'homme en armure et secoua la tête: « Un ancien membre des quatre gardes de l'Empereur Céleste, Lame Sauvage, n'est plus qu'un démon dispersé raffiné par l'Ancien Diable. Pitoyable! »
 
-L'Omniscient, Ling Tianhou, Maître du Vide, Situ Nan et la belle femme d'âge moyen apparurent l'un après l'autre derrière Bei Lou!
+L'Omniscient, Ling Tianhou, Maître du Vide, Situ Nan et la belle femme d'âge moyen apparurent l'un après l'autre derrière Bei Luo!
 
-Le vieil homme sur la gourde, l'homme en noir marqué du dragon caché, les trois frères Chen et Da Tou sortirent également de la bouteille. Suivirent ensuite la femme enveloppée d'énergie démoniaque et l'Ancien Sun, qui portait le Sable Marqué d'Étoiles.
+Le vieil homme sur la gourde, l'homme en noir marqué du dragon caché, les trois frères Chen et Da Tou sortirent également de la bouteille. Suivirent ensuite la femme enveloppée d'énergie démoniaque et l'Ancien Sun, qui portait la Zibeline Marquée d'Étoiles.
 
 Tous ceux qui étaient entrés dans la grotte céleste, à l'exception de Wang Lin et du Couple de Culture du Nuage Céleste, étaient apparus!
 
@@ -114,7 +114,7 @@ Le sourcil de l'Omniscient se fronça légèrement avant de se détendre.
 
 Quant aux autres, leurs expressions étaient diverses. Qu'il s'agisse de la belle femme d'âge moyen avec ses quatre disciples ou de l'homme en noir, tous portaient des regards différents sur Wang Lin.
 
-Même le démon errant en armure le dévisagea d'un regard glacial.
+Même le démon dispersé en armure le dévisagea d'un regard glacial.
 
 Tout le monde savait d'où provenait cette mer de flammes stupéfiante! Ils se souvenaient désormais tous de Wang Lin, celui qu'ils n'avaient initialement pas jugé digne d'intérêt.
 

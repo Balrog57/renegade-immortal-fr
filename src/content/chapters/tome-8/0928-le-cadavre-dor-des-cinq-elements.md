@@ -44,7 +44,7 @@ L'impact causé par l'effondrement de la feuille fut dispersé par le vortex et 
 
 Le vortex et les gouttes de pluie formés par *Invoquez la Pluie* furent projetés par Wang Lin pour charger la femme en robe bleue.
 
-À ce moment précis, le Saint Démon du Noir, qui perdait manifestement face au Dieu de Sang et à l'être de sang, s'échappa rapidement. En un éclair, il chargea directement vers Wang Lin.
+À ce moment précis, le Saint Démon Noir, qui perdait manifestement face au Dieu de Sang et à l'être de sang, s'échappa rapidement. En un éclair, il chargea directement vers Wang Lin.
 
 Les yeux de Wang Lin s'illuminèrent et il recula sans hésiter. Bien qu'il tentât de tuer cette femme, il ne cherchait pas réellement sa mort. Il devait simplement faire croire que lui, Xu Mu, fournissait des efforts durant cette bataille.
 
@@ -86,7 +86,7 @@ Au fur et à mesure que les cadavres raffinés surgissaient l'un après l'autre,
 
 Les deux cadavres argentés étaient un homme et une femme. Bien que leurs expressions fussent léthargiques, leurs corps avaient la taille de ceux d'un humain normal et ils portaient des tuniques argentées. Ils n'avaient que deux chaînes autour d'eux. Dès leur apparition, ils dégagèrent la pression de cultivateurs Purificateur du Nirvana au stade initial.
 
-Le dernier cadavre raffiné ne pouvait même plus être qualifié de cadavre. C'était un homme d'âge moyen vêtu d'une robe de dragon; il ressemblait à un empereur mortel!
+Le dernier cadavre raffiné ne pouvait même plus être qualifié de cadavre. C'était un homme d'âge moyen vêtu d'une robe de dragon et coiffé d'une haute couronne; il ressemblait à un empereur mortel!
 
 Il n'avait aucune chaîne autour de lui; seuls cinq talismans jaunes flottaient autour de sa tête. Des éclairs jaillissaient, créant une connexion étroite entre les talismans.
 
@@ -96,7 +96,7 @@ L'aura des cinq éléments émanait de son corps. Dès que Wang Lin vit cet homm
 
 S'il pouvait obtenir un mérite, il le prendrait; sinon, il se concentrerait uniquement sur sa survie!
 
-« Je ne sais pas où se trouve le Senior Frère Qing Shu, mais je crois qu'il doit être dans les parages! » Wang Lin continua de reculer, mais la femme en robe bleue n'avait aucune intention de le laisser filer. Elle pointa sa main de jade et un cadavre raffiné ordinaire fixa Wang Lin avant de s'élancer à sa poursuite.
+« Je ne sais pas où se trouve le Senior Frère Qing Shui, mais je crois qu'il doit être dans les parages! » Wang Lin continua de reculer, mais la femme en robe bleue n'avait aucune intention de le laisser filer. Elle pointa sa main de jade et un cadavre raffiné ordinaire fixa Wang Lin avant de s'élancer à sa poursuite.
 
 L'expression de Wang Lin devint sombre. S'il devait affronter un Scruteur du Nirvana au stade intermédiaire avec son corps et ses sorts actuels, il pourrait l'emporter. Cependant, face à un Scruteur du Nirvana au stade avancé, il devrait déployer toutes ses capacités pour espérer une victoire, et les variables étaient trop nombreuses.
 

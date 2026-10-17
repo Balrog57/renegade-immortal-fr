@@ -42,7 +42,7 @@ L'homme ouvrit la bouche pour parler, mais après une gifle assénée par Wang L
 
 Mais avant qu'il ne puisse finir sa phrase, Wang Lin le frappa à nouveau. Une lueur de folie s'empara des yeux de l'homme d'âge moyen. Il n'avait jamais été aussi humilié depuis le début de son parcours de cultivateur.
 
-« Je me battrai jusqu'au bout! » hurla l'homme, tandis que des fissures apparaissaient sur son noyau doré. Ses yeux injectés de sang fixaient Wang Lin avec rage.
+« Je me battrai jusqu'au bout! Explose! » hurla l'homme, tandis que des fissures apparaissaient sur son noyau doré. Ses yeux injectés de sang fixaient Wang Lin avec rage.
 
 « Ce serait du gaspillage de laisser ton noyau doré exploser. » Wang Lin agita le drapeau de restriction et trois filaments de gaz de restriction jaillirent immédiatement. En un clin d'œil, ils pénétrèrent dans le corps de l'homme et s'enroulèrent autour de son noyau doré. À la stupéfaction du malheureux, son propre noyau fut arraché de sa poitrine.
 
@@ -68,23 +68,23 @@ C'était précisément grâce à cette restriction qu'il avait pu passer.
 
 Mais en voyant que c'était Wang Lin, la stupeur fit place à la colère, avant qu'il ne ressente soudainement comme si on lui versait une douche d'eau glacée. Ignorant que Wang Lin était entré via une restriction, il ne put concevoir qu'autre chose qu'une téléportation.
 
-« Aî... Aîné... » Sa voix tremblait. Avant qu'il ne puisse ajouter un mot, Wang Lin fut sur lui. Il pointa le front du boucher, le faisant sombrer dans l'inconscience.
+« Se... Senior... » Sa voix tremblait. Avant qu'il ne puisse ajouter un mot, Wang Lin fut sur lui. Il pointa le front du boucher, le faisant sombrer dans l'inconscience.
 
 Après avoir rejeté l'individu sur le côté, Wang Lin ne daigna même pas le regarder. Ses yeux se posèrent sur le mur de droite.
 
 Peu après, il frappa son sac de rangement et une épée volante apparut. Il la pointa vers le mur, et l'arme s'y engouffra.
 
-Le bruit de la pierre fracassée emplit la pièce et, bientôt, un passage assez large pour qu'un homme puisse ramper apparut. Wang Lin s'engouffra dans le trou à la suite de l'épée.
+Le bruit de la pierre fracassée emplit la pièce et, bientôt, un passage assez large pour qu'un homme puisse passer apparut. Wang Lin s'engouffra dans le trou à la suite de l'épée.
 
 L'épée volante lui ouvrant la voie, il suivit le sentier. Le tunnel s'étirait sur plus de cent mètres, et au bout se trouvait une salle baignant dans une lueur dorée.
 
 « Un gisement de minerai de veine spirituelle! » Les yeux de Wang Lin s'illuminèrent de joie.
 
-Il commanda à l'épée volante qui, émettant un chant mélodieux comme si elle possédait sa propre intelligence, repartit rapidement dans le tunnel. En un instant, elle atteignit la grotte 743 et se planta dans le sol, juste à côté du cultivateur au visage de boucher.
+Il commanda à l'épée volante qui, émettant un bourdonnement comme si elle possédait sa propre intelligence, repartit rapidement dans le tunnel. En un instant, elle atteignit la grotte 743 et se planta dans le sol, juste à côté du cultivateur au visage de boucher.
 
 L'épée explosa instantanément en plusieurs fragments qui formèrent une restriction, emprisonnant le boucher à l'intérieur.
 
-Wang Lin pressa le mur à l'entrée et les parois du tunnel se mirent en mouvement. Rapidement, le passage derrière lui disparut sans laisser de trace.
+Au bout du tunnel, Wang Lin pressa la paroi à côté de lui et les parois du tunnel se mirent en mouvement. Rapidement, le passage derrière lui disparut sans laisser de trace.
 
 Même en regardant depuis la grotte 743, rien ne semblait anormal.
 
@@ -96,7 +96,7 @@ Cette énergie ne pouvait être absorbée directement par les cultivateurs car e
 
 Toutefois, cela ne concernait que les cultivateurs de bas niveau, et Wang Lin n'en avait cure.
 
-La densité de l'énergie spirituelle ici était telle qu'elle créait une pression comparable à celle dégagée par de puissants experts. Cependant, comme il s'agissait d'une énergie naturelle, elle ne pouvait égaler la pression émanant d'un véritable cultivateur.
+La densité de l'énergie spirituelle ici était telle qu'elle créait une pression comparable à celle dégagée par de puissants experts. Cependant, comme il s'agissait d'une énergie naturelle, sa puissance dépassait de loin la pression émanant d'un véritable cultivateur.
 
 Wang Lin fut immédiatement frappé par cette force dès son entrée. Cette pression lui donnait l'impression qu'une montagne entière pesait sur ses épaules.
 
@@ -147,7 +147,7 @@ Quant au cultivateur au visage de boucher, Wang Lin contrôla l'épée brisée p
 
 Cependant, sous le regard glacial de Wang Lin, il retrouva instantanément une attitude respectueuse, n'osant plus émettre le moindre bruit.
 
-À ce moment précis, un regard se posa sur lui. Il tourna la tête et vit une belle femme l'observer avec un sourire amical.
+À ce moment précis, un regard se posa sur lui. Il tourna la tête et vit, au loin, la femme d'une beauté sublime lui adresser un léger signe de tête avec un sourire amical.
 
 Wang Lin fronça les sourcils. Il n'avait pas de temps à perdre avec elle. Il lui lança un regard froid avant de détourner les yeux.
 
@@ -155,4 +155,4 @@ Wang Lin fronça les sourcils. Il n'avait pas de temps à perdre avec elle. Il l
 
 Pourtant, comparé à cela, l'expérience de vie et de mort qu'il venait d'acquérir était bien plus précieuse.
 
-Le bouleversement massif de la montagne avait attiré l'attention de la secte intérieure. Trois individus en sortirent. Parmi eux se trouvait un Ancien aux cheveux blancs qui dégageait une pression écrasante sans même paraître en colère. Il cria: « Que tout le monde se taise! »
+Le bouleversement massif de la montagne avait attiré l'attention de la secte intérieure. Trois individus en sortirent. Parmi eux se trouvait un homme aux cheveux grisonnants, imposant sans même paraître en colère. Il cria: « Que tout le monde se taise! »

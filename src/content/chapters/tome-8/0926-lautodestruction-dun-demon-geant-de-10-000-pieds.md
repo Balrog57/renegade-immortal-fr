@@ -58,7 +58,7 @@ Le visage de Wang Lin devint légèrement rouge et son regard se fit plus glacia
 
 À la suite de cet ordre, un vent noir apparut dans la main droite de Wang Lin et se mua en deux dragons noirs. Les dragons s'élancèrent et, tout en dévorant, ils recrachèrent des rafales d'air glacial capables d'éteindre toute vie.
 
-L'invocation « Invoquez le Vent » était d'une force redoutable; sous l'impact des dragons noirs, le corps du géant fut instantanément projeté très loin. Les deux dragons dévorèrent une partie du corps du colosse, ce qui affaiblit considérablement la puissance de son autodestruction.
+L'invocation « Invoquez le Vent » était d'une force redoutable; sous l'impact des dragons noirs, le corps du géant fut instantanément projeté très loin. Les deux dragons dévorèrent le corps du colosse, ce qui affaiblit considérablement la puissance de son autodestruction.
 
 Boum!
 
@@ -70,7 +70,7 @@ La femme en robe de palais sur le bois géant sourit: « J'admire les sorts du c
 
 Lie Yunzi ouvrit les yeux, laissant transparaître son admiration sans toutefois parler. Il pointa l'un des Parchemins de Bataille et y injecta son Sens Divin.
 
-Une seconde plus tard, un autre des quatorze Lou Fu se rétracta rapidement. Sans s'effondrer, il se condensa en une nouvelle silhouette de sang. Cette entité semblait porter un sort de sang capable d'inverser le ciel. Elle chargea directement vers le vieil homme sur la planète de culture qui combattait déjà une autre silhouette de sang, ainsi que le vieillard en robe noire et le jeune homme en blanc.
+Une seconde plus tard, un autre des quatorze Lou Fu se rétracta rapidement. Sans s'effondrer, il se condensa en une nouvelle silhouette de sang. Cette entité portait un sort qui donnait l'impression que tout le sang du corps allait s'inverser. Elle chargea directement vers le vieil homme sur la planète de culture qui combattait déjà une autre silhouette de sang et le jeune homme en blanc.
 
 Au loin, la femme en robe bleue fronça davantage les sourcils. De sa main semblable au jade, elle désigna deux autres géants de 10 000 pieds qui s'élancèrent. L'un d'eux se dirigea droit vers le Lou Fu.
 

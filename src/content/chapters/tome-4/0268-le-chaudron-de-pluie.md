@@ -78,7 +78,7 @@ Wang Lin marqua une pause, puis murmura lentement: « La rumeur prétend que les
 
 Le vieil homme eut un sourire malicieux: « Quoi, jeune homme? Te voilà tenté? Hélas, tous les êtres célestes de l'Antiquité sont morts dans une guerre. Le Royaume Céleste actuel est désert. »
 
-Wang Lin fut stupéfait. Rien de tel n'avait été mentionné dans la mémoire de Tusi. Il marqua un temps d'arrêt avant de demander: « Ils sont tous morts? »
+Wang Lin fut stupéfait. Rien de tel n'avait été mentionné dans la mémoire de Tu Si. Il marqua un temps d'arrêt avant de demander: « Ils sont tous morts? »
 
 Après avoir terminé le cou du poulet, le vieil homme déchira un large morceau de blanc de poitrine et ajouta en mangeant: « Bien sûr qu'ils sont morts. Pourquoi crois-tu que les cultivateurs au stade de la Transformation de l'Âme ou au-delà existent encore? C'est parce qu'ils n'ont nulle part où aller! »
 

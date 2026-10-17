@@ -18,7 +18,7 @@ Toutefois, ce troisième échelon était bien trop éthéré et le chemin bien t
 
 Pour ces vieux monstres ayant vécu si longtemps, atteindre le troisième échelon n'était plus un simple rêve ou un espoir, mais une nécessité pour survivre. Seul le pouvoir du troisième échelon permettrait d'endurer les cinq Fléaux Célestes; sans quoi, seule la mort les attendait.
 
-À cet instant précis, un cultivateur issu du système sous le Domaine du Vent Céleste était arrivé dans le Système Stellaire de l'Alliance. Bien qu'il n'ait pas atteint le troisième échelon, il avait déjà surmonté le quatrième Fléau Céleste!
+À cet instant précis, un cultivateur issu du système sous le Royaume Céleste du Vent était arrivé dans le Système Stellaire de l'Alliance. Bien qu'il n'ait pas atteint le troisième échelon, il avait déjà surmonté le quatrième Fléau Céleste!
 
 Les cinq Fléaux Célestes étaient des épreuves que tout cultivateur briseur de Nirvana devait affronter. Chaque fois qu'un Fléau était surmonté, sa force augmentait considérablement. Cependant, ces épreuves étaient si ardues que l'échec signifiait une mort immédiate!
 
@@ -40,7 +40,7 @@ Les trésors « Pseudo-Nirvana » du Vide étaient eux-mêmes divisés en diffé
 
 Alors qu'ils étaient plongés dans leurs réflexions, un rugissement retentit à l'extérieur. L'homme en noir bondit immédiatement entre les statues et imita Wang Lin pour quitter les lieux. Maître du Vide et la belle femme s'envolèrent également.
 
-À cet instant, au deuxième étage de la Grotte de l'Empereur Céleste, un éclair de lumière violette jaillit près d'un pavillon situé au centre de l'étage. La silhouette de Wang Lin émergea de cette lueur.
+À cet instant, au deuxième étage de la Grotte de l'Empereur Céleste, un éclair de lumière violette jaillit près d'un pavillon proche du centre de l'étage. La silhouette de Wang Lin émergea de cette lueur.
 
 « Un cultivateur briseur de Nirvana est étonnamment difficile à tuer. Maître du Vide est gravement blessé, mais il n'est pas encore mort! Il y a aussi cette belle femme, et maintenant... » En apparaissant, Wang Lin cracha immédiatement une bouchée de sang, montrant un signe de fatigue inhabituel.
 
@@ -48,7 +48,7 @@ Alors qu'ils étaient plongés dans leurs réflexions, un rugissement retentit �
 
 Il rengaina l'épée de fer et la rangea dans sa sacoche. Wang Lin sortit quelques pilules et les avala. Sans attendre qu'elles soient digérées, il serra les dents et avança.
 
-Il avait joué la comédie en simulant une blessure grave infligée au Maître du Vide pour terroriser l'homme en noir et la belle femme. Autrement, si les deux l'avaient attaqué, Wang Lin serait sans aucun doute mort.
+Il était à bout de forces et n'avait pu terroriser l'homme en noir et la belle femme qu'en s'appuyant sur l'élan de la blessure grave infligée au Maître du Vide. Autrement, si les deux l'avaient attaqué, Wang Lin serait sans aucun doute mort.
 
 À cet instant, il n'avait pas le temps de s'asseoir pour récupérer. Il devait profiter de sa connaissance de la disposition de la grotte pour mettre de la distance entre lui et ses poursuivants.
 
@@ -60,7 +60,7 @@ Au même moment, l'homme en noir, la belle femme et Maître du Vide, lourdement 
 
 Le blessé Maître du Vide n'était plus aussi arrogant qu'au premier étage. Il avançait avec lenteur, ce qui laissa à Wang Lin le temps d'explorer le palais du deuxième étage. Ici, point de statues, seulement neuf chandeliers de pierre. Wang Lin calma son cœur anxieux et, après une longue observation, fronça les sourcils.
 
-Cependant, son regard se posa soudainement sur les chandeliers disposés sur la table, et il remarqua de légères traces de mouvement. Les marques étaient tantôt profondes, tantôt superficielles, indiquant qu'ils avaient été déplacés à plusieurs reprises. C'était manifestement une manœuvre pour dérouter les intrus.
+Cependant, son regard se posa soudainement sur le sol, autour des chandeliers, et il remarqua de légères traces de mouvement. Les marques étaient tantôt profondes, tantôt superficielles, indiquant qu'ils avaient été déplacés à plusieurs reprises. C'était manifestement une manœuvre pour dérouter les intrus.
 
 Ses yeux s'illuminèrent; il s'accroupit pour observer attentivement et sentit une infime trace d'énergie d'épée émanant de ces bougies.
 
@@ -90,7 +90,7 @@ L'un d'eux contenait une multitude de pilules et d'élixirs célestes datant d'a
 
 Durant ces deux mois, Wang Lin n'avait pas encore recouvré toute sa force. Ses blessures physiques n'étaient plus un problème grâce à la régénération fulgurante de son corps de Dieu Ancien. Le véritable souci résidait dans la perte de son énergie originelle et l'affaiblissement de son âme originelle causés par l'usage de l'épée de fer. Sans pilules, il lui serait difficile de se rétablir rapidement. Wang Lin était presque à court de ressources et, face aux dangers omniprésents, il devait absolument atteindre cet espace rempli d'élixirs.
 
-Ce jour-là, un éclat de lumière jaillit à la lisière du sixième étage. Wang Lin en émergea. L'endroit où il apparut était entouré de pavillons, tel un jardin privé. Des montagnes se dressaient à proximité et une rivière coulait non loin de là, dont le murmure apaisant résonnait dans l'air.
+Ce jour-là, un éclat de lumière jaillit à la lisière du sixième étage. Wang Lin en émergea. L'endroit où il apparut était entouré de pavillons, tel un jardin privé. Des rocailles se dressaient à proximité et une rivière coulait non loin de là, dont le murmure apaisant résonnait dans l'air.
 
 « C'est le sixième étage! » Wang Lin prit une profonde inspiration et observa les environs. Après avoir rapidement confronté sa position avec la carte, il sut exactement où il se trouvait.
 

@@ -8,11 +8,11 @@ slug: maitre-flamespark
 ---
 Après avoir réfléchi un instant, il jeta un coup d'œil vers la silhouette de Wang Lin au loin et leva sa main droite. Il pointa Wang Lin, et une sphère de lumière rouge apparut immédiatement. D'innombrables lignes fines se condensèrent rapidement à l'intérieur de cette sphère, qui laissa alors échapper un éclat rouge vif avant de foncer droit sur Wang Lin.
 
-Tous les poils du corps de Wang Lin se hérissèrent et il jura intérieurement. Sans ce vieil homme mystérieux, il se serait déjà échappé. Mais maintenant que son corps de sang avait disparu, il ne pouvait plus fuir.
+Tous les poils du corps de Wang Lin se hérissèrent et il jura intérieurement. Sans ce vieil homme mystérieux, il se serait déjà échappé. Mais maintenant que la moitié du corps de sang de l'Ancêtre Sanguin était déjà utilisée, il ne pouvait plus fuir.
 
 Sentant le danger imminent, Wang Lin serra les dents. Sachant qu'une fuite était impossible, il fit volte-face et cracha le sceau fragmentaire devant lui pour bloquer l'attaque. Lorsque la sphère de lumière rouge percuta le sceau, celui-ci se mit à trembler violemment.
 
-Pourtant, elle ne s'effondra pas!
+Pourtant, il ne s'effondra pas!
 
 Mais une force puissante s'en échappa et frappa le corps de Wang Lin. Son visage pâlit instantanément et il cracha une bouchée de sang en reculant sous l'impact de cette puissance.
 
@@ -30,7 +30,7 @@ Une force impétueuse émana du Tableau des Montagnes et des Rivières. Alors qu
 
 Alors que le jeune homme maléfique ricanait, il fit un pas en avant pour poursuivre sa proie. Cependant, il s'arrêta net et fixa froidement le sol sous ses pieds.
 
-Il vit le continent fragmentaire sur lequel ils se trouvaient commencer à trembler violemment. Ce n'était pas seulement une partie du continent, mais l'intégralité du fragment. Les secousses étaient si intenses qu'en un instant presque, d'innombrables montagnes s'effondrèrent, comme si une main géante broyait toutes les reliefs de la surface.
+Il vit le continent fragmentaire sur lequel ils se trouvaient commencer à trembler violemment. Ce n'était pas seulement une partie du continent, mais l'intégralité du fragment. Les secousses étaient si intenses qu'en un instant presque, d'innombrables montagnes s'effondrèrent, comme si une main géante broyait tous les reliefs de la surface.
 
 Soudain, le fragment s'éleva dans les airs. Sa progression fut si rapide qu'elle atteignit le jeune homme maléfique en un clin d'œil. Ses yeux se plissèrent et il s'envola immédiatement vers les hauteurs.
 
@@ -72,6 +72,6 @@ Même le jeune homme maléfique était totalement stupéfait. Il n'avait pas ima
 
 Wang Lin était sidéré. Il n'entendait plus que le craquement de l'espace qui se déchirait et les grondements sourds résonnant à travers tout le Royaume Céleste du Tonnerre. C'était comme si d'innombrables fragments entraient en collision; il ralentit immédiatement sa course. Autour de lui, les fissures engloutissaient toute force destructrice, provoquant un choc mental et un frisson glaçant sur son cuir chevelu.
 
-Un rire arrogant résonna à travers le Royaume Céleste. Au même moment, le vieil homme mystérieux apparut et s'exclama avec exaltation: « J'ai pénétré dans ce Royaume Céleste des centaines de fois et j'ai planifié cela depuis des dizaines de milliers d'années! Dans ce monde, qui d'autre possède le courage de ce vieil homme? Raffiner le Royaume Céleste et comploter contre l'illustre Seigneur Céleste Qing Shui... Haha, qui d'autre oserait?! »
+Un rire arrogant résonna à travers le Royaume Céleste. Au même moment, le vieil homme mystérieux apparut et s'exclama avec exaltation: « J'ai pénétré dans ce Royaume Céleste des centaines de fois et j'ai planifié cela depuis des dizaines de milliers d'années! Dans ce monde, qui d'autre possède le courage de ce vieil homme, Yan Leizi? Raffiner le Royaume Céleste et comploter contre l'illustre Seigneur Céleste Qing Shui... Haha, qui d'autre oserait?! »
 
-« Ce vieil homme fera de la moitié du Royaume Céleste du Tonnerre un trésor. Qui pourra rivaliser avec moi dans le Système Stellaire Luotian?! Grâce à cela, je pourrai briser la barrière spatiale et, dès lors, mon Système Stellaire Luotian n'aura plus besoin de la Pierre Luotian pour pénétrer librement dans le Système Stellaire de l'Alliance. Maître Zhong Xuan, lorsque j'ai été contraint au départ, j'ai déclaré qu'un jour, je prendrais les millions de cultivateurs du Système Stellaire Luotian pour écraser l'Alliance de Culture! »
+« Ce vieil homme fera de la moitié du Royaume Céleste du Tonnerre un trésor. Qui pourra rivaliser avec moi dans le Système Stellaire Luotian?! Grâce à cela, je pourrai ouvrir la barrière spatiale et, dès lors, mon Système Stellaire Luotian n'aura plus besoin de la Pierre Luotian pour pénétrer librement dans le Système Stellaire de l'Alliance. Maître Zhong Xuan, lorsque j'ai été contraint au départ, j'ai déclaré qu'un jour, je prendrais les millions de cultivateurs du Système Stellaire Luotian pour écraser l'Alliance de Culture! »

@@ -1,6 +1,6 @@
 ---
 n: 441
-title: La folie de Zhuque Zi (1)
+title: La folie de Zhu Quezi (1)
 book: 5
 bookTitle: Cultivation Planet Crystal
 en: Chapter 441 - Zhuque Zis madness (1)
@@ -48,9 +48,9 @@ Du côté du pays de Suzaku, les quatre lignes de défense furent immédiatement
 
 C'était une guerre titanesque; tout le continent Suzaku tremblait tandis que le fracas d'innombrables sorts résonnait à travers la terre.
 
-Zhuque Zi se tenait au sommet du Mont Suzaku. Sa robe rouge flottait au vent, accompagnant le mouvement de ses cheveux blancs. Il restait là, parfaitement immobile.
+Zhu Quezi se tenait au sommet du Mont Suzaku. Sa robe rouge flottait au vent, accompagnant le mouvement de ses cheveux blancs. Il restait là, parfaitement immobile.
 
-Chu Yuanfei était parti. L'ancêtre Ascendant de la Secte de la Terre Brisée s'était retiré en culture à huis clos. À présent, le seul cultivateur Ascendant de Suzaku était Zhuque Zi.
+Chu Yuanfei était parti. L'ancêtre Ascendant de la Secte de la Terre Brisée s'était retiré en culture à huis clos. À présent, le seul cultivateur Ascendant de Suzaku était Zhu Quezi.
 
 Sa silhouette dégageait une pointe de tristesse et de solitude, mais plus encore, un soupçon de folie!
 
@@ -62,64 +62,64 @@ Sans que les cultivateurs ne puissent les entraver, les quatre armées du Clan d
 
 Vu d'en haut, on aurait dit que le continent entier était recouvert par quatre nuages noirs gigantesques convergeant rapidement vers le centre.
 
-Zhuque Zi, les mains derrière le dos, observa le ciel bleu et déclara: « Tout sera décidé! »
+Zhu Quezi, les mains derrière le dos, observa le ciel bleu et déclara: « Tout sera décidé! »
 
-Peu de temps après, deux silhouettes apparurent au loin et se figèrent aux côtés de Zhuque Zi. C'étaient Qian Feng et Liu Mei.
+Peu de temps après, deux silhouettes apparurent au loin et se figèrent aux côtés de Zhu Quezi. C'étaient Qian Feng et Liu Mei.
 
-Qian Feng portait une robe noire et ses yeux dégageaient une aura maléfique. Il fixait silencieusement Zhuque Zi avec une expression sombre.
+Qian Feng portait une robe noire et ses yeux dégageaient une aura maléfique. Il fixait silencieusement Zhu Quezi avec une expression sombre.
 
 Liu Mei était toujours aussi belle. Sa robe de soie blanche lui donnait l'allure d'une fée. En cet instant, ses sourcils étaient étroitement froncés, mais elle restait également silencieuse.
 
-La silhouette de Zhuque Zi trahissait une trace de solitude lorsqu'il dit d'un ton pesant: « Le pays de Suzaku ne peut repousser le Clan des Immortels Délaissés. Qian Feng, Liu Mei, vous allez tous deux traverser une épreuve de vie ou de mort aujourd'hui. Que vous surviviez ou que vous mouriez dépendra de votre chance. »
+La silhouette de Zhu Quezi trahissait une trace de solitude lorsqu'il dit d'un ton pesant: « Le pays de Suzaku ne peut repousser le Clan des Immortels Délaissés. Qian Feng, Liu Mei, vous allez tous deux traverser une épreuve de vie ou de mort aujourd'hui. Que vous surviviez ou que vous mouriez dépendra de votre chance. »
 
-À ce moment précis, les nuages noirs se refermèrent comme des tsunamis impétueux. Le nuage venant de l'est ne comptait qu'un seul individu: un homme d'âge moyen vêtu d'une robe grise qui ressemblait à un érudit. D'un seul pas, il atteignit une distance de 330 mètres de Zhuque Zi. « Zhuque Zi, je suis le cinquième ancêtre du Clan des Immortels Délaissés. »
+À ce moment précis, les nuages noirs se refermèrent comme des tsunamis impétueux. Le nuage venant de l'est ne comptait qu'un seul individu: un homme d'âge moyen vêtu d'une robe grise qui ressemblait à un érudit. D'un seul pas, il atteignit une distance de 330 mètres de Zhu Quezi. « Zhu Quezi, je suis le cinquième ancêtre du Clan des Immortels Délaissés. »
 
 Une autre personne émergea du nuage noir de l'ouest. Cet homme paraissait très jeune et son corps entier était couvert de tatouages; cependant, ces derniers n'étaient pas noirs, mais dorés!
 
 Si Wang Lin avait été présent, il l'aurait reconnu d'un seul coup d'œil.
 
-L'individu dit lentement: « Le jeune maître du Clan des Immortels Délaissés salue Zhuque Zi. »
+L'individu dit lentement: « Le jeune maître du Clan des Immortels Délaissés salue Zhu Quezi. »
 
-Trois personnes sortirent du nuage noir du sud. Elles comblèrent la distance en un pas et s'arrêtèrent à 330 mètres de Zhuque Zi.
+Trois personnes sortirent du nuage noir du sud. Elles comblèrent la distance en un pas et s'arrêtèrent à 330 mètres de Zhu Quezi.
 
-Deux d'entre elles étaient dans un état illusoire. Elles fixaient Zhuque Zi sans dire un mot. La troisième était une femme. Elle était très belle et son regard exhalait un certain charme. Elle regarda Zhuque Zi, esquissa un sourire et dit: « Cette jeune fille est la troisième ancêtre du Clan des Immortels Délaissés, et ces deux-là sont les esprits ancestraux de mon clan. »
+Deux d'entre elles étaient dans un état illusoire. Elles fixaient Zhu Quezi sans dire un mot. La troisième était une femme. Elle était très belle et son regard exhalait un certain charme. Elle regarda Zhu Quezi, esquissa un sourire et dit: « Cette jeune fille est la troisième ancêtre du Clan des Immortels Délaissés, et ces deux-là sont les esprits ancestraux de mon clan. »
 
-Du nuage noir du nord, Yunque Zi apparut. Il murmura vers Zhuque Zi: « Frère aîné. »
+Du nuage noir du nord, Yun Quezi apparut. Il murmura vers Zhu Quezi: « Frère aîné. »
 
-Zhuque Zi se tourna brusquement vers lui et demanda: « Dois-je t'appeler Yunque Zi ou deuxième ancêtre? »
+Zhu Quezi se tourna brusquement vers lui et demanda: « Dois-je t'appeler Yun Quezi ou deuxième ancêtre? »
 
-Yunque Zi secoua la tête et répondit: « Peu importe. Tu peux m'appeler comme bon te semble, frère aîné. »
+Yun Quezi secoua la tête et répondit: « Peu importe. Tu peux m'appeler comme bon te semble, frère aîné. »
 
-« Vous êtes tous venus. La seule chamane à onze feuilles du Clan des Immortels Délaissés, la première ancêtre, tu pourrais tout aussi bien sortir de l'ombre. » Les yeux de Zhuque Zi brillèrent alors qu'il scrutait le ciel.
+« Vous êtes tous venus. La seule chamane à onze feuilles du Clan des Immortels Délaissés, la première ancêtre, tu pourrais tout aussi bien sortir de l'ombre. » Les yeux de Zhu Quezi brillèrent alors qu'il scrutait le ciel.
 
-Un rayon de lumière aux cinq couleurs se rassembla dans les cieux et une silhouette transparente prit lentement forme. La figure descendit avec lenteur et dit: « Zhuque Zi. »
+Un rayon de lumière aux cinq couleurs se rassembla dans les cieux et une silhouette transparente prit lentement forme. La figure descendit avec lenteur et dit: « Zhu Quezi. »
 
 Cette première ancêtre paraissait extrêmement ordinaire, et pourtant, d'un simple revers de la main, elle avait fait fuir Chu Yuanfei. Sa puissance était comparable à celle d'un cultivateur Ascendant au stade avancé, voire, dans une certaine mesure, supérieure.
 
-Yunque Zi dit d'une voix grave: « Frère aîné, notre objectif n'est pas de détruire la planète Suzaku, mais de trouver un moyen pour que nous puissions coexister. Si tu promets de remettre le Cristal de Culture Planétaire, nous pourrons arrêter cette guerre. Nous diviserons la planète en deux et ne nous dérangerons plus jamais! »
+Yun Quezi dit d'une voix grave: « Frère aîné, notre objectif n'est pas de détruire la planète Suzaku, mais de trouver un moyen pour que nous puissions coexister. Si tu promets de remettre le Cristal de Culture Planétaire, nous pourrons arrêter cette guerre. Nous diviserons la planète en deux et ne nous dérangerons plus jamais! »
 
-Zhuque Zi laissa échapper un rire teinté de moquerie: « Si ce n'était pas parce que vous craignez que je détruise le Cristal de Culture Planétaire, vous auriez déjà attaqué sans perdre de temps en ces futilités. »
+Zhu Quezi laissa échapper un rire teinté de moquerie: « Si ce n'était pas parce que vous craignez que je détruise le Cristal de Culture Planétaire, vous auriez déjà attaqué sans perdre de temps en ces futilités. »
 
 « Arrogant! » Les yeux du cinquième ancêtre s'illuminèrent; il frappa son front, faisant apparaître un tatouage. Il pointa ce dernier, cracha un peu de sang dessus et hurla: « Sceau! »
 
-Le tatouage se mit immédiatement à briller d'un rouge sanglant et fonça vers Zhuque Zi.
+Le tatouage se mit immédiatement à briller d'un rouge sanglant et fonça vers Zhu Quezi.
 
 Le cinquième ancêtre savait que Zhuque était puissant; ce n'était qu'une tentative pour tâter le terrain, il ne s'approcha donc pas davantage.
 
-Le regard de Zhuque Zi devint glacial et il ricana. Il sembla d'abord qu'il n'allait pas réagir, mais soudain une lueur dorée enveloppa son corps. Des bruits de craquements retentirent alors que des fissures apparurent sur le tatouage, qui finit par voler en éclats peu après.
+Le regard de Zhu Quezi devint glacial et il ricana. Il sembla d'abord qu'il n'allait pas réagir, mais soudain une lueur dorée enveloppa son corps. Des bruits de craquements retentirent alors que des fissures apparurent sur le tatouage, qui finit par voler en éclats peu après.
 
 Simultanément, l'expression du cinquième ancêtre changea et il recula précipitamment. À cet instant, un point sanglant apparut sur son front et le sang commença à s'en écouler.
 
 La première ancêtre fronça les sourcils et rejoignit le cinquième ancêtre. Elle tendit la main et sortit une aiguille dorée. Pourtant, dès que l'aiguille apparut, elle disparut sans laisser de trace.
 
-L'expression de Zhuque Zi devint sombre alors qu'il se mouvait. Sa vitesse était telle que, hormis Yunque Zi et la première ancêtre, personne ne vit ce qu'il avait fait.
+L'expression de Zhu Quezi devint sombre alors qu'il se mouvait. Sa vitesse était telle que, hormis Yun Quezi et la première ancêtre, personne ne vit ce qu'il avait fait.
 
-« Sceau de Suzaku, attaque! » La voix antique de Zhuque Zi résonna depuis le vide.
+« Sceau de Suzaku, attaque! » La voix antique de Zhu Quezi résonna depuis le vide.
 
 Lorsqu'il réapparut, il pointait déjà vers le bas depuis les cieux. Le ciel s'obscurcit tandis qu'une immense quantité de flammes enveloppait son corps. Les flammes recouvrirent tout dans un rayon de 3 300 mètres autour de lui, et le sol commença à montrer des signes de calcination.
 
-À l'exception d'Yunque Zi et de la première ancêtre, tous reculèrent rapidement pour éviter l'impact des flammes.
+À l'exception d'Yun Quezi et de la première ancêtre, tous reculèrent rapidement pour éviter l'impact des flammes.
 
-Au même moment, un phénix de feu jaillit du corps de Zhuque Zi. Il poussa un cri strident avant de replier ses ailes et de plonger vers le sol.
+Au même moment, un phénix de feu jaillit du corps de Zhu Quezi. Il poussa un cri strident avant de replier ses ailes et de plonger vers le sol.
 
 La première ancêtre s'élança dans les airs. Son corps commença à émettre une lueur noire, puis elle leva la main en pointant vers le haut. Une mystérieuse plante à onze feuilles apparut soudainement sur son front. L'une des feuilles se détacha et flotta vers l'endroit qu'elle désignait.

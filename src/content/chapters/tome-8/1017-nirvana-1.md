@@ -54,7 +54,7 @@ D'une simple pensée, Wang Lin les lança à l'assaut. Parmi elles, l'âme de l'
 
 Les nombreuses âmes célestes semblaient également avoir perdu la raison, se précipitant sur tout ce qui les entourait.
 
-Parmi ces âmes se trouvaient des guerriers du Royaume de la Massue. C'étaient de nouvelles recrues, et leur apparition emplit la zone d'une intention meurtrière!
+Parmi ces âmes se trouvaient des guerriers du Royaume du Massacre. C'étaient de nouvelles recrues, et leur apparition emplit la zone d'une intention meurtrière!
 
 Alors que les grains de sable volaient vers Wang Lin, ils entrèrent en collision avec les âmes. Un grondement infini résonna alors à travers le monde.
 
@@ -66,7 +66,7 @@ Cette épée était d'un blanc immaculé et, dès son apparition, elle libéra u
 
 Un éclat blanc jaillit lorsque l'épée vola. Sa vitesse était telle qu'elle ne formait plus qu'une ligne blanche fonçant sur Wang Lin.
 
-« Cette épée possède un esprit. Mourir par elle est ta seule chance! »
+« Cette épée possède un esprit. Mourir par elle est une chance pour toi! »
 
 Ming Hai laissa échapper un léger soupir. Bien que son expression fût invisible, ce soupir perça le gaz noir pour atteindre les oreilles de Wang Lin.
 
@@ -90,7 +90,7 @@ Des bruits d'éclatement résonnèrent tandis que l'ombre du Dieu Ancien derriè
 
 Après une profonde inspiration, Wang Lin plaça ses mains devant lui. Ses doigts s'entrelacèrent pour former un sceau étrange.
 
-« Voler le mérite des cieux, saisir l'âme de l'univers, rassembler l'Ordre Antique, souvenir éternel! » La langue du Dieu Ancien s'échappa lentement de la bouche de Wang Lin. Tandis qu'il parlait, l'ombre derrière lui formait le même sceau.
+« Voler le mérite des cieux, saisir l'âme de l'univers, unir le clan antique, pensée éternelle! » La langue du Dieu Ancien s'échappa lentement de la bouche de Wang Lin. Tandis qu'il parlait, l'ombre derrière lui formait le même sceau.
 
 Bien que Wang Lin ait hérité de nombreux sorts de Dieu Ancien, un Dieu Ancien à 5 étoiles ne pouvait en utiliser que quelques-uns. Outre l'appel au pouvoir des ancêtres et l'invocation de la Lance Tueuse de Dieux, il existait ce sort!
 
@@ -102,9 +102,9 @@ Plutôt que de viser l'épée blanche, le sort visait directement Ming Hai. Les 
 
 À cet instant, le monde entier bascula. Le ciel sombre sembla être déchiré par une paire de mains gigantesques. Tout le sable environnant fut instantanément repoussé par une onde de choc, permettant aux âmes de l'Arsenal Magique de charger.
 
-L'espace à l'extérieur de la Terre des Esprits Démoniques changea, et une énergie originelle infinie commença à converger. Cette énergie perça le vortex de la Mer des Esprits Démons de l'Est pour s'y engouffrer.
+Dans le ciel étoilé infini à l'extérieur de la cinquième grotte et de la Terre des Esprits Démoniaques, le monde changea, et une énergie originelle infinie commença à converger. Cette énergie perça le vortex des marées de la Mer de l'Est pour s'y engouffrer.
 
-Elle traversa tout ce qui se trouvait dans la Terre des Esprits Démoniques et s'engouffra dans la cinquième grotte, via la formation des Neuf Dragons!
+Elle traversa tout ce qui se trouvait dans la Terre des Esprits Démoniaques et s'engouffra dans la cinquième grotte, via la formation des Neuf Dragons!
 
 À cet instant, la bouteille de jade blanc qui flottait devant l'être assis sur le pont en bois, enveloppée d'une brume noire, se mit à trembler violemment.
 

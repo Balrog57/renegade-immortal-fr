@@ -10,7 +10,7 @@ Mais tous les cultivateurs Ascendants ne réussissent pas; le taux de réussite 
 
 Ce n'est qu'après avoir atteint un niveau supérieur à celui des Ascendants, ou si un pays de culture de rang 5 accède au rang 6, que l'on puisse récupérer son fragment d'âme en toute sécurité.
 
-Yunque Zi n'avait pas pu récupérer son fragment d'âme; en fait, depuis des dizaines de milliers d'années, personne sur la planète Suzaku, Clan des Immortels Délaissés compris, n'avait réussi à récupérer le sien. Cela était en grande partie dû au sceau de Situ Nan.
+Yun Quezi n'avait pas pu récupérer son fragment d'âme; en fait, depuis des dizaines de milliers d'années, personne sur la planète Suzaku, Clan des Immortels Délaissés compris, n'avait réussi à récupérer le sien. Cela était en grande partie dû au sceau de Situ Nan.
 
 Bien que le sceau sur le Cristal de la Planète de Culture empêchât les futurs Suzaku de contrôler la planète, il empêchait également quiconque de récupérer son fragment d'âme lorsqu'il atteignait le stade Ascendant.
 

@@ -16,7 +16,7 @@ Wang Lin ouvrit ses yeux fatigués. Dès qu'il les entrouvrit, la mer de flammes
 
 Cependant, cette fois, Wang Lin ne sentit que son corps se réchauffer; les flammes fusionnèrent rapidement avec son énergie originelle.
 
-« Mon énergie originelle a légèrement augmenté... Bien que cette méthode soit périlleuse, elle peut fonctionner! » Wang Lin prit une profonde inspiration et ferma les yeux. Quinze minutes plus tard, il se leva. Bien qu'il paraisse encore épuisé, il sortit de la tour noire!
+« Mon énergie originelle a légèrement augmenté... Bien que cette méthode soit périlleuse, elle peut fonctionner! » Wang Lin prit une profonde inspiration et ferma les yeux. Un bâton d'encens plus tard, il se leva. Bien qu'il paraisse encore épuisé, il sortit de la tour noire!
 
 À l'extérieur, c'était un monde de flammes où des gaz noirs recouvraient le ciel. Cette fois, Wang Lin resta dehors un peu plus longtemps que précédemment. Sa main droite s'étira pour saisir une flamme de la taille d'un poing d'enfant avant qu'il ne regagnât la tour.
 
@@ -26,7 +26,7 @@ Le temps passa ainsi, lentement. Afin de restaurer l'énergie originelle de son 
 
 Au début, il ne pouvait absorber que de petites flammes de la taille d'un poing, mais désormais, il dévorait des flammes de la taille d'une tête. Wang Lin n'avait plus besoin de les avaler; il lui suffisait d'inspirer pour les absorber toutes.
 
-N'importe qui aurait eu du mal à reconnaître l'homme à l'intérieur de la tour. Il était devenu extrêmement svelte en raison de la longue période passée à absorber l'énergie démoniaque. Désormais, des fissures couvraient sa peau, rendant son apparence terrifiante.
+N'importe qui aurait eu du mal à reconnaître l'homme à l'intérieur de la tour. Son visage était déjà émacié sous l'érosion de l'énergie démoniaque. Désormais, après avoir absorbé tout ce temps l'énergie originelle des flammes du « Brûle les Cieux », des fissures couvraient sa peau, rendant son apparence terrifiante.
 
 Ses cheveux étaient totalement ternes et secs, mais ses yeux brillaient de plus en plus intensément. Quiconque croisait le regard de Wang Lin ressentirait une chaleur telle qu'il serait réduit en cendres sur-le-champ.
 
@@ -42,7 +42,7 @@ Il se tint au cœur du brasier et avança sereinement.
 
 Sa progression n'était pas rapide, mais traverser cette mer de flammes relevait de l'exploit. Si Ling Tianhou avait été présent, il aurait été stupéfait de voir Wang Lin dans cet état! Même lui ne pourrait traverser cette mer de flammes avec une telle désinvolture!
 
-Wang Lin marcha calmement pendant quinze minutes avant de s'arrêter. C'était sa limite. Plus il progressait, plus les flammes étaient puissantes et la chaleur intense.
+Wang Lin marcha calmement pendant un bâton d'encens avant de s'arrêter. C'était sa limite. Plus il progressait, plus les flammes étaient puissantes et la chaleur intense.
 
 Après avoir contemplé la mer de flammes qui s'étendait devant lui, Wang Lin s'assit et ouvrit grand les bras. Deux filaments de feu commencèrent à converger de chaque côté pour former une sphère de feu de la taille de son corps.
 
@@ -58,7 +58,7 @@ En un clin d'œil, quatre mois s'écoulèrent!
 
 Wang Lin se trouvait désormais loin de la tour noire. En regardant autour de lui, il n'apercevait qu'une mer de flammes monstrueuses dont la chaleur pouvait incinérer toute forme de vie.
 
-Les fissures sur la peau de Wang Lin s'étaient élargies, laissant apparaître une nouvelle peau en dessous, mais bientôt, les crevasses recouvrirent à nouveau son corps.
+Les fissures sur la peau de Wang Lin s'étaient brisées deux mois plus tôt, laissant apparaître une chair neuve, mais à présent, des crevasses serrées recouvraient à nouveau son corps.
 
 « La chaleur ici devrait suffire. » Ce jour-là, Wang Lin s'arrêta et inspira profondément. À son inspiration, la mer de flammes devant lui s'agita. Une immense quantité de feu pénétra dans son corps.
 
@@ -90,9 +90,9 @@ C'était le cri de l'Oiseau Vermillon, un cri qui ébranla les cieux. Pour Wang 
 
 Cet oiseau rougeoyant était d'une majesté absolue et empreint d'intelligence. Dès qu'il poussa son cri, toutes les flammes du désert de sable noir devinrent folles.
 
-Les flammes sans fin chargèrent vers l'Oiseau Vermillon aux côtés de Wang Lin à une vitesse inimaginable!
+Les flammes sans fin chargèrent vers l'Oiseau Vermillon devant Wang Lin à une vitesse inimaginable!
 
-La marque s'était éveillée et l'esprit de l'Oiseau Vermillon était apparu! Autrefois, un tel éveil était un événement majeur au sein des Quatre Sectes Divines! Quiconque appartenait à la lignée du Vermillon et s'éveillait devenait probablement l'un des quatre empereurs divins, si le destin ne s'y opposait pas!
+La marque s'était éveillée et l'esprit de l'Oiseau Vermillon était apparu! Autrefois, un tel éveil était un événement majeur au sein des Quatre Sectes Divines! Quiconque appartenait à la lignée du Vermillon et s'éveillait devenait sans doute l'un des futurs Quatre Saints, sauf accident!
 
 En cet instant, Wang Lin était le seul de la lignée du Vermillon à s'être éveillé! À moins qu'un autre n'ait fait de même en secret!
 
@@ -108,6 +108,6 @@ L'Omniscient flottait dans les airs, vêtu de blanc. Il regarda le ciel et se la
 
 Cependant, avant qu'il ne puisse achever sa phrase, le cri de l'Oiseau Vermillon retentit violemment.
 
-Ce cri soudain fit instantanément voler en éclats les calculs de l'Omniscient. Le royaume où il se trouvait trembla et le ciel changea brusquement de visage. Pour la première fois, l'expression de l'Omniscient changea!
+Ce cri soudain fit instantanément voler en éclats les calculs de l'Omniscient. Le royaume où il se trouvait trembla et le ciel changea brusquement de visage. Fait rarissime, l'expression de l'Omniscient changea!
 
 « Impossible! »

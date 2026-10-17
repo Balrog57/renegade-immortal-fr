@@ -64,13 +64,13 @@ Wang Lin tendit sa main droite et le Char de Guerre Divin fut rangé dans son sa
 
 « Quant aux cultivateurs Ascendants du stade avancé... c'est tout simplement trop difficile! » Wang Lin laissa échapper un soupir.
 
-« Que ce soit Zhuque Zi ou ce vieil homme en robe noire, tous deux ont atteint le stade avancé de l'Ascendance. Même en utilisant la bête tonnerre, je crains de ne pouvoir résister à la puissance d'un tel adversaire. Heureusement, je possède l'énergie de l'épée de Ling Tianhou; si je rencontre vraiment l'un d'eux, je n'aurai rien à craindre! »
+« Que ce soit Zhu Quezi ou ce vieil homme en robe noire, tous deux ont atteint le stade avancé de l'Ascendance. Même en utilisant la bête tonnerre, je crains de ne pouvoir résister à la puissance d'un tel adversaire. Heureusement, je possède l'énergie de l'épée de Ling Tianhou; si je rencontre vraiment l'un d'eux, je n'aurai rien à craindre! »
 
 Wang Lin fit un pas en avant et se téléporta dans la tour.
 
 « La raison pour laquelle les cultivateurs Ascendants du stade avancé sont si puissants est qu'ils sont déjà au terme de la première étape! Surtout ceux qui atteignent le sommet de ce stade; ils sont considérés comme l'apogée de cette première étape. Seuls des êtres de niveau similaire peuvent rivaliser avec eux en combat. Ce ne sont pas des adversaires que les cultivateurs du stade intermédiaire peuvent espérer surmonter... à moins de posséder un trésor défiant les cieux, comme l'énergie de l'épée de Ling Tianhou, ou la quatrième âme du drapeau aux un milliard d'âmes! »
 
-« Et même ainsi, cette quatrième âme a été capturée par Zhuque Zi, et le Maître Dun Tian est mort... »
+« Et même ainsi, cette quatrième âme a été capturée par Zhu Quezi, et le Maître Dun Tian est mort... »
 
 « À l'époque, le vieil homme sous la tour des démons avait dit que le sort de vent, de pluie, de tonnerre et d'éclairs était son sort le plus faible. Cela ne devrait pas être faux... »
 

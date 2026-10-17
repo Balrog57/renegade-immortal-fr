@@ -28,19 +28,19 @@ Mais cela ne s'arrêta pas là. Les vingt-trois grandes épées semblèrent form
 
 « Ceci... Ceci n'est pas un ordinaire trésor de Pseudo Vide du Nirvana! » Il ne s'attendait pas à ce que Wang Lin possède un trésor aussi puissant et soit si difficile à tuer. Maintenant que son avatar d'âme originelle était détruit, il subissait de graves blessures.
 
-Son cuir chevelu fut engourdi en voyant les vingt-trois épées qui avaient anéanti son avatar d'âme originelle charger vers lui, portées par son propre trésor Pseudo Vide du Nirvana. Cependant, il n'avait besoin que de quelques respirations supplémentaires pour comprendre pleinement les mystères de l'origine source. Si l'on voulait le forcer à esquiver, autant tenter de le tuer directement.
+Son cuir chevelu fut engourdi en voyant les vingt-trois épées qui avaient anéanti son avatar d'âme originelle charger vers lui après avoir détruit l'un de ses trésors Pseudo Vide du Nirvana. Cependant, il n'avait besoin que de quelques respirations supplémentaires pour comprendre pleinement les mystères de l'origine source. Si l'on voulait le forcer à esquiver, autant tenter de le tuer directement.
 
 « Au diable tout ça! » Maître du Vide s'était cultivé pendant d'innombrables années et avait naturellement deviné que Wang Lin utilisait l'origine source comme appât pour le contraindre dans une situation où il ne pouvait utiliser toute sa puissance. Cela l'avait forcé à concentrer l'essentiel de ses efforts sur la compréhension de l'origine, créant ainsi une formation mortelle dont il ne pouvait ni avancer ni reculer!
 
-Au lieu de battre en retraite, il frappa son sac de contenance. Une carapace de tortue noire de la taille de son poing apparut dans sa main. Elle était d'un noir absolu et dégageait une pression colossale. On ignorait de quel endroit cette carapace avait été extraite.
+Au lieu de battre en retraite, il frappa son sac de contenance. Une carapace de tortue noire de la taille d'une paume apparut dans sa main. Elle était d'un noir absolu et dégageait une pression colossale. On ignorait de quel endroit cette carapace avait été extraite.
 
-Cette carapace de tortue était également un trésor Pseudo Vide du Nirvana. En tant que membre éminent de l'Alliance de la Culture, il ne manquait naturellement pas de trésors! Après avoir lancé la carapace, Maître du Vide serra les dents et ne prêta plus attention au reste. Son sens divin se propagea avec frénésie tandis qu'il tentait de saisir l'origine source. Il sentait qu'il n'était qu'à un cheveu de découvrir le chemin vers la troisième étape dont il rêvait depuis des éons!
+Cette carapace de tortue était également un trésor Pseudo Vide du Nirvana. En tant que membre éminent de l'Alliance de la Culture, il ne manquait naturellement pas de trésors! Après avoir lancé la carapace, Maître du Vide serra les dents et ne prêta plus attention au reste. Son sens divin se propagea avec frénésie tandis qu'il tentait de saisir l'origine source. Il sentait qu'il n'était qu'à un cheveu de découvrir le chemin vers la troisième étape dont il rêvait depuis d'innombrables années!
 
-La carapace de tortue vola et flotta devant Maître du Vide. Elle dégagea une immense quantité de lumière noire, mais au moment même où cette lueur commençait à briller, les vingt-trois grandes épées s'écrasèrent sur elle. Un grondement tonitruant retentit; bien que la carapace fût repoussée, elle parvint à résister à l'assaut.
+La carapace de tortue vola et flotta devant Maître du Vide. Elle dégagea une immense quantité de lumière noire, mais au moment même où cette lueur commençait à briller, les vingt-trois grandes épées fondirent sur elle, les trois premières, alignées, la percutant de plein fouet. Un grondement tonitruant retentit; bien que la carapace fût repoussée, elle parvint à résister à l'assaut.
 
 Cependant, l'attaque ne cessa pas. Après la dissipation de la troisième épée, la quatrième et la cinquième suivirent rapidement... Cela continua jusqu'à ce que la 21e épée s'abatte comme un rayon de lumière argentée.
 
-Rumble, rumble, rumble, rumble!!
+Boum, boum, boum, boum!!
 
 La carapace de tortue noire recula sans cesse, couverte d'innombrables fissures. Elle ne tint que trois respirations avant de voler en éclats et de se disperser dans toutes les directions!
 
@@ -62,7 +62,7 @@ Lorsque Maître du Vide fut frappé par la 23e épée, il cracha une énorme bou
 
 « Presque arrivé!!! » Maître du Vide semblait avoir perdu la raison. Il ignorait totalement les blessures de son corps pour se focaliser sur la compréhension de l'origine source. Il avait le sentiment d'être sur le point de toucher le chemin vers la troisième étape et d'atteindre l'illumination totale!
 
-Cependant, à cet instant précis, le pouvoir étrange issu de la rouille pénétra le vide lorsque Wang Lin fit claquer ses doigts. Alors que le Maître du Vide était sur le point de comprendre la voie de la troisième étape, la rouille passa devant lui comme une brise légère.
+Cependant, à cet instant précis, le pouvoir étrange issu de la rouille pénétra le vide lorsque Wang Lin fit claquer ses doigts. Alors que le Maître du Vide était sur le point de comprendre la voie de la troisième étape, la rouille effleura son corps comme une brise légère.
 
 Le corps du Maître du Vide trembla et un flot de sang jaillit de sa poitrine. Le sang s'échappait de tous ses orifices, le forçant à reculer. Ce mouvement l'arracha à la lumière rouge où se trouvait l'origine source, ruinant ainsi tous ses efforts!
 
@@ -72,7 +72,7 @@ Le troisième œil de Wang Lin brilla et la lumière rouge revint. Presque toute
 
 Wang Lin tenait son épée de fer tandis que son regard glacial se tourna vers la belle femme. L'esprit de cette dernière vacilla sous ce regard. Les sorts et le trésor de Wang Lin l'avaient profondément terrifiée. Elle n'osait plus croiser ses yeux et baissa la tête.
 
-Quant à l'homme en noir, lorsque Wang Lin le fixa, ses yeux révélèrent un mélange de choc et de terreur. Lui non plus n'osait affronter le regard de Wang Lin. L'aura que ce dernier dégageait était la plus puissante qu'il ait jamais ressentie de toute sa vie!
+Quant à l'homme en noir, lorsque Wang Lin le fixa, ses yeux révélèrent un mélange de choc et de terreur. Lui non plus n'osait affronter le regard de Wang Lin. En cet instant, l'aura que Wang Lin dégageait était à l'apogée de toute sa vie!
 
 Que ce fût par la ruse ou par la tromperie, il avait réussi à vaincre un cultivateur Briseur du Nirvana. Personne ne voulait s'attirer les foudres d'un tel homme!
 
@@ -82,15 +82,15 @@ Bien qu'il ait disparu, le choc qu'il laissa à la belle femme, à l'homme en no
 
 La peur dans les yeux de l'homme en noir ne pouvait s'estomper. La simple pensée des vingt-trois épées invoquées par Wang Lin lui glaçait le sang. Bien qu'il sût que Wang Lin avait probablement épuisé toute sa force pour les invoquer et n'essayait que de se donner une contenance, il n'osait pas parier sur cette hypothèse.
 
-Cette attaque des vingt-trois épées l'avait fait perdre toute confiance.
+Cette attaque des vingt-trois épées lui avait fait perdre une partie de sa confiance.
 
-« La Secte de l'Oiseau Vermillon renaîtra grâce à cet homme. Non seulement ils retrouveront leur gloire passée, mais ils atteindront de nouveaux sommets! Cet homme... possède une origine source! Qui lui a donné l'origine source... » L'homme en noir tremblait, et la terreur dans son regard s'intensifiait.
+« La Secte Divine de l'Oiseau Vermillon renaîtra grâce à cet homme. Dans ce domaine stellaire de l'Alliance, non seulement ils retrouveront leur gloire passée, mais ils atteindront de nouveaux sommets! Cet homme... possède une origine source! Qui lui a donné l'origine source... » L'homme en noir tremblait, et la terreur dans son regard s'intensifiait.
 
 Le corps du Maître du Vide s'écrasa au sol. Son visage était pâle et il était dans un état lamentable. Ses yeux étaient emplis de frustration!
 
 « Encore un tout petit peu! Juste un fragment de plus, ah! » Maître du Vide serra le poing. La douleur physique et la destruction de la moitié de son âme originelle firent chuter considérablement son niveau de culture. L'espoir qu'il avait ressenti au seuil de la compréhension de l'origine source, suivi d'une déception irréparable, lui fit pousser un rugissement de rage.
 
-Cependant, il était un être ayant cultivé durant des éons. Après ce cri, il se calma et une intention meurtrière plus intense encore apparut dans ses yeux.
+Cependant, il était un être ayant cultivé durant de longues années. Après ce cri, il se calma et une intention meurtrière plus intense encore apparut dans ses yeux.
 
 « Cet enfant est bien trop rusé; il est aussi audacieux et décisif. Je ne dois pas le laisser devenir le futur Empereur Divin de l'Oiseau Vermillon! Pour le tuer, je suis prêt à risquer que mon premier Fléau Céleste arrive 3 000 ans plus tôt afin de saisir cette chance pour l'éliminer et m'emparer de l'origine source! »
 
@@ -102,6 +102,6 @@ Elle se remémora le Royaume du Vide Brillant, lorsque les Anciens discutaient d
 
 Il existait de nombreux trésors Spirituels et Mystérieux; la plupart des objets utilisés par les cultivateurs de la première étape appartenaient à ces deux rangs. Certains cultivateurs de la première étape possédaient également des trésors Célestes.
 
-Cependant, pour les cultivateurs de la deuxième étape, les trésors Célestes n'étaient pas assez puissants pour satisfaire leurs exigences. Pour les vieux monstres Briseurs de Nirvana, à moins que le trésor céleste ne soit de qualité exceptionnelle, il s'avérait souvent moins utile que des sorts célestes.
+Cependant, pour les cultivateurs de la deuxième étape, les trésors Célestes n'étaient pas assez puissants pour satisfaire leurs exigences. Pour les vieux monstres Briseurs du Nirvana, à moins que le trésor céleste ne soit de qualité exceptionnelle, il s'avérait souvent moins utile que des sorts célestes.
 
 À ce stade, ces vieux monstres cherchaient un rang de trésor supérieur. Délaissant les trésors Célestes couramment utilisés par les anciens artisans, ils traquaient des reliques remontant à des époques encore plus reculées. Les vestiges de ces temps antiques étaient des trésors de niveau Vide!

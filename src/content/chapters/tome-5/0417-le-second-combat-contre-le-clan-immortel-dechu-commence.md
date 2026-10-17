@@ -72,7 +72,7 @@ Du Tian soupira: « La planète Suzaku est bien trop petite. Quand j'étais jeun
 
 « La planète Tian Yun... » Les yeux de Wang Lin s'illuminèrent.
 
-Du Tian poursuivit: « Ce Tian Yunzi sur la planète Tian Yun possède un niveau de culture extrêmement élevé. On dit même qu'il siège au sein de l'Alliance de la Culture. Ce n'est pas une chose avec laquelle le petit Zhuque Zi peut rivaliser. »
+Du Tian poursuivit: « Ce Tian Yunzi sur la planète Tian Yun possède un niveau de culture extrêmement élevé. On dit même qu'il siège au sein de l'Alliance de la Culture. Ce n'est pas une chose avec laquelle le petit Zhu Quezi peut rivaliser. »
 
 Wang Lin réfléchissait. Alors qu'il s'apprêtait à poser d'autres questions, l'expression de Du Tian changea et il scruta l'horizon. Wang Lin déploya son Sens Divin et tourna la tête.
 
@@ -80,7 +80,7 @@ Un brouillard noir approchait de l'horizon, dévorant les nuages sur son passage
 
 « Le Clan Immortel Déchu! » Les yeux de Du Tian s'illuminèrent.
 
-Au fil de leurs échanges, Wang Lin avait appris que plusieurs années auparavant, le Clan Immortel Déchu avait rassemblé une armée immense pour lancer une attaque directe sur le continent de Suzaku. D'innombrables cultivateurs étaient morts lors de ce combat. Certains chamans du Clan Immortel Déchu, aussi puissants que des Ascendants, avaient affronté Zhuque Zi et les deux autres experts Ascendants.
+Au fil de leurs échanges, Wang Lin avait appris que plusieurs années auparavant, le Clan Immortel Déchu avait rassemblé une armée immense pour lancer une attaque directe sur le continent de Suzaku. D'innombrables cultivateurs étaient morts lors de ce combat. Certains chamans du Clan Immortel Déchu, aussi puissants que des Ascendants, avaient affronté Zhu Quezi et les deux autres experts Ascendants.
 
 Cette bataille avait duré trois ans avant que le Clan Immortel Déchu ne se retire. Ils avaient pris le contrôle des pays de culture de rang 3 et entamé cette guerre d'usure contre le pays de Suzaku.
 

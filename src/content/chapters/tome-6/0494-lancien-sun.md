@@ -44,7 +44,7 @@ Même à présent, Wang Lin pensait qu'il cachait sa puissance, mais l'écart en
 
 Il scruta un à un tous les disciples des six autres divisions. Il ne parvenait pas à percevoir le niveau de culture de plus de la moitié d'entre eux. Bien qu'il puisse déceler quelques indices, ses suppositions ne reposaient que sur les traces résiduelles laissées lorsqu'ils dissimulaient leur puissance.
 
-« La Secte du Destin Céleste est véritablement puissante... n'importe laquelle de ces divisions, hormis ma Division Violette, pourrait facilement balayer la planète Suzaku. Même si Zhuque Zi possédait le sceau du titre, il ne ferait pas le poids! »
+« La Secte du Destin Céleste est véritablement puissante... n'importe laquelle de ces divisions, hormis ma Division Violette, pourrait facilement balayer la planète Suzaku. Même si Zhu Quezi possédait le sceau du titre, il ne ferait pas le poids! »
 
 L'expression de Wang Lin était normale, mais son cœur était sombre.
 

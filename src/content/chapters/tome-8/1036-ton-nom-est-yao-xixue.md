@@ -16,21 +16,21 @@ Au moment où cette lumière noire atteignit son apogée, un fracas assourdissan
 
 Pourtant, loin de se détendre, l'expression de Wang Lin devint plus grave encore. Même le démon du vent changea de visage en fixant l'océan.
 
-*Roar!!*
+*Raaah!!*
 
 Un rugissement sourd émana de l'océan. Ce cri fit trembler les cieux et se mua en une onde sonore qui résonna aux quatre coins du monde. Les grondements tonitruants ne parvenaient pas à couvrir ce rugissement.
 
 Simultanément, l'océan s'agita violemment et commença à s'élever. Les pupilles de Wang Lin se rétractèrent; la scène qui se déroulait devant lui le fit haleter.
 
-Ce n'était pas de l'eau s'élevant dans les airs, mais la silhouette humanoïde formée par l'océan qui se redressait!
+Ce n'était pas de l'eau s'élevant dans les airs, mais la silhouette humanoïde formée par l'océan qui se redressait en position assise!
 
-C'était un géant dont la taille était inestimable. Le simple fait qu'il se redresse donnait l'impression qu'il allait percer le firmament. Son corps colossal était composé d'eau, et en se levant, il révéla les profondeurs abyssales du fond marin.
+C'était un géant dont la taille était inestimable. Le simple fait qu'il s'assoie donnait l'impression qu'il allait percer le firmament. Son corps colossal était composé d'eau, et en s'asseyant, il révéla les profondeurs abyssales du fond marin.
 
 L'océan n'était plus là; seul restait ce géant fait d'eau de mer.
 
 Un géant des mers!
 
-Il était impossible de distinguer ses traits, si flous fussent-ils, mais ses grandes oreilles ne lui donnaient en rien l'apparence d'un cultivateur. Il fixa froidement le petit Wang Lin et le démon du vent dans le ciel. Puis, il leva lentement sa main, provoquant une vague monumentale, et tendit la paume vers Wang Lin.
+Il était impossible de distinguer ses traits, si flous fussent-ils, mais ses immenses oreilles, descendant jusqu'aux épaules, ne lui donnaient en rien l'apparence d'un cultivateur. Il fixa froidement le petit Wang Lin et le démon du vent dans le ciel. Puis, il leva lentement sa main, provoquant une vague monumentale, et tendit la paume vers Wang Lin.
 
 Avant même qu'elle ne soit proche, un grondement s'abattit sur lui comme une rafale de vent. Wang Lin recula immédiatement pour esquiver la paume approchante.
 
@@ -44,7 +44,7 @@ La scène était d'une intensité extrême: le ciel était recouvert par une mer
 
 Alors que le bras du géant se refermait, Wang Lin poussa un rugissement au cœur des flammes. Sa volonté s'infusa dans le feu, et toute la mer de flammes descendit du ciel sur le géant.
 
-La mer de feu tomba comme une pluie de braises sur le géant des mers. Les flammes dégageaient une chaleur intense avant même d'atteindre sa cible. Le démon du vent, observant la scène de loin, eut un haut-le-cœur. Elle redoutait désormais Wang Lin plus que jamais.
+La mer de feu tomba comme une pluie de braises sur le géant des mers. Les flammes dégageaient une chaleur intense avant même d'atteindre sa cible. Le démon du vent, observant la scène de loin, inspira brusquement. Elle redoutait désormais Wang Lin plus que jamais.
 
 En un instant, la mer de flammes convergea de toutes les directions autour du géant des mers. Une quantité massive de vapeur d'eau se propagea sous forme d'un anneau de brume blanche.
 
@@ -70,7 +70,7 @@ Alors que la bouche du géant des mers approchait, une trace d'intention meurtri
 
 Ces flammes étaient sans limites et, tandis qu'elles s'étendaient, un rugissement de douleur monta du géant des mers, contraint de reculer.
 
-Même la vague muraille qui se trouvait à mille pieds de Wang Lin s'évapora instantanément au contact des flammes. L'eau se changea en brume et fut repoussée!
+Même la muraille de vagues qui se trouvait à mille pieds de Wang Lin s'évapora instantanément au contact des flammes. L'eau se changea en brume et fut repoussée!
 
 Elle recula plusieurs fois plus vite qu'elle ne s'était approchée. Cependant, les flammes de l'Oiseau Vermillon la poursuivaient de près. À ce moment-là, le mur d'eau se dissipa pour se condenser à nouveau en un géant des mers.
 
@@ -84,7 +84,7 @@ Des rugissements de douleur continuaient de jaillir du géant des mers. Déjà e
 
 Alors que le géant brûlait de part et d'autre, il agitait ses bras comme s'il se débattait. Cependant, il ne pouvait empêcher l'eau qui composait son corps de se transformer en une vapeur saturant le ciel.
 
-Cela provoqua une expression d'amertume extrême sur le visage du démon du vent. Elle réalisa enfin l'abîme qui la séparait de Wang Lin, ce qui la plongea dans une profonde réflexion.
+Cela provoqua une expression d'amertume extrême sur le visage du démon du vent. Elle réalisa enfin l'abîme qui la séparait de Wang Lin, ce qui la fit sombrer dans le silence.
 
 Pourtant, une lueur de férocité traversa ses yeux emplis de frustration.
 
@@ -102,7 +102,7 @@ Le cri du géant des mers résonnait encore dans le ciel. Cependant, lorsque la 
 
 Cet effondrement ne dura que quelques respirations avant que le ciel ne se rompe. Le fond marin vola également en éclats, révélant la verdure située en dessous!
 
-Ce monde entier n'était qu'une goutte de rosée sur le pétale d'une fleur. Wang Lin sentit sa vision se troubler et, lorsqu'il retrouva la vue, il se trouvait dans le champ de fleurs où il était tombé auparavant!
+Ce monde entier n'était qu'une goutte de rosée sur la feuille d'une fleur. Wang Lin sentit sa vision se troubler et, lorsqu'il retrouva la vue, il se trouvait dans le champ de fleurs où il avait disparu auparavant!
 
 Au moment où le monde océanique s'effondra, le démon du vent chargea à toute vitesse. Son but était de s'engouffrer dans une autre restriction pour s'échapper.
 
@@ -124,27 +124,27 @@ Tandis que la main droite de Wang Lin continuait sa course, les innombrables cic
 
 Sa peau d'un blanc de jade semblait pouvoir se briser au moindre souffle. Sa clarté cristalline dégageait un charme singulier.
 
-Un instant, Wang Lin crut apercevoir la Yao Xixue d'autrefois...
+Un instant, Wang Lin crut apercevoir la Yao Xixue d'autrefois, dans la Terre des Esprits Démoniaques...
 
 Enfin, Wang Lin pointa l'espace entre les sourcils du démon du vent. Le corps de celle-ci trembla immédiatement. Elle se souvint comment Wang Lin avait utilisé ce sort de téléportation étrange au début du combat. Il aurait pu la blesser gravement, mais il avait choisi de simplement pointer entre ses sourcils.
 
 Durant ce moment de crise, elle n'y avait pas prêté attention. Cependant, alors que Wang Lin pointait à nouveau cet endroit, le démon du vent sembla comprendre quelque chose.
 
-« Le premier point était de fusionner tes souvenirs et ceux de Yao Xixue pour créer une ouverture. Ce n'est qu'ainsi qu'un sauvetage serait possible... » Wang Lin semblait se parler à lui-même tout en pointant le démon du vent une dernière fois. Ses yeux brillaient d'une lueur étrange.
+« Le premier doigt posé était de fusionner tes souvenirs et ceux de Yao Xixue pour créer une ouverture. Ce n'est qu'ainsi qu'un sauvetage serait possible... » Wang Lin semblait se parler à lui-même tout en pointant le démon du vent une dernière fois. Ses yeux brillaient d'une lueur étrange.
 
 En voyant ce regard, un frisson parcourut le cœur du démon du vent.
 
 « Si tu avais vraiment fait ce que tu avais promis, en aidant Yao Xixue à se venger, tu aurais fait partie du karma plutôt que d'être une intrusion... Si tel avait été le cas, je n'aurais pas interféré.
 
-Cependant, tu ne l'as pas fait. Peu m'importe que tu aies trompé Yao Xixue, mais tu as détruit la chance pour mon domaine de vie et de mort et mon domaine de karma d'évoluer... De plus, ton héritage n'est que des souvenirs, et le vrai "toi" est mort... Bien que tu te fasses appeler démon, tu n'es que Yao Xixue. Tu ne peux pas mourir, car tu n'es qu'un souvenir. »
+Cependant, tu ne l'as pas fait. Peu m'importe que tu aies trompé Yao Xixue, mais tu as détruit la seule variation de karma qui s'était intégrée au moment où mon domaine de vie et de mort et mon domaine de karma se transformaient... De plus, ton héritage n'est que des souvenirs, et le vrai "toi" est mort... Bien que tu te fasses appeler démon, tu n'es que Yao Xixue. Tu ne peux pas mourir, car tu n'es qu'un souvenir. »
 
 La lueur mystérieuse dans les yeux de Wang Lin devint encore plus intense. Puis il ouvrit la bouche et inspira profondément!
 
-Wang Lin utilisa le sort d'engloutissement le plus impitoyable légué par Qing Shui! Ce qu'il dévorait, c'était l'énergie démoniaque à l'intérieur de Yao Xixue!
+Wang Lin utilisa le sort d'engloutissement le plus impitoyable légué par Qing Shui, qu'il utilisait pour la première fois! Ce qu'il dévorait, c'était l'énergie démoniaque à l'intérieur de Yao Xixue!
 
 La terreur dans les yeux du démon du vent atteignit son paroxysme lorsque cette force d'aspiration apparut. Elle sentit toute l'énergie démoniaque de son corps être aspirée dans la bouche de ce cultivateur.
 
-L'énergie démoniaque quitta le démon du vent pour être inhalée par Wang Lin. Enfin, même les souvenirs gravés dans l'âme de Yao Xixue furent absorbés par lui.
+L'énergie démoniaque quitta le démon du vent pour être inhalée par Wang Lin. Enfin, même les souvenirs du démon du vent, gravés dans l'âme de Yao Xixue, furent absorbés dans l'âme originelle de Wang Lin.
 
 « Tu n'aurais pas dû laisser tes souvenirs à l'intérieur de Yao Xixue. Il n'y a aucune haine entre nous, alors je te trouverai un autre réceptacle... »
 
@@ -154,7 +154,7 @@ La peur dans les yeux de Yao Xixue se dissipa et son corps trembla. La confusion
 
 L'actuelle Yao Xixue était impuissante, et cette terreur fut clairement perçue par Wang Lin.
 
-« Ton nom est Yao Xixue... Et je suis un ami pour toi... »
+« Ton nom est Yao Xixue... Et je suis une vieille connaissance... »
 
 « Yao Xixue... » murmura doucement Yao Xixue, bien que la confusion l'habitât toujours. Cependant, une pointe de méfiance se glissa dans son regard envers Wang Lin.
 

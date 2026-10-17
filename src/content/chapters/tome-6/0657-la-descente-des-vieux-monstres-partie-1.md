@@ -134,7 +134,7 @@ La formation des sept étoiles perdit progressivement de son efficacité. L'ombr
 
 Il se rapprochait de plus en plus de l'entrée du gouffre...
 
-Un immense essaim de moustiques vrombissait à l'entrée. Les yeux violets du moustique s'illuminèrent soudainement d'une joie intense. Il se précipita, écartant ses congénères sur son passage. Il fixa le gouffre en poussant des cris stridents.
+Un immense essaim de moustiques vrombissait à l'entrée. Les yeux, auparavant abattus, du moustique violet s'illuminèrent soudainement d'une joie intense. Il se précipita, écartant ses congénères sur son passage. Il fixa le gouffre en poussant des cris stridents.
 
 Son bonheur était indescriptible. Le corps du moustique tremblait tandis qu'il battait des ailes et plongeait dans l'abîme comme un éclair, sans la moindre hésitation.
 

@@ -8,11 +8,11 @@ slug: liu-mei-2
 ---
 À l'intérieur d'une pièce secrète, dans la planète située au-dessus du vortex, siégeait un homme d'âge moyen. Il était extrêmement beau et dégageait une aura céleste.
 
-Hormis une cloche de bronze de la taille d'un poing, rien d'autre ne se trouvait dans cette pièce secrète.
+Hormis une cloche de bronze de la taille d'un poing, accrochée au plafond au centre de la pièce, rien d'autre ne se trouvait dans cette pièce secrète.
 
 L'esprit de Wang Lin parcourut la pièce secrète. L'homme à l'intérieur resta impassible, comme s'il n'avait rien remarqué, mais la cloche émit immédiatement un son cristallin.
 
-L'homme ouvrit soudainement les yeux, laissant apparaître deux regards enragés.
+L'homme ouvrit soudainement les yeux, laissant jaillir deux regards empreints de folie.
 
 À cet instant, l'esprit de Wang Lin avait déjà quitté les lieux.
 
@@ -42,7 +42,7 @@ C'était le seul pays de rang 9 de l'Alliance, et il était très mystérieux. L
 
 C'était la terre sacrée de la majorité des cultivateurs de ce lieu!
 
-L'esprit de Wang Lin pénétra dans le Royaume du Vide Brillant, un endroit où très peu de cultivateurs étaient qualifiés pour entrer. Au plus profond du royaume, un vieil homme était assis. Il méditait près d'un versant lorsqu'il ouvrit soudainement les yeux et regarda au loin.
+L'esprit de Wang Lin pénétra dans le Royaume du Vide Brillant, un endroit où très peu de cultivateurs étaient qualifiés pour entrer. Au plus profond du royaume, un vieil homme était assis. Il méditait près d'un lac lorsqu'il ouvrit soudainement les yeux et regarda au loin.
 
 « Quel compagnon cultivateur est donc venu dans mon Royaume du Vide Brillant? Veuillez vous manifester! »
 

@@ -58,7 +58,7 @@ Peu après, il leva brusquement la tête et dit respectueusement: « Merci, Sept
 
 Zhang Xiangfan, fort de sa longue expérience de culture, comprit immédiatement que ces 18 restrictions n'avaient rien de banal. Il s'agissait de 18 restrictions d'attaque, et le plus rare était qu'elles pouvaient être cumulées. Zhang Xiangfan réprima l'excitation qui bouillonnait en lui. Il aurait voulu se retirer en culture fermée dès à présent pour imprimer ces 18 restrictions sur une épée; alors, il n'aurait plus jamais à craindre de cultivateurs au stade avancé de la Formation de l'Âme!
 
-Ces 18 restrictions n'étaient que deux des dix-neuf groupes de restrictions que Wang Lin avait étudiés à partir du chapeau de paille de Yunque Zi. Pour que le drapeau de restrictions atteigne 9 999 groupes, ceux-ci étaient loin de suffire.
+Ces 18 restrictions n'étaient que deux des dix-neuf groupes de restrictions que Wang Lin avait étudiés à partir du chapeau de paille de Yun Quezi. Pour que le drapeau de restrictions atteigne 9 999 groupes, ceux-ci étaient loin de suffire.
 
 Wang Lin ne perdit pas de temps et annonça directement: « Je suis venu récupérer mes jades célestes! »
 

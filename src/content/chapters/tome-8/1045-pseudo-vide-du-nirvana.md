@@ -48,7 +48,7 @@ Wang Lin interrompit brusquement le sort et retira l'énergie d'origine. Le troi
 
 Perplexe et totalement déconcerté, Wang Lin laissa échapper un soupir. Il s'apprêtait à ranger l'arme quand une pensée lui traversa l'esprit. Il regarda l'épée de fer et, en examinant sa taille, son expression devint étrange.
 
-Il tapota son sac de rangement et cinq rayons de lumière dorée s'en échappèrent. Cinq fourreaux d'épées apparurent devant lui. Il les avait obtenus sur la planète Suzaku, sans en connaître l'efficacité exacte; il savait seulement qu'en y insérant une épée volante, le pouvoir de celle-ci deviendrait bien plus féroce.
+Il tapota son sac de rangement et cinq rayons de lumière cristalline s'en échappèrent. Cinq fourreaux d'épées apparurent devant lui. Il les avait obtenus sur la planète Suzaku, sans en connaître l'efficacité exacte; il savait seulement qu'en y insérant une épée volante, le pouvoir de celle-ci deviendrait bien plus féroce.
 
 Après avoir sorti les cinq fourreaux, Wang Lin tendit la main droite et inséra l'épée de fer dans l'un d'eux. L'épée s'y ajusta parfaitement, sans laisser un pouce de vide.
 
@@ -74,7 +74,7 @@ Après une courte réflexion, Wang Lin contourna le pavillon et s'avança dans l
 
 La carte contenait des explications sur les restrictions liées à cette herbe. Wang Lin traversa la végétation sans déclencher le moindre piège, franchissant la zone en un clin d'œil.
 
-Dans le coin nord-est du premier étage, l'homme en noir portant la marque du dragon caché observait le pavillon d'un regard froid.
+Dans le coin nord-est du premier étage, l'homme en noir portant la marque cachée du dragon noir sur le front observait le pavillon d'un regard froid.
 
 Face à lui, de l'autre côté du pavillon, se tenait une autre personne: une belle femme d'âge moyen. Elle fixait l'homme en noir à travers la structure, son expression extrêmement sombre.
 
@@ -94,7 +94,7 @@ Une lueur d'intention meurtrière traversa les yeux de la belle femme et elle ch
 
 L'homme en noir ricana; sa main droite traça un sceau et, en pressant sa paume, un brouillard noir apparut. Ce dernier se mua en dragon et tenta d'engloutir la femme.
 
-Celle-ci porta la main à sa tête et en tira trois mèches de cheveux. Elle les lança en avant en récitant une étrange incantation. Les trois mèches se transformèrent en trois pythons noirs aux gueules rouge sang qui chargèrent le dragon de brouillard noir.
+Celle-ci porta la main à sa tête et en tira trois mèches de cheveux. Elle les lança en avant en récitant une étrange incantation. Les trois mèches se transformèrent en trois pythons noirs aux langues rouge sang qui chargèrent le dragon de brouillard noir.
 
 Tous deux étant de puissants cultivateurs, la collision de leurs sorts déclencha une tempête et des grondements sourds. Cependant, l'impact resta contenu dans un rayon de mille pieds.
 
@@ -112,7 +112,7 @@ Alors que leurs trésors s'entrechoquaient, les bruits devinrent plus fréquents
 
 L'homme en noir regarda la femme et hocha la tête. Sans perdre un instant, ils récupérèrent leurs trésors et s'engagèrent ensemble dans le pavillon.
 
-Cependant, au moment où ils franchirent le seuil, ils tournèrent tous deux la tête dans la même direction. Une personne sortait du pavillon.
+Cependant, au moment où ils franchirent le seuil, ils tournèrent tous deux la tête dans la même direction. Une personne sortait d'un ensemble de pavillons dans le lointain.
 
 Cette personne était Wang Lin!
 
@@ -120,11 +120,11 @@ Wang Lin aperçut immédiatement les deux individus à l'intérieur. Ses yeux se
 
 En voyant Wang Lin, l'homme en noir esquissa un sourire étrange. C'est la belle femme qui eut une expression troublée. Lorsque son regard balaya Wang Lin, elle fut frappée de stupeur.
 
-« Sa culture est encore plus étrange! La première fois que je l'ai vu, bien qu'il possédât la puissance d'un cultivateur du Purificateur du Nirvana, sa culture ne semblait être qu'au début du stade du Scruteur du Nirvana. Plus tard, il n'était toujours qu'au milieu de ce même stade. Mais à présent, il a atteint le sommet du Scruteur du Nirvana! Cache-t-il son véritable niveau ou vient-il de réaliser une percée? »
+« Sa culture est encore plus étrange! La première fois que je l'ai vu, bien qu'il possédât la puissance d'un cultivateur du Purificateur du Nirvana, sa culture ne semblait être qu'au stade du Scruteur du Nirvana. Plus tard, il n'était toujours qu'au milieu de ce même stade. Mais à présent, il a atteint le sommet du Scruteur du Nirvana! Cache-t-il son véritable niveau ou vient-il de réaliser une percée? »
 
 Wang Lin les observa attentivement. Il avait manifestement percé le secret du pavillon. En réalité, la carte indiquait bien la présence d'un réseau de transfert vers un espace de stockage à l'intérieur de ce pavillon. Même sans la carte, Wang Lin pouvait en voir l'existence.
 
-La femme réfléchit un instant en observant Wang Lin, puis dit lentement: « Le compagnon Wang est également ici. Que diriez-vous que nous partions tous les trois ensemble pour partager les trésors que nous trouverons? »
+La femme réfléchit un instant en observant Wang Lin, puis dit lentement: « Le compagnon Wang est également ici. Que diriez-vous que nous partions tous les trois ensemble pour partager en trois les trésors que nous trouverons? »
 
 Juste au moment où Wang Lin s'apprêtait à répondre, le sol trembla et un rugissement furieux retentit au loin.
 
@@ -134,7 +134,7 @@ Il ne pouvait rien distinguer dans le lointain. Les restrictions de la Grotte de
 
 L'expression de Wang Lin changea instantanément. Bien que la forêt de bambous paraisse normale à l'œil nu, il comprit que les restrictions de cette zone avaient été brisées. Le fantôme humanoïde progressait plus vite qu'il ne l'avait prévu.
 
-Sans répondre à la femme, Wang Lin se dirigea droit vers le palais enveloppé de brouillard noir. En chemin, il avait constaté que tous les points de restriction avaient été activés. Il semblait que quelqu'un ait une longueur d'avance et soit déjà arrivé au deuxième étage.
+Sans répondre à la femme, Wang Lin se dirigea droit vers le palais enveloppé de brouillard noir. En chemin, il avait constaté que tous les points de restriction avaient été ouverts. Il semblait que quelqu'un ait une longueur d'avance et soit déjà arrivé au deuxième étage.
 
 S'il s'était rendu au pavillon, c'est parce qu'il représentait le chemin le moins protégé par des restrictions pour atteindre le palais central.
 

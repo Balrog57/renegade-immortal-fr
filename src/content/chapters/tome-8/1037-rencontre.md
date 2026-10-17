@@ -6,7 +6,7 @@ bookTitle: "Alliance's Secret"
 en: Chapter 1037 - Meeting
 slug: rencontre
 ---
-Lorsque le doigt de Wang Lin se posa sur le 18e Sceau Céleste d'Emprisonnement des Enfers, une lueur rouge jaillit. Ce fut comme si une lumière couleur de sang avait envahi la grotte, faisant rougir les fleurs.
+Lorsque le doigt de Wang Lin se posa sur le Sceau Céleste des 18 Enfers, une lueur rouge jaillit. Ce fut comme si une lumière couleur de sang avait envahi la grotte, faisant rougir les fleurs.
 
 À mesure que cette lueur s'intensifiait, une brume rouge émana de la 14e couche. L'Ancêtre de Sang fixa Wang Lin d'un regard assoiffé de sang depuis l'intérieur de la brume. Cependant, il remarqua immédiatement la présence de Yao Xixue et tourna les yeux vers elle. Il fut un instant stupéfait, puis son expression s'adoucit.
 
@@ -22,7 +22,7 @@ L'âme de l'Ancêtre de Sang brilla d'un éclat rouge avant de reprendre progres
 
 La voix calme de Wang Lin laissait transparaître une pointe de froideur. Il fit un revers de manches et s'éloigna vers l'horizon.
 
-« Ancêtre de Sang, vous n'avez pas besoin de retourner à la 14e couche. Je vous ai libéré pour que vous puissiez accompagner votre fille. Ceci est la Grotte de l'Empereur Céleste dans les Terres des Esprits Démoniaques. Vous pouvez trouver un endroit où vous cacher tous les deux jusqu'à ce que l'intégralité de la grotte soit ouverte. »
+« Ancêtre de Sang, vous n'avez pas besoin de retourner à la 14e couche. Je vous ai libéré pour que vous puissiez accompagner votre fille. Ceci est la Grotte de l'Empereur Céleste dans la Terre des Esprits Démoniaques. Vous pouvez trouver un endroit où vous cacher tous les deux jusqu'à ce que l'intégralité de la grotte soit ouverte, puis quitter les lieux. »
 
 Le regard de Yao Xixue se posa sur le dos de Wang Lin, habitée par la confusion. Elle ne parvenait pas à réfléchir, mais elle ne voulait pas non plus essayer. Une voix résonnait dans son esprit, lui murmurant que son passé était comme le vent: désormais disparu, elle devait simplement laisser les choses ainsi...
 
@@ -44,7 +44,7 @@ Bien qu'elle eût perdu la mémoire, elle ressentit un instinct de confiance env
 
 «... Papa, ce qu'il a dit tout à l'heure était-il vrai? »
 
-« La vérité et le mensonge n'ont plus d'importance. Nous n'aurons plus jamais de contact avec lui... Il n'est pas quelqu'un que nous pouvons provoquer... » Tandis qu'il parlait, l'Ancêtre de Sang scruta l'horizon. Wang Lin lui était désormais invisible.
+« La vérité et le mensonge n'ont plus d'importance. Nous n'aurons plus jamais de contact avec lui... Il n'est pas quelqu'un que nous pouvons provoquer... » Tandis qu'il parlait, l'Ancêtre de Sang scruta l'horizon. Il ne parvenait plus à cerner Wang Lin.
 
 « Il n'est plus ce junior à qui je pouvais ne même pas accorder d'attention. En seulement quelques centaines d'années, il a déjà atteint un tel degré de puissance... »
 
@@ -66,7 +66,7 @@ Ces édifices formaient un agencement irrégulier. À l'extrémité de sa vue, i
 
 En pleine réflexion, les yeux de Wang Lin s'illuminèrent et il frappa son sac de rangement. Un jade apparut dans sa main; c'était un jade céleste qui diffusait une douce lueur.
 
-Wang Lin l'avait obtenu dans les Terres des Esprits Démoniaques. Il contenait le sortilège d'arrêt ainsi que la méthode pour raffiner les gardiens célestes. Wang Lin se souvenait qu'en l'examinant, il y avait également une carte à l'intérieur.
+Wang Lin l'avait obtenu dans la Terre des Esprits Démoniaques. Il contenait le sortilège d'arrêt ainsi que la méthode pour raffiner les gardiens célestes. Wang Lin se souvenait qu'en l'examinant, il y avait également une carte à l'intérieur.
 
 Cependant, comme cette carte lui avait semblé peu familière à l'époque, il n'y avait pas prêté attention. Mais en regardant la grotte maintenant, il éprouvait un vague sentiment de familiarité.
 
@@ -76,9 +76,9 @@ Wang Lin examina la carte avec soin et en mémorisa chaque détail. Après réfl
 
 Le gouffre était plongé dans l'obscurité totale, et son regard ne pouvait en percer les ténèbres.
 
-« Cet endroit est convenable! » Wang Lin fit un pas et pénétra dans la fosse. Il ne descendit toutefois pas trop vite; il ne s'enfonça que de quelques centaines de pieds avant de frapper son sac de rangement, faisant jaillir une douzaine de grandes épées qui balayèrent les parois de la fosse.
+« Cet endroit est convenable! » Wang Lin fit un pas et pénétra dans la fosse. Il ne descendit toutefois pas trop vite; il ne s'enfonça que de quelques centaines de pieds avant de frapper son sac de rangement, faisant jaillir quelques grandes épées qui balayèrent les parois de la fosse.
 
-La gravure vola de toutes parts et, un instant plus tard, une petite grotte fut aménagée. Wang Lin s'y installa et s'assit.
+Le gravier vola de toutes parts et, un instant plus tard, une ouverture apparut dans la paroi, formant une petite grotte. Wang Lin s'y installa et s'assit.
 
 Après avoir pris plusieurs respirations profondes, il plaça de nombreuses restrictions avant de se calmer. Puis, il frappa à nouveau son sac de rangement, libérant un rayon de lumière argentée qui se mua en une magnifique femme.
 
@@ -88,9 +88,9 @@ Wang Lin examina le cadavre féminin argenté pendant qu'il restait assis là. I
 
 Il déploya son Sens Divin et constata que le sceau de contrôle originel à l'intérieur de son corps était intact. Toutes les autres restrictions cachées qu'il avait placées étaient également présentes. Ce ne fut qu'à ce moment qu'il se détendit et ferma les yeux pour cultiver.
 
-« Maintenant que ma culture montre des signes de percée, je dois saisir cette chance et ascender. C'est ainsi que j'obtiendrai de meilleures chances dans cette Grotte de l'Empereur Céleste. »
+« Maintenant que ma culture montre des signes de percée, je dois saisir cette chance et élever ma culture d'un seul élan. Ainsi, dans cette dangereuse Grotte de l'Empereur Céleste, j'aurai de meilleures chances de survie. »
 
-Lorsqu'il ferma les yeux, l'énergie originelle en lui commença soudainement à circuler dans tout son corps. Une trace de chaleur ardente émana de lui, mais elle resta confinée à une certaine distance sans se propager.
+Lorsqu'il ferma les yeux, l'énergie originelle en lui commença soudainement à circuler dans tout son corps. Une trace de chaleur ardente émana de lui, mais elle resta confinée à dix pieds de lui sans se propager.
 
 Son domaine avait franchi un palier grâce à l'incident avec Yao Xixue. Maintenant que Wang Lin entamait sa pratique, sa culture, qui stagnait au sommet du stade intermédiaire du Scruteur du Nirvana, commença à se dénouer.
 
@@ -108,7 +108,7 @@ Des flammes rouges surgissaient de l'horizon lointain, comme si elles venaient c
 
 Ces flammes rouges se rapprochaient progressivement, devenant de plus en plus éclatantes. La lumière était d'une intensité extrême, donnant l'impression que des flammes infinies allaient balayer les étoiles elles-mêmes. Elles avançaient à une vitesse inimaginable.
 
-Un Oiseau Vermillon colossal, dont les ailes s'étendaient sur des centaines de kilomètres, volait en tête de ce brasier.
+Un Oiseau Vermillon colossal, dont les ailes s'étendaient sur plusieurs centaines de li, volait en tête de ce brasier.
 
 Cet Oiseau Vermillon était composé de feu pur, et sa chaleur prodigieuse pouvait être ressentie de très loin. Cette chaleur allait bouleverser tous les cultivateurs.
 

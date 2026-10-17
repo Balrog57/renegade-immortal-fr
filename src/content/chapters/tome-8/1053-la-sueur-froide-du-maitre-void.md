@@ -38,7 +38,7 @@ Les yeux de Hu Juan s'illuminèrent et elle regarda Wang Wei. Tandis que Wang We
 
 Bei Lou se détendit légèrement et atterrit au sol, tout en maintenant une certaine distance avec le couple. Son regard se posa sur Wang Lin et il rit: « Petit frère Wang, ton niveau de culture s'est étonnamment encore amélioré. Cependant, si tu ne guéris pas cette blessure rapidement, elle affectera ta culture à l'avenir. Peu importe, ce démon n'a pu venir ici que grâce à toi; je ne pense pas que quiconque d'autre m'aurait laissé entrer. »
 
-« Bien que j'aie des remèdes pour t'aider, tes blessures ont dû être causées par quelqu'un. Dis-moi son nom et je le tuerai pour te remercier de ta grâce. »
+« Je n'ai aucun remède pour te soigner, mais tes blessures ont dû être causées par quelqu'un. Dis-moi son nom et je le tuerai pour te remercier de ta grâce. »
 
 L'expression de Wang Lin resta glaciale. Avec son intelligence, comment ne pas percevoir la provocation et la tentation dans les paroles de Bei Lou? Ce dernier était manifestement surpris que Wang Lin ait pu parvenir jusqu'ici et ignorait quelle était sa relation avec le Couple du Nuage Céleste. Un léger sourire apparut sur les lèvres de Wang Lin alors qu'il joignit les mains: « Merci infiniment, Seigneur Ancien Démon. Si la personne qui m'a blessé se présente, je vous la désignerai. Veillez à ne pas revenir sur votre promesse! »
 
@@ -48,7 +48,7 @@ Il était évidemment peu opportun de sortir le corps de Qing Shuang pour le mom
 
 « Voici une pilule verte que Maître m'a donnée. Que tu cultives l'énergie spirituelle céleste ou l'énergie originelle, tant qu'il s'agit d'une énergie de ce monde, toutes les blessures peuvent être instantanément guéries par cette pilule. Je n'en ai plus beaucoup. Tu peux choisir de la prendre maintenant ou de la garder pour plus tard. » Tandis qu'il parlait, Wang Wei lança un regard froid à Bei Lou. Ce n'était pas seulement qu'il en manquait; il n'en possédait que trois au total: une avec Hu Juan et deux avec lui.
 
-Dès que Bei Lou aperçut la cire verte, la cupidité envahit son regard; il connaissait trop bien ce remède. Lorsque lui et l'Ancien Démon Ta Jia avaient attaqué Qing Lin par surprise, même malgré ses graves blessures, la pilule avait eu un effet notable.
+Dès que Bei Lou aperçut la cire verte, la cupidité envahit son regard; il connaissait trop bien ce remède. Lorsque lui et l'Ancien Démon Ta Jia avaient attaqué Qing Lin par surprise, même avec les blessures étranges de Qing Lin, la pilule n'avait déjà plus qu'un effet limité, mais elle en avait tout de même un.
 
 Elle avait permis à Qing Lin de résister vigoureusement, et c'était finalement pour cela que l'ancien démon avait échoué.
 
@@ -94,9 +94,9 @@ Une silhouette entra lentement dans la salle. C'était une femme entourée de fl
 
 Son expression était calme. Ses yeux magnifiques balayèrent la salle et se posèrent particulièrement sur Wang Lin. Sans dire un mot, elle trouva un coin et s'assit.
 
-Moins de sept minutes après l'installation de la jeune fille, Wang Lin sentit à nouveau des fluctuations à l'extérieur. Il leva les yeux et vit trois silhouettes pénétrer dans la salle!
+Moins d'un demi-bâton d'encens après l'installation de la jeune fille, Wang Lin sentit à nouveau des fluctuations à l'extérieur. Il leva les yeux et vit trois silhouettes pénétrer dans la salle!
 
-Le Maître du Vide, la femme magnifique et l'homme vêtu de noir.
+Le Maître du Vide, la belle femme et l'homme vêtu de noir.
 
 Dès leur entrée, ils captèrent l'attention de tous. Le Maître du Vide remarqua immédiatement Wang Lin, et une intention meurtrière monstrueuse traversa son regard.
 
@@ -104,7 +104,7 @@ Au moment où il vit Wang Lin, Wang Lin le vit aussi. Les yeux de ce dernier dev
 
 À ces mots, Wang Wei et Hu Juan se tournèrent tous pour fixer le Maître du Vide. Même l'Ancien Démon Bei Lou regarda le Maître du Vide avec un sourire qui n'en était pas un.
 
-Une intention meurtrière traversa les yeux de Zhou Yi alors qu'il flottait vers l'avant, s'approchant du Maître du Vide.
+Une intention meurtrière traversa les yeux de Zhou Yi alors qu'il flottait vers l'avant, s'approchant du Maître du Vide. À la moindre occasion, il frapperait aussitôt, déployant une puissance terrifiante grâce à la Perception Spirituelle Impérissable qu'il venait d'achever de cultiver, pour venger Wang Lin!
 
 Cette scène soudaine fit pousser un cri étouffé de stupeur chez le Maître du Vide; une sueur froide couvrit son front et son cœur s'emballa. Il ignorait ce que Wang Lin avait accompli durant ces quelques mois pour que ces gens viennent à sa rescousse!
 

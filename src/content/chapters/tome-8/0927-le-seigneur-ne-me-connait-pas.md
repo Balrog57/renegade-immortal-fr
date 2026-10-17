@@ -28,7 +28,7 @@ Il fixa Wang Lin qui se rapprochait de la femme en robe bleue, et le ricanement 
 
 Wang Lin ne ralentit pas et suivit l'onde de choc. Celle-ci était dévastatrice et se déplaçait comme l'éclair, atteignant la femme en robe bleue à une distance de cent pieds.
 
-Une lueur de froideur passa dans ses yeux. Elle savait que le membre du Clan des Démons Géants placé sous ses ordres ne pourrait pas arrêter cet homme. Cependant, sans trace de panique, elle leva calmement sa main gauche et pressa le vide sous ses pieds.
+Une lueur de froideur passa dans ses yeux. Elle savait que le membre du Clan des Démons Géants qui se trouvait sous elle ne pourrait pas arrêter cet homme. Cependant, sans trace de panique, elle leva calmement sa main gauche et pressa le vide sous ses pieds.
 
 À cet instant précis, la planète de culture portée par le membre du Clan des Démons Géants commença à tourner à une vitesse incroyable. Des vagues d'ondulations rouge écarlate se propagèrent rapidement.
 
@@ -82,7 +82,7 @@ Il n'était vraiment pas disposé à utiliser l'évasion par le sang, sauf en de
 
 La haine qu'il vouait à Wang Lin était désormais indescriptible. Il se retourna et rugit: « Xu Mu, toi... » Il voulait utiliser ce cri pour dénoncer le comportement de Wang Lin afin que les cultivateurs de Luotian et les vieux monstres soupçonnent ce dernier.
 
-Cependant, au moment où il allait parler, ses mots furent couverts par le rire de Wang Lin. Alors que Xu Ting reculait, Wang Lin chargea vers les ondulations rouge écarlate en riant: « Le compagnon cultivateur Xu est effectivement fiable. Puisque tu m'as aidé à affaiblir ces ondes, moi, Xu Mu, je ne l'oublierai pas. Si je parvins à tuer cette femme, tu recevras également le mérite du coup fatal! »
+Cependant, au moment où il allait parler, ses mots furent couverts par le rire de Wang Lin. Alors que Xu Ting reculait, Wang Lin chargea vers les ondulations rouge écarlate en riant: « Le compagnon cultivateur Xu est effectivement fiable. Puisque tu m'as aidé à affaiblir ces ondes, moi, Xu Mu, je ne l'oublierai pas. Si je parviens à tuer cette femme, tu auras le premier mérite! »
 
 Tandis qu'il parlait, Wang Lin se déplaçait avec une rapidité extrême. Les ondulations qui avaient touché Xu Ting étaient déjà affaiblies. Les deux doigts de Wang Lin formèrent une épée, puis son corps de Dieu Ancien, combiné à son énergie d'origine et aux poissons Yin et Yang, percuta les ondes rouge écarlate.
 
@@ -110,6 +110,6 @@ Elle poussa un soupir et regarda le lotus à huit feuilles. Sa main gauche arrac
 
 Boom!
 
-Une explosion retentit dans l'espace situé à cent pieds autour de Wang Lin. Une aura puissante sembla s'emparer de cette zone, comme si tout ce qui s'y trouvait devait s'effondrer!
+Une explosion retentit dans l'espace situé à plusieurs milliers de pieds autour de Wang Lin. Une aura puissante sembla s'emparer de la zone, comme si tout ce qui se trouvait à cent pieds autour de lui devait s'effondrer!
 
 Des craquements retentirent sous les pieds de Wang Lin et une immense fissure apparut. Une force colossale émanait de l'espace, comme pour le précipiter dans la brèche!

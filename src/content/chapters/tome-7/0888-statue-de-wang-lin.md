@@ -7,7 +7,7 @@ en: Chapter 888 - Statue of Wang Lin
 slug: statue-de-wang-lin
 ---
 
-Ce garçon à la grosse tête avait déjà aperçu, de loin, cette planète de culture en partie dévastée. D'après sa connaissance du Système Stellaire de l'Alliance, ce type de planète devrait être de rang 6.
+Ce garçon à la grosse tête avait déjà aperçu, de loin, cette planète de culture à moitié abandonnée. D'après sa connaissance du Système Stellaire de l'Alliance, ce type de planète devrait être de rang 6.
 
 Avec son niveau de culture, un pays de culture de rang 6 ne méritait pas son attention, sans compter qu'il était accompagné de centaines de cultivateurs. La seule raison pour laquelle il se trouvait ici était qu'il passait par là. Sa véritable mission consistait à être la première vague de cultivateurs à pénétrer dans la région sud afin d'en enquêter sur la situation!
 
@@ -31,13 +31,13 @@ Seuls quelques-uns de ces cultivateurs avaient déjà rencontré Wang Lin. Tous 
 
 Il convient de noter que l'un des vieillards, vêtu d'une robe jaune, dégageait une aura céleste et portait une épée dans le dos. Cependant, comme il se tenait à l'arrière, il était évident que son statut parmi eux n'était pas très élevé. Si Wang Lin avait vu cette personne, il aurait été choqué: c'était le chef de la Secte Heng Yue, Huanglong!
 
-À cet instant, il affichait une expression sérieuse qui ne trompait personne. Cependant, des lueurs d'amusement y perçaient, mais nul ne pouvait les déceler.
+À cet instant, il affichait une expression sérieuse, sans la moindre fausseté. Cependant, des lueurs d'amusement y perçaient par moments, mais nul ne pouvait les déceler.
 
-« Puisque le Compagnon Cultivateur Wang Lin m'a confié la garde de Suzaku, j'ai promis de vivre et de mourir avec cette planète. Aujourd'hui, l'ennemi est devant nous. Même si je dois être détruit, je ne reculerai pas d'un seul pas! »
+« Depuis que le Compagnon Cultivateur Wang Lin m'a cédé la position de Zhu Quezi, j'ai juré de vivre et de mourir avec la planète Suzaku. Aujourd'hui, l'ennemi est devant nous. Même si je dois être détruit, je ne reculerai pas d'un seul pas! »
 
 Deux cultivateurs Ascendants se tenaient derrière Zhou Wutai. C'étaient deux vieillards qui, si Wang Lin avait été présent, aurait pu les reconnaître. Les deux laissèrent échapper un soupir, se regardèrent et affichèrent des regards fermes. Il n'y avait aucune issue. Ce n'était pas une simple guerre, mais une bataille entre deux systèmes stellaires! Ils l'avaient appris après avoir reçu les informations de l'Alliance de la Culture. Heureusement, ils s'étaient préparés, sans quoi ils seraient sans aucun doute morts.
 
-De l'autre côté de la planète Suzaku, Yun Quezi ouvrit les yeux après des centaines d'années de culture en ermitage. Il paraissait beaucoup plus âgé et son tatouage scintillait sur son front. Il se leva, fit un pas en avant, puis apparut dans les airs pour scruter l'horizon. Le Clan de l'Immortel Délaissé s'était rassemblé un à un derrière lui, les traits extrêmement graves.
+De l'autre côté de la planète Suzaku, Yun Quezi ouvrit les yeux après des centaines d'années de culture en ermitage. Il paraissait beaucoup plus âgé et la rune entre ses sourcils scintillait. Il se leva, fit un pas en avant, puis apparut dans les airs pour scruter l'horizon. Le Clan de l'Immortel Délaissé s'était rassemblé un à un derrière lui, les traits extrêmement graves.
 
 Simultanément, certains cultivateurs qui ne se souciaient guère des affaires mondaines sortirent de leurs retraites. Ils levèrent les yeux vers le ciel alors qu'une aura oppressante apparaissait. Cette pression était semblable à des montagnes s'effondrant du ciel; quiconque oserait résister serait écrasé!
 
@@ -51,7 +51,7 @@ Dès leur arrivée, les deux frères rirent de manière incontrôlée. Leur rire
 
 Instantanément, les puissances de la planète Suzaku — Yun Quezi, Zhou Wutai et les autres cultivateurs Ascendants — s'élancèrent rapidement dans les airs. Ils étaient prêts pour la guerre!
 
-Cependant, à cet instant précis, le cultivateur qui déployait son sens divin survola la Secte Ciel Nuageux et fut frappé comme par la foudre. C'était comme si des dizaines de milliers d'éclairs avaient explosé près de ses oreilles, le faisant vaciller. Son esprit trembla, ses yeux s'écarquillèrent et une expression d'incrédulité apparut sur son visage. Même la peur commença à se répandre follement dans tout son corps.
+Cependant, à cet instant précis, le cultivateur qui déployait son sens divin survola la Secte Ciel Nuageux et fut frappé comme par la foudre. C'était comme si des centaines de milliers d'éclairs avaient explosé près de ses oreilles, le faisant vaciller. Son esprit trembla, ses yeux s'écarquillèrent et une expression d'incrédulité apparut sur son visage. Même la peur commença à se répandre follement dans tout son corps.
 
 « Ceci... ceci est... »
 
@@ -65,9 +65,9 @@ Leurs deux crânes picotèrent instantanément et leurs cœurs battirent la cham
 
 Lors de la compétition pour le titre céleste, il avait obtenu le rang de Céleste du Tonnerre et pouvait commander 3 000 cultivateurs. Un tel prestige n'était pas l'apanage d'un homme ordinaire. Oubliez-les, même leurs ancêtres auraient dû se montrer respectueux face au Maître Démon Xu Mu. Même le Messager Céleste, le garçon à la grosse tête, tremblerait devant lui.
 
-Ils pestèrent intérieurement. Leur arrogance et leur intention meurtrière s'étaient évanouies, remplacées par la panique. Sans hésiter, les deux s'enfuirent avec précipitation. Ils savaient trop bien ce que le nom de Maître Démon Xu Mu représentait: le massacre, un massacre sans fin. S'opposer à cet homme signifiait une mort certaine!
+Ils pestèrent intérieurement. Leur arrogance et leur intention meurtrière s'étaient évanouies, remplacées par la panique. Sans hésiter, les deux s'enfuirent avec précipitation. Ils savaient trop bien ce que le nom de Maître Démon Xu Mu représentait: le massacre, un massacre sanglant. S'opposer à cet homme signifiait une mort certaine!
 
-Le frère cadet du Seigneur Céleste Qing Shui, un Céleste du Tonnerre, numéro un des jeunes du Luotian, bienfaiteur d'innombrables familles de culture, et celui qui avait infligé de lourdes pertes à la famille Yao après avoir été traqué par eux! Chacune de ces prouesses suffisait à faire mourir ces deux frères mille fois!
+Le Junior Frère du Seigneur Céleste Qing Shui, un Céleste du Tonnerre, numéro un des jeunes du Luotian, bienfaiteur d'innombrables familles de culture, et celui qui avait infligé de lourdes pertes à la famille Yao après avoir été traqué par eux! Chacune de ces prouesses suffisait à faire mourir ces deux frères mille fois!
 
 À cet instant, ils ne cherchèrent même pas à comprendre ce qui se passait. Perdus dans leur effroi, ils ne voulaient qu'une chose: partir le plus vite possible. Avec leur intelligence, ils étaient sûrs de ne pas s'être trompés. Cette statue était Xu Mu!
 

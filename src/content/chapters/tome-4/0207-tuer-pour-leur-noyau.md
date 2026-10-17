@@ -36,13 +36,13 @@ Une fois apparu, sur ordre de Wang Lin, le démon devint invisible. À travers l
 
 Le visage de Wang Lin restait sombre. Il observa les environs et vit de nombreuses personnes circuler dans la ville de Qilin, mais aucune d'elles ne remarquait l'existence de cette ligne rouge.
 
-Wang Lin était perplexe. Cette sensation d'horreur ne cessait de croître. La seule autre fois où il avait ressenti un tel effroi, c'était face à l'Ancien Dieu Tusi.
+Wang Lin était perplexe. Cette sensation d'horreur ne cessait de croître. La seule autre fois où il avait ressenti un tel effroi, c'était face à l'Ancien Dieu Tu Si.
 
 Il réfléchit longuement. Il parcourut ses souvenirs hérités pour tenter de comprendre ce qui se passait et pourquoi cette scène étrange survenait précisément lors de l'apparition du drapeau de restriction.
 
 Le second démon fendait rapidement la brume. Étant une créature volante avant d'être transformé en démon, sa vitesse était devenue phénoménale après sa métamorphose. Même Wang Lin ne pourrait voler aussi vite que lui.
 
-Si Qiu Siping l'avait piégé dans la brume noire six jours auparavant, il aurait pu disparaître sans laisser de trace s'il avait eu la moindre opportunité d'utiliser sa vitesse.
+Si Qiu Siping ne l'avait pas piégé dans la brume noire six jours auparavant, il lui aurait suffi d'une seule occasion pour disparaître sans laisser de trace grâce à sa vitesse.
 
 Le second démon se déplaçait comme un éclair à travers le brouillard surplombant la Mer des Démons.
 
@@ -50,7 +50,7 @@ Le second démon se déplaçait comme un éclair à travers le brouillard surplo
 
 Ce renflement grossit sans cesse, tel un réservoir d'eau suspendu sous la brume rouge.
 
-Puis, le fond du renflement s'ouvrit. Un rugissement tonitruant retentit et un pilier de lumière rouge, dont la puissance semblait capable de détruire l'étoile Suzaku tout entière, tomba du ciel.
+Puis, le fond du renflement s'ouvrit. Un rugissement tonitruant retentit et un pilier de lumière rouge, dont la puissance semblait capable de transpercer la planète Suzaku tout entière, tomba du ciel.
 
 Au moment où ce pilier de lumière chutait, la brume rouge se contracta brusquement, passant de 5 kilomètres de large à environ 3 ou 4 kilomètres.
 
@@ -78,7 +78,7 @@ Elle illumina les terres sombres, la ville sinistre et les cultivateurs dont les
 
 Si l'on comparait la Mer des Démons à un cercle, toute la brume en périphérie avait disparu; elle s'était soit concentrée au centre, soit transformée en nuages noirs par le pilier rouge.
 
-À l'endroit où le pilier rouge était stoppé dans la brume, celle-ci s'était déjà considérablement réduite. Alors, la brume forma un gigantesque pilier noir et le projeta violemment contre le pilier rouge.
+À l'endroit où le pilier rouge s'était arrêté, il avait déjà considérablement rétréci. Sous lui, toute la brume de la Mer des Démons s'était condensée en un gigantesque pilier noir qui fonça violemment à sa rencontre.
 
 Soudain, lors de la collision des deux piliers, une onde de choc dévastatrice se propagea. Toute créature vivante touchée par cette onde dans la brume fut instantanément réduite en poussière.
 
@@ -88,7 +88,7 @@ Mais ce n'était pas encore fini. La masse de brume rouge de 3 ou 4 kilomètres 
 
 Cette fois, toute la brume rouge s'effondra avec le pilier. Il ne restait plus aucune trace de brume rouge dans le ciel; tout était tombé avec lui.
 
-Puisque les deux tiers de la brume avaient disparu, le nouveau pilier rouge toucha presque instantanément le point où le précédent avait disparu.
+Comme plus aucune brume ne le gênait sur les deux premiers tiers du trajet, le nouveau pilier rouge toucha presque instantanément le point où le précédent avait disparu.
 
 Un rugissement assourdissant, audible par chaque cultivateur de la Mer des Démons, retentit, tandis qu'une quantité massive de brume noire se transformait en nuages sombres et se condensait dans le ciel.
 
@@ -102,17 +102,17 @@ En voyant le pilier rouge via le second démon, une phrase surgit soudainement d
 
 « La Rétribution Divine... »
 
-Wang Lin marmonnait pour lui-même tout en parcourant ses souvenirs à la recherche de toute mention de la rétribution divine. Durant sa vie, l'Ancien Dieu Tusi en avait affronté d'innombrables.
+Wang Lin marmonnait pour lui-même tout en parcourant ses souvenirs à la recherche de toute mention de la rétribution divine. Durant sa vie, l'Ancien Dieu Tu Si en avait affronté d'innombrables.
 
-Au début, Tusi s'en inquiétait. Mais après que son corps eut été reconstruit quatre fois, la rétribution divine cessa d'être une menace pour devenir un véritable complément de culture.
+Au début, Tu Si s'en inquiétait. Mais après que son corps eut été reconstruit quatre fois, la rétribution divine cessa d'être une menace pour devenir un véritable complément de culture.
 
-De plus, chaque fois que l'Ancien Dieu était sur le point de gagner en puissance, il déclenchait une rétribution divine; parfois, ils utilisaient même la force de cette rétribution lors de la création de trésors magiques pour en déterminer la qualité.
+De plus, chaque fois que l'Ancien Dieu forgeait un trésor, cela déclenchait une rétribution divine; parfois, il se servait même de la force de cette rétribution pour juger de la qualité du trésor magique qu'il forgeait.
 
 Plus la rétribution était forte, plus le trésor était puissant; si elle était trop faible, cela signifiait que le trésor manquait de potentiel.
 
 Bien sûr, ce n'était qu'une estimation très approximative et souvent erronée. Par exemple, le drapeau de restriction créé par Wang Lin ne pouvait absolument pas être comparé à une rétribution divine.
 
-La véritable cause de cette rétribution provenait de la pierre d'encre. Cette pierre était restée trop longtemps dans le corps de l'Ancien Dieu et avait accumulé une partie de son énergie spirituelle. C'est pourquoi la rétribution divine, absente du monde de la culture depuis si longtemps, réapparaissait maintenant.
+La véritable cause de cette rétribution provenait de la pierre d'encre. Cette pierre était restée trop longtemps dans le corps de l'Ancien Dieu et s'était imprégnée d'une trace de son aura. C'est pourquoi la rétribution divine, absente du monde de la culture depuis si longtemps, réapparaissait maintenant.
 
 De même, comme la rétribution divine ne s'était pas manifestée depuis des éons, bien qu'elle n'ait été déclenchée que par la création d'un trésor magique, elle contenait une puissance inimaginable.
 
@@ -138,11 +138,11 @@ Wang Lin était dans sa grotte lorsqu'il ressentit une force colossale venant de
 
 Mais à cet instant précis, la force mystérieuse autour du drapeau disparut soudainement. Les yeux de Wang Lin s'illuminèrent. Sans hésiter, il saisit le drapeau de sa main droite.
 
-Simultanément, il projeta son corps hors de l'écaille juste au moment où la ville de Qilin s'effondrait. Mais alors qu'il s'élançait, un nuage rouge forma une fine ligne et fut projeté depuis les ruines de la ville vers le drapeau dans la main de Wang Lin.
+Simultanément, il se rua hors de la bête Qilin juste au moment où elle s'effondrait. Mais alors qu'il s'élançait, un nuage rouge forma une fine ligne et fut projeté depuis les ruines de la ville vers le drapeau dans la main de Wang Lin.
 
 Le fil était d'une rapidité extrême. Même si Wang Lin avait rangé le drapeau dans son sac de rangement, seul le sac aurait été détruit. À cet instant, Wang Lin serra les dents et déplaça sa main droite: soudainement, le drapeau passa dans sa main gauche et un instrument qu'il ne contrôlait pas apparut dans sa main droite.
 
-Tout cela se produisit juste avant l'impact du fil. Au moment où celui-ci toucha l'instrument, il le brisa et projeta Wang Lin au loin.
+Tout cela se produisit juste avant l'impact du fil. Au moment où celui-ci toucha l'instrument, l'instrument s'effondra et Wang Lin s'élança aussitôt à toute vitesse.
 
 Cependant, après la destruction de l'instrument, une petite quantité de fil rouge s'en échappa. Cette fois, avant qu'il ne puisse réagir, le fil rouge frappa la main droite de Wang Lin.
 
@@ -170,11 +170,11 @@ Cependant, en secret, de nombreux cultivateurs profitèrent du chaos pour commet
 
 Mais tout cela ne concernait pas Wang Lin. Pour l'instant, il sentait son noyau rétrécir sans cesse. Un fil rouge reposait sur lui, absorbant rapidement toute son énergie. Si le noyau venait à se fissurer ou à se briser, la mort serait son seul destin.
 
-Sa culture avait déjà chuté du stade avancé de la Formation du Noyau au stade intermédiaire. Selon ses calculs, il passerait du stade intermédiaire au stade initial dans trois heures, puis, trente minutes après cela, son noyau se briserait.
+Sa culture avait déjà chuté du stade avancé de la Formation du Noyau au stade intermédiaire. Selon ses calculs, il passerait du stade intermédiaire au stade initial dans six heures, puis, une heure après cela, son noyau se briserait.
 
 Wang Lin ne pouvait pas se soucier de son rendez-vous avec Qiu Siping le septième jour. Sa priorité était de trouver un moyen d'extraire ce fil rouge.
 
-Le visage de Wang Lin était livide. Ses yeux étaient injectés de sang et empreints d'une intention meurtrière. Pour survivre, il devait entamer une véritable chasse. Quel dommage qu'il ait épuisé toute son eau spirituelle dans la terre de l'Ancien Dieu. Bien qu'il en ait rassemblé davantage à Qilin, cela ne lui aurait permis que de tenir un certain temps.
+Le visage de Wang Lin était livide. Ses yeux étaient injectés de sang et empreints d'une intention meurtrière. Pour survivre, il devait entamer une véritable chasse. Quel dommage qu'il ait épuisé toute son eau spirituelle dans la terre de l'Ancien Dieu. Il n'en avait pas accumulé beaucoup à Qilin; sinon, cela lui aurait permis de tenir un certain temps.
 
 À cet instant, un homme d'âge moyen vêtu de noir apparut devant lui. Il s'approcha et dit: « Stade intermédiaire de la Formation du Noyau... c'est bien vous! »
 
@@ -216,7 +216,7 @@ La seule solution était de continuer à tuer pour leurs noyaux, jusqu'à accumu
 
 Il lui fallait donc un grand nombre de victimes. Les yeux de Wang Lin n'avaient jamais été aussi empreints d'intention meurtrière. Il savait que sa cadence actuelle était bien trop lente.
 
-Le regard de Wang Lin se fit glacial. Il déploya son Sens Divin et chargea vers des bêtes émergeant de la brume à environ 50 kilomètres de là. Il ouvrit son sac de rangement, et son épée noire empoisonnée apparut.
+Le regard de Wang Lin se fit glacial. Il déploya son Sens Divin et chargea vers des bêtes émergeant de la brume à environ 50 kilomètres de là. Au moment où son Sens Divin du Royaume Ji quittait son corps, il frappa son sac de rangement, et son épée noire empoisonnée apparut.
 
 Il ne marquait aucune pause, tuant les bêtes et s'emparant de leurs noyaux tout en continuant sa course. Simultanément, son Sens Divin se répandait pour localiser des concentrations de cultivateurs ou de bêtes.
 
@@ -224,13 +224,13 @@ En plein vol, Wang Lin s'arrêta brusquement. Son Sens Divin avait détecté un 
 
 Il parcourut rapidement la distance. Le troupeau était immense. À son arrivée, il pointa son front et le second démon surgit pour s'élancer dans la masse.
 
-Peu après, l'épée noire empoisonnée se mit également en mouvement, ainsi que le Domaine du Royaume de Wang Lin. Toutes ces attaques s'abattirent sur le troupeau.
+Peu après, l'épée noire empoisonnée se mit également en mouvement, ainsi que le Sens Divin du Royaume Ji de Wang Lin. Toutes ces attaques s'abattirent sur le troupeau.
 
 Mais un rugissement féroce retentit de l'intérieur de la horde. Une pieuvre gigantesque émergea lentement du sol, ses yeux noirs fixant froidement Wang Lin.
 
 Wang Lin constata que cette bête possédait une puissance comparable à celle d'un cultivateur au stade intermédiaire de l'Âme Naissante; il fit donc demi-tour sans attendre. Il connaissait ce genre de situation: dans un tel troupeau, la présence de bêtes de niveau Âme Naissante était inévitable.
 
-Le corps de Wang Lin flascha et disparut au loin. La pieuvre poussa un cri et se lança à sa poursuite.
+Wang Lin disparut d'un éclair dans le lointain. La pieuvre poussa un cri et se lança à sa poursuite.
 
 Wang Lin ne se retourna pas, il fuyait simplement. Après l'avoir poursuivi une certaine distance, la pieuvre hésita, puis cessa ses poursuites pour retourner vers son troupeau afin de dévorer quelques bêtes avant de s'enfoncer à nouveau sous terre.
 
@@ -244,9 +244,9 @@ Soudain, un bourdonnement sourd retentit au loin.
 
 Wang Lin n'hésita pas: dès que ces mots furent prononcés, il commença à reculer.
 
-La voix laissa échapper un ricanement. Le propriétaire de la voix apparut soudainement devant lui et, d'un geste de la main droite, exerça une force puissante pour attirer Wang Lin.
+La voix laissa échapper un ricanement. Le propriétaire de la voix apparut soudainement devant lui et, d'un geste de la main droite, projeta une force puissante vers Wang Lin.
 
-Le corps de Wang Lin fut projeté en arrière. Il fixa l'homme d'âge moyen vêtu d'une robe violette au visage indifférent. Après quelques secondes, ils se retrouvèrent près des cadavres des sept cultivateurs.
+Le corps de Wang Lin fut repoussé en arrière. Il fixa l'homme d'âge moyen vêtu d'une robe violette au visage indifférent, qui en quelques pas atteignit l'endroit où gisaient les cadavres des sept cultivateurs.
 
 L'individu baissa les yeux et fronça les sourcils. Fixant froidement Wang Lin, il déclara: « Quel comportement sauvage! Tous tuent pour des trésors, tandis que toi, tu tues pour des noyaux! »
 
@@ -334,7 +334,7 @@ Le temps s'écoula lentement. Chaque fois qu'un fragment obtenait un noyau, il r
 
 Deux jours plus tard, Wang Lin, assis au centre de la zone protégée par le drapeau, était livide. Son noyau avait rétréci jusqu'à la taille d'un ongle et sa culture était tombée au stade initial de la Formation du Noyau.
 
-Toute l'énergie des noyaux rapportés par ses fragments était stockée en un lieu sûr. Il se préparait pour le moment critique: porter le coup fatal au fil rouge.
+Toute l'énergie des noyaux rapportés par ses fragments était condensée dans un autre endroit de son corps. Il se préparait pour le moment critique: porter le coup fatal au fil rouge.
 
 Wang Lin forma un sceau et cria d'une voix rauque: « Fragments d'âme, revenez! »
 
@@ -350,7 +350,7 @@ En utilisant toute l'énergie accumulée, son noyau avait repris de la taille. S
 
 Wang Lin était convaincu que pour se débarrasser définitivement de ce fil, il devait atteindre le stade de l'Âme Naissante afin d'utiliser la technique du "Transfert de Poison" de Bossu Meng et le projeter sur un autre corps.
 
-Il réfléchit un instant, le regard audacieux. Il ferma les yeux pour tenter de localiser le démon Xu Liguo, mais la distance ne lui permit qu'une direction approximative. Il se mit en route immédiatement.
+Il réfléchit un instant, le regard résolu. Il ferma les yeux pour tenter de localiser le démon Xu Liguo, mais la distance ne lui permit qu'une direction approximative. Il se mit en route immédiatement.
 
 Cette fois, Wang Lin utilisa la technique d'évasion tellurique pour accélérer sa course. Sa vitesse devint fulgurante, bien que cette technique fût extrêmement gourmande en énergie spirituelle, raison pour laquelle il l'avait gardée en réserve.
 
@@ -358,13 +358,13 @@ Après sept jours de voyage, utilisant son Sens Divin pour guider ses pas, il at
 
 C'était exact. Alors que Wang Lin chargeait vers le sommet d'une montagne, Xu Liguo sortit d'un pavillon pour s'engouffrer à nouveau dans les sourcils de Wang Lin.
 
-L'ombre de Qiu Siping apparut dans le pavillon; il semblait épuisé et son souffle était court. Wang Lin entra et s'assit sur une chaise de pierre pour examiner son compagnon.
+La silhouette de Qiu Siping apparut dans le pavillon; il semblait épuisé et son souffle était court. Wang Lin entra et s'assit sur une chaise de pierre pour examiner son compagnon.
 
-Qiu Siping esquissa un sourire amer: « Cher collègue, je vous ai attendu ici plus d'un demi-mois. Si je n'avais pas été certain que vous teniez vos promesses, je serais déjà parti. »
+Qiu Siping esquissa un sourire amer: « Cher compagnon, je vous ai attendu ici plus d'un demi-mois. Si je n'avais pas été certain que vous teniez vos promesses, je serais déjà parti. »
 
 Wang Lin eut un air contrit: « Les bouleversements dans la Mer des Démons ont provoqué une vague de meurtres et les sectes cherchent à étendre leur pouvoir, ce qui a retardé mon voyage. Je vous ai fait attendre. »
 
-Qiu Siping soupira: « Ce n'est pas grave. J'ai tué quelques cultivateurs avides au passage, j'en ai tiré profit. Cher collègue, seriez-vous prêt à nous rendre dans cet endroit dès maintenant? »
+Qiu Siping soupira: « Ce n'est pas grave. J'ai tué quelques cultivateurs avides au passage, j'en ai tiré profit. Cher compagnon, seriez-vous prêt à nous rendre dans cet endroit dès maintenant? »
 
 Wang Lin hocha la tête: « Très bien. Je vous en prie, montrez-moi le chemin. »
 

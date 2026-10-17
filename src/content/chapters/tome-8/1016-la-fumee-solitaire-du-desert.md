@@ -12,21 +12,21 @@ Les pupilles de Wang Lin se rétractèrent. Il connaissait cette ombre, il la co
 
 C'était une tour noire qui se dressait au milieu de ce désert de sable noir et inhospitalier. Elle était imprégnée d'une telle énergie démoniaque que l'on pouvait ressentir son aura délirante à distance.
 
-Wang Lin avait déjà vu une tour noire semblable par le passé. Dans le Pays des Démons Célestes, un ricanement glacial avait presque fait s'effondrer le corps de Wang Lin la dernière fois qu'il s'y était rendu.
+Wang Lin avait déjà vu une tour noire semblable par le passé. Dans le Pays des Démons Célestes, un reniflement glacial avait presque fait s'effondrer le corps de Wang Lin à l'époque.
 
-Il n'avait pas réussi à échapper aux sorts de la tour dans les Terres des Esprits Démoniaques. Sans la simulation du Fruit de l'Ascension Céleste, il aurait perdu la trace de la tour du démon dispersé!
+Même dans sa grotte, il n'avait pas pu échapper aux sorts de ce qui se trouvait dans la tour. Sans la stimulation du Fruit de l'Ascension Céleste, il aurait totalement perdu sa nature face à la tour du démon dispersé!
 
-« Un démon dispersé! À l'époque, Bei Lou avait dit qu'il y avait neuf démons dispersés sous les anciens démons. J'en avais rencontré un seul dans les Terres des Esprits Démoniaques. Je ne pensais pas tomber sur la tour d'un démon dispersé ici! » Les yeux de Wang Lin s'illuminèrent et il s'arrêta net.
+« Un démon dispersé! À l'époque, Bei Luo avait dit qu'il y avait neuf démons dispersés sous les anciens démons. J'en avais rencontré un seul dans les Terres des Esprits Démoniaques. Je ne pensais pas tomber sur la tour d'un démon dispersé ici! » Les yeux de Wang Lin s'illuminèrent et il s'arrêta net.
 
 Son visage devint légèrement rouge. C'était le contrecoup de l'utilisation de l'Évasion Sanguine. L'énergie démoniaque résiduelle dans l'air se dissipa également.
 
-« Il y a une tour de démon dispersé ici... Et l'Ancien Démon Bei Lou était impatient d'arriver... La Céleste Fleur avait dit qu'après l'effondrement du Royaume Céleste, l'Empereur Céleste Qing Lin avait été gravement blessé. Puis, il fut pris au piège par deux étrangers et contraint à une culture en isolement ici! »
+« Il y a une tour de démon dispersé ici... Et l'Ancien Démon Bei Luo était impatient d'arriver... La Concubine Impériale Fleur avait dit qu'après l'effondrement du Royaume Céleste, l'Empereur Céleste Qing Lin avait rencontré deux êtres venus d'au-delà du monde et, gravement blessé, s'était retiré ici en culture isolée! »
 
-« Ces deux étrangers étaient probablement l'Ancien Démon Bei Lou et un ancien démon! » Au moment où Wang Lin vit la tour noire, ce fut comme si un éclair traversait son esprit; il fut soudainement illuminé.
+« Ces deux étrangers étaient probablement l'Ancien Démon Bei Luo et un ancien démon! » Au moment où Wang Lin vit la tour noire, ce fut comme si un éclair traversait son esprit; il fut soudainement illuminé.
 
 Diverses pensées lui traversèrent l'esprit. Les yeux de Wang Lin brillèrent alors qu'il semblait enfin saisir la situation.
 
-« L'Ancien Démon Bei Lou a été divisé en neuf parties, puis scellé dans les Terres des Esprits Démoniaques. Après d'innombrables années, ce qui était autrefois une terre céleste est devenu une terre démoniaque... Qui a donc scellé l'Ancien Démon Bei Lou, et pourquoi n'y avait-il que des démons dispersés et non des anciens démons dans les Terres des Esprits Démoniaques? »
+« L'Ancien Démon Bei Luo a été divisé en neuf parties, puis scellé dans les Terres des Esprits Démoniaques. Après d'innombrables années, ce qui était autrefois une terre céleste est devenu une terre démoniaque... Qui a donc scellé l'Ancien Démon Bei Luo, et pourquoi n'y avait-il que des démons dispersés et non des anciens démons dans les Terres des Esprits Démoniaques? »
 
 « Où se cache l'ancien démon? En suivant cette analyse, cet ancien démon doit se trouver ici, dans la cinquième grotte, là où réside l'Empereur Céleste Qing Lin! »
 
@@ -54,7 +54,7 @@ Dans un fracas, le colosse de sable trembla et s'effondra en un tas de poussièr
 
 « Un simple pantin croit pouvoir m'arrêter? » Le corps de Wang Lin vacilla et il réapparut instantanément aux côtés d'un autre pantin de sable. Un sort apparut sur ses doigts alors qu'il balayait la marionnette, provoquant son effondrement immédiat.
 
-À ce moment, les sorts des dizaines de pantins prirent diverses formes pour encercler Wang Lin. Alors qu'ils approchaient, une lueur bleue jaillit des yeux de Wang Lin. Un bouclier azur apparut et balaya la zone, provoquant des explosions assourdissantes lors de la collision avec les sorts.
+À ce moment, les sorts des dizaines de pantins prirent diverses formes pour encercler Wang Lin. Alors qu'ils approchaient, une lueur bleue jaillit de l'œil droit de Wang Lin. Un bouclier azur apparut et balaya la zone, provoquant des explosions assourdissantes lors de la collision avec les sorts.
 
 Tous les projectiles furent stoppés à dix pieds de lui; aucun ne parvint à franchir cette limite. Wang Lin se déplaçait comme la foudre, son index pointant chaque pantin de sable sur son passage.
 
@@ -94,7 +94,7 @@ Les quatre dragons démoniaques le poursuivirent de près. Leurs têtes massives
 
 Une intention meurtrière embrasa les yeux de Wang Lin alors qu'il volait vers la tour noire, derrière les dragons. Cependant, il veillait à ne jamais dépasser les deux cents pieds d'altitude, tout comme ses poursuivants.
 
-La peur envahit le regard du vieil homme alors qu'il s'enfuyait comme un fou vers la tour noire. Mais sa culture n'était qu'au stade initial du Scruteur du Nirvana, il ne pouvait donc en aucun cas échapper aux dragons démoniaques. Alors que les créatures se rapprochaient, le vieil homme hurla désespérément: « Seigneur Démon Déchu, sauvez-moi! »
+La peur envahit le regard du vieil homme alors qu'il s'enfuyait comme un fou vers la tour noire. Mais sa culture n'était qu'au stade initial du Scruteur du Nirvana, il ne pouvait donc en aucun cas échapper aux dragons démoniaques. Alors que les créatures se rapprochaient, le vieil homme hurla désespérément: « Seigneur Serviteur Démon, sauvez-moi! »
 
 À peine eut-il crié que sa vision s'obscurcit et qu'une douleur intense lui traversa le corps, lui faisant perdre connaissance.
 
@@ -128,4 +128,4 @@ Tandis qu'ils tombaient, Wang Lin fit une enjambée et arriva prestement devant 
 
 « Vos têtes me seront d'une grande utilité! » Wang Lin fixa la tour noire de cent pieds de haut et leva les yeux vers son sommet. Il pouvait y voir une silhouette debout, immobile.
 
-« Je suis le Démon Déchu des Eaux Dispersées, Ming Hai. Si tu parviens à me tuer, tu auras alors la chance d'obtenir le Tableau Montagne et Rivière de l'Empereur Céleste Qing Lin: La Fumée du Désert Solitaire! »
+« Je suis le Chef des Démons Dispersés de l'Eau des Cinq Éléments, Ming Hai. Si tu parviens à me tuer, tu auras alors la chance d'obtenir le Tableau Montagne et Rivière de l'Empereur Céleste Qing Lin: La Fumée du Désert Solitaire! »

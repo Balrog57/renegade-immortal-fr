@@ -24,7 +24,7 @@ De pans entiers de roche se détachèrent des parois du gouffre, donnant l'impre
 
 Wang Lin ne s'attarda pas sur le résultat du combat. Il leva la main et utilisa « Invoquer la Pluie ». Des gouttes de pluie apparurent soudainement; les innombrables cristaux de pluie flottant autour de lui étaient d'une grande beauté.
 
-Les gouttes remplirent toute la grotte, semblant être partout, rendant l'atmosphère extrêmement humide. Elles avaient également la capacité d'absorber des traces d'énergie originelle, rendant chaque goutte incroyablement puissante.
+Les gouttes remplirent toute la grotte, semblant être partout, rendant l'atmosphère extrêmement humide. Elles avaient également la capacité d'absorber une trace de la puissance du ciel et de la terre de la grotte, rendant chaque goutte incroyablement puissante.
 
 Tout cela se produisit en un éclair. Après que les dragons de flammes noires eurent plongé dans le gouffre, Wang Lin forma un sceau de la main et pointa vers le bas. Toutes les gouttes de pluie commencèrent alors à s'abattre comme des météores sur le gouffre en plein effondrement.
 
@@ -34,11 +34,11 @@ Le tumulte atteignit son paroxysme lorsque « Invoquer la Pluie » s'abattit dan
 
 La plupart des débris rocheux tombant du gouffre furent transpercés par les gouttes de pluie, provoquant des sifflements stridents et d'importantes émanations gazeuses.
 
-Cela pouvait paraître impressionnant, mais ce n'était pas encore suffisant pour illustrer le niveau actuel de la culture de Wang Lin, au sommet du stade Scruteur du Nirvana. Lorsqu'il était au stade intermédiaire du Scruteur du Nirvana, ses sorts possédaient déjà une certaine puissance; désormais qu'il avait atteint l'apogée de ce stade, il pouvait révéler la véritable force des sortilèges que Bai Fan affectionnait tant.
+Cela pouvait paraître impressionnant, mais ce n'était pas encore suffisant pour illustrer le niveau actuel de la culture de Wang Lin, au sommet du stade Scruteur du Nirvana. Lorsqu'il était au stade intermédiaire du Scruteur du Nirvana, ses sorts possédaient déjà une certaine puissance; désormais qu'il avait atteint l'apogée de ce stade, il pouvait révéler la véritable force des sortilèges qui avaient fait la renommée de Bai Fan.
 
 Après l'usage d'« Invoquer la Pluie », la chute des innombrables gouttes poussa l'effondrement du gouffre à son point de rupture. Les grondements incessants continuèrent alors que d'innombrables roches s'engouffraient pour tenter de combler le vide!
 
-Aux côtés de « Invoquer le Vent », ces deux sorts de Bai Fan avaient subi une mutation. Wang Lin n'eut pas le temps d'observer ce changement; après avoir utilisé « Invoquer la Pluie », il chargea immédiatement vers les restrictions du palais.
+Aux côtés de « Invoquer le Vent », ces deux sorts de Bai Fan avaient subi une mutation. Wang Lin n'eut pas le temps d'observer ce changement; après avoir utilisé « Invoquer la Pluie », il chargea immédiatement vers les restrictions des pavillons.
 
 Auparavant, Wang Lin avait mémorisé la carte. Elle ne se contentait pas de détailler l'itinéraire à suivre, elle indiquait même l'emplacement des restrictions.
 
@@ -66,7 +66,7 @@ Bien qu'il fût en fuite, Wang Lin n'avait jamais perdu le fantôme de vue grâc
 
 Plus il l'observait, plus il la trouvait singulière. Ce qui l'inquiétait réellement, c'était le fait que cette chose vivait dans la tête de l'ancien dieu!
 
-« Existait-elle avant la mort de l'ancien dieu, ou est-elle entrée après? Si elle est entrée après sa mort, ce ne sera pas un problème majeur. Mais si elle était déjà là, était-elle liée à la mort de l'ancien dieu à huit étoiles? La mort de cet ancien dieu n'était-elle pas liée au Dao des cieux éthérés, comme je le pensais? »
+« Existait-elle avant la mort de l'ancien dieu, ou est-elle entrée après? Si elle est entrée après sa mort, ce ne sera pas un problème majeur. Mais si elle était déjà là, était-elle liée à la mort de l'ancien dieu à huit étoiles? Se pourrait-il que la mort de cet ancien dieu ne soit pas l'œuvre du Dao des cieux éthérés, comme je le pensais? »
 
 Wang Lin savait que ses spéculations précédentes étaient un peu absurdes, au point que lui-même en doutait. Après avoir vu ce fantôme humanoïde, il était d'autant moins sûr de ses théories.
 
@@ -74,7 +74,7 @@ Que s'était-il passé exactement à l'époque? Qui avait tué cet ancien dieu �
 
 Et surtout, pourquoi ne l'avaient-ils pas prise?
 
-De nombreuses questions emplit l'esprit de Wang Lin, mais il n'avait pas le temps d'y réfléchir. Le rugissement du fantôme se rapprochait. Wang Lin se retourna pour fixer l'entité qui fonçait sur lui avant de s'engouffrer dans la forêt de bambous.
+De nombreuses questions emplissaient l'esprit de Wang Lin, mais il n'avait pas le temps d'y réfléchir. Le rugissement du fantôme se rapprochait. Wang Lin se retourna pour fixer l'entité qui fonçait sur lui avant de s'engouffrer dans la forêt de bambous.
 
 Tout cela était planifié. Même cette forêt de bambous était un élément qu'il avait vérifié sur la carte.
 
@@ -86,7 +86,7 @@ Mais un instant plus tard, cette prudence fut remplacée par de l'anxiété. Apr
 
 Dans un éclair, le fantôme humanoïde disparut.
 
-Au moment où il réapparut, une lueur jaillit de l'autre côté de la forêt et Wang Lin en sortit. Il observa attentivement l'endroit où le fantôme avait disparu, puis la forêt elle-même, avant de faire prudemment un pas de côté.
+Après sa disparition, une lueur jaillit au fond de la forêt de bambous et Wang Lin en sortit d'un pas. Il observa attentivement l'endroit où le fantôme avait disparu, puis la forêt elle-même, avant de faire prudemment un pas de côté.
 
 D'un seul pas, sa vision se brouilla soudainement. Lorsqu'il retrouva la vue, il avait déjà quitté la forêt de bambous.
 
@@ -106,7 +106,7 @@ Celles du premier étage n'étaient déjà pas faibles, mais en descendant plus 
 
 « C'est la véritable Grotte de l'Empereur Céleste. À l'origine, lorsqu'on entrait de l'extérieur, on était transféré ici. Cependant, ce transfert a été interrompu par le démon dispersé à la bouteille, et tout le monde s'est retrouvé dans le monde de la bouteille. Après notre départ, il a invoqué le Bassin Funéraire Céleste et l'a fait s'effondrer pour nous disperser une fois de plus. Son but était de nous faire perdre notre chemin dans la Grotte de l'Empereur Céleste. » Les yeux de Wang Lin s'illuminèrent. Bien qu'il possède une carte, elle était incomplète; elle ne couvrait que les sept premiers étages. Les deux derniers semblaient avoir été effacés du jade par quelqu'un.
 
-Wang Lin l'avait remarqué dès l'obtention de la pierre précieuse, et après comparaison avec la grotte, il en était désormais certain.
+Wang Lin l'avait remarqué dès l'obtention du jade, et après comparaison avec la grotte, il en était désormais certain.
 
 Tout en réfléchissant, Wang Lin avança. Après la forêt de bambous se trouvait un petit chemin pavé de grandes pièces de jade céleste qui dégageaient une douce lueur.
 

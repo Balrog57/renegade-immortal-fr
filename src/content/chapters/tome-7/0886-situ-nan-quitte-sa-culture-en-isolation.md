@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 886 - Situ Nan Leaves Closed Door Cultivation
 slug: situ-nan-quitte-sa-culture-en-isolation
 ---
-« Cette énergie d'origine céleste est limitée. Considère-la comme un cadeau de défense personnelle de ma part! Accompagnée de ce cristal d'Invocation de la Pluie, à moins que tu ne croises les puissances du Système Stellaire de l'Alliance, tu seras capable de te protéger! »
+« Cette énergie d'origine céleste est limitée. Considère-la comme un cadeau de défense personnelle de ma part! Accompagnée de ce cristal d'Invocation de la Pluie, dans le Système Stellaire de l'Alliance, tant que tu ne te retrouves pas pris dans un combat entre cultivateurs aux grands pouvoirs divins, tu seras capable de te protéger! »
 
 À cet instant, l'esprit de Wang Lin était saturé par les concepts d'Invocation de la Pluie et d'Arsenal Magique. Il s'y était plongé, continuant à les absorber et à les comprendre.
 
@@ -14,7 +14,7 @@ Qing Shui réfléchissait en silence. Après un long moment, il regarda Wang Lin
 
 Tandis que Qing Shui parlait, il plaça une fois de plus sa main droite entre les sourcils de Wang Lin. Les informations concernant Dévorer s'engouffrèrent dans l'esprit de Wang Lin avec frénésie.
 
-« Ce sort peut facilement être détourné de son usage. Maître a beaucoup hésité avant de me l'enseigner. Maintenant que tu l'as appris, tu ne dois l'utiliser qu'en dernier recours! »
+« Ce sort a de grands inconvénients. Maître a beaucoup hésité avant de me l'enseigner. Maintenant que tu l'as appris, tu ne dois l'utiliser qu'en dernier recours! »
 
 Qing Shui laissa échapper un soupir. En contemplant le visage vieilli de Wang Lin, il retira sa main droite. Puis, il mordit l'extrémité de sa langue et traça une étrange rune avec son sang. La rune dégageait une puissante odeur de sang. Dès qu'elle apparut, toute la poussière de l'espace recula rapidement.
 
@@ -26,7 +26,7 @@ Le corps de Wang Lin trembla violemment. Son apparence se rétablit rapidement e
 
 Qing Shui se retourna, s'élança vers les étoiles et disparut progressivement.
 
-« Junior Frère, à partir de maintenant, sois prudent... La méthode pour restaurer le Royaume Ji est liée à la rétribution divine. Cependant, n'emprunte pas ce chemin tant que tu n'as pas atteint le stade du Briseur du Nirvana. Avant cela, évite-le! »
+« Junior Frère, à partir de maintenant, sois prudent... La méthode pour restaurer le Royaume Ji est liée à la tribulation divine. Cependant, n'emprunte pas ce chemin tant que tu n'as pas atteint le stade du Briseur du Nirvana. Avant cela, évite-le! »
 
 Qing Shui était parti...
 
@@ -88,7 +88,7 @@ Le camp Luotian était très suspicieux et ne parvenait pas à déterminer l'att
 
 Si la même chose s'était produite dans le Système Stellaire Luotian, le Temple Céleste du Tonnerre aurait immédiatement organisé une contre-attaque. Ils n'auraient jamais laissé à l'adversaire la chance de prendre pied pour se rétablir!
 
-Non seulement l'Alliance de Culture restait silencieuse, mais aucune planète de culture de rang 7 ne s'était manifestée. Toutes les planètes occupées par les cultivateurs Luotian étaient de rang 6; ils n'avaient trouvé aucune planète de rang 7.
+Non seulement l'Alliance de Culture restait silencieuse, mais aucune planète de culture de rang 7 ne s'était manifestée. Toutes les planètes occupées par les cultivateurs Luotian étaient de rang 6; et la moitié des planètes de rang 7 semblait avoir disparu : ils n'arrivaient pas à en trouver.
 
 Cette situation singulière troublait davantage les cultivateurs Luotian. En apparence, le camp Luotian semblait triomphant. Cependant, devoir faire face à l'inconnu sans pouvoir anticiper les mouvements de l'adversaire rendait tous les vieux monstres du Système Stellaire Luotian profondément mal à l'aise.
 
@@ -110,4 +110,4 @@ Ses vêtements étaient en lambeaux et sa peau était sombre et très sale. Il a
 
 Alors qu'il chargeait, des détonations soniques se produisaient. De vastes pans de la planète commençaient à s'effondrer, comme si elle ne pouvait plus supporter sa propre structure.
 
-« J'ai failli mourir d'asphyxie. Je ne me rappelle même plus depuis combien de temps j'étais en culture en isolation. C'est bien dommage que toutes mes princesses aient dû mourir durant ce temps. Planète Feng Luan, cette fois je suis vraiment furieux! En une seule fois, j'ai cultivé jusqu'au stade initial du Scruteur du Nirvana. Je vais aller régner sur la planète Feng Luan! » La silhouette jurait bruyamment dans les airs, comme s'il voulait déverser toute la colère accumulée au fil des années.
+« J'ai failli mourir d'asphyxie. Je ne me rappelle même plus depuis combien de temps j'étais en culture en isolation. C'est bien dommage que toutes mes princesses aient dû mourir durant ce temps. Planète Feng Luan, cette fois je suis vraiment furieux! En une seule fois, j'ai cultivé jusqu'au stade initial du Purificateur du Nirvana. Je vais aller régner sur la planète Feng Luan! » La silhouette jurait bruyamment dans les airs, comme s'il voulait déverser toute la colère accumulée au fil des années.

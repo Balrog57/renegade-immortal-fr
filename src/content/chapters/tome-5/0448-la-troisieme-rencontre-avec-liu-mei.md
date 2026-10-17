@@ -58,7 +58,7 @@ Il ne souhaitait pas utiliser le drapeau d'âme immédiatement; celui-ci devait 
 
 Il agita le drapeau de restriction, libérant les entraves. Des volutes de gaz de restriction se répandirent et enveloppèrent la vallée.
 
-Wang Lin cria: « Liu Mei, Zhuque Zi est sur le point de mourir. Notre combat est inutile! » Liu Mei était, après tout, au stade intermédiaire de la Transformation de l'Âme; il ne pourrait pas l'emporter rapidement sans recourir au drapeau d'âme. S'il s'éternisait ici et échouait à récupérer sa parcelle d'âme, la situation serait désastreuse.
+Wang Lin cria: « Liu Mei, Zhu Quezi est sur le point de mourir. Notre combat est inutile! » Liu Mei était, après tout, au stade intermédiaire de la Transformation de l'Âme; il ne pourrait pas l'emporter rapidement sans recourir au drapeau d'âme. S'il s'éternisait ici et échouait à récupérer sa parcelle d'âme, la situation serait désastreuse.
 
 Liu Mei sourit et leva les yeux vers le ciel. La douceur de son regard disparut, remplacée par une expression froide et impitoyable.
 

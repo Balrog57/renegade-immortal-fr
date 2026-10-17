@@ -48,7 +48,7 @@ Shengong Hu laissa ses pensées vagabonder. Après avoir hésité un moment, il 
 
 Wang Lin parcourut le champ de bataille avec un sourire narquois.
 
-« Quel magnifique champ de massacre. Des vrais parmi les faux, et des faux parmi les vrais! Le plan du Maître Yan Leizi est d'une profondeur redoutable! Je l'admire! En excluant les 108 personnes à l'extérieur, quatre sur 112 sont entrées avec leurs corps réels! Les deux que j'ai tués plus tôt possédaient leurs sacs, il en reste donc un autre près de moi! Je ne sais juste pas qui c'est. »
+« Quel magnifique champ de massacre. Des vrais parmi les faux, et des faux parmi les vrais! Le plan du Maître Yan Leizi est d'une profondeur redoutable! Je l'admire! Sur les 112 personnes entrées ici, si l'on retire les 108, il en reste quatre qui sont entrées avec leurs corps réels! Les deux que j'ai tués plus tôt possédaient leurs sacs, il en reste donc encore un autre en dehors de moi! Je ne sais juste pas qui c'est. »
 
 Tandis que Wang Lin progressait, son sens divin se propageait sans aucune restriction. S'il détectait un cultivateur, il se précipitait immédiatement sur lui. En chemin, Wang Lin ne montrait aucune pitié. Puisqu'il s'agissait d'un champ de massacre, quiconque y entrait était prêt à tuer ou à être tué. Et comme ces morts n'étaient pas définitives, tous les cultivateurs rencontrés par Wang Lin peinaient à s'échapper! Cependant, avant de frapper, Wang Lin vérifiait si l'autre pouvait ouvrir son sac de rangement ou non. S'il ne le pouvait pas, alors il attaquait.
 
@@ -58,7 +58,7 @@ Finalement, de nombreux cultivateurs ayant réussi à obtenir un meurtre choisir
 
 Au fil du temps, les survivants se faisaient de plus en plus rares sur le champ de bataille.
 
-Wang Lin avait de la chance. Si l'adversaire était obéissant, il n'attaquait pas; il attendait simplement qu'il meure pour sceller son avatar.
+Du côté de Wang Lin, c'était un peu moins violent. Si un cultivateur se suicidait, Wang Lin n'intervenait pas; il attendait simplement l'instant de sa mort pour sceller son avatar avec une rune dorée.
 
 Cependant, du côté de Xu Ting, la violence régnait. Même ceux qui voulaient se suicider ne pouvaient échapper à la dévoration s'ils étaient trop lents.
 
@@ -72,7 +72,7 @@ Sa vitesse augmentait sans cesse jusqu'à devenir un rayon de lumière. Son inte
 
 « Xu Mu! » Un rugissement assourdissant jaillit de la bouche de Xu Ting.
 
-Le regard de Wang Lin restait calme tandis que son corps flottait dans les airs, observant Xu Ting qui approchait à toute allure. La brume noire recouvrait la zone derrière Xu Ting; elle se condensa alors pour former une ombre démoniaque qui poussa un cri et chargea Wang Lin.
+Le regard de Wang Lin restait calme tandis que son corps flottait dans les airs, observant Xu Ting qui approchait à toute allure. La brume noire recouvrait la zone derrière Xu Ting; elle se condensa alors pour former une ombre démoniaque qui rugissait en silence et chargea Wang Lin.
 
 « J'espère que la dernière personne capable d'ouvrir son sac est lui! » Une intention meurtrière fulgurante traversa les yeux de Wang Lin.
 
@@ -166,4 +166,4 @@ Ce seul mot se mua en un tonnerre infini qui gronda dans les cieux. D'innombrabl
 
 Le visage de ce dernier changea du tout au tout. À la simple parole de Wang Lin, c'était comme si des milliers d'éclairs avaient explosé dans son esprit. La renommée de Wang Lin était trop profondément gravée dans sa mémoire! Bien qu'il n'ait pas encore attaqué, son courage s'était déjà brisé. Ses yeux étaient emplis de terreur; il s'enfuit précipitamment sans oser porter le moindre coup.
 
-Le tonnerre tombait sans relâche alors qu'il reculait. Tandis que le ciel grondait, le cultivateur aux six doigts jurait intérieurement en luttant pour sa survie. Cependant, de plus en plus d'éclairs apparaissaient et se reliaient entre eux, telle une divine rétribution.
+Le tonnerre tombait sans relâche alors qu'il reculait. Tandis que le ciel grondait, le cultivateur aux six doigts jurait intérieurement en luttant pour sa survie. Cependant, de plus en plus d'éclairs apparaissaient et se reliaient entre eux, telle une tribulation céleste.

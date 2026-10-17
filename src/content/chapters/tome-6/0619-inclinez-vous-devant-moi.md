@@ -22,11 +22,11 @@ Une pointe de dérision apparut dans les yeux de Sun Yunshan. Il avait appris qu
 
 Le messager qui avait rapporté la position de Wang Lin avait certes mentionné que le lieu était entouré d'un puissant nuage, mais ceux qui convoitaient ce mérite n'y avaient pas prêté attention. Ils étaient convaincus que rien ne poserait problème en présence du gardien céleste.
 
-Sun Yunshan regarda autour de lui. En comptant lui-même, ils étaient près de vingt. La plupart se situaient au début du stade de la Transformation de l'Âme, et seuls quelques-uns atteignaient le milieu de ce stade. Il n'y avait qu'un seul cultivateur au stade tardif de la Transformation de l'Âme: l'Oncle Feng, qui était resté silencieux durant tout ce temps.
+Sun Yunshan regarda autour de lui. En comptant lui-même, ils étaient moins de vingt. La plupart se situaient au début du stade de la Transformation de l'Âme, et seuls quelques-uns atteignaient le milieu de ce stade. Il n'y avait qu'un seul cultivateur au stade tardif de la Transformation de l'Âme: l'Oncle Feng, qui était resté silencieux durant tout ce temps.
 
 En regardant le vieil homme aux cheveux gris non loin de lui, Sun Yunshan ne ressentit que de la tristesse. Il s'agissait de l'Oncle Martial Feng. C'était le frère apprenti du père de Sun Yunshan, et il était venu ici pour protéger ce dernier.
 
-Cependant, il n'aurait jamais pu imaginer que sa petite sœur les aurait secrètement suivis... le plongeant ainsi dans une situation aussi désespérée. L'Ancêtre avait même effacé la mémoire de l'Oncle Martial Feng à l'aide d'un sort secret pour en faire une marionnette. Une graine céleste lui ayant été implantée par l'Ancêtre, il n'avait plus aucun contrôle sur sa propre vie ou sa mort.
+Cependant, il n'aurait jamais pu imaginer que sa petite sœur les aurait secrètement suivis... le plongeant ainsi dans une situation aussi désespérée. L'Ancêtre avait même effacé la mémoire de l'Oncle Martial Feng à l'aide d'un sort secret pour en faire une marionnette. Lui-même s'était vu implanter une graine céleste par l'Ancêtre, et il n'avait plus aucun contrôle sur sa propre vie ou sa mort.
 
 L'homme en or s'écria: « Ce nuage noir n'est qu'une ruse! Numéro 10, va briser ce nuage pour moi! »
 
@@ -38,7 +38,7 @@ Le cultivateur serra les dents et chargea vers le nuage noir. Cependant, à mesu
 
 Voyant le cultivateur s'arrêter, le visage de l'homme en or se mua en hostilité. Il hurla d'un ton glacial: « Numéro 10, oses-tu désobéir à un ordre?! »
 
-En entendant cela, le visage du cultivateur s'adoucit légèrement. Il soupira et pensa: « Peu importe. Cette vie qui ressemble à peine à une existence humaine doit prendre fin. Si je peux mourir ici, je serai délivré de cette torture! »
+En entendant cela, un sourire amer apparut sur le visage du cultivateur. Il soupira et pensa: « Peu importe. Cette vie qui ressemble à peine à une existence humaine doit prendre fin. Si je peux mourir ici, je serai délivré de cette torture! »
 
 Il prit une profonde inspiration, fit un pas en avant et chargea tel un météore!
 
@@ -112,10 +112,10 @@ Alors qu'il reculait, l'homme en or hurla: « Gardien Céleste, attaque! »
 
 À peine eut-il parlé que les yeux de l'homme en noir brillèrent d'un éclat soudain. Il fit un pas et apparut au-dessus de la tour en un instant. Sa main droite traça un sceau qu'il abattit avec force!
 
-Ce coup semblait posséder la puissance nécessaire pour soulever une montagne. Un symbole doré apparut dans le ciel et fonça vers la tour.
+Ce coup semblait posséder la puissance nécessaire pour soulever une montagne. Un grand sceau doré apparut dans le ciel et fonça vers la tour.
 
-Un ricanement froid s'éleva de l'intérieur de la tour, puis la silhouette de Wang Lin en émergea. Sans même lever les yeux, il libéra une lumière noire de sa main qui atteignit la voûte céleste. Il dit calmement: « Descends! »
+Un ricanement froid s'éleva de l'intérieur de la tour, puis la silhouette de Wang Lin en émergea. Sans même lever les yeux, il leva la main, qui étincelait d'une lueur noire, et saisit le ciel vers le bas. Il dit calmement: « Descends! »
 
-Dès que sa main fut tendue, des fissures apparurent sur le symbole doré. Après une série de craquements stridents, l'emblème s'effondra. L'expression de l'homme en noir changea brusquement et, pour la première fois, son visage fut pétrifié par la terreur. Il voulut esquiver, mais son corps fut immédiatement saisi par une force capable de dévorer la force vitale. Il fut impitoyablement arraché au ciel.
+Dès que sa main se referma, des fissures apparurent sur le sceau doré. Après une série de craquements stridents, il s'effondra. L'expression de l'homme en noir changea brusquement et, pour la première fois, son visage fut pétrifié par la terreur. Il voulut esquiver, mais son corps fut immédiatement saisi par une force capable de dévorer la force vitale. Il fut impitoyablement arraché au ciel.
 
 Dans un fracas retentissant, le corps de l'homme en noir s'écrasa violemment au sol.

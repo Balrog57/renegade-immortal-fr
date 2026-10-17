@@ -28,7 +28,7 @@ Les armées de l'ouest et du sud suivirent le mouvement. Le ciel fut couvert d'�
 
 « Tuez! » On ne sut qui avait crié, mais cela fit atteindre l'intention de combat des cultivateurs environnants à son paroxysme.
 
-« Système Stellaire de Luotian, activez le grand réseau de transfert! » Alors que Maître Yan Leizi hurlait, les pierres de transmission sonore de toutes les planètes de culture s'effondrèrent pour former un immense réseau de transfert.
+« Système Stellaire de Luotian, activez le grand réseau de transfert! » Alors que Maître Yan Leizi hurlait, les pierres de transfert de toutes les planètes de culture s'effondrèrent pour former un immense réseau de transfert.
 
 Un par un, les cultivateurs entrèrent dans le réseau sous la direction de leurs ancêtres. Lorsqu'ils réapparurent, ils se trouvaient déjà aux côtés de la fissure menant au Système Stellaire de l'Alliance.
 
@@ -70,11 +70,11 @@ Derrière lui, le corps du cultivateur de Luotian s'effondra et se dissipa.
 
 Cette scène se répéta avec tous les autres poursuivants.
 
-Wang Lin observa les cultivateurs pénétrer dans la fissure, mais il ne bougea pas. Le vieux Xiang leva les yeux vers la brèche avec un regard froid. Son corps vacilla et il atterrit sur la place avant de dire à Wang Lin: « Xu Mu, suis-moi. Vu ton état, je présume que tu n'as pas l'intention de participer à la première vague! »
+Wang Lin observa les cultivateurs pénétrer dans la fissure, mais il ne bougea pas. Le vieux Xiang leva les yeux vers la brèche avec un regard froid. Son corps vacilla et il atterrit sur l'immense pierre bleue avant de dire à Wang Lin: « Xu Mu, suis-moi. Vu ton caractère, je présume que tu n'as pas l'intention de participer à la première vague! »
 
 Tout en parlant, un nuage apparut sous ses pieds et il s'envola au loin. Le regard de Wang Lin restait calme. Même sans l'affaire Li Muwan, il n'aurait pas été le premier à entrer. Dans cette guerre entre deux systèmes stellaires, la prudence était de mise!
 
-Lorsqu'il se retourna vers Qing Shui, celui-ci se leva et rejoignit Wang Lin. Il prit ce dernier par la main et suivit le vieux Xiang.
+Lorsqu'il se retourna vers Qing Shui, celui-ci se leva et rejoignit Wang Lin. Il emporta ce dernier dans son sillage et suivit le vieux Xiang.
 
 En voyant cela, Lie Yunzi hésita un instant, avant de porter à nouveau son regard vers la fissure céleste.
 
@@ -106,7 +106,7 @@ Lorsqu'ils réapparurent, ils étaient sur la planète Dong Lin. Une brise lég�
 
 Debout sur la planète Dong Lin, Wang Lin prit une profonde inspiration. L'aura ici était totalement différente de celle des autres planètes de culture du Système Stellaire de Luotian.
 
-Le vieux Xiang ne les emmena pas vers la demeure familiale. Au lieu de cela, il chargea vers l'ouest. Dans la zone extrême de l'ouest, à des milliers de kilomètres de là, s'étendait un cimetière très chaotique!
+Le vieux Xiang ne les emmena pas vers la demeure familiale. Au lieu de cela, il chargea vers l'ouest. À l'extrême ouest de la planète, sur d'innombrables dizaines de milliers de li, s'étendait un cimetière très chaotique!
 
 La terre était d'un rouge sombre et exhalait une odeur de sang entêtante. Des membres sectionnés jonchaient le sol et des vautours chauves tournaient au-dessus. Ils descendaient parfois pour déchirer de la chair; leurs regards, dépourvus de toute crainte envers les hommes, étaient d'une froideur extrême.
 
@@ -114,9 +114,9 @@ Plus on s'enfonçait, moins on trouvait de membres sectionnés. Des tombes déva
 
 Ayant pratiqué la méthode de culture de la Secte de l'Affinement de l'Âme, il était extrêmement sensible aux âmes. Il y avait ici d'innombrables âmes brisées. Même à son apogée, le drapeau des milliards d'âmes contenait bien moins d'âmes que cet endroit.
 
-« Si j'absorbais les âmes d'ici, je pourrais préparer le drapeau des âmes en un instant! » Wang Lin observa les environs et réfléchit silencieusement.
+« Si j'absorbais les âmes d'ici, je pourrais combler d'un coup tout ce qui manque au drapeau des âmes! » Wang Lin observa les environs et réfléchit silencieusement.
 
-« La zone extrême ouest de la planète Dong Lin est une terre interdite où les étrangers ne sont pas autorisés à pénétrer. C'est là que l'un des derniers ancêtres de la famille Xiang est en culture isolée! » La voix du vieux Xiang était calme, mais empreinte d'un immense respect.
+« La zone extrême ouest de la planète Dong Lin est une terre interdite où les étrangers ne sont pas autorisés à pénétrer. C'est là que le seul ancêtre encore vivant de la famille Xiang est en culture isolée! » La voix du vieux Xiang était calme, mais empreinte d'un immense respect.
 
 Qing Shui fronça légèrement les sourcils en observant les lieux, mais il resta silencieux.
 

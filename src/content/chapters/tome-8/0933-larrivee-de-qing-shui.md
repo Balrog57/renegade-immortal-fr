@@ -64,11 +64,11 @@ Il était un être céleste du Royaume Céleste de la Pluie! Il était égalemen
 
 Une énergie spirituelle céleste infinie envahit la zone, donnant aux environs l'apparence même du Royaume Céleste!
 
-Simultanément, sa main traça un sceau et pointa le papillon multicolore. L'insecte tressaillit brusquement et l'une de ses ailes tomba comme un pétale. En un instant, l'aile se divisa en quatre couleurs différentes pour former quatre vortex.
+Simultanément, sa main traça un sceau et pointa le papillon multicolore. L'insecte tressaillit brusquement et l'une de ses ailes tomba comme un pétale. En un instant, l'aile se divisa en quatre faisceaux de couleurs différentes qui formèrent un vortex.
 
-« Loi du Nirvana Vide! »
+« Loi du Vide du Nirvana! »
 
-Alors que l'Estimé Xuan Bao prononçait ces mots, les quatre vortex formés par l'aile explosèrent, dispersant des tonnes de poudre multicolore.
+Alors que l'Estimé Xuan Bao prononçait ces mots, le vortex formé par l'aile explosa, dispersant des tonnes de poudre multicolore.
 
 Le sort « Appel du Vent et Convocation de la Pluie » de Qing Shui fut affecté par cette poudre et se dissipa instantanément. Il ne restait aucune trace de la technique!
 
@@ -86,7 +86,7 @@ En songeant à sa flèche, il ressentit une douleur au cœur. Il ne s'attendait 
 
 Autrement, il ne serait pas venu ici. Non seulement il avait échoué, mais il avait également perdu son unique trésor de niveau Pseudo-Vide du Nirvana. Il pouvait imaginer à quel point son statut au sein du groupe des Anciens allait s'effondrer.
 
-Et maintenant, il tombait nez à nez avec le démon de Qing Shui. Bien qu'il ignorât comment ce dernier avait survécu, lui-même étant parvenu jusqu'ici, ce Qing Shui devait sûrement posséder ses propres méthodes.
+Et maintenant, il tombait nez à nez avec Qing Shui, ce fléau d'autrefois. Bien qu'il ignorât comment ce dernier avait survécu, lui-même étant parvenu jusqu'ici, ce Qing Shui devait sûrement posséder ses propres méthodes.
 
 En cette situation critique, il n'avait pas le temps de réfléchir. Sa seule pensée était de s'enfuir au plus vite!
 
@@ -126,7 +126,7 @@ Les sacs de rangement étaient eux aussi considérés comme des trésors!
 
 Il en fut de même pour le sac de Wang Lin. Son expression changea tandis qu'il tendait la main droite pour tenter de le saisir. Pourtant, une force mystérieuse entourait son sac; au moment où il le toucha, il sentit une chaleur brûlante pénétrer son corps. S'il ne lâchait pas prise, son âme originelle serait instantanément détruite!
 
-De nombreux cultivants alentour tentèrent également de saisir leurs sacs. Mais après un instant, ils furent contraints de les lâcher avec amertume, regardant leurs sacs s'envoler.
+De nombreux cultivateurs alentour tentèrent également de saisir leurs sacs. Mais après un instant, ils furent contraints de les lâcher avec amertume, regardant leurs sacs s'envoler.
 
 Les objets contenus dans le sac de Wang Lin étaient trop précieux pour qu'il renonce. En pleine crise, il ouvrit son troisième œil sans hésiter, et la lumière rouge se posa sur son sac.
 

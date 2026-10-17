@@ -72,7 +72,7 @@ Sans cette âme Ascendante, Wang Lin aurait été stoppé à la sixième couche.
 
 Même le Clan des Immortels Délaissés n'aurait jamais imaginé qu'un cultivateur Ascendant puisse se frayer un chemin jusqu'au cœur de leur demeure.
 
-Après tout, hormis Yunque Zi, il n'y avait que trois cultivateurs Ascendants sur la planète. Zhuque Zi se trouvait au Mont Suzaku, Chu Yunfei avait fui la planète, et le dernier Ascendant de la Secte de la Porte de la Terre était gravement blessé et se remettait dans un lieu secret.
+Après tout, hormis Yun Quezi, il n'y avait que trois cultivateurs Ascendants sur la planète. Zhu Quezi se trouvait au Mont Suzaku, Chu Yunfei avait fui la planète, et le dernier Ascendant de la Secte de la Porte de la Terre était gravement blessé et se remettait dans un lieu secret.
 
 S'il n'y avait pas eu de cultivateurs Ascendants, les défenses préparées pour la Nécropole Immortelle auraient suffi à repousser toute intrusion.
 

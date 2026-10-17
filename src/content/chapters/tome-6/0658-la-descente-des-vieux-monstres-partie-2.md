@@ -74,7 +74,7 @@ Wang Lin fit volte-face, le cristal à la main, et partit.
 
 Wang Lin réapparut devant la tribu des Affineurs d'Âmes dans le Pays des Démons Célestes. Les membres de la tribu furent d'abord stupéfaits, avant de s'exclamer de joie et de s'incliner avec respect.
 
-Wang Lin ne récupéra pas tous les fragments d'âmes collectés par la tribu; il appela plutôt Treize et Ouyang Hua. Après avoir laissé quelques instructions et des méthodes de culture, il enseigna même à Treize la seconde moitié de la méthode de culture du Clan des Démons Géants. Une fois cela fait, il quitta la tribu.
+Wang Lin ne récupéra pas tous les fragments d'âmes collectés par la tribu; il appela plutôt Treize et Ouyang Hua dans la pagode. Après avoir laissé quelques instructions et des méthodes de culture, il enseigna même à Treize la seconde moitié de la méthode de culture du Clan des Démons Géants. Une fois cela fait, il quitta la tribu.
 
 Au moment de son départ, Treize s'agenouilla et effectua plusieurs prosternations vers Wang Lin. Ouyang Hua fit de même, leurs yeux noyés de tristesse. Bien que Wang Lin n'ait rien dit, ils sentaient que dans cette vie... il leur serait difficile de le revoir un jour...
 
@@ -84,7 +84,7 @@ Peu après, Shi Xiao ouvrit les yeux, le regard étincelant.
 
 Chen Tao ouvrit également les yeux, affichant un regard profond.
 
-Shi Xiao dit calmement: « Chen Tao, demain, j'irai voir l'Empereur Démon pour te recommander comme général démon. Tu pourras alors aller cultiver au lac du dragon. Bien que ce ne soit pas la véritable héritage, cela t'apportera beaucoup. »
+Shi Xiao dit calmement: « Chen Tao, demain, j'irai voir l'Empereur Démon pour te recommander comme général démon. Tu pourras alors aller cultiver au lac du dragon. Bien que ce ne soit pas le véritable héritage, cela t'apportera beaucoup. »
 
 Chen Tao répondit: « Demain, je devrai vous appeler "Vice-Commandant en Chef"! »
 
@@ -98,7 +98,7 @@ Shi Xiao haussa un sourcil avec un sourire glacial. « Où était votre frère c
 
 Chen Tao restait silencieux, pensif.
 
-Un éclat de sarcasme traversa le regard de Shi Xiao: « L'appeler misérable est une marque de bonté de ma part. S'il ne l'est pas, je le tuerai moi-même pour lui apprendre comment un cultivateur doit se comporter! »
+Un éclat de sarcasme traversa le regard de Shi Xiao: « L'appeler misérable est une marque de bonté de ma part. S'il n'est pas mort, je le tuerai moi-même pour lui apprendre comment, sur cette Terre des Esprits Démoniaques, un cultivateur doit considérer son statut! »
 
 « Est-ce bien ainsi...? » Une voix froide émana du vide.
 
@@ -138,15 +138,15 @@ Devant la porte de la Mer des Esprits Démoniaques, l'Omniscient, Ling Tianhou, 
 
 Tous attendaient que Ling Tianhou ouvre la porte quand soudain, l'Omniscient s'exclama. Il fixa la porte du Pays des Esprits Démoniaques, les sourcils froncés par une inquiétude soudaine.
 
-Ils allaient entrer dans le Pays des Esprits Démoniaques plusieurs décennies plus tôt que prévu. C'était parce qu'il y a dix ans, l'Omniscient avait ressenti un pressentiment alarmant, une sensation qu'il n'avait pas éprouvée depuis des dizaines de milliers d'années.
+Ils allaient entrer dans le Pays des Esprits Démoniaques plusieurs décennies plus tôt que prévu. C'était parce qu'il y a plus de dix ans, l'Omniscient avait ressenti un pressentiment alarmant, une sensation qu'il n'avait pas éprouvée depuis des dizaines de milliers d'années.
 
 Ce sentiment provenait du Pays des Esprits Démoniaques! Il émanait de la marque qu'il avait laissée sur un disciple nommé Wang Lin! À cet instant précis, la marque avait été arrachée de force!
 
 Ce n'était pas la première fois qu'une marque était ainsi effacée; bien longtemps auparavant, un disciple nommé Sun Yun avait réussi le même exploit.
 
-L'Omniscient n'était pas le seul à être troublé. L'inquiétude de sa fille, Yao Xixue, pesait sur lui, et au fil du temps, son cœur s'était encore plus oppressé. Pour des êtres de son niveau de culture, une telle angoisse ne surgit jamais sans raison.
+L'Omniscient n'était pas le seul à être troublé. L'Ancêtre de Sang l'était aussi: son inquiétude venait de sa fille, Yao Xixue, et au fil du temps, son cœur s'était encore plus oppressé. Pour des êtres de son niveau de culture, une telle angoisse ne surgit jamais sans raison.
 
-C'est pourquoi, lorsque l'Omniscient suggéra d'entrer plus tôt, il fut le premier à accepter. Yao Xixue était sa seule fille, sa seule famille. Pour elle, il serait prêt à tout sacrifier!
+C'est pourquoi, lorsque l'Omniscient suggéra d'entrer plus tôt, l'Ancêtre de Sang fut le premier à accepter. Yao Xixue était sa seule fille, sa seule famille. Pour elle, il serait prêt à tout sacrifier!
 
 De même, le cœur de Ling Tianhou était sombre. Neuf des lampes vitales des Douze Épées s'étaient éteintes... Ling Tianhou réprima sa colère et se prépara à entrer dans le Pays des Esprits Démoniaques. Il comptait interroger rigoureusement Cupidité sur ce qui s'était passé.
 

@@ -82,13 +82,13 @@ Après un long moment, le carnage reprit dans ce monde écarlate. Tous s'envolè
 
 Ce cycle de violence se produisait plusieurs fois par jour. Lors de ces massacres, beaucoup mouraient, tandis que quelques rares individus voyaient la brume de sang autour d'eux gagner en puissance.
 
-Une journée passa rapidement; il y eut au total quatre cycles de massacre ce jour-là. Wang Lin tint jusqu'à la fin, mais la brume de sang autour de lui ne mesurait que une centaine de mètres de large. Comparé aux autres, c'était considérable, mais un homme aux cheveux noirs possédait une brume de plus de 330 mètres de large!
+Une journée passa rapidement; il y eut au total quatre cycles de massacre ce jour-là. Wang Lin tint jusqu'à la fin, mais la brume de sang autour de lui ne mesurait qu'une centaine de mètres de large. Comparé aux autres, c'était considérable, mais un homme aux cheveux noirs possédait une brume de plus de 330 mètres de large!
 
 Il flottait dans les airs tel un roi.
 
 Une fois le dernier massacre terminé, ce jeune homme royal leva soudainement la tête et poussa un rugissement. La brume de sang autour de son corps se mit à tourbillonner violemment.
 
-À cet instant précis, un éclair traversa le ciel. Un dragon argenté apparut soudainement. Il observa froidement tout ce qui se trouvait en dessous, puis aspira l'air avec une force colossale!
+À cet instant précis, un éclair traversa le ciel. Un dragon argenté apparut soudainement. Il observa froidement tout ce qui se trouvait en dessous, puis aspira soudain avec une force colossale!
 
 Cela força la brume de sang de chacun à quitter son corps pour être aspirée par le dragon argenté.
 

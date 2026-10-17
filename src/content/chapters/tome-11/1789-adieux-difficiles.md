@@ -114,7 +114,7 @@ Il contemplait le même visage, mais une personne différente. Cette sensation i
 
 « Wang Lin, ma fille et moi sommes prêts à partir pour la réincarnation! » déclara Qing Lin en rejoignant Wang Lin. Il tourna un regard vers Zhou Yi et poussa un soupir.
 
-Au cours des trois derniers jours, Zhou Ru, Shen Gonghu et d'autres prirent leur décision et vinrent voir Wang Lin. Le nombre de partants restait infime, moins de vingt personnes.
+Au cours des trois derniers jours, Zhou Ru, Shengong Hu et d'autres prirent leur décision et vinrent voir Wang Lin. Le nombre de partants restait infime, moins de vingt personnes.
 
 Lors des derniers instants, une fine pluie commença à tomber sur le Royaume Céleste. Mu Bingmei, vêtue de blanc, s'avança sous l'averse. Wang Lin ouvrit les yeux et leva la tête pour contempler cette femme d'une beauté transcendante tenant un parapluie.
 

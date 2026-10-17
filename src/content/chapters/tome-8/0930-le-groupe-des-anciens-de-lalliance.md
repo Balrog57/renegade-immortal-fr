@@ -6,13 +6,13 @@ bookTitle: "Alliance's Secret"
 en: Chapter 930 - Alliance Elder Group
 slug: le-groupe-des-anciens-de-lalliance
 ---
-Wang Lin fut le premier à prendre conscience de la situation, il était donc parfaitement préparé. Un instant avant que le doigt du Dieu Antique n'explose, il s'était déjà retiré et avait activé le fourneau du Dieu Antique. En conséquence, il ne fut que très peu affecté. Il regarda le Serpent aux yeux de lune, puis le cadavre féminin qui lui avait été projeté.
+Wang Lin fut le premier à prendre conscience de la situation, il était donc parfaitement préparé. Un instant avant que le doigt du dieu ancien n'explose, il s'était déjà retiré et avait activé le fourneau du dieu ancien. En conséquence, il ne fut que très peu affecté. Il regarda le Serpent aux yeux de lune, puis le cadavre féminin qui lui avait été projeté.
 
-Dès qu'il eut aperçu ce cadavre raffiné, l'idée de le dérober germa en lui. Lorsque le doigt du Dieu Antique explosa, il ajusta délibérément sa trajectoire dans l'unique but de s'emparer de ce corps d'argent.
+Dès qu'il eut aperçu ce cadavre raffiné, l'idée de le dérober germa en lui. Lorsque le doigt du dieu ancien explosa, il ajusta délibérément sa trajectoire dans l'unique but de s'emparer de ce corps d'argent.
 
 Parmi les deux cadavres argentés, le mâle était trop gravement endommagé, Wang Lin l'abandonna donc. Bien que ce cadavre féminin fût également meurtri, il était manifestement dans un état bien supérieur à celui du premier.
 
-« Puisque je participe à une guerre, personne ne pourra rien récriminer si je m'empare d'un trésor, surtout quand le champ de bataille est aussi chaotique. » Les yeux de Wang Lin s'illuminèrent alors qu'il profitait du tumulte provoqué par l'explosion du doigt du Dieu Antique pour foncer vers le cadavre féminin.
+« Puisque je participe à une guerre, personne ne pourra rien récriminer si je m'empare d'un trésor, surtout quand le champ de bataille est aussi chaotique. » Les yeux de Wang Lin s'illuminèrent alors qu'il profitait du tumulte provoqué par l'explosion du doigt du dieu ancien pour foncer vers le cadavre féminin.
 
 Cependant, Wang Lin n'était pas le seul à vouloir pêcher en eaux troubles. Plusieurs autres personnes manifestaient un intérêt pour ce corps. Parmi eux figuraient des cultivateurs de Luotian et de l'Alliance.
 
@@ -28,7 +28,7 @@ Pourtant, à cet instant précis, ce cultivateur se retourna soudainement, le re
 
 Ce changement terrifiant stupéfia les deux combattants. Ils jetèrent un regard au cadavre féminin et n'osèrent plus l'approcher. Après une hésitation, trois personnes, dont Wang Lin, accélérèrent la cadence pour passer devant les autres.
 
-Les yeux de Wang Lin s'illuminèrent et le fourneau du Dieu Antique apparut autour de lui. En un instant, il échangea sa place avec l'un des cultivateurs de Luotian qui avait pris la tête de la course.
+Les yeux de Wang Lin s'illuminèrent et le fourneau du dieu ancien apparut autour de lui. En un instant, il échangea sa place avec l'un des cultivateurs de Luotian qui avait pris la tête de la course.
 
 Le cultivateur de Luotian fut pris de saisissement lorsqu'il sentit une force puissante l'aspirer. Lorsqu'il retrouva la vue, il réalisa qu'il avait échangé sa position avec Wang Lin. Connaissant l'identité de ce dernier, il laissa échapper un sourire amer et renonça à ce trésor pour se précipiter vers le suivant.
 
@@ -44,7 +44,7 @@ Une lueur glaciale passa dans les yeux de Wang Lin. Alors que le cultivateur de 
 
 Le cultivateur de l'Alliance trembla. C'était comme s'il avait été pris au piège par d'innombrables fils invisibles, le laissant totalement immobile.
 
-Wang Lin ne marqua aucune pause. En un éclair, il tendit la main vers le cadavre féminin. Sa technique était d'une grande finesse: il ne chercha pas à l'attraper brutalement; dès que sa main fut proche, son énergie d'origine, alliée au pouvoir du Dieu Antique et aux poissons Yin et Yang, fut imprimée entre les sourcils de la créature.
+Wang Lin ne marqua aucune pause. En un éclair, il tendit la main vers le cadavre féminin. Sa technique était d'une grande finesse: il ne chercha pas à l'attraper brutalement; dès que sa main fut proche, son énergie d'origine, alliée au pouvoir du dieu ancien et aux poissons Yin et Yang, fut imprimée entre les sourcils de la créature.
 
 Un craquement retentit et le corps de celle-ci trembla. La lueur rouge qui s'était formée après avoir absorbé plusieurs cultivateurs se dissipa soudainement.
 
@@ -56,17 +56,17 @@ Tenant le cadavre féminin, Wang Lin le contempla. Une lueur rouge entourait enc
 
 Si ce cadavre n'avait présenté que cette étrange particularité, Wang Lin l'aurait abandonné. Après tout, en pleine guerre, la préservation de soi primait. Cependant, après que le corps eut absorbé l'essence sanguine de trois cultivateurs, des changements s'opérèrent. C'est ce qui le poussa à poursuivre la lutte pour l'obtenir.
 
-Tout en reculant, sa main gauche traça un sceau et il appliqua d'innombrables restrictions sur le cadavre, y injectant également une bouchée d'énergie d'origine. Après l'avoir rangé dans son sac, il s'élança à travers l'espace en pleine désintégration.
+Tout en reculant, sa main gauche traça un sceau et il appliqua d'innombrables restrictions sur le cadavre, y crachant également une bouchée d'essence de son âme originelle en guise de sceau. Après l'avoir rangé dans son sac, il s'élança à travers l'espace en pleine désintégration.
 
 L'effondrement avait engendré un vortex gigantesque, créant une aspiration puissante capable de tout dévorer. Seul le Serpent aux yeux de lune pouvait ignorer cette force, massacrant ses ennemis avec frénésie.
 
 À cet instant, plusieurs vieux monstres de l'Alliance encerclèrent le Serpent aux yeux de lune pour l'empêcher d'avancer. Même le Saint Démon du Dragon des Nuages s'approcha de la bête.
 
-Cependant, le Dieu du Sang et sa suite encerclèrent également le serpent aux yeux de lune pour combattre les cultivateurs de l'Alliance. Les êtres de sang, apparaissant les uns après les autres, lançaient une offensive écrasante contre l'Alliance.
+Cependant, le Dieu de Sang et sa suite encerclèrent également le serpent aux yeux de lune pour combattre les cultivateurs de l'Alliance. Les êtres de sang, apparaissant les uns après les autres, lançaient une offensive écrasante contre l'Alliance.
 
-Des grondements successifs résonnaient avec les rugissements du Serpent aux yeux de lune. Le combat entre Maître Yan Leizi et Wudo Chan faisait trembler le monde. Les fracas à l'intérieur du brouillard noir provoqué par leur affrontement étaient d'une intensité extrême.
+Des grondements successifs résonnaient avec les rugissements du Serpent aux yeux de lune. Le combat entre Maître Yan Leizi et Wu Dongchan faisait trembler le monde. Les fracas à l'intérieur du brouillard noir provoqué par leur affrontement étaient d'une intensité extrême.
 
-Les fluctuations qui émanaient de leurs chocs étaient telles que même le Dieu du Sang et ses compagnons devaient s'en écarter.
+Les fluctuations qui émanaient de leurs chocs étaient telles que même le Dieu de Sang et ses compagnons devaient s'en écarter.
 
 Au loin, la femme en robe bleue observait la scène sans l'ombre d'une panique. À ses côtés, le cadavre doré se tenait silencieux, l'expression glaciale. Cinq talismans jaunes tournaient lentement autour de sa tête, tandis que des éclairs parcouraient les talismans pour maintenir son sceau.
 
@@ -80,7 +80,7 @@ Ils savaient parfaitement que les fameux quatre saints n'étaient pas uniquement
 
 Les quatre saints de l'Alliance étaient divisés en Lune, Nuage, Xian et Yao! Ji Xiantian était le saint Xian. Chacun d'eux avait trois subordonnés; ainsi, quelle que soit la combinaison, ils formaient les quatre saints!
 
-En vérité, pour cette bataille, l'Alliance de Culture n'avait dépêché que le saint Xian et ses trois subordonnés!
+En vérité, pour cette bataille, l'Alliance de Culture n'avait dépêché que le Palais Xuan, le saint Xian et ses trois subordonnés!
 
 L'estimé Xuan Bao occupait un rang très élevé au sein du Palais Xuan. Ce qui imposait véritablement le respect et la crainte des membres de l'Alliance, c'était qu'il était l'un des Anciens capables de décider de tout au sein de l'organisation! C'était là sa fonction la plus prestigieuse.
 
@@ -90,13 +90,13 @@ Si Omniscient était respecté et que l'Alliance de Culture avait même envoyé 
 
 Si Omniscient n'avait pas été si discret, des individus comme Ling Tianhou n'auraient jamais pu exister. S'il l'avait voulu, il aurait pu les faire disparaître en un instant. Toutefois, après un certain incident, il s'était fait encore plus effacé et participait rarement aux réunions des anciens; il s'était retiré du monde.
 
-Il faut dire que même Ji Xiantian ou Wudo Chan, qui affrontaient Maître Yan Leizi, n'étaient pas éligibles au rang d'Ancien. Devant l'estimé Xuan Bao, ces deux-là n'étaient rien!
+Il faut dire que même Ji Xiantian ou Wu Dongchan, qui affrontait en ce moment Maître Yan Leizi, n'étaient pas éligibles au rang d'Ancien. Devant l'estimé Xuan Bao, ces deux-là n'étaient rien!
 
 Nul ne savait quel niveau de culture était requis pour intégrer ce groupe. Certains soupçonnaient que, si la culture y était liée, elle n'était pas le seul critère. Le groupe des anciens détenait les plus hauts pouvoirs et les secrets les plus profonds de l'Alliance! Ses membres étaient les véritables souverains de l'Alliance!
 
 L'estimé Xuan Bao portait du blanc et était d'une silhouette légèrement mince, ce qui lui conférait une aura céleste. Ses yeux brillaient d'une profondeur infinie; quiconque plongerait son regard dans le sien risquait d'y être immergé et de ne plus pouvoir s'en extirper pendant longtemps.
 
-Il avait l'apparence d'un véritable Ancien. Il tenait un fouet à la main lorsqu'il apparut aux côtés de la femme en robe bleue.
+Il avait l'apparence d'un véritable Ancien. Il tenait un chasse-mouches à la main lorsqu'il apparut aux côtés de la femme en robe bleue.
 
 La femme en robe bleue dit doucement: « Junior salue son Oncle-Maître. »
 

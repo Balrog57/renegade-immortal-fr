@@ -50,9 +50,9 @@ Durant ces dix années, la femme s'était soigneusement dissimulée dans le pala
 
 Wang Lin fronça les sourcils. Après avoir réfléchi un instant, il décida de ne plus y penser. Son sens divin ne se concentra plus sur la cité, mais balaya la planète Suzaku à la recherche de la Secte des Cadavres.
 
-La Secte des Cadavres était une organisation tentaculaire. Non seulement aux abords de la planète, mais rien qu'en restant sur Suzaku, Wang Lin se souvenait que la secte était présent dans presque tous les pays.
+La Secte des Cadavres était une organisation tentaculaire. Non seulement aux abords de la planète, mais rien qu'en restant sur Suzaku, Wang Lin se souvenait que la secte était présente dans presque tous les pays.
 
-Cependant, à travers les souvenirs de cette femme, il comprit que la Secte des Cadavres avait été réorganisé. Ils étaient désormais concentrés en un seul lieu, qui était devenu le quartier général de la Secte sur la planète Suzaku.
+Cependant, à travers les souvenirs de cette femme, il comprit que la Secte des Cadavres avait été réorganisée. Ils étaient désormais concentrés en un seul lieu, qui était devenu le quartier général de la Secte sur la planète Suzaku.
 
 Ce qui était intéressant, c'est que ce nouveau quartier général se trouvait dans le pays de Zhao, là même où la Secte des Cadavres de Zhao opérait autrefois!
 

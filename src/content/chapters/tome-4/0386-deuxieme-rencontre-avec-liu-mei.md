@@ -87,7 +87,7 @@ Liu Mei soupira en le regardant:
 — Wang Lin, une grande calamité est sur le point de s'abattre sur toi. Va... quitte la planète Suzaku...
 
 L'expression de Wang Lin resta sereine. Il ne dit rien, attendant que Liu Mei termine. Elle murmura alors:
-— Je ne te mentirai pas; tu sais déjà que je viens du pays de Suzaku, mais je ne suis pas une disciple ordinaire. Ma maîtresse est la plus grande cultivatrice de Suzaku, Zhuque Zi!
+— Je ne te mentirai pas; tu sais déjà que je viens du pays de Suzaku, mais je ne suis pas une disciple ordinaire. Ma maîtresse est la plus grande cultivatrice de Suzaku, Zhu Quezi!
 
 Les yeux de Wang Lin s'illuminèrent. Tout devint soudainement clair dans son esprit et il demanda:
 — Qu'est-il arrivé à Papillon Rouge après sa bataille contre moi?

@@ -12,7 +12,7 @@ Le vortex au centre tournait avec frénésie, aspirant d'immenses quantités de 
 
 Il n'y eut ni victoire ni défaite dans ce combat. Pour Luotian comme pour l'Alliance, il s'agissait d'une simple phase de reconnaissance mutuelle, mais le prix à payer pour ce tâtonnement fut extrêmement élevé.
 
-La mort de dizaines de milliers de cultivateurs força les deux camps à marquer une pause, comme si chacun préparait méticuleusement ses forces pour la prochaine bataille.
+La mort de plus de dix mille cultivateurs força les deux camps à marquer une pause, comme si chacun préparait méticuleusement ses forces pour la prochaine bataille.
 
 Du côté de Luotian, une multitude de cultivateurs se retirèrent pour se rassembler entre les régions occidentale et septentrionale afin de récupérer. L'Alliance, quant à elle, s'était plongée dans un silence total, bien que la nouvelle de cet affrontement ait déjà parcouru tous ses rangs.
 
@@ -46,7 +46,7 @@ Sous l'effet conjugué de l'affaiblissement et du scellement, la quantité d'én
 
 C'était comme si cet endroit était une zone interdite aux cultivateurs!
 
-Au sein de l'Alliance, seuls ceux dont le statut et la culture atteignaient un certain niveau savaient qu'il y a bien longtemps, avant l'effondrement des Royaumes Célestes, un événement cataclysmique s'était produit ici, manquant de peu de briser les Royaumes Célestes eux-mêmes!
+Au sein de l'Alliance, seuls ceux dont le statut et la culture atteignaient un certain niveau savaient qu'il y a bien longtemps, avant l'effondrement des Royaumes Célestes, un événement cataclysmique s'était produit ici, manquant de peu de briser les Royaumes Célestes eux-mêmes et d'anéantir presque tous les cultivateurs!
 
 Nul ne savait si ce vide avait une fin. Même les cultivateurs au sommet du stade de Briseur du Nirvana ne pouvaient y progresser très longtemps. Après tout, quelle que soit la quantité d'énergie originelle dont ils disposaient, elle finirait par s'épuiser.
 
@@ -86,7 +86,7 @@ Cependant, la puissance de la Bête du Tonnerre le frappa de stupeur: elle étai
 
 Face au regard insistant de la créature, Wang Lin ne put que hocher la tête pour confirmer ses paroles.
 
-Voyant que la Bête était toujours empreinte de doute, Wang Lin soupira et toucha son sac de rangement. L'épée céleste s'envolat et, d'un coup de doigt, il fit jaillir Xu Liguo.
+Voyant que la Bête était toujours empreinte de doute, Wang Lin soupira et toucha son sac de rangement. L'épée céleste s'envola et, d'un coup de doigt, il fit jaillir Xu Liguo.
 
 Sans même attendre d'ordre, Xu Liguo comprit immédiatement la situation grâce à sa connexion avec Wang Lin. Dès son apparition, il ne put s'empêcher de tripoter l'anneau de fer sur la corne de la Bête du Tonnerre, avant d'éclater de rire.
 
@@ -102,6 +102,6 @@ Finalement, elle permit à Xu Liguo de s'asseoir sur son dos, se souciant peu qu
 
 Lorsque Wang Lin rétracta son Sens Divin et vit la scène, il ne put qu'admirer Xu Liguo. Lorsqu'il avait trouvé la lame noire dans la Tombe du Suzaku, il avait remarqué ce talent chez lui. Il ignorait comment Xu Liguo avait réussi à persuader la lame, mais celle-ci était devenue inséparable de lui depuis longtemps.
 
-À cet instant, Xu Liguo touchait l'anneau de fer en pensant: « C'est toujours votre Grand-père Xu qui est le meilleur. J'ai dompté ce monstre en un clin d'œil! » Tout en se complaisant dans sa propre gloire, il tira sur l'anneau avec un peu trop de vigueur, provoquant un nouveau rugissement de colère de la part de la Bête du Tonnerre.
+À cet instant, Xu Liguo touchait l'anneau de fer en pensant: « C'est toujours votre Grand-père Xu qui est le meilleur. Pour ce genre d'affaire, j'ai surpassé ce fléau d'un seul coup! » Tout en se complaisant dans sa propre gloire, il tira sur l'anneau avec un peu trop de vigueur, provoquant un nouveau rugissement de colère de la part de la Bête du Tonnerre.
 
-Xu Liguo se mit rapidement à lui tapoter doucement la tête en lui murmurant d'autres paroles. Les yeux de la Bête s'illuminèrent alors qu'elle agitait la tête pour mieux s'observer. Son arrogance et son indifférence passées avaient totalement disparu.
+Xu Liguo se mit rapidement à lui tapoter doucement la tête en lui murmurant d'autres paroles. Les yeux de la Bête s'illuminèrent alors qu'elle agitait la tête pour mieux s'observer. Son arrogance et sa hauteur d'autrefois avaient totalement disparu.

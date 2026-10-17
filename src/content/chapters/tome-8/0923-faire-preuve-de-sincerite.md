@@ -34,7 +34,7 @@ Cette scène fit changer les expressions de ceux qui se trouvaient du côté de 
 
 Le Saint Démon Noir et le Saint Démon du Dragon des Nuages, qui combattaient le Dieu de Sang et sa troupe, eurent le visage assombri et reculèrent rapidement.
 
-Ji Xiantian laissa échapper un froid renâclant et ses yeux brillèrent. Au lieu de battre en retraite, il chargea droit sur Maître Yan Leizi, piégé dans la glace. Une fois à portée, il pressa ses mains sur la glace sans l'ombre d'une hésitation.
+Ji Xiantian laissa échapper un reniflement glacial et ses yeux brillèrent. Au lieu de battre en retraite, il chargea droit sur Maître Yan Leizi, piégé dans la glace. Une fois à portée, il pressa sa main droite sur la glace sans l'ombre d'une hésitation.
 
 À cet instant, une force destructrice s'engouffra dans la glace. Cette puissance s'accumula mystérieusement pour charger vers Maître Yan Leizi.
 
@@ -48,11 +48,11 @@ Maître Yan Leizi rit, fit un pas et fusionna avec le monde. Bien qu'immobile, d
 
 L'énergie originelle du monde commença alors à vibrer violemment, interférant directement avec la Distorsion Spatiale. Simultanément, Maître Yan Leizi forma un sceau de la main et une flamme rouge jaillit tel un dragon rugissant.
 
-Peu après, Maître Yan Leizi cracha une bouffée d'énergie originelle essentielle. Celle-ci retomba sur les fragments célestes en rotation, bloquant totalement la retraite de Ji Xiantian.
+Peu après, Maître Yan Leizi cracha une bouffée d'essence de son âme originelle. Celle-ci retomba sur les fragments célestes en rotation, bloquant totalement la retraite de Ji Xiantian.
 
 Les fragments célestes tremblèrent et tournèrent dix fois plus vite qu'auparavant, se précipitant pour emprisonner Ji Xiantian à leur tour.
 
-La tempête générée par les fragments en rotation rugit, et le visage de Ji Xiantian s'assombrit. Il poussa sa main vers l'extérieur pour rassembler une masse d'énergie originelle afin de s'en extraire, mais Maître Yan Leizi s'avança et des flammes immenses jaillirent de son corps. Il pointa du doigt et les flammes s'élancèrent, enveloppant la tempête. Certaines flammes fusionnèrent avec le tourbillon, lui donnant l'apparence d'un dragon de feu!
+La tempête générée par les fragments en rotation rugit, et le visage de Ji Xiantian s'assombrit. Il poussa ses deux mains vers l'extérieur pour rassembler une masse d'énergie originelle afin de s'en extraire, mais Maître Yan Leizi s'avança et des flammes immenses jaillirent de son corps. Il pointa du doigt et les flammes s'élancèrent, enveloppant la tempête. Certaines flammes fusionnèrent avec le tourbillon, lui donnant l'apparence d'un dragon de feu!
 
 À ce moment précis, au loin, le Serpent aux yeux de lune arriva comme par téléportation. Il paraissait extrêmement féroce avec ses innombrables tentacules!
 
@@ -80,7 +80,7 @@ Les ondes provoquées par l'arrivée du bois géant étaient indescriptibles. À
 
 Aucun être, aucun trésor magique, aucun objet, pas même une planète de culture ne pouvait stopper son impact ou lui infliger le moindre dommage. Ce bois géant était capable de soutenir l'arrivée du Royaume Céleste Antique; désormais, tout ce qui constellait les étoiles devait s'effondrer devant lui!
 
-Le bois géant frappa avec un impact inimaginable, comme s'il voulait percer l'espace même! Il se referma instantanément sur la tempête que Maître Yan Leizi avait utilisée pour piéger Ji Xiantian.
+Le bois géant frappa avec un impact inimaginable, comme s'il voulait percer l'espace même! Il atteignit en un instant la tempête que Maître Yan Leizi avait utilisée pour piéger Ji Xiantian.
 
 Sans technique complexe ni éclat de sort, le bois géant percuta directement les fragments célestes en rotation.
 
@@ -114,11 +114,11 @@ L'effroi envahit le regard de Ji Xiantian; tout s'était passé trop vite. Neuf 
 
 Leurs sorts se transformèrent en forces incessantes qui frappèrent le corps de Ji Xiantian!
 
-Ji Xiantian fut assailli par le bois géant, Maître Yan Leizi, Lie Yunzi et l'ancêtre de la famille Shengong. Tous leurs sorts étaient d'une puissance extrême, sans parler de celui de Maître Yan Leizi, dont le niveau de culture surpassait celui de Ji Xiantian. Devant une telle salve, Ji Xiantian faillit perdre la raison!
+Ji Xiantian fut assailli par le bois géant, Maître Yan Leizi, Lie Yunzi et l'ancêtre de la famille Shengong. Tous leurs sorts étaient d'une puissance extrême, sans parler de celui de Maître Yan Leizi, dont le niveau de culture surpassait celui de Ji Xiantian. Devant une telle salve, Ji Xiantian faillit voir son âme se disperser!
 
 Cependant, il était, après tout, un vieux monstre célèbre depuis des dizaines de milliers d'années pour sa vie de massacres. Bien qu'il fût en pleine crise, il n'allait pas mourir si facilement!
 
-Face au péril, Ji Xiantian laissa échapper un rire et décida de faire exploser les quatre couches de lumière bleue restantes autour de lui!
+Face au péril, Ji Xiantian poussa un cri strident, le regard résolu, et décida de faire exploser les quatre couches de lumière bleue restantes autour de lui!
 
 Un grondement tonitruant retentit lors de l'explosion des quatre couches. L'impact repoussa Lie Yunzi ainsi que l'ancêtre de la famille Shengong.
 

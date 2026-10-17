@@ -24,7 +24,7 @@ Cependant, alors que la mer rugissante approchait, l'homme d'âge mûr revêtu d
 
 « Une simple astuce! » Empreint d'une soif de sang et d'une folie meurtrière, l'homme leva sa main droite et l'agita avec désinvolture. Une masse de gaz noirs jaillit soudainement de sa paume, inondant le ciel et recouvrant la mer. L'océan créé par Wang Wei explosa en d'innombrables gouttes de pluie qui se dispersèrent partout. C'était comme si le sort de Wang Wei n'était qu'un jeu d'enfant face à cet homme!
 
-« Maître, le disciple est arrivé trop tard... » Le visage de Wang Wei était livide alors qu'il reculait de plusieurs centaines de pieds pour rejoindre Zhou Yi. Il regarda l'homme d'âge mûr avec une douleur profonde dans les yeux, mais il la réprima rapidement pour afficher un regard déterminé. Zhou Yi ne s'était pas encore remis de ses blessures infligées au Maître du Vide et était en grand danger. Wang Wei fit un geste de la main; Zhou Yi comprit instantanément son intention. Il lança un dernier regard à Wang Lin avant de se transformer en une lueur de lumière pour être rangé dans le sac de Wang Wei.
+« Maître, le disciple est arrivé trop tard... » Le visage de Wang Wei était livide alors qu'il reculait de plusieurs centaines de pieds pour rejoindre Zhou Yi. Il regarda l'homme d'âge mûr avec une douleur profonde dans les yeux, mais il la réprima rapidement pour afficher un regard déterminé. Zhou Yi ne s'était pas encore remis après avoir blessé le Maître du Vide et était en grand danger. Wang Wei fit un geste de la main; Zhou Yi comprit instantanément son intention. Il lança un dernier regard à Wang Lin avant de se transformer en une lueur de lumière pour être rangé dans le sac de Wang Wei.
 
 Dans le ciel, après que la mer de Wang Wei eut été brisée, le doigt de l'Omniscient, qui semblait pouvoir soutenir les cieux, descendit. Imprégné d'une puissante énergie originelle, il descendait lentement depuis la voûte céleste. Bien que sa descente paraisse lente, sa vitesse réelle était extrême.
 
@@ -60,11 +60,11 @@ Lorsque Wang Wei avait crié « Maître! », cela confirmait les soupçons de Wa
 
 « En reliant tous les indices, le karma de cette situation est sur le point d'être révélé! »
 
-« Par le passé, l'Empereur Céleste Qing Lin fut gravement blessé lors de l'effondrement du Royaume Céleste et fut contraint à une culture en vase clos. Cependant, l'Ancien Démon Ta Jia et l'Ancien Démon Bei Lou saisirent cette opportunité pour lui tendre une embuscade. Ils voulaient dérober le corps de Qing Lin afin de s'emparer de sa culture et de ses souvenirs. »
+« Par le passé, l'Empereur Céleste Qing Lin fut gravement blessé lors de l'effondrement du Royaume Céleste et dut se retirer. Cependant, l'Ancien Démon Ta Jia et l'Ancien Démon Bei Lou saisirent cette opportunité pour lui tendre une embuscade. Ils voulaient dérober le corps de Qing Lin afin de s'emparer de sa culture et de ses souvenirs. »
 
-« Pourtant, Qing Lin était si puissant que, même gravement blessé, il demeurait redoutable. Malgré l'alliance de l'Ancien Démon et de l'Ancien Démon, ils ne purent le vaincre totalement. Finalement, Qing Lin se réfugia dans le Royaume Céleste de l'Esprit Divin, là où leur combat atteignit son apogée. »
+« Pourtant, Qing Lin était si puissant que, même gravement blessé, il demeurait redoutable. Malgré l'alliance de l'Ancien Démon et de l'Ancien Démon, ils ne purent le vaincre totalement. Finalement, Qing Lin se réfugia dans le Royaume Céleste des Esprits, là où leur combat atteignit son apogée. »
 
-« Lors de cette bataille, l'Ancien Démon Bei Lou fut contraint d'être divisé en neuf parties. Il n'eut d'autre choix que de devenir neuf esprits démoniaques anciens et de se dissimuler durant d'innombrables années dans le Royaume Céleste de l'Esprit Divin, attendant de pouvoir se reformer. »
+« Lors de cette bataille, l'Ancien Démon Bei Lou fut contraint d'être divisé en neuf parties. Il n'eut d'autre choix que de devenir neuf esprits démoniaques anciens et de se dissimuler durant d'innombrables années dans le Royaume Céleste des Esprits, attendant de pouvoir se reformer. »
 
 « Quant à l'Ancien Démon Ta Jia, il réussit à pénétrer dans le corps de Qing Lin pour tenter une prise de contrôle. Mais Qing Lin parvint jusqu'au neuvième étage de cette grotte. Dès qu'il s'assit, il utilisa les 99 bougies pour résister à l'Ancien Démon! »
 

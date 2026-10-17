@@ -18,9 +18,9 @@ Son talent rendait toute culture impossible. À l'âge de quinze ans, il fut ban
 
 Pourtant, nul n'aurait pu imaginer qu'il réapparaîtrait au sein de la lignée cinq cents ans plus tard. Son apparence n'avait guère changé; il arborait toujours ce sourire idiot, mais il avait atteint le stade d'Ascendant!
 
-Cela attira immédiatement l'attention de la famille. Dès lors, il devint l'élite du clan. Les siècles passèrent lentement et, après des millénaires, le garçon à la grosse tête atteignit le sommet du stade Corporel Yang!
+Cela attira immédiatement l'attention de la famille. Dès lors, il devint l'élite du clan. Le temps passa lentement et, après plus de mille ans, le garçon à la grosse tête atteignit le sommet du stade Corporel Yang!
 
-Son enfance avait forgé une personnalité profondément tordue. Au fil de ces millénaires, il avait torturé et tué de nombreuses personnes; hommes ou femmes, tous mouraient dans la misère.
+Son enfance avait forgé une personnalité profondément tordue. Au fil de ces mille ans, il avait torturé et tué de nombreuses personnes; hommes ou femmes, tous mouraient dans la misère.
 
 Il était d'une prudence extrême. Lorsqu'il passait à l'acte, il veillait à ce que personne ne puisse trouver la moindre piste. Cependant, il y a trente ans, lors de l'un de ses massacres, sa famille finit par ne plus pouvoir le tolérer. L'ancêtre du stade Scruteur du Nirvana, au premier niveau, sortit personnellement pour l'éliminer!
 
@@ -46,7 +46,7 @@ Le pied droit de Wang Lin fit un pas, créant des ondulations dans l'air. Lorsqu
 
 Déformation spatiale!
 
-Au pas suivant, Wang Lin apparut aux côtés du garçon à la grosse tête. Ses deux doigts droits formèrent une épée et son domaine s'intégra à sa main. D'un geste, les poissons yin et yang apparurent.
+Au pas suivant, Wang Lin apparut aux côtés du garçon à la grosse tête. Ses deux doigts droits formèrent une épée et son idéal du Dao se fondit à son énergie et à sa main. D'un geste, les poissons yin et yang apparurent.
 
 Ses doigts étaient entourés de brumes noires et blanches lorsqu'il les pressa vers le bas. Les runes dorées s'écartèrent toutes sur le passage de son doigt, permettant à Wang Lin de frapper entre les sourcils du garçon!
 
@@ -56,11 +56,11 @@ Le gaz noir et blanc enveloppa sa silhouette, faisant rétrécir instantanément
 
 Il cracha violemment une bouchée de sang. Ce sang n'était pas projeté au hasard: chaque goutte fonçait vers Wang Lin!
 
-Chaque goutte contenait une puissante énergie spirituelle céleste. Si ce sang touchait le corps de Wang Lin, celui-ci s'effondrerait sur-le-champ! Après tout, la culture du garçon à la grosse tête n'était pas dérisoire: c'était un cultivateur de second niveau au stade Scruteur du Nirvana!
+Chaque goutte contenait une puissante énergie spirituelle céleste. Si ce sang touchait le corps de Wang Lin, celui-ci s'effondrerait sur-le-champ! Après tout, la culture du garçon à la grosse tête n'était pas dérisoire: c'était un cultivateur de la deuxième étape, au stade Scruteur du Nirvana!
 
 L'expression de Wang Lin resta neutre; il ne chercha même pas à esquiver. Alors que le sang frais approchait, il murmura doucement: « Lier! »
 
-Grâce à sa culture au stade Scruteur du Nirvana, le sort de Liaison était bien plus puissant qu'auparavant. De plus, au moment où Wang Lin l'utilisa, la perle céleste laissée par Qing Shui tourna frénétiquement, libérant une trace d'énergie originelle céleste dans ce monde!
+Grâce à sa culture au stade Scruteur du Nirvana, le sort de Liaison était bien plus puissant qu'auparavant. De plus, au moment où Wang Lin l'utilisa, l'origine céleste laissée par Qing Shui, devenue haricot céleste dans son corps, tourna frénétiquement, libérant une trace d'énergie originelle céleste dans ce monde!
 
 Cela permit instantanément au sort de Liaison d'atteindre un niveau de puissance inédit depuis que Wang Lin l'avait appris!
 
@@ -76,7 +76,7 @@ Leur apparition exerça une pression immédiate et écrasante sur la planète Su
 
 En descendant, les cultivateurs de Luotian aperçurent immédiatement Wang Lin et le garçon à la grosse tête. En voyant Wang Lin, leurs visages se décomposèrent.
 
-Wang Lin ne s'arrêta pas. Tout en poursuivant sa course, il frappa son sac de contenance, libérant le Drapeau du Tigre Céleste qui témoignait de son statut de Céleste du Tonnerre.
+Wang Lin ne s'arrêta pas. Tout en poursuivant sa course, il frappa son sac de contenance, libérant le Drapeau du Tigre Céleste, offert par Yan Leizi, qui témoignait de son statut authentique de Céleste du Tonnerre.
 
 Dès l'apparition du drapeau, un rugissement de tigre féroce retentit. Une brume violette enveloppa la bannière qui se mua en un tigre impétueux, rugissant directement vers les cultivateurs de Luotian suspendus dans le ciel.
 
@@ -96,7 +96,7 @@ Wang Lin le regarda avec froideur. Il leva la main et une lueur verdâtre en jai
 
 En un instant, une sphère de tonnerre se forma dans sa paume, émettant des grésillements incessants. D'innombrables arcs électriques s'en échappaient. De loin, on aurait dit que le tonnerre des cieux était intégralement sous le contrôle de Wang Lin.
 
-En voyant ce déploiement de puissance, le garçon à la grosse tête trembla de tous ses membres. La scène qui l'avait autrefois fait craindre Wang Lin ressurgit de son passé. Cette fois, il n'était pas seulement effrayé; il était terrifié au plus profond de son âme!
+En voyant ce déploiement de puissance, le garçon à la grosse tête trembla de tous ses membres. La scène du royaume d'une ligne vers le ciel, qui lui avait glacé le sang, ressurgit dans son esprit. Cette fois, il n'était pas seulement effrayé; il était terrifié au plus profond de son âme!
 
 « Frère Xu, mes deux mille ans de culture n'ont pas été faciles! Si vous avez une exigence, je vous en prie, parlez! Tant que vous ne me tuez pas, j'accepterai tout! » Les pupilles du garçon se contractèrent alors qu'il fixait la sphère de foudre. Il n'était pas stupide. Depuis le début de l'affrontement, Wang Lin n'avait utilisé aucun sort dévastateur; il n'était donc manifestement pas résolu à l'exécuter. S'il avait su reculer plus tôt, il aurait peut-être évité ce désastre.
 
@@ -104,7 +104,7 @@ Wang Lin répondit d'un ton calme: « J'ai besoin d'un serviteur! »
 
 Le garçon réfléchit un instant et dit: « Je suis déjà entré dans le bassin céleste et j'ai perdu mon domaine. Je ne peux pas vous offrir mon idéal du Dao. »
 
-« Ce n'est pas un problème, j'ai un sort pour cela. Si tu y consens, il ne te fera aucun mal; mais si tu résistes, il se brisera et tu mourras! » Tandis qu'il parlait, Wang Lin leva sa main droite et une étrange rune commença à se dessiner. L'énergie originelle céleste jaillit de la perle logée en lui pour s'accumuler dans la rune.
+« Ce n'est pas un problème, j'ai un sort pour cela. Si tu y consens, il ne te fera aucun mal; mais si tu résistes, il se brisera et tu mourras! » Tandis qu'il parlait, Wang Lin leva sa main droite et une étrange rune commença à se dessiner. L'énergie originelle céleste jaillit du haricot céleste logé en lui pour s'accumuler dans la rune.
 
 Dans un éclat de lumière dorée, une rune d'un or sombre apparut dans la paume de Wang Lin.
 

@@ -6,7 +6,7 @@ bookTitle: Cultivation Planet Crystal
 en: Chapter 450 - Thousand Illusion Lust Domain
 slug: domaine-des-mille-illusions-de-la-luxure
 ---
-Yunque Zi fut surpris et demanda: « Est-ce là ton ancien domaine de la luxure? »
+Yun Quezi fut surpris et demanda: « Est-ce là ton ancien domaine de la luxure? »
 
 Le troisième ancêtre hocha la tête et répondit: « C'est mon domaine de la luxure. Si elle réussit sa possession, elle s'emparera certainement d'une partie de ma puissance. Comment pourrais-je la laisser faire? »
 

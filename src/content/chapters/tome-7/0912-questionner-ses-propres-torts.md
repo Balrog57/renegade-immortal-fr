@@ -64,7 +64,7 @@ Après que Qing Shui lui eut transmis l'héritage, il comprit le problème. « I
 
 En méditant, Wang Lin ouvrit les bras et chercha à comprendre silencieusement « Invoquer la Pluie ». Ce sort consistait à rassembler l'énergie originelle du monde pour ensuite la condenser sous forme de pluie. Chaque goutte contenait une énergie originelle dense. On pourrait dire que cela relevait déjà des lois de l'univers.
 
-Pendant sa compréhension, d'épais nuages sombres se condensèrent dans le ciel au-dessus de lui. La scène était spectaculaire.
+Pendant sa compréhension, d'épais nuages sombres se condensèrent dans le ciel au-dessus de lui. Ces nuages s'étendirent sur une vaste zone; longtemps après, la pluie tomba goutte à goutte du ciel sur la terre. Peut-être faute de pluie depuis très longtemps en ces lieux, chaque goutte soulevait une couche de poussière en touchant le sol; du point où se trouvait Wang Lin, la terre semblait parcourue par dix mille chevaux au galop, et la poussière, retenue par les gouttes, retombait sur le sol. La scène était spectaculaire.
 
 Immergé dans la vision de la pluie, Wang Lin était totalement absorbé. Pourtant, à cet instant, la pluie sembla s'interrompre et deux silhouettes émergèrent du vide. Avant que les gouttes ne puissent atteindre ces deux individus, elles se dissipaient instantanément en une épaisse brume. Pas une seule goutte n'atteignit ces deux personnes.
 
@@ -78,6 +78,6 @@ Le Maître Yan Leizi se tenait à ses côtés, l'expression sombre, fixant Wang 
 
 Le Maître Yan Leizi n'avait toujours pas parlé, mais son visage se fit plus sévère. Au cours des derniers jours, il avait déployé son Sens Divin sur tout le territoire de Luotian sans parvenir à trouver Wang Lin. Quant aux régions plus éloignées, il restait prudent et n'osait pas s'y aventurer sans précaution.
 
-L'expression de Wang Lin resta imperturbable alors qu'il répondit calmement: « Je suis allé tuer le tueur Yu Fei du Domaine de Massacre de l'Alliance. »
+L'expression de Wang Lin resta imperturbable alors qu'il répondit calmement: « Je suis allé tuer le tueur Yu Fei du Domaine de la Boucherie de l'Alliance. »
 
 À ces mots, le vieil homme fut stupéfait et les yeux du Maître Yan Leizi s'illuminèrent.

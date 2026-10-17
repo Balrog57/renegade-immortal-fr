@@ -26,7 +26,7 @@ Son corps vacilla et il chargea Wang Lin. Sa main droite forma un sceau et point
 
 Une lueur glaciale passa dans les yeux de Wang Lin alors qu'il chargeait à son tour, formant un sceau de ses deux mains. Il mordit le bout de sa langue pour cracher une flèche de sang, puis utilisa sa main droite pour tracer une rune sanglante qui vint frapper le papillon aux cinq couleurs!
 
-« Chaque Chariot de l'Extermination Divine possède cinq sceaux. Après l'activation du troisième chariot, celui-ci s'est transformé en un cocon qui a donné naissance à ce papillon. Cependant, il reste encore cinq sceaux sur ce papillon. Ce n'est qu'en libérant les cinq que je pourrai prendre le contrôle de ce chariot et utiliser la véritable puissance de ce trésor créé par Maître Tian Bao, capable de terrasser les dieux! »
+« Chaque Char de Guerre Divin possède cinq sceaux. Après l'activation du troisième char, celui-ci s'est transformé en un cocon qui a donné naissance à ce papillon. Cependant, il reste encore cinq sceaux sur ce papillon. Ce n'est qu'en libérant les cinq que je pourrai prendre le contrôle de ce char et utiliser la véritable puissance de ce trésor créé par Maître Tian Bao, capable de terrasser les dieux! »
 
 « La transformation en papillon peut être considérée comme le premier sceau. Maintenant, second sceau: libération! » La flèche de sang de Wang Lin percuta le papillon, le faisant trembler violemment. Dans ce frémissement, une sixième couleur apparut soudainement!
 
@@ -60,7 +60,7 @@ Les yeux de Ming Hai s'illuminèrent. Il saisit le liquide noir accumulé dans s
 
 Cependant, au moment même où la barrière se formait, le papillon aux sept couleurs traversa la tempête et perça le rempart de liquide. Cela renvoya le liquide noir vers Ming Hai, porté par la tempête elle-même!
 
-À ce moment, les flammes n'étaient plus qu'à quelques centaines de pieds. En cette situation critique, le Fourneau de l'Ancien Dieu apparut autour de Wang Lin et il se retrouva derrière Ming Hai en un éclair. Sa main droite pointa brusquement vers l'avant!
+À ce moment, les flammes n'étaient plus qu'à moins de 500 pieds. En cette situation critique, le Fourneau de l'Ancien Dieu apparut autour de Wang Lin et il se retrouva derrière Ming Hai en un éclair. Sa main droite pointa brusquement vers l'avant!
 
 Ming Hai fronça les sourcils et l'énergie céleste démoniaque dans son corps explosa une fois de plus. Mais au moment de l'éruption, la froideur dans les yeux de Wang Lin se mua en un cri: « Arrête! »
 

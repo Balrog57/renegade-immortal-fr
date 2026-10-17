@@ -26,17 +26,17 @@ Le doigt du dieu ancien jaillit soudainement. Il était impossible de décrire l
 
 Aucun pouvoir ne pouvait résister à une telle force. Tout devait périr sous l'assaut de ce doigt!
 
-Le corps raffiné poursuivant Wang Lin fut stupéfait. Un bref instant de vide passa dans son esprit, tandis qu'il pesait les conséquences d'affronter de front le doigt du dieu ancien!
+Le cadavre raffiné poursuivant Wang Lin fut stupéfait. Un bref instant de vide passa dans son esprit, tandis qu'il pesait les conséquences d'affronter de front le doigt du dieu ancien!
 
 Boum!
 
-Au moment où le doigt du dieu ancien chargea, il percuta le corps raffiné. Sous une série de craquements sinistres, toutes les chaînes retenant la créature cédèrent. De grandes quantités de sang noir furent expulsées du dos de son corps sous l'effet de cette force implacable. Son corps entier fut projeté en arrière et sa peau violette commença immédiatement à se dissiper.
+Au moment où le doigt du dieu ancien chargea, il percuta le cadavre raffiné. Sous une série de craquements sinistres, toutes les chaînes retenant la créature cédèrent. De grandes quantités de sang noir furent expulsées du dos de son corps sous l'effet de cette force implacable. Son corps entier fut projeté en arrière et sa peau violette commença immédiatement à se dissiper.
 
-En un clin d'œil, il fut comme dépouillé de sa peau. Puis, ses os et sa chair s'effondrèrent et, finalement, le corps raffiné explosa.
+En un clin d'œil, il fut comme dépouillé de sa peau. Puis, ses os et sa chair s'effondrèrent et, finalement, le cadavre raffiné explosa.
 
 Bien que cette séquence d'événements puisse sembler lente, elle ne prit que quelques respirations!
 
-Le doigt du dieu ancien ne s'arrêta pas et pressa sa course avec acharnement. Wang Lin s'était déjà retiré un instant auparavant. Ses yeux s'illuminèrent; en observant l'attaque, il eut la sensation qu'un imperturbable dieu ancien adulte se tenait derrière ce doigt. Le bras massif du dieu ancien poussait le doigt vers l'avant dans une vague de destruction incessante.
+Le doigt du dieu ancien ne s'arrêta pas et pressa sa course avec acharnement. Wang Lin s'était déjà retiré un instant auparavant. Ses yeux s'illuminèrent; en observant l'attaque, il eut la sensation qu'un dieu ancien adulte, colossal, se tenait derrière ce doigt. Le bras massif du dieu ancien poussait le doigt vers l'avant dans une vague de destruction incessante.
 
 Le corps gigantesque du Serpent aux yeux de lune suivit le doigt du dieu ancien et s'élança, ses innombrables tentacules déployés. Une vaste brume se dégagea de son corps ovale, et ses yeux féroces rencontrèrent le regard de Wang Lin. Dès que leurs regards se croisèrent, Wang Lin sentit que quelque chose n'allait pas.
 
@@ -52,9 +52,9 @@ Wang Lin avait passé sa vie dans le massacre, mais le nombre de morts lors de c
 
 La bataille entre la planète Suzaku et le Clan des Immortels Délaissés était véritablement insignifiante en comparaison!
 
-La situation s'inversa. Le doigt du dieu ancien siffla à travers l'espace, et tous les cultivateurs devant lui s'effondrèrent, incapables de le ralentir. Le doigt se dirigea vers le Saint Démon au Visage Noir.
+La situation s'inversa. Le doigt du dieu ancien siffla à travers l'espace, et tous les cultivateurs devant lui s'effondrèrent, incapables de le ralentir. Le doigt se dirigea vers le Saint Démon Noir.
 
-L'expression du Saint Démon au Visage Noir de l'Alliance changea radicalement. Alors que le doigt approchait, il serra les dents et cracha une brume noire tout en formant un sceau de ses mains. Cette brume se transforma immédiatement en une grue noire gigantesque.
+L'expression du Saint Démon Noir de l'Alliance changea radicalement. Alors que le doigt approchait, il serra les dents et cracha une brume noire tout en formant un sceau de ses mains. Cette brume se transforma immédiatement en une grue noire gigantesque.
 
 La grue tenait une feuille noire dans son bec. Dès qu'elle apparut, elle lâcha la feuille, qui commença à croître de manière effrénée.
 
@@ -62,11 +62,11 @@ En un instant presque imperceptible, cette feuille mesurait plus de 10 000 pieds
 
 Le doigt du dieu ancien percuta la feuille. Des bruits de craquements retentirent, puis la feuille se désintégra en filaments de gaz noir.
 
-Le visage du Saint Démon au Visage Noir pâlit; il cracha du sang et recula. Cependant, sa main droite plongea dans le vide et une sculpture sur bois apparut dans sa paume.
+Le visage du Saint Démon Noir pâlit; il cracha du sang et recula. Cependant, sa main droite plongea dans le vide et une sculpture sur bois apparut dans sa paume.
 
 Cette sculpture était extrêmement étrange: elle représentait une personne aux bras croisés, entourée de plantes. Il était impossible d'en distinguer le visage, car il était dissimulé par la végétation.
 
-Dès qu'il l'eut sortie, le Saint Démon au Visage Noir la lança sans hésiter.
+Dès qu'il l'eut sortie, le Saint Démon Noir la lança sans hésiter.
 
 Une lumière noire capable de dévorer toute autre clarté émana de la sculpture. C'était comme si elle avait pris vie; les plantes commencèrent à bouger et s'élancèrent directement depuis l'objet de bois.
 
@@ -88,7 +88,7 @@ Cette grande bataille était une véritable démonstration de sorts et de tréso
 
 Sans cette guerre, il lui aurait été très difficile d'acquérir un tel savoir.
 
-À ce moment précis, alors que le Saint Démon au Visage Noir utilisait un trésor magique pour stopper le doigt du dieu ancien, les dix corps raffinés restants de l'Alliance poussèrent des rugissements et chargèrent. Les deux corps argentés se déplaçaient plus vite que les autres.
+À ce moment précis, alors que le Saint Démon Noir utilisait un trésor magique pour stopper le doigt du dieu ancien, la dizaine et plus de cadavres raffinés restants de l'Alliance poussèrent des rugissements et chargèrent. Les deux cadavres argentés se déplaçaient plus vite que les autres.
 
 Cependant, même réunis, ils ne suffisaient pas à rivaliser avec le doigt du dieu ancien!
 
@@ -96,7 +96,7 @@ Alors que le Serpent aux yeux de lune chargeait, il poussa un nouveau rugissemen
 
 Le rugissement du serpent n'était qu'un cri pour les autres, mais lorsqu'il parvint aux oreilles de Wang Lin, il prit une signification totalement différente. L'expression de Wang Lin changea et ses mains s'activèrent sans attendre pour poser d'innombrables restrictions devant lui. Le fourneau divin apparut autour de lui alors qu'il se retirait rapidement.
 
-À l'instant même de son retrait, le rugissement du Serpent aux yeux de lune provoqua l'explosion du doigt du dieu ancien que le Saint Démon au Visage Noir et les corps raffinés tentaient de contenir!
+À l'instant même de son retrait, le rugissement du Serpent aux yeux de lune provoqua l'explosion du doigt du dieu ancien que le Saint Démon Noir et les cadavres raffinés tentaient de contenir!
 
 Boum!
 
@@ -104,14 +104,14 @@ Il était impossible d'expliquer l'ampleur de l'explosion. Tout dans un rayon de
 
 D'innombrables cultivateurs paniquèrent et s'enfuirent dans la terreur, maudissant leur propre lenteur.
 
-Le Serpent aux yeux de lune fut le seul à ne subir aucun dommage. Il chargea, ses tentacules balayant la zone pour commencer un massacre. Quant au Saint Démon au Visage Noir, qui se trouvait au centre de l'explosion, il cracha des quantités massives de sang et fut projeté en arrière. Il n'avait jamais été dans un état aussi pitoyable en ses dizaines de milliers d'années de culture.
+Le Serpent aux yeux de lune fut le seul à ne subir aucun dommage. Il chargea, ses tentacules balayant la zone pour commencer un massacre. Quant au Saint Démon Noir, qui se trouvait au centre de l'explosion, il cracha des quantités massives de sang et fut projeté en arrière. Il n'avait jamais été dans un état aussi pitoyable en ses dizaines de milliers d'années de culture.
 
 Son corps était gravement endommagé et il était sur le point de s'effondrer.
 
 Il était plongé dans la stupeur. Durant toute sa vie de cultivateur, il n'avait jamais rencontré une bête aussi puissante. Après avoir craché du sang, il s'enfuit frénétiquement, comme s'il avait perdu la raison.
 
-Quant à la douzaine de corps raffinés, hormis les deux argentés, les autres ne purent absolument rien opposer au doigt du dieu ancien. Ils éclatèrent en tas de chair et de sang en étant aspirés dans le vide.
+Quant à la douzaine de cadavres raffinés, hormis les deux argentés, les autres ne purent absolument rien opposer au doigt du dieu ancien. Ils éclatèrent en tas de chair et de sang en étant aspirés dans le vide.
 
-Même les deux corps argentés furent repoussés; les chaînes qui les retenaient cédèrent tandis qu'ils crachaient du sang noir. La magnifique femme-corps chargea alors directement vers Wang Lin.
+Même les deux cadavres argentés furent repoussés; les chaînes qui les retenaient cédèrent tandis qu'ils crachaient du sang noir. Le magnifique cadavre féminin chargea alors directement vers Wang Lin.
 
-« Un tel trésor devrait m'appartenir! » Les yeux de Wang Lin brillèrent alors qu'il fixait non seulement la femme-corps, mais aussi la sculpture en bois à moitié brisée.
+« Un tel trésor est à moi, Wang Lin! » Les yeux de Wang Lin brillèrent alors qu'il fixait non seulement le cadavre féminin, mais aussi la sculpture en bois à moitié brisée.

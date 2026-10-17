@@ -6,15 +6,15 @@ bookTitle: Famous in the Sea of Devils
 en: Chapter 170 - Splitting from the team
 slug: separation-de-lequipe
 ---
-Toutes les épées frappèrent violemment le filament, le faisant trembler. Celui-ci brilla intensément en résistant à l'énergie des lames, mais un creux finit par apparaître à sa surface.
+Toutes les épées frappèrent violemment la membrane, la faisant trembler. Celle-ci brilla intensément en résistant à l'énergie des lames, mais un creux finit par apparaître à sa surface.
 
-Les yeux de Wang Lin pétillèrent lorsque l'épée de cristal surgit soudainement pour frapper de manière répétée la zone concave. Rapidement, le filament commença à s'affaisser davantage.
+Les yeux de Wang Lin pétillèrent lorsque l'épée de cristal surgit soudainement pour frapper de manière répétée la zone concave. Rapidement, la membrane commença à s'affaisser davantage.
 
 À ce moment-là, la créature serpentine sembla remarquer que quelque chose n'allait pas et se mit à tordre son corps violemment. Wang Lin, désormais inquiet, agita la main et les centaines d'épées volantes relancèrent l'attaque.
 
-Finalement, après un fracas retentissant, le filament se brisa et une puissante odeur de poisson inonda l'air. Wang Lin s'écarta prestement et se plaqua contre la paroi. La pilule qu'il avait en bouche fit effet, bloquant cette puanteur fétide.
+Finalement, après un fracas retentissant, la membrane se brisa et une puissante odeur de poisson inonda l'air. Wang Lin s'écarta prestement et se plaqua contre la paroi. La pilule qu'il avait en bouche fit effet, bloquant cette puanteur fétide.
 
-Une fois l'odeur dissipée, Wang Lin pénétra rapidement dans le trou qu'il avait creusé. À cet instant, le corps du serpent plus petit situé à l'intérieur de la grande créature commença à rétrécir. Wang Lin pressentait que cette créature ne serait pas vaincue si facilement. Si le grand serpent contenait un serpent plus petit, ce dernier pourrait-il en contenir un autre à son tour?
+Une fois l'odeur dissipée, Wang Lin pénétra rapidement dans le trou qu'il avait creusé. À cet instant, le corps du serpent plus petit situé à l'intérieur de la grande créature s'était déjà desséché. Wang Lin pressentait que cette créature ne serait pas vaincue si facilement. Si le grand serpent contenait un serpent plus petit, ce dernier pourrait-il en contenir un autre à son tour?
 
 Plus important encore, Bossu Meng avait affirmé que ce serpent était une bête désolée, ce qui équivalait à un cultivateur au stade de la Grande Perfection de la Formation de l'Âme. Il faut dire que les cultivateurs au sommet du stade de la Formation de l'Âme étaient les êtres les plus puissants des pays de culture de rang 4.
 
@@ -32,7 +32,7 @@ Dans son esprit, une bête désolée possédait un corps extérieur puissant; s'
 
 Quant aux corps extérieurs, ils ne servaient que de paravent, expliquant pourquoi ils arboraient l'apparence d'une bête désolée sans en posséder les techniques.
 
-En y pensant, le cœur de Wang Lin se serra et il retrouva promptement sa concentration. Il atteignit rapidement la jonction entre la tête et le cou. Le filament avait disparu, révélant l'os blanc en dessous. Wang Lin toucha l'os et utilisa sa technique d'attraction pour tirer, faisant rouler le serpent frénétiquement.
+En y pensant, le cœur de Wang Lin se serra et il retrouva promptement sa concentration. Il atteignit rapidement la jonction entre la tête et le cou. La membrane avait disparu, révélant l'os blanc en dessous. Wang Lin toucha l'os et utilisa sa technique d'attraction pour tirer, faisant rouler le serpent frénétiquement.
 
 Simultanément, la tête du petit serpent libéra une lueur noire tandis que sa peau et son corps commençaient à fondre rapidement. Bossu Meng, le visage déformé par la terreur, s'élança précipitamment dans un état pitoyable vers la tête du grand serpent.
 
@@ -58,7 +58,7 @@ Le visage sombre, il utilisa l'énergie spirituelle de son corps pour se stabili
 
 La gigantesque créature serpentine chutait rapidement dans le vide obscur.
 
-Il fallut une demi-heure avant que la chute ne ralentisse et que le serpent percute le sol. La collision provoqua des ondes de choc qui résonnèrent longuement avant que le silence ne revienne.
+Il fallut environ une heure avant que la chute ne ralentisse et que le serpent percute le sol. La collision provoqua des ondes de choc qui résonnèrent longuement avant que le silence ne revienne.
 
 Wang Lin prit une profonde inspiration et, sans un mot, poursuivit l'extraction de la moelle. À ce stade, le serpent ne tremblait plus et rien d'anormal ne se produisait. Après un certain temps, une goutte de liquide doré s'échappa de la colonne vertébrale de la bête, accompagnée d'un parfum suave. Wang Lin devint très sérieux et sortit avec précaution une fiole de jade.
 
@@ -74,7 +74,7 @@ La créature serpentine reposait sa tête sur ce pilier de pierre, tandis que le
 
 Wang Lin supposa que lorsque le dragon rouge était parti, c'était comme lorsqu'une âme naissante quitte son corps. La bête avait probablement perdu temporairement ses fonctions vitales en chutant ici. Cela expliquait pourquoi elle n'avait pas bougé pendant l'extraction de la moelle.
 
-Wang Lin regarda le serpent, les yeux brillants, avant de soupirer et d'abandonner son idée. Ce serpent géant était comme une montagne de trésors attendant d'être récoltée; son noyau cérébral et sa peau valaient déjà une fortune. Mais Wang Lin ne se laissa pas aveugler. Il n'était même pas sûr de pouvoir traverser la chair pour atteindre le cerveau, ni d'avoir la capacité de séparer la peau du corps. Le plus grand problème était que le dragon rouge reviendrait probablement bientôt; s'il le croisait, même s'il lui restait cent ans à vivre, il les perdrait en un instant.
+Wang Lin regarda le serpent, les yeux brillants, avant de soupirer et d'abandonner son idée. Ce serpent géant était comme une montagne de trésors attendant d'être récoltée; son noyau cérébral et sa peau valaient déjà une fortune. Mais Wang Lin ne se laissa pas aveugler. Il n'était même pas sûr de pouvoir traverser la chair pour atteindre le cerveau, ni d'avoir la capacité de séparer la peau du corps. Le plus grand problème était que le dragon rouge reviendrait probablement bientôt; s'il le croisait, même avec cent vies, il les perdrait toutes en un instant.
 
 Wang Lin jeta un dernier regard avant de sortir la pilule que Bossu Meng lui avait donnée. La pilule avait déjà réduit de moitié, mais il l'enferma soigneusement dans son sac de rangement. Sans mot dire, il éteignit le feu et s'élança. Dans ce vide infini, la lumière du feu était trop voyante. Par sécurité, Wang Lin n'eut d'autre choix que de voler dans les ténèbres.
 
@@ -90,7 +90,7 @@ La silhouette noire qui venait de passer n'était qu'un de ses tentacules.
 
 Comprenant cela, Wang Lin commença à reculer. Si une telle créature survivait ici, elle devait être extrêmement puissante; ce n'était pas un adversaire à sa portée. Il recula de plusieurs mètres jusqu'au bord du pilier, gardant les yeux fixés sur la masse centrale, avant de sauter et de flotter doucement vers l'extérieur.
 
-Ce ne fut que lorsqu'il fut à plus de 330 mètres de là qu'il osa expirer. En regardant le vide infini au-dessus de lui, il ne put s'empêcher d'esquisser un sourire amer. Seul un retour vers la série de piliers où il se trouvait auparavant lui permettrait de retrouver l'anneau de lumière pour quitter ce lieu.
+Ce ne fut que lorsqu'il fut à plus d'un kilomètre de là qu'il osa expirer. En regardant le vide infini au-dessus de lui, il ne put s'empêcher d'esquisser un sourire amer. Seul un retour vers la série de piliers où il se trouvait auparavant lui permettrait de retrouver l'anneau de lumière pour quitter ce lieu.
 
 Wang Lin réfléchit longuement. Il n'osait pas déployer son sens divin trop loin, de peur de provoquer une créature puissante. Son corps s'éleva lentement et s'arrêta net lorsqu'il aperçut une silhouette noire. Ce ne fut qu'après s'être assuré qu'il s'agissait d'un pilier qu'il s'en approcha doucement.
 
@@ -104,13 +104,13 @@ Aucun signe de vie ne régnait sur ce pilier. Après un long moment, Wang Lin se
 
 Une fois que le dragon rouge regagnerait son corps, il remarquerait certainement l'anomalie. Wang Lin s'enfonça dans le pilier de pierre et toucha son front pour invoquer la perle défiant le ciel. Ses yeux brillèrent avant qu'il ne pénètre rapidement dans l'espace de la perle.
 
-Peu après son entrée, un hurlement de rage retentit en bas. Le dragon rouge s'élança comme l'éclair et fracassa un pilier de plusieurs milliers de pieds de large. Son regard était glacial tandis qu'il commençait ses recherches.
+Peu après son entrée, un hurlement de rage retentit en bas. Le dragon rouge s'élança comme l'éclair et fracassa coup sur coup plusieurs piliers larges de plusieurs milliers de pieds. Son regard était glacial tandis qu'il commençait ses recherches.
 
-Ce dragon avait déjà acquis une certaine intelligence et savait que le voleur de moelle ne pouvait pas être allé bien loin; il continua donc sa traque avec acharnement. Après avoir cherché longtemps sans succès, il percuta quelques autres piliers avant de se coucher, à contrecœur, sur l'un d'eux pour tenter de s'apaiser.
+Ce dragon avait déjà acquis une certaine intelligence et savait que le voleur de moelle ne pouvait pas être allé bien loin; il continua donc sa traque avec acharnement. Après avoir cherché longtemps sans succès, il poussa encore quelques hurlements furieux avant de se coucher, à contrecœur, sur l'un d'eux pour tenter de s'apaiser.
 
 Mais bientôt, il se remit en mouvement et chargea vers la masse tentaculaire que Wang Lin avait vue précédemment.
 
-Alors que le dragon fonçait, les tentacules formèrent un cône prenant la base dans leur noyau, faisant face au dragon sans l'ombre d'une crainte.
+Alors que le dragon fonçait, les tentacules s'agitèrent aussitôt, s'enchevêtrèrent et formèrent un cône, faisant face au dragon sans l'ombre d'une crainte.
 
 Une série de grondements secoua les profondeurs et, simultanément, divers éclats colorés jaillirent dans l'obscurité. Une puissante fluctuation d'énergie spirituelle se propagea comme un ouragan. Un à un, les piliers voisins furent pulvérisés. Même le pilier où se trouvait Wang Lin fut touché, perdant la moitié de sa structure.
 
@@ -120,11 +120,11 @@ Dix jours plus tard, Wang Lin sortit de la perle défiant le ciel et atterrit au
 
 Il était évident qu'il y avait moins de piliers à proximité et beaucoup plus de débris rocheux. Ce n'est qu'après un long moment que Wang Lin poussa un soupir de soulagement. Il réfléchit un instant avant de s'envoler vers le haut.
 
-Après avoir dépassé quelques piliers, il s'arrêta brusquement: l'un des piliers plus loin venait de disparaître soudainement.
+Après avoir dépassé quelques piliers, il s'arrêta brusquement: un débris rocheux, plus loin, venait de disparaître soudainement.
 
-L'expression de Wang Lin devint sérieuse alors qu'il reculait lentement. Il agita la main pour attirer quelques débris rocheux vers lui. Il en pointa un et murmura: « Va! »
+L'expression de Wang Lin devint sérieuse alors qu'il reculait lentement. Il agita la main pour attirer quelques débris rocheux vers lui. Il pointa l'avant du doigt et murmura: « Va! »
 
-Le fragment s'élança rapidement. Wang Lin fixait l'horizon et vit que, peu après avoir parcouru une certaine distance, le morceau disparut subitement.
+Les fragments s'élancèrent rapidement. Wang Lin fixait l'horizon et vit que, peu après avoir parcouru une certaine distance, ils disparurent subitement.
 
 Wang Lin prit une profonde inspiration. Il comprit qu'au moment de la disparition, un trou noir s'était ouvert un instant. La vitesse étant trop grande pour être saisie, on aurait pu croire à une disparition mystérieuse.
 
@@ -136,7 +136,7 @@ L'épée explosa dans un fracas et se dispersa dans toutes les directions au mom
 
 Quelques gouttes de liquide noir maculaient l'épée brisée; en y regardant de plus près, il nota des signes de décomposition là où le liquide avait touché le métal.
 
-« Ce n'est pas une faille spatiale! » Wang Lin en était désormais certain. S'il l'avait testé si souvent, c'était par crainte de rencontrer des failles spatiales; si elles avaient existé, le danger aurait été décuplé.
+« Ce n'est pas une faille spatiale! » Wang Lin en était désormais certain. S'il l'avait testé si souvent, c'était par crainte de rencontrer des failles spatiales; si elles avaient existé, le danger du lieu aurait encore monté d'un cran.
 
 Wang Lin n'était plus un dévoreur d'âmes, mais possédait un corps charnel. La puissance d'une faille spatiale l'aurait totalement annihilé.
 
@@ -148,7 +148,7 @@ La structure biologique de ces êtres était extrêmement étrange. Même avec s
 
 Wang Lin restait extrêmement prudent. Chaque pas dans ce lieu était périlleux; la moindre inattention pouvait être fatale. Pour un simple cultivateur au stade de la Formation du Noyau comme lui, il n'était pas exagéré de dire qu'il évoluait dans une zone interdite où le moindre oubli menait à la mort.
 
-Après de longues heures, Wang Lin estima n'avoir parcouru que 500 kilomètres. Cette distance qu'il aurait franchie en un instant normalement lui avait pris plusieurs jours. Il ne pouvait plus compter précisément le temps écoulé, toute son énergie étant consacrée à sa vigilance.
+Après tout ce temps, Wang Lin estima n'avoir pas même parcouru 500 kilomètres. Cette distance qu'il aurait franchie en un instant normalement lui avait pris plusieurs jours. Il ne pouvait plus compter précisément le temps écoulé, toute son énergie étant consacrée à sa vigilance.
 
 Le temps passait lentement. Wang Lin perdait la notion des jours. Cette alerte constante lui permettait cependant d'éviter de justesse de nombreuses situations mortelles.
 
@@ -156,7 +156,7 @@ Ce jour-là, alors qu'il se reposait sur un pilier, il se sentit épuisé mental
 
 Après un moment de repos, Wang Lin prit une profonde inspiration et se leva. Il fit apparaître son épée de cristal par une série de gestes. L'arme tourbillonna autour du pilier, taillant les excédents de pierre.
 
-Il rassembla les débris rocheux pour se créer un chemin, comme il l'avait fait ces derniers jours. Ayant épuisé ses réserves, il dut en récupérer sur un pilier voisin.
+Il rassembla les débris rocheux pour se créer un chemin, comme il l'avait fait ces derniers jours. Chaque fois qu'il épuisait ses réserves, il s'approvisionnait sur place en taillant dans le pilier.
 
 Une fois entouré de ses pierres protectrices, il sauta du pilier et s'élança lentement vers l'avant.
 
@@ -170,7 +170,7 @@ Tout dans cette zone dénotait une anomalie. Wang Lin savait qu'il devrait y avo
 
 Deux explications s'offraient à lui: soit une bataille titanesque avait balayé tout ce qui se trouvait là, soit d'innombrables créatures invisibles avaient nettoyé la zone après des années de dévoration.
 
-Il penchait pour la seconde option, car il venait de voir un immense pilier disparaître sous une gueule béante en moins d'une heure.
+Il penchait pour la seconde option, car il avait vu auparavant un immense pilier conique de sept à huit cents pieds être rongé bouchée par bouchée par une gueule soudainement apparue et disparaître sans laisser de trace, en à peine le temps d'un bâton d'encens.
 
 Wang Lin fronça les sourcils. S'il devait faire face à cela, il n'avait d'autre choix que de contourner la zone, sous peine de périr.
 
@@ -178,7 +178,7 @@ Après réflexion, il envoya un débris vers l'avant pour tester la zone. Le fra
 
 Patient, il observa ses pierres progresser lentement vers le seul pilier disponible.
 
-Aux abords de ce pilier, l'un des fragments disparut soudainement. Les pupilles de Wang Lin se contractèrent: les pierres commençaient à s'évaporer une à une à mesure qu'elles approchaient du pilier.
+Aux abords de ce pilier, l'un des fragments disparut soudainement. Les pupilles de Wang Lin se contractèrent: les pierres s'évaporèrent une à une à mesure qu'elles approchaient du pilier et, au moment de le dépasser, toutes avaient disparu jusqu'à la dernière.
 
 Il mémorisa précisément les points où les roches étaient dévorées. D'après ses observations, ces créatures semblaient immobiles, fixées à des endroits précis.
 
@@ -188,4 +188,4 @@ Il prit sa décision, recula pour s'entourer d'une nouvelle couche de débris gr
 
 Son visage devint de plus en plus sombre. Bien qu'il ait volé très loin, cette zone vide semblait sans fin.
 
-Après plusieurs jours de vol, il fut contraint d'abandonner l'idée de contourner les créatures.
+Si l'on comparait cette zone vide à une bande blanche, elle semblait traverser tout le vide de part en part. Après plusieurs jours de vol, il fut contraint d'abandonner l'idée de contourner les créatures.

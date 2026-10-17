@@ -58,7 +58,7 @@ Contemplant ce corps gigantesque, Wang Lin entra un instant en transe. Monter un
 
 Un sourire apparut sur les lèvres de Wang Lin. D'un pas, il se posa sur le dos de Lei Ji, suivi rapidement par le garçon à grosse tête. Ce dernier n'était pas grand et, bien que sa tête soit massive et féroce, lorsqu'il se tenait derrière Wang Lin, son statut de serviteur était évident.
 
-Le corps de Lei Ji était immense et son dos mesurait des milliers de pieds de large. Sa peau était bleue et la surface de son dos parfaitement plane. Une fois Wang Lin installé, Lei Ji poussa un rugissement et s'élança.
+Le corps de Lei Ji était immense et son dos mesurait près d'un millier de pieds de large. Sa peau était bleue et la surface de son dos parfaitement plane. Une fois Wang Lin installé, Lei Ji poussa un rugissement et s'élança.
 
 Sa vitesse était fulgurante; bien qu'elle ne puisse égaler celle de la Bête de Tonnerre, elle n'en demeurait pas moins impressionnante!
 
@@ -102,7 +102,7 @@ Les deux lancèrent des sorts à une cadence effrénée, provoquant des explosio
 
 À l'apparition de Ta Shan, l'expression de l'homme en robe rouge ne changea pas d'un iota. La deuxième épée volante explosa pour former un second avatar, entouré de sept rayons de lumière sanguine, qui chargea directement Ta Shan.
 
-Wang Lin resta calme. Toujours sur le dos de Lei Ji, il leva soudainement la main droite. D'innombrables éclairs apparurent brusquement et convergèrent, transformant la zone environnante en un véritable enfer de tonnerre!
+Wang Lin resta calme. Toujours sur le dos de Lei Ji, il leva soudainement la main droite. D'innombrables éclairs apparurent brusquement et convergèrent, transformant la zone environnante, sur des dizaines de milliers de kilomètres, en un véritable enfer de tonnerre!
 
 Les yeux de l'homme en robe rouge se plissèrent et le rocher sous lui s'arrêta net à mille pieds de Wang Lin. Il afficha un sourire glacial et déclara lentement: « Tu es donc digne du titre de Céleste du Tonnerre de Luotian. Tu es véritablement digne de ce nom! »
 

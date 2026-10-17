@@ -40,7 +40,7 @@ Ces étapes impliquent un changement de domaine. Ce n'est pas une simple transit
 
 Avant d'être contraint de me cacher dans la Perle Défiant le Ciel, j'avais touché la limite de l'étape du Nettoyage Yin. Bien que je n'aie pas pu cultiver pendant mon emprisonnement, ma compréhension de mon domaine s'était accrue, et j'ai donc achevé l'étape du Nettoyage Yin. Une fois que j'aurai franchi l'étape du Nettoyage Yang, il ne me restera plus qu'à trouver un endroit pour entrer en culture de porte close afin de devenir un Scruteur du Nirvana. »
 
-Les yeux de Wang Lin s'illuminèrent et il demanda: « Quel est le niveau de culture de Zhuque Zi? Est-il lui aussi aux étapes du Nettoyage Yin-Yang avant de devenir un Scruteur du Nirvana? »
+Les yeux de Wang Lin s'illuminèrent et il demanda: « Quel est le niveau de culture de Zhu Quezi? Est-il lui aussi aux étapes du Nettoyage Yin-Yang avant de devenir un Scruteur du Nirvana? »
 
 Une pointe de dédain apparut dans les yeux de Situ Nan, puis il déclara: « Lui? Stade d'Ascendant avancé. Je crains qu'il ne soit même pas qualifié pour atteindre les étapes du Nettoyage Yin-Yang, alors ne parlons même pas de devenir un Scruteur du Nirvana. Cependant, il est considéré comme une sorte de cultivateur d'Ascendant très spéciale. Bien qu'il soit toujours plus faible que les cultivateurs aux étapes du Nettoyage Yin-Yang, un cultivateur d'Ascendant avancé ordinaire ne peut pas le vaincre. »
 
@@ -114,9 +114,9 @@ Wang Lin sourit. Il rattrapa l'épée et dit: « Cette épée n'est pas à moi; 
 
 Situ Nan renifla: « Si ce n'était pas parce que le sac de portage de ce vieil homme a disparu et que je me retrouve sans rien, je ne m'en soucierais guère. Ce vieil homme possédait deux trésors célestes de qualité inférieure. »
 
-Les yeux de Wang Lin s'illuminèrent et il dit avec un sourire qui n'en était pas vraiment un: « Zhuque Zi possède beaucoup de trésors célestes! »
+Les yeux de Wang Lin s'illuminèrent et il dit avec un sourire qui n'en était pas vraiment un: « Zhu Quezi possède beaucoup de trésors célestes! »
 
-« Non seulement tous les trésors de Zhuque Zi sont de qualité inférieure, mais ils ont également été rassemblés par la première génération de Suzaku. Je me sentirais trop mal à l'aise de les voler. » Situ Nan affichait un air de pitié.
+« Non seulement tous les trésors de Zhu Quezi sont de qualité inférieure, mais ils ont également été rassemblés par la première génération de Suzaku. Je me sentirais trop mal à l'aise de les voler. » Situ Nan affichait un air de pitié.
 
 « Situ, quelle qualité donneriez-vous à ce trésor? » Wang Lin réfléchit un instant, puis frappa son sac de portage et le piège à bêtes apparut. Il lança le piège, faisant apparaître devant lui le Charriot de Guerre qui Tue les Dieux.
 

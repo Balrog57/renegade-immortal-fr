@@ -24,9 +24,9 @@ Elle fixa l'avatar de Qing Lin devant elle et laissa échapper un rire misérabl
 
 « La guerre contre votre Royaume Céleste a éclaté parce que vous, les Célestes, convoitiez l'énergie d'origine de mon clan, et vous avez frappé le premier. Le Clan du Tatouage devait-il vous obéir?! Cette guerre a duré bien trop longtemps, et votre Royaume Céleste a employé toutes sortes de méthodes contre nous. Pour voler la bouteille sacrée de mon clan, vous avez tué d'innombrables membres puissants des miens!
 
-« Si cela s'était arrêté là, j'aurais pu l'accepter. Après tout, les pertes sont inévitables dans une guerre. Cependant, en tant que l'un des quatre Empereurs Célestes et l'être le plus puissant du Royaume Céleste, pourquoi avoir trahi le cœur fragile d'une femme?!
+« Si cela s'était arrêté là, j'aurais pu l'accepter. Après tout, les pertes sont inévitables dans une guerre. Cependant, en tant qu'Empereur Céleste et être le plus puissant des quatre grands Royaumes Célestes, pourquoi avoir trahi le cœur fragile d'une femme?!
 
-« Tu avais promis que je serais ta Concubine de la Grotte Céleste. Moi, Qiu Yao, j'ai trahi mon clan pour toi, acceptant volontairement de devenir ta concubine en échange d'un lieu où mon Clan du Tatouage pourrait vivre dans ce royaume scellé.
+« Tu avais promis que je serais ta Concubine du Tatouage. Moi, Qiu Yao, j'ai trahi mon clan pour toi, acceptant volontairement de devenir ta concubine en échange d'un lieu où mon Clan du Tatouage pourrait vivre dans ce royaume scellé.
 
 « Tu disais aimer mes yeux; pour te plaire, je les ai moi-même extirpés pour te les offrir. Ces yeux qui avaient accumulé de l'énergie pendant d'innombrables années et qui avaient condensé un fragment d'énergie primordiale... C'était une paire d'yeux que chaque génération d'Ancêtre du Clan du Tatouage héritait de la précédente.
 
@@ -42,11 +42,11 @@ Le sourire sur son visage devint encore plus déchirant. Un sang noir jaillit de
 
 « Ce sont toutes les paroles que tu m'as données. Moi, Qiu Yao, j'ai été assez stupide pour te croire. Je suis restée ici à contenir ces âmes dans le Bassin Funéraire Céleste pour toi, tout en sachant que ton but était de me sceller. Pourtant, j'ai choisi de te faire confiance.
 
-« Si je n'avais pas senti la présence d'un membre de mon clan et ne pas être sortie à tout prix pour le voir, je n'aurais jamais su que mon peuple n'avait jamais obtenu son propre royaume! Qu'après m'avoir scellée, mon clan est devenu l'esclave de vous, les Célestes!
+« Si je n'avais pas senti l'approche d'un membre de mon clan et si je n'étais pas sortie à tout prix pour le voir, je n'aurais jamais su que mon peuple n'avait jamais obtenu son propre royaume! Qu'après m'avoir scellée, mon clan est devenu l'esclave de vous, les Célestes!
 
 « Cela n'a fait qu'accroître ma haine. Qing Lin, es-tu un être sans cœur? Es-tu dépourvu d'émotions? Es-tu un rocher?! Un simple sceau d'esclavage ne peut sceller mon Clan du Tatouage pour des générations sans fin. Ce sceau était clairement dérivé de cette énergie primordiale issue de mes yeux. Seul un tel pouvoir pouvait asservir mon clan de la sorte!
 
-« Tu as obtenu mes yeux et ce fragment d'énergie primordiale. Puis, tu y as infusé d'innombrables sceaux d'esclavage, transformant mon clan en une nuée d'esclaves insignifiants dans ce royaume scellé! Ils ont été contraints de vous vénérer, vous les Célestes, pendant des générations. »
+« Tu as obtenu mes yeux et ce fragment d'énergie primordiale. Puis, tu y as infusé d'innombrables sceaux d'esclavage, transformant tous les miens, dans les quatre grands Royaumes Célestes, en esclaves pires que des fourmis! Ils ont été contraints de vous vénérer, vous les Célestes, pendant des générations. »
 
 Une quantité encore plus grande de sang noir s'écoula de ses orbites vides, portant le ressentiment monstrueux de voir ses espoirs accumulés durant des années s'effondrer soudainement.
 
@@ -96,9 +96,9 @@ C'était un bassin noir de cent pieds de large, rempli de sang noir et dégagean
 
 Le Bassin Funéraire Céleste!
 
-D'innombrables bêtes féroces étaient sculptées autour du bassin noir, aux côtés de visages tordus par la souffrance. Dès son apparition, une aura terrifiante s'en dégagea. Dans le Royaume Spirituel Céleste, le ciel commença à se métamorphoser et le tonnerre gronda sur l'ancien Territoire des Esprits Démoniaques.
+D'innombrables bêtes féroces étaient sculptées autour du bassin noir, aux côtés de visages tordus par la souffrance. Dès son apparition, une aura terrifiante s'en dégagea. Dans le Royaume Spirituel Céleste, le ciel commença à se métamorphoser et le tonnerre gronda sur l'ancienne Terre des Esprits Démoniaques.
 
-Un bouleversement titanesque toucha même l'espace extérieur au Territoire des Esprits Démoniaques. Le vortex de la Mer des Esprits Démoniaques de l'Est se mit à tourner frénétiquement, aspirant l'énergie d'origine. Le tourbillon s'étendit avec une rage folle, engloutissant les cultivateurs qui passaient par là. Leurs corps s'effondrèrent instantanément et même leurs âmes d'origine ne purent s'échapper.
+Un bouleversement titanesque toucha même l'espace extérieur à la Terre des Esprits Démoniaques. Le vortex de la Mer des Esprits Démoniaques de l'Est se mit à tourner frénétiquement, aspirant l'énergie d'origine. Le tourbillon s'étendit avec une rage folle, engloutissant les cultivateurs qui passaient par là. Leurs corps s'effondrèrent instantanément et même leurs âmes d'origine ne purent s'échapper.
 
 Ce changement terrifiant attira immédiatement l'attention de trop de monde!
 
@@ -120,11 +120,13 @@ L'Omniscient continua sa retraite, ses yeux brillant d'une lueur mystérieuse. S
 
 Presque tout le monde disparut au cours de cette fuite désordonnée.
 
+Wang Lin et Situ Nan furent eux aussi séparés par l'onde de choc. Situ Nan rugit et sa silhouette vacilla; la force colossale de l'impact était impossible à repousser et, après avoir craché une gorgée de sang, il disparut dans une restriction du ciel.
+
 Le corps de Wang Lin trembla violemment. Sous la poussée de l'onde de choc, il eut l'impression que tous ses os allaient se briser. La douleur le fit cracher du sang. Il s'effondra près de quelques fleurs et toucha une restriction; dans un flash de lumière, sa silhouette disparut lentement.
 
 Cependant, juste au moment où il allait s'évanouir, un rayon de lumière fonça vers lui depuis le vortex.
 
-Ce rayon brisa toutes les restrictions sur son passage pour atteindre directement Wang Lin. En un instant, il pénétra dans son sac de rangement et se dirigea droit vers le cristal jaune offert par l'homme mystérieux de la salle.
+Ce rayon brisa toutes les restrictions sur son passage pour atteindre directement Wang Lin. En un instant, il pénétra dans son sac de rangement et se fondit dans le cristal jaune offert par l'homme mystérieux de la salle.
 
 « L'avatar de Qing Lin! » Ce fut la dernière pensée de Wang Lin avant de disparaître. Il avait clairement vu l'avatar de Qing Lin au cœur de cette lumière.
 
