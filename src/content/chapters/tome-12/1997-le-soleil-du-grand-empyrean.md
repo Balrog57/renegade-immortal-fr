@@ -12,7 +12,7 @@ Jiu Di serra les dents face à la décision de Hai Zi, son expression devenant p
 
 Les grondements tonitruants de leur combat se propagèrent dans toutes les directions. D'autres fracas retentirent alors que Dao Yi se rapprochait de Wang Lin. Ses yeux étaient empreints d'une intention meurtrière — il allait tuer Wang Lin et utiliser son sang frais pour laver son humiliation!
 
-L'expression de Wang Lin resta aussi froide qu'à l'accoutumée. Lorsque Dao Yi arriva, une rare trace d'intention de combat apparut dans ses yeux. Cette intention ne l'avait pas habité depuis longtemps; elle provenait de sa compréhension de l'essence de l'intention de combat obtenue dans le monde des grottes!
+L'expression de Wang Lin resta aussi froide qu'à l'accoutumée. Lorsque Dao Yi arriva, une rare trace d'intention de combat apparut dans ses yeux. Cette intention ne l'avait pas habité depuis longtemps; elle provenait de sa compréhension de la loi du combat, acquise dans le monde des grottes!
 
 C'était l'apogée de l'adage: « Nous, les cultivateurs, ne reculons jamais devant un combat! »
 
@@ -54,7 +54,7 @@ Le vert représentait le bois!
 Le bleu représentait l'eau!
 Le rouge représentait le feu!
 
-Le vrai corps des cinq éléments s'approcha et leva la main droite, mettant les éléments en mouvement. La terre noire se mua en une vaste étendue. Cette terre était une illusion, mais elle était imprégnée d'une essence terrestre colossale. Des grondements tonitruants retentirent, comme si la terre s'était éveillée pour devenir un géant de pierre. Il lança un coup de poing vers Dao Yi!
+Le vrai corps des cinq éléments s'approcha et leva la main droite, mettant les éléments en mouvement. La terre noire se mua en une vaste étendue. Cette terre était une illusion, mais elle était imprégnée d'une essence terrestre colossale. Des grondements tonitruants retentirent, comme si la terre s'était éveillée pour devenir un géant de terre, apparu derrière Dao Yi. Il lança un coup de poing vers lui!
 
 Il y avait aussi le métal. Dès son apparition, il brilla intensément et se transforma en d'innombrables épées. Bien qu'elles ne soient que des illusions, elles étaient saturées d'une essence métallique infinie. Elles devinrent une pluie d'acier tombant sur Dao Yi!
 
@@ -78,7 +78,7 @@ Il craignait non seulement Wang Lin, mais aussi la malédiction ancestrale qui v
 
 « Ce souverain refuse de céder ainsi! » Dao Yi rugit et s'élança vers le ciel pour fuir. Il n'osait plus combattre; il sentait l'ombre de la mort planer sur lui.
 
-« Essence de restriction, le ciel! »
+« Essence de restriction, scelle le firmament! »
 « Essence du commencement absolu, Nuit Brisée! »
 « Vie et mort, karma, vrai et faux, recouvrez le monde! » crièrent en même temps le Wang Lin aux cheveux noirs et le corps véritable des cinq éléments de Wang Lin!
 

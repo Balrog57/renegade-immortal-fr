@@ -22,7 +22,7 @@ Cette route menait au Continent Astral Immortel; elle était semblable au sentie
 
 C'était un monde de neige, dominé par une montagne glacée perçant les cieux! La montagne était si haute qu'elle semblait infinie. Recouverte d'un blanc immaculé, elle aurait pu terrifier quiconque la contemplerait.
 
-« Une illusion bloquera le chemin de la réincarnation. Cette montagne est un démon, une ancienne montagne du Continent Astral Immortel que j'ai moi-même raffinée. J'ai sacrifié d'innombrables âmes jusqu'à ce qu'elle devienne un démon céleste! »
+« Une illusion bloquera le chemin de la réincarnation. Cette montagne est un démon, une ancienne montagne du Continent Astral Immortel que j'ai moi-même raffinée. J'y ai rassemblé d'innombrables âmes de montagne jusqu'à ce qu'elle devienne un démon céleste! »
 
 « Cela protégera vos âmes contre la dispersion! » Xuan Luo agita sa main droite et la montagne enneigée s'élança vers la porte. Des craquements résonnèrent alors que le chemin tracé par le dragon se retrouvait figé sous la glace blanche, s'étendant à l'infini.
 
@@ -30,7 +30,7 @@ Le chemin de la réincarnation était désormais protégé par la montagne ennei
 
 « Troisième esprit, Céleste de l'Épée, je t'invoque! » Xuan Luo agita sa main gauche et une fente apparut entre ses sourcils. Une épée de la taille d'une paume s'en échappa.
 
-« J'ai raffiné 99 999 planètes brisées aux confins du Continent Astral Immortel pour forger cette épée. Ensuite, je me suis frayé un chemin à travers les terres célestes pour massacrer autant de Célestiels, et j'ai raffiné leurs âmes pour achever cette lame! »
+« J'ai raffiné 99 999 planètes brisées aux confins du Continent Astral Immortel pour forger cette épée. Ensuite, pour éveiller l'esprit de l'épée, j'ai fait irruption dans le clan des Célestiels pour massacrer autant de Célestiels, et j'ai raffiné leurs âmes pour achever cette lame! »
 
 « Cette épée est féroce; dès qu'elle apparaît, les Célestiels tremblent de peur! Aujourd'hui, je l'envoie pour vous escorter sur le chemin de la réincarnation! Elle assurera votre sécurité tout au long du voyage! » Xuan Luo agita sa main gauche et l'épée dégagea une aura redoutable en s'élançant vers la porte, entourée d'une énergie tranchante et terrifiante.
 
@@ -70,7 +70,7 @@ Lorsque Wang Lin toucha l'astre, son cœur trembla. Il percevait clairement une 
 
 « Est-ce là le pouvoir des neuf soleils... » Wang Lin contempla le soleil écarlate dans sa main et médita un instant avant de fermer les yeux. Son Dao du Rêve s'activa dès l'instant où ses paupières se fermèrent.
 
-Le Dao du Rêve était le sort originel de Wang Lin, déjà d'une puissance remarquable. Avec le trésor de Xuan Luo, sa force se multiplia plusieurs fois, atteignant presque un stade où les rêves devenaient réalité!
+Le Dao du Rêve était un sort que Wang Lin avait créé lui-même, déjà d'une puissance remarquable. Avec le trésor de Xuan Luo, sa force se multiplia plusieurs fois, atteignant presque un stade où les rêves devenaient réalité!
 
 Une ondulation invisible se propagea depuis le corps de Wang Lin pour envelopper tout le monde. Lentement, chaque personne, y compris Li Qianmei, ferma les yeux et fut plongée dans un songe.
 

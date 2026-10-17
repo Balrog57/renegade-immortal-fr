@@ -22,7 +22,7 @@ Cette tribulation plaçait le cultivateur dans une position très passive. Ils n
 
 Même les Grands Empyréens agissaient ainsi. Ils ne pouvaient endurer cette épreuve qu'en consommant de grandes quantités de pilules et en luttant contre la peur qui envahissait leur cœur!
 
-Même les deux légendaires Grands Empyréens ayant traversé neuf Tribulations Arcanes consécutives avaient dû endurer ce processus. Une fois les dix souffles passés, la tribulation se dissipait d'elle-même.
+Même les deux légendaires Grands Empyréens ayant traversé neuf Tribulations Arcaniques consécutives avaient dû endurer ce processus. Une fois les dix souffles passés, la tribulation se dissipait d'elle-même.
 
 Lorsque le septième souffle arriva impitoyablement, l'équilibre de son âme originelle s'effondra. Son âme dépérit rapidement, mais son expression resta imperturbable. Durant le court laps de temps qu'il parvint à gagner, il réfléchit fébrilement à un moyen de briser cette tribulation!
 
@@ -32,7 +32,7 @@ Lorsque le septième souffle arriva impitoyablement, l'équilibre de son âme or
 
 « Une tribulation est aussi une fortune... Je le crois toujours. Bien que ce soit étrange, ce n'est qu'une tribulation après tout! Vouloir dépérir mon âme originelle... Je veux voir si la force de décomposition de cette épreuve est plus puissante que ma foi! » Wang Lin leva la tête et ses yeux projetèrent une lumière de foi éclatante!
 
-Grâce à sa sagesse, Wang Lin avait percé le secret pour franchir cette épreuve et savait comment les autres y avaient survécu. Leur méthode était extrêmement passive: ils se laissaient contrôler par la tribulation pour survivre comme des chiens ramassés.
+Grâce à sa sagesse, Wang Lin avait percé le secret pour franchir cette épreuve et savait comment les autres y avaient survécu. Leur méthode était extrêmement passive: ils se laissaient contrôler par la tribulation pour survivre lâchement sous son joug.
 
 Wang Lin ne voulait pas de ce genre de choix!
 
@@ -70,19 +70,19 @@ Sous l'impact de la foi de Wang Lin, le sceau illusoire commença à se solidifi
 
 Au moment où le sceau se brisa, l'âme originelle dépérie de Wang Lin se régénéra instantanément. En un éclair, elle atteignit son apogée et devint plus vaste qu'auparavant!
 
-La septième tribulation, la Tribulation de Dépérissement de l'Âme en Dix Souffles, s'effondra devant Wang Lin!
+La septième tribulation, la Tribulation du Déclin de l'Âme en Dix Souffles, s'effondra devant Wang Lin!
 
 Dès que la septième tribulation s'effondra, le monde changea radicalement. Tandis qu'une lumière brillait, un second sceau apparut dans le ciel.
 
 Ce second sceau était totalement différent du précédent. Encore plus complexe, il dégageait une aura d'une antiquité infinie. À l'instant même où il se manifesta, la huitième épreuve, la Tribulation de l'Âme Vitale, surgit!
 
-La Tribulation de l'Âme Vitale en Dix Souffles, la seconde des Tribulations Arcanes de l'Âme, ne dommageait pas l'âme originelle, mais réduisait la durée de vie de cette dernière!
+La Tribulation de l'Âme Vitale en Dix Souffles, la seconde des Tribulations Arcaniques de l'Âme, ne dommageait pas l'âme originelle, mais réduisait la durée de vie de cette dernière!
 
-Cette tribulation se transformait en un flux temporel. La longévité d'un cultivateur n'est pas infinie; ils atteignent tous une fin, tout comme l'âme. La Tribulation de l'Âme Vitale ne durait qu'un instant, mais cet instant pouvait représenter des millions d'années ou seulement quelques centaines!
+Cette tribulation se transformait en un flux temporel. La longévité d'un cultivateur n'est pas infinie; ils atteignent tous une fin, tout comme l'âme. La Tribulation de l'Âme Vitale ne durait qu'un instant, mais cet instant pouvait représenter des centaines de millions d'années ou moins d'un siècle!
 
-Lorsque le temps revient, l'âme meurt! Un million d'années en un instant — cette épreuve était bien plus étrange que les précédentes. Elle n'était pas destinée à tuer le cultivateur directement; son but était de le pousser à sacrifier volontairement sa durée de vie!
+Lorsque le temps revient, l'âme meurt! Dix mille ans en un souffle — cette épreuve était bien plus étrange que les précédentes. Elle n'était pas destinée à tuer le cultivateur directement; son but était de le pousser à sacrifier volontairement sa durée de vie!
 
-Cette tribulation était étroitement liée à la neuvième. Si quelqu'un pouvait offrir 100 000 ans de vie, la neuvième épreuve deviendrait extrêmement simple et facile à franchir. Cependant, très peu de cultivateurs au stade de l'Arcane du Vide possédaient encore plus de 100 000 ans de vie. À moins d'avoir une fortune immense, c'était impossible.
+Cette tribulation était étroitement liée à la neuvième. Si quelqu'un pouvait offrir 100 000 ans de vie, la neuvième épreuve deviendrait extrêmement simple et facile à franchir. Cependant, très peu de cultivateurs au stade du Vide Arcanique possédaient encore plus de 100 000 ans de vie. À moins d'avoir une fortune immense, c'était impossible.
 
 Mais si l'on ne sacrifiait pas sa longévité, les chances de survivre à la neuvième tribulation n'étaient que de 10 %!
 
@@ -96,7 +96,7 @@ Wang Lin observa le second sceau céleste. En le contemplant, des pensées fulgu
 
 Après avoir saisi l'essence de cette étape, Wang Lin songea à bien des choses. Il ignorait comment le Souverain Céleste aux Sept Couleurs avait surmonté cette épreuve, mais il avait probablement bénéficié d'une autre rencontre fortuite.
 
-Il comprit également que ses pensées précédentes étaient erronées. De nombreux cultivateurs qu'il avait vus, bloqués au stade des Tribulations Arcanes, l'étaient principalement à cause de la huitième épreuve.
+Il comprit également que ses pensées précédentes étaient erronées. De nombreux cultivateurs qu'il avait vus, bloqués au stade des Tribulations Arcaniques, l'étaient principalement à cause de la huitième épreuve.
 
 Car cette épreuve ne nécessitait pas d'être « réussie » au sens strict. Tant que l'on y faisait un sacrifice, on pouvait s'en retirer. Sacrifier une seule année suffisait pour achever la huitième épreuve!
 
@@ -112,9 +112,9 @@ La huitième épreuve disparut.
 
 Au moment où elle se dispersa, Wang Lin aurait pu choisir de partir, mais il ne le fit pas. Il leva les yeux vers la voûte céleste, attendant l'apparition de la dernière épreuve!
 
-S'il parvenait à franchir cette ultime étape, il briserait le stade de l'Arcane du Vide pour devenir une puissance de la Tribulation du Vide!
+S'il parvenait à franchir cette ultime étape, il briserait le stade du Vide Arcanique pour devenir une puissance de la Tribulation du Vide!
 
-Wang Lin prit une profonde inspiration, le visage solennel. Il avait surmonté huit Tribulations Arcanes consécutives et s'apprêtait à affronter la neuvième et dernière épreuve!
+Wang Lin prit une profonde inspiration, le visage solennel. Il avait surmonté huit Tribulations Arcaniques consécutives et s'apprêtait à affronter la neuvième et dernière épreuve!
 
 Il leva la main gauche vers le vide. Une lumière dorée jaillit, et l'Arc de Li Guang, disparu depuis longtemps, apparut dans sa main!
 
@@ -130,7 +130,7 @@ Quelle que soit la puissance de cette épreuve, il n'en aurait cure, car son but
 
 Cette haine s'était manifestée à maintes reprises au cours de sa vie!
 
-Si l'on cherchait la racine de ce ressentiment, elle remontait à la planète Suzaku, dans le monde des grottes, lorsqu'il tenait Li Muwan dans ses bras et qu'il poussait un rugissement de colère et de désespoir vers les cieux!
+Si l'on cherchait la racine de ce ressentiment, elle remontait à la planète Suzaku, dans le monde des grottes, lorsqu'il tenait Li Muwan dans ses bras, face au Dao céleste venu réclamer sa vie, et qu'il poussait un rugissement de colère et de désespoir vers les cieux!
 
 Alors que Wang Lin tendait l'Arc de Li Guang, une énergie céleste provenant de la veine formée par les cheveux de l'Ancêtre Céleste se déversa dans l'arme. L'arc brilla d'un éclat intense, enveloppant la silhouette de Wang Lin d'une lumière dorée.
 
@@ -144,7 +144,7 @@ C'était un dragon de foudre enveloppé d'électricité, dégageant une aura des
 
 De loin, la scène était stupéfiante. Cinq dragons capables de dévorer les cieux rugissaient à l'unisson!
 
-Dans le ciel, le dernier sceau apparut. C'était la neuvième Tribulation Arcane! Elle se nommait Réincarnation! Le dernier seuil empêchant un cultivateur d'atteindre le stade de la Tribulation du Vide!
+Dans le ciel, le dernier sceau apparut. C'était la neuvième Tribulation Arcanique! Elle se nommait Réincarnation! Le dernier seuil empêchant un cultivateur d'atteindre le stade de la Tribulation du Vide!
 
 Dès son apparition, une pression colossale capable de bouleverser l'univers s'abattit. Les êtres risquaient de se perdre dans le cycle de la réincarnation, incapables d'en sortir avant de mourir!
 
@@ -152,7 +152,7 @@ Dès son apparition, une pression colossale capable de bouleverser l'univers s'a
 
 « Destruction de la tribulation! »
 
-« Il... Il a traversé huit Tribulations Arcanes d'affilée, et pour la neuvième, il ne l'affronte pas, il cherche à la détruire!! »
+« Il... Il a traversé huit Tribulations Arcaniques d'affilée, et pour la neuvième, il ne l'affronte pas, il cherche à la détruire!! »
 
 « Une telle arrogance... Ce n'est possible que pour le Seigneur Démon Vert! »
 
@@ -160,7 +160,7 @@ Leurs visages étaient pâles, leurs cœurs ébranlés par ces mots. Au cœur de
 
 À l'instant où la corde fut lâchée, l'énergie céleste dense rebondit sur la flèche. Celle-ci jaillit dans un hurlement tonitruant!
 
-Le hurlement précéda le projectile!
+À peine ce hurlement s'était-il propagé que la flèche jaillit, plus rapide que le son!
 
 De loin, ce n'était plus une flèche, mais clairement un dragon doré. Le hurlement était le rugissement du dragon, et la flèche dorée son corps même!
 
@@ -174,10 +174,10 @@ Le corps véritable du tonnerre sur la droite de Wang Lin relâcha également sa
 
 Ce dragon contenait l'aura de destruction, l'aura de restriction et le tonnerre céleste fusionnés en une puissance capable d'anéantir toute vie!
 
-Cinq dragons déchirant les cieux!
-Cinq flèches scellant le destin des cieux!
+Cinq dragons déchirant le sceau des cieux!
+Cinq flèches réclamant la vie des cieux!
 
-La flèche dorée de Wang Lin frappa le Sceau de la Réincarnation de la neuvième Tribulation Arcane et libéra toute sa puissance. Le sceau trembla, sur le point de se rompre.
+La flèche dorée de Wang Lin frappa le Sceau de la Réincarnation de la neuvième Tribulation Arcanique et libéra toute sa puissance. Le sceau trembla, sur le point de se rompre.
 
 Peu après, les trois flèches des cinq éléments arrivèrent. Alors que le grondement résonnait encore, trois impacts tonitruants retentirent soudainement. Le sceau céleste montra immédiatement des signes d'effondrement, parcouru de larges fissures!
 
@@ -197,9 +197,9 @@ Le Temple du Scorpion Démon Vert disparut!
 
 Dans l'effondrement, la poussière s'éleva, dissimulant la silhouette de Wang Lin. Une aura de Tribulation du Vide, faisant trembler le monde entier, émana des nuages de poussière!!
 
-Cette aura était si puissante qu'elle forma un vortex. Ce tourbillon aspira les débris du ciel et de la terre ainsi que la force destructrice de la Tribulation Arcane. Le vortex se formait au centre même du Continent du Démon Vert, là où se trouvait le Temple du Scorpion Démon Vert!!
+Cette aura était si puissante qu'elle forma un vortex. Ce tourbillon aspira les débris du ciel et de la terre ainsi que la force destructrice de la Tribulation Arcanique. Le vortex se formait au centre même du Continent du Démon Vert, là où se trouvait le Temple du Scorpion Démon Vert!!
 
-Plus d'une douzaine de cultivateurs du continent affichèrent des visages empreints de crainte et d'admiration. Dès que la pression de l'Arcane du Vide se dissipa, ils s'approchèrent rapidement.
+Plus d'une douzaine de cultivateurs du continent affichèrent des visages empreints de crainte et d'admiration. Dès que la pression du Vide Arcanique se dissipa, ils s'approchèrent rapidement.
 
 « Salutations, Seigneur Démon Vert! »
 « Félicitations pour votre résurrection, Seigneur Démon Vert! »

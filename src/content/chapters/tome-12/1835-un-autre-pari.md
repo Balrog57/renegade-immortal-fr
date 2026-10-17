@@ -6,7 +6,7 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1835 - Another Bet !"
 slug: un-autre-pari
 ---
-Après que Wang Lin eut parlé, son pied se posa sur la 14e marche. À cet instant, l'essence véritable qui se trouvait derrière lui se transforma en une mer de feu et s'engouffra dans son corps. Wang Lin ne fit plus qu'un avec son essence véritable et avança!
+Après que Wang Lin eut parlé, son pied se posa sur la 14e marche. À cet instant, le corps véritable d'essence qui se trouvait derrière lui se transforma en une mer de feu et s'engouffra dans son corps. Wang Lin ne fit plus qu'un avec son corps véritable d'essence et avança!
 
 C'était la 15e marche!
 
@@ -24,7 +24,7 @@ Cette scène fut vue par tous les disciples de la Secte de la Grande Âme et fit
 
 Même les vieux monstres de la Secte de la Grande Âme, d'ordinaire en culture retirée, sortirent pour observer la scène de leurs propres yeux.
 
-« Ma volonté ne peut être détruite par la rétribution divine. J'ai repris mon propre destin des mains de la rétribution divine. Je suis venu sur le Continent Astral Immortel non pas pour servir, mais pour reprendre ma destinée! Je suis venu sur le Continent Astral Immortel non pas pour obéir, mais pour marcher au-dessus des cieux! » Les yeux de Wang Lin brillèrent tandis que son essence karmique jaillissait. Son pied se posa sur la 19e marche et il pénétra au septième étage!
+« Ma volonté ne peut être détruite par la rétribution divine. J'ai repris mon propre destin des mains de la rétribution divine. Je suis venu sur le Continent Astral Immortel non pas pour me soumettre, mais pour me maîtriser moi-même! Je suis venu sur le Continent Astral Immortel non pas pour obéir, mais pour marcher au-dessus des cieux! » Les yeux de Wang Lin brillèrent tandis que son essence karmique jaillissait. Son pied se posa sur la 19e marche et il pénétra au septième étage!
 
 Au moment où son pied toucha le sol, l'illusion surplombant la Secte de la Grande Âme brilla intensément. Tous les disciples de la secte levèrent les yeux vers l'illusion avec respect.
 
@@ -66,7 +66,7 @@ Wang Lin ne répondit pas immédiatement et prit un instant pour réfléchir.
 
 À l'instant où la calebasse se manifesta, des fluctuations d'âme en émanèrent.
 
-« C'est un trésor du neuvième Ancêtre, Luo Yunhai, que j'ai trouvé par inadvertance. Il contenait un milliard d'âmes Dao; il est désormais brisé, mais il contient encore 30 millions d'âmes Dao. Bien qu'il ne puisse être utilisé qu'une seule fois, il peut déclencher une attaque équivalente à celle d'un cultivateur au sommet du stade intermédiaire de la Tribulation du Vide! »
+« C'est un trésor que le neuvième Ancêtre, Luo Yunhai, possédait de son vivant, et que j'ai trouvé par inadvertance. Il y avait condensé un milliard d'âmes Dao; il est désormais brisé, mais il contient encore 30 millions d'âmes Dao. Bien qu'il ne puisse être utilisé qu'une seule fois, il peut déclencher une attaque équivalente à celle d'un cultivateur du milieu de la Tribulation du Vide! »
 
 « Cet objet est la raison pour laquelle je peux invoquer le neuvième Ancêtre avec l'Origine de la Fantaisie de l'Âme. Avec cela, tu pourras également invoquer le neuvième Ancêtre avec l'Origine de la Fantaisie de l'Âme! »
 
@@ -88,7 +88,7 @@ Yan Lu se trouvait au sixième étage, attendant la réponse de Wang Lin. Elle �
 
 Alors que Yan Lu réfléchissait avec anxiété, les paroles de Wang Lin résonnèrent depuis le septième étage.
 
-« Puisque tu veux parier, alors parions! » Les mots de Wang Lin étaient décisifs. Cette gourde remplie de 30 millions d'âmes Dao était un objet qu'il devait obtenir. En vérifiant son avatar, il constata que sa croissance avait été plus rapide que prévu; ainsi, même si l'utilisation du trésor dégageait une partie de son pouvoir, cela n'affecterait pas trop l'avatar.
+« Puisque tu veux parier, alors parions! » Les mots de Wang Lin étaient décisifs. Cette gourde remplie de 30 millions d'âmes Dao était un objet qu'il devait obtenir. En vérifiant son avatar, il constata que sa croissance avait été plus rapide que prévu; ainsi, même s'il lui fallait transmettre une partie de sa puissance à son corps principal, cela n'affecterait pas trop l'avatar.
 
 Après avoir pesé le pour et le contre, Wang Lin prit sa décision.
 
@@ -100,7 +100,7 @@ En entendant les paroles de Wang Lin, Yan Lu commença à ressentir un regret di
 
 « D'accord, je parie avec toi! Je ne crois pas que tu puisses monter au huitième étage! » Yan Lu serra les dents.
 
-Wang Lin rit et s'élança vers les étoiles, en direction du huitième étage. L'esprit de Wang Lin et l'avatar dans le vide formèrent une connexion. Cette liaison ignorait toutes les restrictions de la Secte de la Grande Âme et même les innombrables barrières du Pavillon des Écritures de l'Âme. Même les lois du Continent Astral Immortel ne pouvaient entraver la puissance qui affluait vers lui.
+Wang Lin rit et, d'un revers de manche, se dirigea vers l'escalier menant au huitième étage. L'esprit de Wang Lin et l'avatar dans le vide formèrent une connexion. Cette liaison ignorait toutes les restrictions de la Secte de la Grande Âme et même les innombrables barrières du Pavillon des Écritures de l'Âme. Même les lois du Continent Astral Immortel ne pouvaient entraver la puissance qui affluait vers lui.
 
 Les yeux de Wang Lin brillèrent et, en sept pas, il atteignit l'escalier du huitième étage. D'un seul mouvement, il avança.
 

@@ -58,7 +58,7 @@ Quand l'empereur apprit ce qui touchait Wang Lin, il ne crut pas qu'il s'agissai
 
 Toutefois, il prit la peine de mobiliser toutes ses forces pour recueillir des informations sur cet homme. Après tout, celui-ci était probablement le sixième Grand Empyréen du clan céleste!
 
-La différence entre le clan Ancien et le clan céleste résidait dans l'abîme qu'était un Grand Empyréen. Si ce n'était pas pour l'être transcendant qu'était le Grand Empyréen Guo Dao, qui ne s'impliquait normalement pas dans les affaires des trois clans, le clan Ancien aurait déjà été anéanti.
+Le clan Ancien avait déjà un Grand Empyréen de moins que le clan céleste. Si ce n'était pas pour l'être transcendant qu'était le Grand Empyréen Guo Dao, qui ne s'impliquait normalement pas dans les affaires des trois clans, le clan Ancien aurait déjà été anéanti.
 
 Le Grand Empyréen Guo Dao vivait sur le sommet du Mont Ancien toute l'année. Sa culture était capable de briser les cieux et il était indéniablement le plus puissant des Grands Empyréens!
 
@@ -80,7 +80,7 @@ La nouvelle concernant Wang Lin se répandit lentement dans le clan Ancien, prot
 
 Au cours de cette année, l'Ascendant Empyréen Ming Dao semblait avoir été oublié. Tout ce qui le définissait avait été supplanté par Wang Lin.
 
-Dans les terres du clan céleste, au sous-sol du palais de la cité impériale, l'Ascendant Empyréen Ming Dao était assis dans un bassin d'eau noire. L'eau bouillonnait sans cesse, dégageant une brume sombre qui enveloppait les lieux.
+Dans les terres du clan céleste, au sous-sol du palais de la cité impériale, l'Ascendant Empyréen Ming Dao, vêtu de noir, était assis dans un bassin d'eau noire. L'eau bouillonnait sans cesse, dégageant une brume sombre qui enveloppait les lieux.
 
 Au fond du bassin, Ming Dao semblait être en proie à une douleur indicible. Son corps tremblait, mais il n'avait jamais quitté l'eau, endurant cette torture depuis un an.
 
@@ -88,9 +88,9 @@ Au fond du bassin, Ming Dao semblait être en proie à une douleur indicible. So
 
 « Tu m'as tout pris! Je dois personnellement tout reprendre!!! »
 
-Alors qu'il continuait de hurler, l'eau noire se mit à bouillir plus violemment encore. La brume sombre pénétra dans ses orifices et commença lentement à transformer son corps.
+Alors qu'il continuait de hurler, l'eau noire se mit à bouillir plus violemment encore. La brume sombre pénétra dans ses sept orifices et se condensa dans son lignage, le transformant lentement.
 
-« Retourne à la loi d'origine céleste. Même cet empereur, doté du lignage de l'Ancêtre Céleste, n'y est pas parvenu. Cet empereur t'avait promis de te donner le lignage de l'Ancêtre Céleste lors de ton recrutement... » Une voix glaciale résonna dans la pièce.
+« La Grande Loi du Retour à l'Origine. Même parmi la lignée directe de l'Ancêtre Céleste dont est issu cet empereur, personne n'a jamais réussi à la maîtriser. Cet empereur t'avait promis de te donner le lignage de l'Ancêtre Céleste lors de ton recrutement... » Une voix glaciale résonna dans la pièce.
 
 Des ondulations se propagèrent à la surface du bassin tandis que l'Empereur Céleste en sortait.
 
@@ -102,13 +102,13 @@ Des ondulations se propagèrent à la surface du bassin tandis que l'Empereur C�
 
 « Tue-le... Tue-le... » Tandis que Ming Dao rugissait, l'Empereur Céleste esquissa à nouveau ce sourire étrange, puis s'en alla.
 
-« Cet empereur restaurera la gloire de l'Ancêtre Céleste en cette génération! Ce vieux Jiu Di est déjà passé, je commencerai par lui. Une fois que j'aurai réussi, qui osera me désobéir? »
+« Cet empereur restaurera la gloire de l'Ancêtre Céleste en cette génération! Ce vieux Jiu Di se prévaut de son âge: une fois que j'aurai réussi, je commencerai par lui. S'il se soumet, qui osera me désobéir? »
 
 « Quant à Dao Yi, cet homme est extrêmement rusé. Autrefois, le titre de Grand Empyréen aurait dû revenir à son frère aîné, mais il a fait assassiner ce dernier pour lui voler sa qualification! »
 
 « Cet empereur admire un tel individu. Il sera d'une grande utilité! »
 
-« Ce Wu Feng ne respecte absolument pas le lignage impérial. Un tel homme doit mourir! Je vais saisir sa qualification de Grand Empyréen pour la donner à Dao Fei! Bien que Dao Fei soit mon frère, j'ai investi beaucoup d'efforts en lui et le moment est venu de récolter les fruits. »
+« Ce Wu Feng ne respecte absolument pas le lignage impérial. Un tel homme doit mourir! Je vais saisir sa qualification de Grand Empyréen pour la donner à Lian Daofei! Bien que Lian Daofei soit mon frère, j'ai investi beaucoup d'efforts en lui et le moment est venu de récolter les fruits. »
 
 « Enfin, il y a Gémeaux. Tant que leurs âmes ne fusionnent pas en une seule, il n'y a aucune inquiétude à avoir! »
 
@@ -122,13 +122,13 @@ C'était le Domaine des Bêtes.
 
 Il en avait eu une vague perception autrefois, mais depuis son arrivée à la Secte Yang Pourpre, l'endroit avait beaucoup changé. Wang Lin avait passé la majeure partie de l'année assis au bord du Domaine des Bêtes.
 
-Il sentait qu'une barrière invisible se dressait devant lui, et qu'au-delà se trouvait un lieu qui lui était familier: sa patrie, celle qui lui manquait tant... Il y avait là les gens qu'il connaissait, la terre qu'il aimait et les planètes qu'il avait foulées.
+Il sentait qu'une barrière invisible se dressait devant lui, et qu'au-delà se trouvait un lieu qui lui était familier: sa patrie, celle qui lui manquait tant... Il y avait là les gens qu'il connaissait, la terre qu'il aimait, le ciel étoilé et les planètes de culture.
 
 Il leva la main droite comme pour effleurer la barrière. Ses yeux étaient empreints de mélancolie et de nostalgie.
 
 « L'aura du foyer... » Wang Lin poussa un soupir et ferma les yeux. Il était là depuis un an et il savait qu'il devait partir...
 
-Au loin, des éclats de rire cristallins retentirent. Les rires joyeux de jeunes filles apaisèrent le cœur de Wang Lin.
+Au loin, des éclats de rire cristallins retentirent. Les rires joyeux de petites filles apaisèrent le cœur de Wang Lin.
 
 « Petit Biaozi, ne malmène pas le Petit Loup. Tu lui as tout volé! »
 

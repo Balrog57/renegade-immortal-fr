@@ -8,7 +8,7 @@ slug: larmure-de-lame-reconnait-son-maitre
 ---
 Lu Wenran était d'une rapidité fulgurante. Sa décision était prise: il devait tuer Wang Lin. Même sous les yeux de tous les témoins, il ne reculerait pas. Ayant déjà perdu l'avantage, il n'avait d'autre choix que de lancer l'offensive immédiatement!
 
-En un éclair, il fondit sur Wang Lin. Tandis que ce dernier battait en retraite, il fit trois pas rapides. À son troisième pas, sa main droite s'activa brusquement et le palais souterrain trembla. Une Lance aux Sept Couleurs apparut, suivie d'une seconde, enveloppée de flammes ardentes.
+En un éclair, il fondit sur Wang Lin. Wang Lin, tout en reculant, fit trois pas d'affilée. Au troisième, sa main droite se leva vivement et le palais souterrain gronda. Une Lance aux Sept Couleurs apparut, suivie d'une seconde, enveloppée de flammes ardentes.
 
 Les deux Lances aux Sept Couleurs jaillirent vers Lu Wenran.
 
@@ -38,7 +38,7 @@ Tout sembla disparaître pour laisser place à un océan sans fin. Le monde fut 
 
 Immédiatement après, deux portes gigantesques surgirent au-dessus de la mer. Une aura antique se fit sentir, donnant l'impression que le temps lui-même ralentissait, enveloppant l'esprit de Lu Wenran!
 
-Tout cela se produisit en un battement de cils. Wang Lin n'avait jamais utilisé autant de sorts dans une période aussi courte de sa vie.
+Tout cela se produisit en un battement de cils. En plus de deux mille ans de cultivation, Wang Lin n'avait jamais utilisé autant de sorts en un laps de temps aussi court.
 
 Mais la série ne s'arrêta pas là. Dès qu'il eut achevé Nuit Brisée et Temps Fluide, Wang Lin agita sa manche, faisant tournoyer le vortex des veines magiques de son corps.
 
@@ -55,9 +55,9 @@ Les deux empreintes de paumes géantes explosèrent et les deux ombrelles antiqu
 
 Lu Wenran était dans un état lamentable. Il avait perdu un bras et était déjà gravement blessé. Pour résister au bombardement de sorts de Wang Lin, il avait dû puiser dans toutes ses forces. Le visage pâle, il chargea vers Wang Lin.
 
-Mais profitant du délai de Wang Lin, Yan Lu et Xu Dongde s'avancèrent pour l'intercepter.
+Mais profitant du délai de Wang Lin, Yan Luan et Xu Dongde s'avancèrent pour l'intercepter.
 
-« Écartez-vous! » Les yeux de Lu Wenran étaient injectés de sang par son intention meurtrière. Alors que Yan Lu et Xu Dongde approchaient, il agita sa manche et cracha une gorgée de sang. Ce sang se métamorphosa en deux avatars qui chargèrent les deux hommes.
+« Écartez-vous! » Les yeux de Lu Wenran étaient injectés de sang par son intention meurtrière. Alors que Yan Luan et Xu Dongde approchaient, il agita sa manche et cracha une gorgée de sang. Ce sang se métamorphosa en deux avatars qui chargèrent les deux hommes.
 
 Quant à lui, il fonça sur Wang Lin avec une soif de sang monstrueuse, faisant fi de ses propres blessures.
 
@@ -75,7 +75,7 @@ Le regard de Wang Lin était empreint de folie. Il osait parier, car il pouvait 
 
 Alors que l'Engrenage aux Neuf Dents approchait, Wang Lin sentit la mort rôder. Sans hésiter, il leva la main et agrippa violemment le vide devant lui.
 
-« Déchirement Céleste! » rugit Wang Lin en déchirant l'espace de ses mains. L'Engrenage aux Neuf Dents percuta la faille ainsi ouverte. Dans un fracas tonitruant, quatre des dents de l'engrenage volèrent en éclats. Cependant, les cinq dents restantes agirent comme des lames mortelles projetées droit sur Wang Lin!
+« Déchirure du Ciel! » rugit Wang Lin en déchirant l'espace de ses mains. L'Engrenage aux Neuf Dents percuta la faille ainsi ouverte. Dans un fracas tonitruant, quatre des dents de l'engrenage volèrent en éclats. Cependant, les cinq dents restantes agirent comme des lames mortelles projetées droit sur Wang Lin!
 
 En un instant, elles furent à moins de trente pieds de lui. L'objet tournait frénétiquement avec une acuité extrême, comme s'il voulait scinder Wang Lin en deux.
 
@@ -85,7 +85,7 @@ Lu Wenran éclata d'un rire hystérique. Il s'attendait à la mort de Wang Lin. 
 
 « Tu n'es pas digne d'être mon ennemi! »
 
-Derrière lui, Yan Lu et Xu Dongde étaient arrivés trop tard pour secourir Wang Lin. Lu Wenran avait risqué des blessures graves en crachant son sang pour créer ces deux avatars afin de les freiner. Bien qu'ils ne dureraient que quelques respirations, il croyait que cela suffirait s'il utilisait toute sa puissance!
+Derrière lui, Yan Luan et Xu Dongde étaient arrivés trop tard pour secourir Wang Lin. Lu Wenran avait risqué des blessures graves en crachant son sang pour créer ces deux avatars afin de les freiner. Bien qu'ils ne dureraient que quelques respirations, il croyait que cela suffirait s'il utilisait toute sa puissance!
 
 « Meurs! Une fois que tu seras mort, l'armure de l'âme sera mienne! » rugit Lu Wenran en ricanant, observant Wang Lin presser sa main contre l'engrenage et être repoussé. Le sang giclait de partout sous les rires démentiels de Lu Wenran.
 
@@ -109,7 +109,7 @@ Les yeux de Lu Wenran brillèrent d'une intention meurtrière délirante. Voyant
 
 « Peu importe la force de ton corps ou le trésor qui te protège! Meurs, meurs, MEURS! » En un pas, Lu Wenran se retrouva à moins de 500 pieds de Wang Lin!
 
-Au second pas, il n'était plus qu'à 100 pieds. Il leva la main, prêt à porter le coup fatal. À cet instant précis, l'armure de l'âme du Taureau Céleste se transforma en d'innombrables filaments noirs qui filèrent à une vitesse fulgurante devant Lu Wenran pour atteindre Wang Lin.
+Au second pas, il n'était plus qu'à 100 pieds. Il leva la main, prêt à porter le coup fatal. À cet instant précis, l'armure de l'âme du Taureau Céleste se transforma en d'innombrables filaments noirs qui filèrent à une vitesse fulgurante, frôlant Lu Wenran sans s'arrêter, pour atteindre Wang Lin.
 
 Tout cela se produisit en un éclair. En un instant, Wang Lin fut entouré d'une multitude de filaments noirs et une aura puissante explosa. Lorsque cette onde frappa Lu Wenran, il cracha du sang, ses yeux remplis d'une terreur et d'un regret profonds!
 

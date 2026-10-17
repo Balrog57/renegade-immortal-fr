@@ -44,7 +44,7 @@ Il tapota doucement le corps de la créature, puis son regard se posa sur la coq
 
 « D’après les souvenirs du moustique, cet endroit semble être celui où ses ancêtres sont nés... Que peut bien être cette coquille de pierre... » Les yeux de Wang Lin s'illuminèrent et il s'avança vers l'objet. Il leva la main droite pour toucher la paroi, mais dès le contact établi, une force de rejet jaillit de la coquille, repoussant violemment sa main. Elle refusait tout contact ou tentative d'intrusion.
 
-Il essaya sous plusieurs angles, mais la force de répulsion persistait. Finalement, Wang Lin renonça à l'idée de contrôler son avatar pour en faire sortir la créature. Il avait le pressentiment vague que cela constituerait une immense fortune pour lui.
+Il essaya sous plusieurs angles, mais la force de répulsion persistait. Finalement, Wang Lin renonça à l'idée de contrôler son avatar pour le faire sortir. Il avait le pressentiment vague que cela constituerait une immense fortune pour lui.
 
 Cette fortune résidait dans l'avatar qui, sans qu'il le sache, s'était développé à l'intérieur de cette coquille. Peut-être qu'un jour, cet avatar briserait la coque et contiendrait un pouvoir terrifiant.
 
@@ -98,7 +98,7 @@ Au même moment, dans les 36 États du pays antique, un vortex colossal apparut 
 
 Une aura terrifiante et tyrannique jaillit de ce vortex, forçant tous les habitants des pays antiques à se prosterner au sol dans une exaltation mêlée de crainte.
 
-Simultanément, Xuan Luo et les deux autres survivants des quatre anciens Grands Empyréens surgirent. Flottant dans les airs, ils contemplèrent le vortex céleste avec incrédulité.
+Simultanément, Xuan Luo, qui était en retraite, et les Grands Empyréens des deux autres lignées, quatre en tout, surgirent. Flottant dans les airs, ils contemplèrent le vortex céleste avec incrédulité.
 
 Il n'y avait pas d'ombre comme celle de l'Ancêtre Céleste, mais une paire d'yeux. Des yeux argentés qui fixaient l'Ancêtre Céleste, libérant une lumière argentée monstrueuse!
 

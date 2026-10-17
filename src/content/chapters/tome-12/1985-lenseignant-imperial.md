@@ -72,15 +72,15 @@ D'innombrables piliers et d'innombrables sphères de feu. Chaque boule de feu ab
 
 Au loin se dressait un autel en forme de montagne. C'était là que se trouvait l'Enseignant Impérial. Son corps demeurait immobile, comme s'il occupait un espace distinct du reste du palais impérial.
 
-Devant l'autel se trouvait une vaste mare de sang écarlat, et une personne y était assise. Il s'agissait de l'Ascendant Empyréen Ming Dao! Ses yeux étaient clos et son expression féroce, comme s'il endurait une agonie atroce. Ses veines étaient saillantes et son visage portait les stigmates d'un grand âge.
+Devant l'autel se trouvait une vaste mare de sang écarlate, et une personne y était assise. Il s'agissait de l'Ascendant Empyréen Ming Dao! Ses yeux étaient clos et son expression féroce, comme s'il endurait une agonie atroce. Ses veines étaient saillantes et son visage portait les stigmates d'un grand âge.
 
-Neuf piliers entouraient cette mare, reliés entre eux par une lourde chaîne brune flottant au-dessus de l'autel!
+Neuf piliers entouraient l'autel, chacun portant une chaîne brune; ces chaînes, reliées entre elles, flottaient au-dessus de l'autel!
 
 Une personne était enchaînée au centre de ces neuf chaînes — un homme vêtu d'une chemise à fleurs. Il était dans le coma, les chaînes traversant son corps.
 
 Cet homme était le fou.
 
-« Lorsque le clan céleste a invité ma famille à aménager le palais, ils ont ouvert cet endroit. Tout ici est lié au palais », sourit l'Enseignant Impérial à Wang Lin.
+« Lorsque l'Ancêtre Céleste a invité mon clan à aménager le palais, il a ouvert ce que l'on appelle le palais souterrain. Tout ici est lié au palais », sourit l'Enseignant Impérial à Wang Lin.
 
 Le regard de Wang Lin se posa sur le fou comateux et, après une courte réflexion, il prit la parole:
 
@@ -110,8 +110,8 @@ Wang Lin ne cilla pas et soutint son regard. Après un long silence, l'Enseignan
 
 « Lorsque j'ai appris que vous veniez d'un monde caverneux, l'Empereur Céleste a voulu vous tuer. Mais je connais Lian Daozhen; il est perpétuellement méfiant et d'une froideur extrême. J'ai donc pris l'initiative de prétendre que vous seriez un problème majeur qu'il fallait éliminer!
 
-« Et de fait, dès que j'ai prononcé ces mots, le doute s'est installé en lui. C'est pourquoi, à votre arrivée au clan céleste, il n'a pas agi. Cependant, vous avez grandi trop vite, bien au-delà de ses espérances, mais il avait d'autres projets: il voulait utiliser votre puissance pour achever Ming Dao!
+« Et de fait, dès que j'ai prononcé ces mots, le doute s'est installé en lui. C'est pourquoi, à votre arrivée au clan céleste, il n'a pas agi. Cependant, vous avez grandi trop vite, bien au-delà de ses espérances, mais il avait d'autres projets: il voulait utiliser votre puissance pour mener Ming Dao à l'accomplissement dans le palais souterrain!
 
-« La personne qu'il a choisie pour le sortilège du Retour à l'Origine Ancestrale est Ming Dao, et la personne que j'ai choisie, c'est vous, Wang Lin! Jiu Di représente une menace immense pour l'Empereur Céleste, il ne souhaite donc pas agir personnellement de peur d'attirer ses soupçons. Voilà pourquoi il vous a invité lors de la cérémonie du titre et a tendu ce piège dans la rue. Mais lorsque votre massacre s'est déchaîné, cela l'a stupéfait. Il s'est ensuite appuyé sur les souvenirs de Dao Fei pour finalement réussir à vous attirer ici!
+« La personne qu'il a choisie pour le sortilège du Retour à l'Origine Ancestrale est Ming Dao, et la personne que j'ai choisie, c'est vous, Wang Lin! Jiu Di représente une menace immense pour l'Empereur Céleste, il ne souhaite donc pas agir personnellement de peur d'attirer ses soupçons. Voilà pourquoi il vous a invité lors de la cérémonie du titre et a orchestré le massacre de la longue rue. Mais lorsque votre massacre s'est déchaîné, cela l'a stupéfait. Il s'est ensuite appuyé sur les souvenirs de Lian Daofei pour finalement réussir à vous attirer ici!
 
-« La raison pour laquelle je voulais que vous veniez est précisément celle-ci: ce n'est que lorsqu'un autre Grand Empyréen combat l'Empereur que je peux lui tenir ces propos sans qu'il ne s'en aperçoive! » Les yeux de l'Enseignant Impérial aux cheveux blancs s'illuminèrent alors qu'il s'adressait à Wang Lin.
+« La raison pour laquelle je voulais que vous veniez est précisément celle-ci: ce n'est que lorsqu'un autre Grand Empyréen combat l'Empereur que je peux lui tenir ces propos sans qu'il ne s'en aperçoive! » Les yeux de l'Enseignant Impérial vêtu de blanc s'illuminèrent alors qu'il s'adressait à Wang Lin.

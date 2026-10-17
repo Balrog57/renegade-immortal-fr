@@ -8,7 +8,7 @@ slug: embue-de-rage-3
 ---
 Le rugissement de Wang Lin se propagea et enveloppa une partie de la cité impériale. Ce cri frappa les cœurs de tous ceux qui l'entendirent, leurs visages se muant en masques d'horreur.
 
-À cet instant, la plupart des gens s'étaient rendus au banquet, mais beaucoup d'autres n'avaient pas été admis. Ils devaient attendre le lendemain pour contempler la cérémonie depuis l'intérieur de la ville.
+À cet instant, beaucoup de membres des trois clans s'étaient rendus au banquet, mais bien plus nombreux étaient ceux qui n'avaient pas été admis. Ils devaient attendre le lendemain pour contempler la cérémonie depuis l'intérieur de la ville.
 
 Par conséquent, les membres des trois clans étaient encore nombreux aux alentours, et les échos de la musique résonnaient. L'esprit était haut et l'atmosphère très festive. Cependant, lorsque Wang Lin lâcha ce hurlement dément: « Ye Dao! Je vais te tuer! », tout le monde fut pétrifié et la musique s'arrêta brusquement.
 
@@ -66,7 +66,7 @@ Alors qu'il hurlait, son niveau de culture commença à grimper, passant du stad
 
 Cela aurait dû le réjouir, mais en cet instant, Wang Lin ne ressentait aucun changement. L'unique pensée qui occupait son esprit était de massacrer son chemin jusqu'au palais, d'assassiner l'Empereur du Dao Antique et de reprendre Wan Er!!
 
-Son corps était entouré d'une aura violente. D'un geste de la main vers la vallée, il fit trembler la terre entière; toute la Montagne du Dao Antique sembla vaciller. Dans la grotte souterraine, le Grand Soleil Empyréen de Wang Lin et la tête de l'Ancêtre Céleste s'élancèrent. Une fissure apparut au plafond de la grotte, et le Grand Soleil Empyréen de Wang Lin fit jaillir la tête à travers l'ouverture!
+Son corps était entouré d'une aura violente. D'un geste de la main vers la vallée, il fit trembler la terre entière; toute la Montagne du Dao Antique sembla vaciller. Dans la grotte souterraine, le Grand Soleil Empyréen de Wang Lin et la tête de l'Ancêtre Céleste tremblèrent. Une fissure apparut au plafond de la grotte, et le Grand Soleil Empyréen de Wang Lin fit jaillir la tête à travers l'ouverture!
 
 Cependant, à cet instant précis, les neuf personnes ayant reçu le message de Xuan Luo arrivèrent. Neuf rayons de lumière percèrent le ciel pour atteindre la vallée.
 
@@ -94,7 +94,7 @@ La silhouette de Wang Lin marqua un temps d'arrêt et il leva les yeux. Ses yeux
 
 « Vous osez m'arrêter?! »
 
-Le vieil homme dont le niveau de culture était le plus élevé regarda Wang Lin avec effroi. Le cuir chevelu engourdi par la peur, il joignit les mains et dit: « Jeune Maître, ne soyez pas en colère. Nous suivons les ordres du Seigneur Xuan pour vous retenir. Une décision pourra être prise une fois que le Seigneur Xuan sera arrivé. »
+Le vieil homme dont le niveau de culture était le plus élevé regarda Wang Lin avec effroi. Serrant les dents, il joignit les mains et dit: « Jeune Maître, ne soyez pas en colère. Nous suivons les ordres du Seigneur Xuan pour vous retenir. Une décision pourra être prise une fois que le Seigneur Xuan sera arrivé. »
 
 « Maître Xuan Luo... » Wang Lin ressentit une douleur lancinante à la tête. Il savait que Xuan Luo était le gardien du Dao Antique, et que même l'actuel Empereur avait été choisi par lui, mais maintenant il allait...
 
@@ -102,7 +102,7 @@ Le vieil homme dont le niveau de culture était le plus élevé regarda Wang Lin
 
 C'était la seule voie possible pour Wang Lin!
 
-Les visages des neuf se décomposèrent lorsqu'un Grand Soleil Empyréen apparut derrière Wang Lin. Ce soleil était bien plus tangible que celui de la Montagne Gu Dao. À sa vue, les pupilles des neuf disciples se rétractèrent violemment!
+Les visages des neuf se décomposèrent lorsqu'un Grand Soleil Empyréen apparut derrière Wang Lin. Ce soleil était un peu plus dense que celui de la Montagne Gu Dao. À sa vue, les pupilles des neuf disciples se rétractèrent violemment!
 
 « Un Grand Empyréen!!! »
 

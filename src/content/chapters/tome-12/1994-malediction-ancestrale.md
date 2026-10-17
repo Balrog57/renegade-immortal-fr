@@ -10,7 +10,7 @@ Jiu Di regarda l'Empereur Céleste et expliqua l'origine de tout cela: « Ce pla
 
 « Lorsque le précédent Empereur Céleste est décédé, avant que vous ne preniez le trône, l'ancien Maître Impérial m'a trouvé. Selon le plan, nous nous sommes mariés et avons eu une fille.
 
-« Cette petite fille aurait possédé un corps issu du Continent Astral Immortel, mais l'âme du clan Dao Wang... À l'origine, cela ne pouvait se produire sous le sceau de l'Ancêtre Céleste, car la puissance du sceau était trop grande!
+« Cette petite fille possède un corps issu du Continent Astral Immortel, mais l'âme du clan Dao Wang... À l'origine, cela ne pouvait se produire sous le sceau de l'Ancêtre Céleste, car la puissance du sceau était trop grande!
 
 « Cependant, à ce moment-là, l'Ancêtre Céleste était mort depuis de nombreuses années et le sceau s'affaiblissait. Le génie du clan Dao Wang a alors élaboré un plan qui, pour réussir, exigeait que l'ensemble du clan Dao Wang sacrifie ses âmes pour lutter contre la puissance du sceau.
 
@@ -32,7 +32,7 @@ L'Empereur Céleste resta silencieux un instant, songeant à ces révélations. 
 
 « Ainsi, si je n'avais pas insisté pour lever le sceau, mais que j'avais plutôt rendu la tête de l'Ancêtre Céleste en renonçant à son héritage, votre plan aurait été vain? »
 
-« J'ai gagné! » La personne qui parla n'était pas Jiu Di, mais Hai Zi. L'actuelle Hai Zi était radicalement différente de celle d'autrefois; elle dégageait une aura mystérieuse et fixa calmement l'Empereur Céleste.
+« Non! » La personne qui parla n'était pas Jiu Di, mais Hai Zi. L'actuelle Hai Zi était radicalement différente de celle d'autrefois; elle dégageait une aura mystérieuse et fixa calmement l'Empereur Céleste.
 
 « Si vous aviez renoncé à l'héritage de la culture de l'Ancêtre Céleste, l'embuscade que mon clan Dao Wang avait préparée se serait déclenchée! Tous les temples spirituels des 72 continents obéissent à mon clan!
 
@@ -86,9 +86,9 @@ Gémeaux réfléchit en silence. Comment ne pas avoir percé à jour leurs inten
 
 « Dao Yi, le crâne de l'Ancêtre Céleste est né du vide, et au fil d'innombrables années, l'essence de sa puissance s'y est accumulée. Je vous promets de vous le donner. Avec lui, votre corps et votre âme ne feront plus qu'un!
 
-« Quant à ce vieil homme, je veux le cerveau de l'Ancêtre Céleste — il me sera d'une utilité immense. Pour la tête de l'Ancêtre Céleste, nous allons tous... la partager équitablement! » Jiu Di regarda calmement la dépouille.
+« Quant à ce vieil homme, je veux le cerveau de l'Ancêtre Céleste — il me sera d'une utilité immense. Quant à la culture du clan céleste, nous allons tous... la partager équitablement! » Les yeux de Jiu Di brillaient tandis qu'il regardait l'Empereur Céleste.
 
-« Vous connaissiez donc la malédiction ancestrale que l'Ancêtre Céleste a laissée avant sa mort! » L'expression de l'Ancêtre Céleste était sombre.
+« Vous connaissiez donc la malédiction ancestrale que l'Ancêtre Céleste a laissée avant sa mort! » L'expression de l'Empereur Céleste était sombre.
 
 « J'ai cherché pendant de nombreuses années et j'ai enfin trouvé un indice il y a peu. Grâce à lui, j'ai pu confirmer que la légende était vraie. Si l'Ancêtre Céleste est mort, quiconque tenterait de détruire son corps mourrait...
 

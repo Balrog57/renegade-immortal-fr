@@ -18,27 +18,27 @@ Sous l'œil droit de la femme se trouvait une tache de naissance. Loin de ternir
 
 « Song Zhi salue le Prince, les seigneurs et les ambassadeurs du Dao Antique », dit-elle, le visage légèrement empourpré, en s'inclinant devant l'assemblée.
 
-« Votre nom est Song? Est-ce elle la personne dont le Prince a parlé? » L'homme âgé chevauchant le démon ancien reprit ses esprits. Lorsqu'il posa les yeux sur la femme, son expression se fit grave.
+« Votre nom est Song? Est-ce elle la personne dont le Prince a parlé? » L'homme âgé chevauchant le diable ancien reprit ses esprits. Lorsqu'il posa les yeux sur la femme, son expression se fit grave.
 
 « C'est exact, son nom de famille est Song », répondit le Prince avec un sourire avant de poursuivre: « À ce propos, elle appartient à la famille Song du Grand Empyréen. Cependant, la famille du Grand Empyréen est vaste et elle ne provient que d'une branche lointaine. Néanmoins, à Pierre Noire, sa famille est considérée comme puissante. »
 
-L'homme sur le démon ancien réfléchit un instant, puis joignit les mains en signe de respect envers le Prince. « Je remercie infiniment le Prince pour son aide. Je vais emmener cette femme avec nous. Si elle n'est pas choisie, nous la lui renverrons. »
+L'homme sur le diable ancien réfléchit un instant, puis joignit les mains en signe de respect envers le Prince. « Je remercie infiniment le Prince pour son aide. Je vais emmener cette femme avec nous. Si elle n'est pas choisie, nous la lui renverrons. »
 
 « Très bien. Song Zhi, suis les ambassadeurs du Dao Antique. » Le Prince n'y prêta guère attention. Il donna l'ordre avec un sourire, puis fixa Wang Lin, le regard brûlant de ferveur.
 
-La femme nommée Song Zhi sembla pousser un soupir, mais sa nature était si douce qu'elle ne put refuser. Elle mordilla sa lèvre inférieure et s'avança vers le démon ancien.
+La femme nommée Song Zhi sembla pousser un soupir, mais sa nature était si douce qu'elle ne put refuser. Elle mordilla sa lèvre inférieure et s'avança vers le diable ancien.
 
 Wang Lin se trouvait directement sur son chemin. En s'approchant de lui, elle s'inclina légèrement par respect avant de contourner Wang Lin pour rejoindre la créature.
 
 Un parfum léger effleura les narines de Wang Lin, puis se dissipa tandis qu'elle s'éloignait.
 
-Lorsqu'elle monta sur le démon ancien aux côtés du vieil homme, le vent fit voler ses cheveux, masquant son visage. Pourtant, cela ne put cacher la mélancolie et la réticence qui perçaient dans ses yeux alors qu'elle contemplait sa terre natale.
+Lorsqu'elle monta sur le diable ancien aux côtés du vieil homme, le vent fit voler ses cheveux, masquant son visage. Pourtant, cela ne put cacher la mélancolie et la réticence qui perçaient dans ses yeux alors qu'elle contemplait sa terre natale.
 
-« J'espère que je ne serai pas choisie... Je ne suis pas si belle, je devrais donc... ne pas être sélectionnée... Tante Chang et Sœur Dong m'attendent encore... » La femme baissa la tête, ses cheveux dissimulant les larmes qui perlaient dans ses yeux.
+« J'espère que je ne serai pas choisie... Je ne suis pas si belle, je devrais donc... ne pas être sélectionnée... Tante Chang et Dong Mei m'attendent encore... » La femme baissa la tête, ses cheveux dissimulant les larmes qui perlaient dans ses yeux.
 
-Une fois Song Zhi accueillie par les ambassadeurs du Dao Antique, ces derniers s'inclinèrent respectueusement devant le Prince et Wang Lin. Soudain, le démon ancien leva la tête vers le ciel et poussa un rugissement. Il bondit vers la faille qui s'était ouverte dans le firmament, se transforma en une brume noire et disparut à l'intérieur.
+Une fois Song Zhi accueillie par les ambassadeurs du Dao Antique, ces derniers s'inclinèrent respectueusement devant le Prince et Wang Lin. Soudain, le diable ancien leva la tête vers le ciel et poussa un rugissement. Il bondit vers la faille qui s'était ouverte dans le firmament, se transforma en une brume noire et disparut à l'intérieur.
 
-Ce lieu était très éloigné de la cité impériale du Dao Antique. Même avec un démon ancien, il leur faudrait plusieurs mois pour regagner leur foyer.
+Ce lieu était très éloigné de la cité impériale du Dao Antique. Même avec un diable ancien, il leur faudrait plusieurs mois pour regagner leur foyer.
 
 Après le départ des ambassadeurs, l'homme massif à l'armure dorée guida l'assistance vers l'intérieur de la ville. Un instant plus tard, les environs étaient déserts, à l'exception de Wang Lin, du démon ancien tremblant, du Prince et de la femme qui se tenait derrière lui.
 
@@ -60,7 +60,7 @@ Dès qu'il eut disparu, la faille se referma, le ciel retrouvant son aspect norm
 
 Cependant, juste au moment où le démon ancien s'éloignait, une voix froide et majestueuse atteignit les oreilles de Liang Yun, Kong Shi et du jeune homme en robe noire.
 
-« Il est interdit aux trois d'entre vous de divulguer la présence du Senior Wang, et ne permettez à personne de répandre cette nouvelle! Si la moindre information fuite, vos trois familles seront anéanties! »
+« Il est interdit aux trois d'entre vous de divulguer la présence du Senior Wang, et ne permettez à personne de répandre cette nouvelle! Si la moindre information fuite, vos neuf clans de parenté seront anéantis! »
 
 Cette voix était celle du Prince Ji Du!
 

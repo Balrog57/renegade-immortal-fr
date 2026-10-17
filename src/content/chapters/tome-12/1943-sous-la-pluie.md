@@ -26,7 +26,7 @@ Sa vision se brouilla et il revit ces centaines d'années de vie. Lui, utilisant
 
 « Grand Céleste Jin Biao, immortel céleste! Voilà qui est bien. À l'avenir, vous crierez tous ainsi. Le nom de ce vieil homme est Liu; désormais, je m'appellerai Liu Jinbiao. Quel nom impérieux! »
 
-« Une fois devenu un céleste, même les poulets et les chiens peuvent s'élever vers les cieux! Haha, j'ai créé cela moi-même. Avec ça, je deviendrai célèbre sur tout le Continent du Grand Sage et je ferai des ravages! »
+« Une fois devenu un céleste, même les poulets et les chiens peuvent s'élever vers les cieux! Haha, j'ai créé cela moi-même. Avec ça, je deviendrai célèbre sur tout le Continent du Grand Sage et je ferai fortune! »
 
 « Ah, il vaut mieux ne pas rester ici trop longtemps. Le mieux est de partir pour le Continent du Grand Sage… »
 
@@ -36,17 +36,17 @@ Sa vision se brouilla et il revit ces centaines d'années de vie. Lui, utilisant
 
 « Hélas, j'ai peut-être été une grande imposture dans ma vie antérieure. Sinon, comment aurais-je pu savoir comment tromper les gens dès que j'ai commencé à comprendre le monde qui m'entourait… »
 
-« Tu ressembles à un voleur et tu ne peux pas être une bonne personne — quel est ton nom? Quoi, tu penses que tu devrais t'appeler Xu Liguo? Quel nom souhaiterais-tu porter? Peu importe, ce céleste va t'aider à calculer ta fortune. Va vers le Continent Central, oui, le Continent Central. C'est là que tu rencontreras ton destin. »
+« Tu ressembles à un voleur et tu ne peux pas être une bonne personne — quel est ton nom? Quoi, tu penses que tu devrais t'appeler Xu Liguo? Un nom, il n'y a pas de « devrait » ou « ne devrait pas »! Peu importe, ce céleste va t'aider à calculer ta fortune. Va vers le Continent Central, oui, le Continent Central. C'est là que tu rencontreras ton destin. »
 
 « C'est la première fois que ce céleste descend dans le monde mortel, mais vos ancêtres étaient vertueux. Peu importe, je vais vivre ici et vous aider. »
 
 « Hmph, hmph, je n'ai que sept ans, mais j'ai déjà trompé presque tout le monde. Il semble que je doive partir pour prospérer ailleurs… »
 
-« Eh, petit frère, ce bonbon est plutôt bon; pourquoi ne pas m'en laisser une bouchée… » Son dernier souvenir remontait à l'âge de quatre ans, lorsqu'il tentait de voler le bonbon d'un enfant de la famille Lin.
+« Eh, petit frère, ce bonbon est plutôt bon; pourquoi ne pas m'en laisser une bouchée… » Son dernier souvenir remontait à l'âge de quatre ans, lorsqu'il tentait de voler le bonbon d'un enfant du voisinage.
 
 Les souvenirs du passé résonnaient dans son esprit. Des grondements tonitruants retentissaient tandis qu'un vortex dévorait ces mémoires. Alors que le fracas devenait plus intense, il vit sa seconde vie.
 
-Il se vit lutter pour cultiver et découvrir lentement le dao de la tromperie. Il trouva un trésor qui le rendait presque invisible, mais finit par le perdre au profit d'un cultivateur nommé Wang Lin...
+Il se vit lutter pour cultiver et découvrir lentement le dao de la tromperie. Grâce à un trésor magique, il réussissait presque partout, mais il finit par échouer face à un cultivateur nommé Wang Lin...
 
 Des années plus tard, il suivit cet homme jusqu'à sa réincarnation.
 
@@ -54,7 +54,7 @@ Il se souvint de son ami Xu Liguo. Bien que Xu Liguo ait fait des choses qui l'a
 
 Les souvenirs des deux vies finirent par se superposer jusqu'à ce que la vision de Liu Jinbiao ne soit plus floue. Il regarda Wang Lin, qui buvait son vin, et des larmes coulèrent sur ses joues.
 
-Tout cela semblait si irréel, comme un simple rêve. Lorsqu'il fermait les yeux, il était toujours dans le monde onirique; lorsqu'il les ouvrait, tout lui paraissait être un rêve inoubliable. Bien qu'il fût désormais éveillé, un sentiment de confusion persistait.
+Tout cela semblait si irréel, comme un simple rêve. Avant de fermer les yeux, il était encore dans le monde des cavernes; en les rouvrant, tout ce qui était dans ce rêve, bien qu'irréel, restait inoubliable. Désormais éveillé, il lui restait un sentiment de confusion.
 
 Cependant, cette confusion se dissipa instantanément lorsqu'il vit Wang Lin.
 
@@ -68,7 +68,7 @@ De sa main tremblante, Liu Jinbiao saisit la cruche et but une grande gorgée. L
 
 Liu Jinbiao regarda la cruche qu'il tenait en murmurant: « J'ai longtemps cru que mon dao de la tromperie avait déjà atteint le sommet de la deuxième étape. Je pouvais instantanément me duper pour croire n'importe quoi. »
 
-« Mais ce rêve qui ne ressemblait pas à un rêve, cette réincarnation, m'ont fait comprendre qu'il s'agissait là du véritable sommet de la deuxième étape de la tromperie… Si j'avais compris cela avant ma réincarnation, je me serais trompé moi-même pour devenir une bonne personne et, même après la réincarnation, je l'aurais continué… » Liu Jinbiao secoua la tête en regardant Wang Lin. L'excitation dans ses yeux s'effaça lentement tandis qu'il s'inclinait devant lui.
+« Mais ce rêve qui ne ressemblait pas à un rêve, cette réincarnation, m'ont fait comprendre qu'il s'agissait là du véritable sommet de la deuxième étape de la tromperie… Si j'avais compris cela avant ma réincarnation, je me serais persuadé d'être un homme bon pendant neuf vies et, même après la réincarnation, j'aurais continué… » Liu Jinbiao secoua la tête en regardant Wang Lin. L'excitation dans ses yeux s'effaça lentement tandis qu'il s'inclinait devant lui.
 
 « Pourquoi me vénérer? » sourit Wang Lin en observant Liu Jinbiao.
 
@@ -110,9 +110,9 @@ Liu Jinbiao et Situ Nan ne se connaissaient pas. Au plus profond de ses souvenir
 
 Accompagné de Liu Jinbiao, Wang Lin vola vers la Secte Dong Lin.
 
-La Secte Dong Lin, première secte du Continent du Grand Sage et l'une des neuf sectes et treize factions. Elle était toujours très mystérieuse, et les étrangers ignoraient rarement à quel point elle était profondément cachée.
+La Secte Dong Lin, première secte du Continent du Grand Sage et l'une des neuf sectes et treize factions. Elle était toujours très mystérieuse, et les étrangers connaissaient rarement ses secrets.
 
-Wang Lin s'était déjà rendu à la Secte Dong Lin dans le monde des cavernes. À cet instant, il approchait de la secte. En observant la terre en dessous, les montagnes de la Secte Dong Lin lui semblèrent vaguement familières.
+Wang Lin s'était déjà rendu à la Secte Dong Lin dans l'illusion du monde des cavernes. À cet instant, il approchait de la secte. En observant la terre en dessous, les montagnes de la Secte Dong Lin lui semblèrent vaguement familières.
 
 L'emplacement de la Secte Dong Lin était très ordinaire et la formation de protection ne put arrêter Wang Lin.
 
@@ -122,7 +122,7 @@ Au pied d'une petite montagne, Wang Lin entendit le murmure d'une rivière et vi
 
 En suivant les sentiers, Wang Lin monta la montagne, suivi par Liu Jinbiao. Des cultivateurs passaient à proximité, mais ils ne remarquèrent pas les deux hommes. C'était comme s'ils n'appartenaient pas au même espace.
 
-Lorsque Wang Lin atteignit le sommet de la montagne, des nuages sombres envahirent le ciel et la pluie commença à tomber. Les précipitations s'abattirent sur le toit du temple qui se dressait devant lui.
+Lorsque Wang Lin atteignit le sommet de la montagne, des nuages sombres envahirent le ciel et la pluie commença à tomber. Les précipitations s'abattirent devant lui, sur les dalles de pierre verte à l'extérieur du grand hall.
 
 La pluie créa des ondulations sur les dalles de pierre verte tandis que l'eau éclaboussait le sol. Une vapeur sembla s'élever, avant de se dissiper dans l'air.
 

@@ -34,7 +34,7 @@ Il n'avait nul besoin de ses yeux ni de son Sens Divin. Il scella sa vision et s
 
 Il progressait étape par étape, et au neuvième pas, il entendit le chant des oiseaux autour de lui. Une douce lumière semblait percer ses paupières.
 
-Il huma le parfum de la terre, ainsi que cette aura et cette odeur familières: l'arôme du bois et la saveur épicée du tabac.
+Il huma le parfum de la terre après la pluie, ainsi que cette aura et cette odeur familières: l'arôme du bois et la saveur épicée du tabac.
 
 Ses pas s'arrêtèrent.
 
@@ -50,7 +50,7 @@ Wang Lin resta là, silencieux, écoutant les voix de ses parents. Des larmes co
 
 Pourtant, Wang Lin savait simultanément que s'il ouvrait les yeux, il s'arrêterait sur le troisième Pont du Piétinement du Ciel.
 
-Le premier pont fusionnait la loi du monde avec l'âme originelle. Le deuxième permettait d'apercevoir le piétinement du ciel tout en questionnant la force de son cœur... Wang Lin n'avait pas compris la portée de la question posée à la fin du second pont au début, mais il la comprenait désormais.
+Le premier pont fusionnait la loi du monde avec le Sens Divin. Le deuxième permettait d'apercevoir le piétinement du ciel tout en questionnant la force de son cœur... Wang Lin n'avait pas compris la portée de la question posée à la fin du second pont au début, mais il la comprenait désormais.
 
 Ce troisième pont était probablement l'épreuve des démons intérieurs. Si le cœur est déterminé et que la vie peut s'écouler tandis que l'esprit reste serein, alors l'on peut franchir ce pont.
 
@@ -82,11 +82,11 @@ Son père et sa mère n'étaient pas des cultivateurs, et les mortels ne peuvent
 
 « La famille, l'amour et l'amitié sont les piliers de ma vie. Pourquoi devrais-je fermer les yeux? Je veux garder les yeux ouverts et tout embrasser. J'ouvrirai mon cœur de Dao pour accueillir la totalité de mon existence! » Wang Lin prit une profonde inspiration et reprit sa marche.
 
-Après neuf pas, il revit ses parents; après neuf autres pas, il vit Mu Bingmei, Li Qianmei et Li Muwan. Après encore neuf pas, il vit Wang Ping. Il vit l'enfant pauvre tirer sur ses vêtements et lui demander avec sérieux de se mettre à la culture. L'enfant voulait accompagner son père toute sa vie, refusant de quitter ce monde et de le laisser seul. Si son père devait rester seul, il souhaitait que sa présence puisse subsister à ses côtés.
+Après neuf pas, il revit ses parents; après neuf autres pas, il vit Mu Bingmei, Li Qianmei et Li Muwan. Après encore neuf pas, il vit Wang Ping. Il vit ce pauvre enfant lui prendre la main et lui dire, avec obstination mais sérieux, qu'il cultivait pour accompagner son père toute sa vie. Il ne voulait pas que ce monde ne garde que le dos solitaire de son père; s'il fallait vraiment rester seul, il espérait qu'à côté de ce dos, sa présence subsisterait.
 
 Wang Lin vit Situ Nan, Qing Shui, Dun Tian, le vieil Oiseau Vermillon et tant d'autres qui l'avaient aidé. Il les regarda les yeux grands ouverts et continua d'avancer.
 
-Da Tou, Papillon Rouge, Qing Shuang, Zhou Ru, Qing Lin... et bien d'autres encore. Wang Lin semblait revivre toute son existence à mesure que ces visages apparaissaient.
+Da Tou, Papillon Rouge, Qing Shuang, Zhou Yi, Qing Lin... et bien d'autres encore. Wang Lin semblait revivre toute son existence à mesure que ces visages apparaissaient.
 
 Tout au long de ce chemin, Wang Lin ne chercha pas à contrôler ses émotions. Il pleura, sourit, ressentit la douleur et la tristesse... Il continua ainsi pendant longtemps. Il ne sut quand il franchit le troisième pont, mais lorsqu'il atteignit son extrémité, tout disparut. Il resta là un instant et soupira. Il regarda longuement en arrière avant de quitter le troisième pont.
 
@@ -100,12 +100,12 @@ Wang Lin observa ce pont et, après une courte réflexion, leva le pied. Cependa
 
 Simultanément, le quatrième pont trembla soudainement devant lui et se fragmenta en d'innombrables éclats de lumière. Ces particules se précipitèrent vers lui, formant un vortex gigantesque qui engloutit la silhouette de Wang Lin.
 
-Au moment où il fut dévoré, dans la chambre secrète du palais du Prince Ji Du, Wang Lin ouvrit brusquement les yeux.
+Au moment où il fut dévoré, sur la terre du clan Ancien du Continent Astral Immortel, dans le pays de Luo Hou, l'un des douze pays de la lignée Shi Antique, dans la chambre secrète du palais du Prince Ji Du, Wang Lin ouvrit brusquement les yeux.
 
 Ses yeux restèrent empreints d'une profonde confusion pendant un long moment. Son corps véritable d'essence de meurtre s'était totalement intégré à son propre corps; il n'y avait plus d'ombre superposée.
 
-Les essences éthérées flottaient devant lui, et l'âme de l'Empereur Céleste était toujours entourée par son feu d'âme. La chambre secrète était plongée dans le silence.
+Derrière lui flottait une sphère de lumière de l'origine du vide, et devant lui, l'âme de l'Empereur Céleste était toujours enveloppée et raffinée par son feu d'âme. La chambre secrète était plongée dans le silence.
 
 Seul le souffle légèrement saccadé de Wang Lin résonnait doucement.
 
-« Piétiner la voie céleste, Dao de l'Extinction du Vide, Âme Immortelle, adoré par tous... Je n'ai franchi que trois des neuf ponts du Piétinement du Ciel avant de m'arrêter... » Wang Lin prit une profonde inspiration et leva les yeux. La confusion qui habitait son regard se dissipa, remplacée par une détermination farouche.
+« Piétiner la voie céleste, Dao de l'Extinction du Vide, Âme Immortelle, adoré par tous... Je n'ai franchi que trois des neuf ponts du Piétinement du Ciel et je me suis arrêté au quatrième... » Wang Lin prit une profonde inspiration et leva les yeux. La confusion qui habitait son regard se dissipa, remplacée par une détermination farouche.

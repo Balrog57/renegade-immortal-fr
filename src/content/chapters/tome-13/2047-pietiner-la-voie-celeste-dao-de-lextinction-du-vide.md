@@ -6,13 +6,13 @@ bookTitle: Light of the coming end
 en: "Chapter 2047 - Trample the Heavenly Path, Void Extinction Dao!"
 slug: pietiner-la-voie-celeste-dao-de-lextinction-du-vide
 ---
-Sur le Continent Luo Huo, après qu'une partie de l'âme de Luo Huo fut dévorée par Wang Lin, le Prince Ji Du cracha une importante bouffée de sang à l'intérieur de la salle.
+Dans le pays de Luo Hou, après que la grande âme néfaste de Luo Hou eut été dévorée et absorbée par Wang Lin pour fusionner l'âme de massacre, le Prince Ji Du cracha une importante bouffée de sang à l'intérieur de la salle.
 
 Dès cet acte, un sceau invisible au sein de son corps s'effondra et se brisa.
 
 Les yeux du Prince Ji Du brillèrent d'une lueur étrange tandis qu'il sentait une puissance s'éveiller en lui. Cette force envahit tout son être, le contraignant à fermer les yeux.
 
-À l'extérieur du temple, Wang Lin, aux cheveux noirs, détourna son regard de la Montagne d'Origine. Son regard était d'une froideur et d'une cruauté extrêmes.
+À l'extérieur de la salle, Wang Lin, aux cheveux noirs, détourna son regard de la Montagne de l'Origine. Son regard était d'une froideur et d'une cruauté extrêmes.
 
 À ses côtés se tenait son corps véritable des cinq éléments.
 
@@ -30,9 +30,9 @@ Dans la chambre secrète, Wang Lin s'assit. Les deux corps véritables se tenaie
 
 « Cent ans de culture pour enfin former ce corps d'essence de massacre... Je me demande si mon niveau de culture franchira le pic du Tribulant du Vide après sa fusion avec mon corps originel! »
 
-« Si ma culture peut encore augmenter, je pourrai peut-être expulser totalement la malédiction ancestrale dans l'âme de l'Empereur Céleste et en prendre le contrôle! » Wang Lin prit une profonde inspiration et détacha son regard de ses corps véritables. Il fixa l'âme qui brûlait sous son feu d'âme au centre de la pièce. Au cours de ces cent années de raffinage, la grisaille de la décomposition s'était condensée jusqu'à la taille d'un poing de nourrisson, mais elle ne pouvait être totalement expulsée.
+« Si ma culture peut encore augmenter, je pourrai peut-être expulser totalement la puissance de malédiction dans l'âme véritable de l'Empereur Céleste et en prendre le contrôle! » Wang Lin prit une profonde inspiration et détacha son regard de ses corps véritables. Il fixa l'âme qui brûlait sous son feu d'âme au centre de la pièce. Au cours de ces cent années de raffinage, la grisaille de la décomposition s'était condensée jusqu'à la taille d'un poing de nourrisson, mais elle ne pouvait être totalement expulsée.
 
-« Mon chemin de culture est radicalement différent de celui des autres. Après le pic du Tribulant du Vide, il y a les Exaltés Célestes et les Empyréens Ascendants. Mais ces titres n'ont été ajoutés que par autrui; en réalité, les deux font partie du pic du Tribulant du Vide. Et chaque fois que mon niveau augmente, cela repose sur la division des royaumes... » Wang Lin fut soudainement envahi par l'anticipation. Il voulait savoir quel serait son niveau après avoir franchi le pic du Tribulant du Vide.
+« Mon chemin de culture est radicalement différent de celui des autres. Après le pic du Tribulant du Vide, il y a les Exaltés Empyréens et les Ascendants Empyréens. Mais ces titres n'ont été ajoutés que par autrui; en réalité, les deux font partie du pic du Tribulant du Vide. Et chaque fois que mon niveau augmente, cela repose sur la division des royaumes... » Wang Lin fut soudainement envahi par l'anticipation. Il voulait savoir quel serait son niveau après avoir franchi le pic du Tribulant du Vide.
 
 Ses yeux pétillèrent d'excitation tandis qu'il murmurait: « Grand Empyréen... Ou serait-ce... »
 
@@ -46,11 +46,11 @@ En un clin d'œil, le corps d'essence de massacre atteignit Wang Lin. Il ne s'ar
 
 Au fil de la fusion, la confusion s'installa dans les yeux de Wang Lin. Simultanément, son niveau de culture grimpa à une vitesse indescriptible et le monde changea de couleur. Sa culture semblait avoir brisé un goulot d'étranglement pour gravir rapidement vers un royaume mystérieux.
 
-Durant ce processus, son niveau dépassa instantanément le stade de l'Exalté Céleste pour atteindre bientôt celui de l'Empyréen Ascendant.
+Durant ce processus, son niveau dépassa instantanément le stade de l'Exalté Empyréen pour atteindre bientôt celui de l'Ascendant Empyréen.
 
 La progression ne montrait aucun signe d'arrêt. Les yeux de Wang Lin devinrent encore plus confus, comme s'il allait perdre la raison. Tout lui semblait n'être qu'une illusion.
 
-Alors que sa culture continuait de croître, elle dépassa l'Empyréen Ascendant pour franchir une autre frontière: celle d'un Grand Empyréen!
+Alors que sa culture continuait de croître, elle dépassa l'Ascendant Empyréen pour franchir une autre frontière: celle d'un Grand Empyréen!
 
 Après un temps indéterminé, le corps d'essence de massacre et Wang Lin étaient presque totalement fusionnés, malgré un léger chevauchement. On aurait dit qu'ils allaient devenir un seul être. Les yeux de Wang Lin libérèrent une lueur argentée, empreinte de confusion.
 
@@ -78,9 +78,9 @@ Après celui-ci, un autre ressemblait à un arc-en-ciel, puis... un autre encore
 
 Au-delà du neuvième pont, une image illusoire évoquant un autre monde se dessinait au loin; il pouvait vaguement y distinguer quelques silhouettes. Cependant, en regardant de plus près, tout restait flou et indistinct.
 
-« Le Pont du Piétinement Céleste! » murmura Wang Lin. Il aperçut alors une immense stèle de pierre devant le premier pont. Trois grands caractères y étaient gravés. Ces mots étaient étranges; Wang Lin ne les avait jamais vus, mais dès qu'il posa les yeux dessus, leur sens s'imposa à son esprit.
+« Le Pont du Piétinement Céleste! » murmura Wang Lin. Il aperçut alors une immense stèle de pierre devant le premier pont. Quatre grands caractères y étaient gravés. Ces mots étaient étranges; Wang Lin ne les avait jamais vus, mais dès qu'il posa les yeux dessus, leur sens s'imposa à son esprit.
 
-Sur la stèle, en plus de ces trois mots, figurait une ligne de caractères plus petits. Wang Lin les lut silencieusement.
+Sur la stèle, en plus de ces quatre mots, figurait une ligne de caractères plus petits. Wang Lin les lut silencieusement.
 
 « Piétiner la Voie Céleste, Dao de l'Extinction du Vide, Âme Immortelle, Adorée par tous! »
 

@@ -52,7 +52,7 @@ Les yeux de Xuan Luo brillèrent tandis qu'il observait Wang Lin, qui lui rendit
 
 « Il n'abandonnera pas son amante, même s'ils doivent mourir ensemble, et il ne le regrettera pas! »
 
-« Un être aussi noble et sentimental... Si je ne l'abandonne pas, il fera tout ce qui est en son pouvoir pour protéger mon Clan du Dao Antique pour l'éternité une fois que nous lui aurons témoigné notre gratitude! » Une lueur mystérieuse traversa le regard de Xuan Luo, et il prit sa décision.
+« Un être aussi noble et sentimental... Si mon Clan du Dao Antique ne l'abandonne pas et lui témoigne toujours sa bienveillance, il pourra certainement protéger mon Clan du Dao Antique sans amertume ni regret, pour l'éternité! » Une lueur mystérieuse traversa le regard de Xuan Luo, et il prit sa décision.
 
 Wang Lin fixa profondément Xuan Luo et s'inclina une troisième fois. Il se détourna et partit. Le Maître du Dao Rêve Bleu le suivit tout en restant plongé dans ses pensées.
 
@@ -94,7 +94,7 @@ En observant l'âme de Yun Na prisonnière des glaces, Wang Lin comprit. Lorsqu'
 
 Il n'y avait rien d'anormal à cela; après tout, séparer l'âme du corps était une opération cruciale. Elle devait être prudente.
 
-Wang Lin respecterait sa promesse et ne s'attarda pas sur ce point. Devant la faille, il cracha une bouffée d'Énergie du Dao Antique sur la glace.
+Wang Lin respecterait sa promesse et ne s'attarda pas sur ce point. Devant la faille, il cracha une bouffée d'Énergie du Dao Antique fusionnée avec son essence sur la glace.
 
 Bien que son souffle fût invisible, dès qu'il toucha la glace, des craquements retentirent. Une multitude de fissures apparurent et la glace s'effondra strate après strate.
 
@@ -104,7 +104,7 @@ Elle contempla le système stellaire d'un regard serein. Ses yeux n'étaient pas
 
 « Merci de ton aide. »
 
-Le regard de Wang Lin se posa sur l'âme de Yun Na et il dit: « C'est ma promesse envers toi. Considère cela comme un échange pour ton aide passée. Cependant, à toi de décider si tu souhaites simplement partir vivre dans le monde des grottes ou rejoindre le Continent Astral Immortel! C'est là que se trouve la véritable Secte Dong Lin et la patrie de ton Maître, le Souverain Céleste aux Sept Couleurs. »
+Le regard de Wang Lin se posa sur l'âme de Yun Na et il dit: « C'est ma promesse envers toi. C'est aussi l'échange pour cette goutte de sang. Cependant, à toi de décider si tu souhaites simplement partir vivre dans le monde des grottes ou rejoindre le Continent Astral Immortel! C'est là que se trouve la véritable Secte Dong Lin et la patrie de ton Maître, le Souverain Céleste aux Sept Couleurs. »
 
 « Si tu veux rester ici, alors va-t'en... Mais si tu veux aller sur le Continent Astral Immortel, tu devras subir l'épreuve amère d'une réincarnation de mille ans! »
 
@@ -122,7 +122,7 @@ Tout l'espace du monde des grottes était familier à Wang Lin. Il ne se pressai
 
 Wang Lin avait fait la même promesse à une autre personne. Elle se trouvait dans les profondeurs de la Mer des Nuages, et son nom était Fan Shanlu.
 
-Cette Fan Shanlu était une femme pitoyable. Elle était la première concubine du Souverain Céleste et la sœur cadette de Fan Shanmen. Cependant, elle était restée trop longtemps dans le monde des grottes et s'était retrouvée piégée dans l'illusion de sa sœur aînée afin d'obtenir le Sang du Serment de Wang Lin.
+Cette Fan Shanlu était une femme pitoyable. Elle était la première concubine du Souverain Céleste et la sœur cadette de Fan Shanmeng. Cependant, elle était restée trop longtemps dans le monde des grottes et avait fini par être entraînée dans l'illusion par sa sœur aînée, qui voulait ainsi obtenir le Sang du Serment de Wang Lin.
 
 « Elle est originaire du Continent Astral Immortel, elle n'a donc pas besoin de se réincarner pour partir... » Wang Lin avança et traversa Luotian pour pénétrer dans la Mer des Nuages. Il s'enfonça dans les profondeurs de la faille où se trouvait Fan Shanlu.
 

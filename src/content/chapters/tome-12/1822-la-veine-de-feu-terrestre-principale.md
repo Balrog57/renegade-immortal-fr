@@ -8,7 +8,7 @@ slug: la-veine-de-feu-terrestre-principale
 ---
 Fan Shanlu ne rencontra aucun obstacle sur son chemin vers la grotte située sous la montagne. Même lorsqu'elle passait devant les grottes des autres, ceux-ci remarquaient sa présence mais ne s'en souciaient plus.
 
-Ils pensaient qu'un étranger ne pourrait pas pénétrer ici sous l'œil de leur Maître. Fan Shanlu était également une disciple centrale, et sa sœur aînée avait attiré l'attention de leur Maître; il semblait que celui-ci allait faire d'elle son héritière.
+Ils pensaient qu'un étranger ne pourrait pas pénétrer ici sous l'œil de leur Maître. Fan Shanlu était également une disciple centrale, et sa sœur aînée avait attiré l'attention de leur Maître; il semblait que celle-ci allait faire d'elle son héritière.
 
 Par conséquent, les autres membres de la secte ne causeraient aucun problème à Fan Shanlu. Elle arriva sans encombre à la grotte au fond et s'arrêta devant une pièce de pierre.
 
@@ -16,7 +16,7 @@ La porte de cette chambre était rouge et dégageait une chaleur infinie. Un cul
 
 Pour être plus précis, cette chambre de pierre était située au cœur même de la veine de feu terrestre principale. Cultiver à l'intérieur revenait à cultiver directement au sein de la veine elle-même.
 
-Cet endroit n'était pas destiné uniquement à la culture de l'essence du feu. Sous la volonté de la veine de feu, en plus de l'essence de l'eau, toutes les autres essences éthérées pouvaient être cultivées ici.
+Cet endroit n'était pas destiné uniquement à la culture de l'essence du feu. Sous la volonté de la veine de feu, à l'exception de l'essence de l'eau, toutes les autres essences éthérées et tangibles pouvaient être cultivées ici.
 
 La clé résidait dans la pression générée par le feu local, laquelle produisait un effet similaire à une distorsion temporelle. En raison de cette pression, une journée passée ici équivalait à plusieurs jours à l'extérieur.
 
@@ -28,7 +28,7 @@ Peu après, une mer de feu jaillit de l'ouverture, se transformant en un dragon 
 
 Les yeux de la jeune femme s'illuminèrent. Alors que le dragon de feu fonçait sur elle, elle prononça doucement un son étrange.
 
-« Zhou! »
+« Zhuo! »
 
 Dès que ce son retentit, le dragon de feu trembla et se désintégra en une multitude d'étincelles devant Fan Shanlu. Sans plus hésiter, elle franchit le seuil. Une fois qu'elle fut entrée, la porte se referma lentement.
 
@@ -58,11 +58,11 @@ En observant la chambre, on s'apercevrait qu'elle n'était pas carrée, et ce n'
 
 « Tous les dix pieds marquent un nouveau niveau, et il y a au total trois cent soixante-dix pieds. Vous pourrez trouver l'endroit idéal pour vos besoins. » En un instant, Fan Shanlu fut presque trempée de sueur et s'assit près de la porte.
 
-« Vous pourrez partir dans trois jours. Je resterai probablement un peu plus longtemps ici. Si vous partez, cela ne vous affectera pas trop si je provoque des changements. » Wang Lin joignit les mains en signe de respect envers Fan Shanlu, puis s'enfonça dans la pièce.
+« Vous pourrez partir dans trois jours. Je resterai probablement un peu plus longtemps ici. De cette façon, même si je provoque des changements, cela ne vous affectera pas trop. » Wang Lin joignit les mains en signe de respect envers Fan Shanlu, puis s'enfonça dans la pièce.
 
 En un éclair, il parcourut plus de deux cents pieds. À l'instant où il se stabilisa, une immense vague de feu l'entoura, mais il l'absorba immédiatement.
 
-D'un autre pas, Wang Lin atteignit les trois cent soixante-dix pieds de profondeur. C'était la partie la plus reculée de la grotte. Il s'assit et n'hésita pas une seconde à presser sa main contre le sol!
+D'un autre pas, Wang Lin atteignit les trois cent soixante-dix pieds de profondeur. C'était la partie la plus reculée de la grotte. Il s'assit, forma un sceau des deux mains et n'hésita pas une seconde à les presser contre le sol de part et d'autre!
 
 À cet instant, il se trouvait au cœur de la veine de feu principale pour dévorer son essence et sa volonté! Et accomplir cela parmi les puissances de la Secte de la Grande Âme revenait à tenter d'arracher une dent à un tigre!
 
@@ -98,15 +98,15 @@ Mais ce n'était pas le corps réel de Wang Lin, c'était son corps d'essence. A
 
 Ce changement galvanisa Wang Lin.
 
-« Je dois suivre cette volonté jusqu'à la tête de l'âme de cette veine de feu principale. Si j'absorbe la volonté qui s'y trouve, mon corps d'essence sera complet! » Sachant que le temps pressait, Wang Lin n'hésita pas. Il suivit la veine de feu dans les profondeurs de la terre.
+« Je dois suivre cette volonté jusqu'à la tête de l'âme du dragon de cette veine de feu principale. Si j'absorbe la volonté qui s'y trouve, mon corps d'essence sera complet! » Sachant que le temps pressait, Wang Lin n'hésita pas. Il suivit la veine de feu dans les profondeurs de la terre.
 
-Il allait trouver l'âme primordiale de la veine de feu! Il devait achever la formation de son corps d'essence avant que les puissances de la Secte de la Grande Âme ne le découvrent, faute de quoi tout serait perdu.
+Il allait trouver la tête de l'âme du dragon de la veine de feu principale! Il devait achever la formation de son corps d'essence avant que les puissances de la Secte de la Grande Âme ne le découvrent, faute de quoi tout serait perdu.
 
 En un éclair, trois jours passèrent. Fan Shanlu ouvrit les yeux. Elle ne percevait plus la présence de Wang Lin. Après une réflexion, elle se leva et quitta la chambre de pierre.
 
 Après le départ de Fan Shanlu, personne ne vint dans la pièce ni ne remarqua l'existence de Wang Lin, mais ce n'était que temporaire! Le Sens Divin de Wang Lin descendait dans les entrailles du monde tout en bravant la pression incessante de la volonté de feu. Il chargeait vers la source de cette volonté — la tête de la veine de feu — comme s'il faisait la course contre le temps!
 
-Trois autres jours s'écoulèrent. Au crépuscule du troisième jour, Wang Lin avait descendu une distance incalculable sous terre. Il pouvait désormais voir l'âme primordiale de la veine de feu!
+Trois autres jours s'écoulèrent. Au crépuscule du troisième jour, Wang Lin avait descendu une distance incalculable sous terre. Il pouvait désormais voir la tête de l'âme du dragon de la veine de feu!
 
 Cette tête mesurait des centaines de milliers de pieds de large. Elle paraissait millénaire, et même son souffle était imprégné de décomposition. Le corps d'essence de Wang Lin chargea en avant et pénétra dans la tête du dragon.
 

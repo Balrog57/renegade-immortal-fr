@@ -36,13 +36,13 @@ Une sensation de froid sembla émaner du corps de Wang Lin. Cette aura glaciale 
 
 Le choc et l'horreur dans ses yeux se muèrent en une peur profonde. À cet instant, Wang Lin devint infiniment plus mystérieux et terrifiant aux yeux de Du Qing.
 
-Du Qing réprima le choc dans son cœur et dit calmement: « Rien... La plupart des disciples sont rentrés, ils ont trouvé beaucoup de veines secondaires et de sous-veines... Certaines veines scellées ont également été ramenées... »
+Du Qing réprima le choc dans son cœur et dit calmement: « Rien... La plupart des disciples sont rentrés, ils ont trouvé beaucoup de veines secondaires et de sous-veines... Certaines âmes de ramifications scellées ont également été récupérées... »
 
 Wang Lin lança un regard désinvolte à Du Qing. Sous ce regard, Du Qing baissa inconsciemment la tête.
 
 « Amenez-les à la grotte », dit lentement Wang Lin en faisant un pas en avant pour s'envoler vers la caverne.
 
-Ce n'est qu'une fois Wang Lin parti que Du Qing se détendit. Cependant, le fait que Wang Lin soit revenu en volant fit resurgir le doute dans son cœur.
+Ce n'est qu'une fois Wang Lin parti que Du Qing se détendit. Cependant, le fait que Wang Lin soit reparti sous la forme d'un rayon de lumière fit resurgir le doute dans son cœur.
 
 « Absolument impossible! Il ne devrait pas avoir fusionné avec le monde; sinon, il serait parti en un éclair... Son aura avait disparu auparavant, il a donc dû se téléporter. Oui, c'est une téléportation. Après tant d'échecs, il a dû faire cela pour sauver la face... » Plus Du Qing y pensait, plus cela lui semblait logique. Il se trouva même ridicule d'avoir eu peur ainsi.
 
@@ -72,7 +72,7 @@ Simultanément, la puissante pression se délesta comme de la glace qui fond. D'
 
 Tout cela était dû à son avatar!
 
-Au moment où son sens divin fusionna avec le monde, son corps disparut pour se fondre dans l'environnement. Il ressentit alors la même sensation qu'au moment où il utilisait la Déformation Spatiale dans le monde de la grotte; une sensation qu'il n'avait pas éprouvée depuis longtemps.
+Au moment où son sens divin fusionna avec le monde, son corps disparut pour se fondre dans l'environnement. Il ressentit alors la même sensation qu'au moment où il utilisait la Déformation Spatiale dans le monde des grottes; une sensation qu'il n'avait pas éprouvée depuis longtemps.
 
 D'une simple pensée, il apparut sur la Montagne Céleste de ce continent et vit la neige verte tomber. La première fois qu'il avait utilisé la Déformation Spatiale ici, il l'avait fait sans direction précise, se retrouvant n'importe où par hasard.
 
@@ -82,13 +82,13 @@ Il ne lui fallut que la moitié du temps de brûler un bâton d'encens pour fair
 
 « L'avatar n'a grandi que quelques jours et il apporte déjà un tel renforcement... Avec plus de temps, mon avatar deviendra le corps le plus puissant! » Wang Lin l'avait compris depuis longtemps.
 
-« Il est temps d'aller à la Secte de la Grande Âme pour absorber la veine principale de terre-feu. Avant cela, je dois absorber le reste des veines secondaires pour voir quelle part du corps véritable d'essence de feu je peux former. » Wang Lin savait que plus l'objectif était ambitieux, plus la tâche serait ardue.
+« Il est temps d'aller à la Secte de la Grande Âme pour absorber la veine principale de feu terrestre. Avant cela, je dois absorber le reste des veines secondaires pour voir quelle part du corps véritable d'essence de feu je peux former. » Wang Lin savait que plus l'objectif était ambitieux, plus la tâche serait ardue.
 
 Pour former la tête, l'essence de feu ne suffisait pas. Ce dont il avait le plus besoin était la volonté du feu.
 
-Une demi-heure plus tard, Du Qing vint le saluer, apportant certaines des veines de terre-feu extraites par les disciples, ainsi qu'une carte. Il s'agissait d'une carte complète du continent du Taureau Céleste, sur laquelle les veines secondaires étaient marquées.
+Une demi-heure plus tard, Du Qing vint le saluer, apportant certaines des âmes de feu terrestre récupérées par les disciples, ainsi qu'une carte. Il s'agissait d'une carte complète du continent du Taureau Céleste, sur laquelle les veines secondaires étaient marquées.
 
-Wang Lin ne prit pas la peine de feindre la politesse et absorba directement ces veines de terre-feu. Cependant, elles contenaient peu de volonté de feu, ce qui n'aidait que très peu à la formation de son corps véritable d'essence de feu.
+Wang Lin ne prit pas la peine de feindre la politesse et absorba directement ces âmes de feu terrestre. Cependant, elles contenaient peu de volonté de feu, ce qui n'aidait que très peu à la formation de son corps véritable d'essence de feu.
 
 La carte, en revanche, s'avéra très utile. Après avoir récupéré le jade, Wang Lin prit congé de Du Qing. Ce dernier comprit les intentions de Wang Lin; il ne pouvait participer à cette entreprise, mais il n'en rapporterait pas non plus l'existence. Après tout, il espérait encore gagner ses faveurs.
 
@@ -98,19 +98,19 @@ Le cœur de Du Qing trembla en voyant Wang Lin s'évanouir, et après un long mo
 
 « Je me souviendrai de l'aide du Compagnon Cultivateur Du. Si l'occasion se présente, je vous rembourserai. » Après le départ de Wang Lin, ses paroles résonnèrent encore dans les oreilles de Du Qing.
 
-Le septième jour suivant le départ de Wang Lin, les veines secondaires de terre-feu à travers tout le continent du Taureau Céleste s'effondrèrent, et une explosion de feu déferla sur le continent. L'air lui-même devint brûlant, et la simple respiration suffisait à rendre irritable.
+Le septième jour suivant le départ de Wang Lin, les veines secondaires de feu terrestre à travers tout le continent du Taureau Céleste s'effondrèrent, et une explosion de feu déferla sur le continent. L'air lui-même devint brûlant, et la simple respiration suffisait à rendre irritable.
 
 Comme ce phénomène se produisit en de nombreux endroits du continent, il attira l'attention des diverses sectes. Elles envoyèrent de nombreux disciples, et parfois même des Anciens pour inspecter les lieux, mais ils ne trouvèrent aucune trace. Lorsqu'ils arrivaient, ils ne voyaient plus que des veines desséchées.
 
 Une demi-lune plus tard, à la montagne entourée d'un brouillard noir où se trouvait autrefois la Secte des Sept Dao, Wang Lin sortit de la montagne, l'air pensif.
 
-Il devait venir ici. Ici, il pouvait ressentir l'aura du monde caverneux et les années d'attente de Xuan Luo.
+Il devait venir ici. Ici, il pouvait ressentir l'aura du monde des grottes et les années d'attente de Xuan Luo.
 
 Wang Lin émergea du brouillard noir et jeta un regard vers la montagne intérieure. Il réfléchit un instant avant de pousser un soupir et de reprendre sa route.
 
 « Situ, Qing Shui, Li Qianmei, et tous ceux qui se sont réincarnés... Où êtes-vous tous maintenant...? » Wang Lin tourna le dos pour partir, son allure dégageant une profonde solitude.
 
-Un jour plus tard, dans la partie orientale du continent du Taureau Céleste, sur la Montagne Céleste où se trouvait la Secte de la Grande Âme, un jeune homme aux cheveux blancs se tenait au sommet du ciel alors que la neige verte tombait. Il pouvait voir l'autre versant de la montagne à travers les flocons.
+Un jour plus tard, à l'extrême ouest du continent du Taureau Céleste, sur la Montagne Céleste où se trouvait la Secte de la Grande Âme, un jeune homme vêtu de blanc aux cheveux blancs se tenait au sommet de la montagne alors que la neige verte tombait. Il pouvait voir l'autre versant de la montagne à travers les flocons.
 
 Depuis cet endroit, le jeune homme pouvait vaguement apercevoir l'immensité de la chaîne de montagnes, et au sein de celle-ci, une montagne rouge perçait les nuages au loin.
 

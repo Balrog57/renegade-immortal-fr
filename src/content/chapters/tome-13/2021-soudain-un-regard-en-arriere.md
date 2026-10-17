@@ -24,7 +24,7 @@ Des murmures s'élevèrent parmi la foule alors que Wang Lin passait devant des 
 
 Parmi les quatre derniers sièges restants, un se trouvait devant avec trois derrière lui. Alors que Wang Lin s'avançait vers les 18 Rois, sept d'entre eux se levèrent et joignirent les mains en signe de respect envers lui.
 
-À la vue de cela, les cent mille personnes entrèrent en émoi, et les discussions devinrent plus vives qu'au moment de l'entrée des 18 Rois et des neuf Généraux Immortels.
+À la vue de cela, les près de dix mille personnes entrèrent en émoi, et les discussions devinrent plus vives qu'au moment de l'entrée des 18 Rois et des neuf Généraux Immortels.
 
 Wang Lin marqua une pause et sourit aux sept personnes qui s'étaient inclinées devant lui. Puis, il se dirigea vers les neuf Généraux Immortels enveloppés d'auras noires.
 
@@ -34,11 +34,11 @@ Mais juste au moment où il allait se lever, le regard glacial de Wang Lin se po
 
 Bien que cela n'ait duré qu'un instant, cela fit trembler l'homme qui s'apprêtait à se lever. Sous le choc, il fut incapable de se redresser. Ses yeux se remplirent de terreur et il se rassoit brusquement.
 
-À cet instant, son esprit était en plein tumulte et une sueur froide inondait son corps. Le regard de Wang Lin lui avait donné l'impression d'être piégé dans un massacre, tué par Wang Lin des centaines de milliers de fois. C'était comme s'il était entré dans une illusion où il subissait une mort perpétuelle.
+À cet instant, son esprit était en plein tumulte et une sueur froide inondait son corps. Le regard de Wang Lin lui avait donné l'impression d'être piégé dans un massacre, tué par Wang Lin des centaines, voire des milliers de fois. C'était comme s'il était entré dans une illusion où il subissait une mort perpétuelle.
 
 Il n'avait jamais éprouvé un tel sentiment auparavant. Ce regard semblait s'être précipité dans son corps, broyant ses organes internes, écorchant ses os et sa chair, puis dévorant son âme. Son rythme cardiaque s'accéléra violemment, comme s'il allait lâcher.
 
-Au moment où il se rassit, Wang Lin toucha le sol et arriva devant la table la plus avancée de cette disposition en éventail. Il observa les centaines de plateformes volantes et les centaines de milliers de personnes sur la place avant d'agiter sa manche et de s'asseoir calmement.
+Au moment où il se rassit, Wang Lin toucha le sol et arriva devant la table la plus avancée de cette disposition en éventail. Il observa les centaines de plateformes volantes et les milliers de personnes sur la place avant d'agiter sa manche et de s'asseoir calmement.
 
 Dès qu'il prit place, un immense tumulte éclata sur toute la place.
 
@@ -124,7 +124,7 @@ Parmi ces nombreux regards, l'un d'eux provenait du Prince Ji Du. Il réprimait 
 
 Il agita sa manche et sortit la boîte que Xuan Luo lui avait confiée. Il la lança en avant, et elle fut rattrapée par une ombre apparue devant l'Empereur de l'Ancien Dao. L'ombre remit respectueusement la boîte à l'Empereur.
 
-« Wang Lin, je te déclare gardien de mon Ancien Dao! Puisque tu as des affaires importantes, tu peux partir. J'espère que tu pourras assister à la grande cérémonie demain. » L'Empereur de l'Ancien Dao regarda Wang Lin d'un air profond et sourit. Il semblait ne pas se soucier de ce qui venait de se passer et détourna le regard.
+« Wang Lin, je te déclare gardien des princes de mon Ancien Dao! Puisque tu as des affaires importantes, tu peux partir. J'espère que tu pourras assister à la grande cérémonie demain. » L'Empereur de l'Ancien Dao regarda Wang Lin d'un air profond et sourit. Il semblait ne pas se soucier de ce qui venait de se passer et détourna le regard.
 
 Puis, l'Empereur de l'Ancien Dao déclara: « Faites entrer l'Impératrice! »
 

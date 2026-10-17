@@ -12,7 +12,7 @@ Wang Lin vola rapidement. Toutes les restrictions qui se dressaient devant lui r
 
 « C’est le Junior Wang Lin. Le Senior Taureau Vert est-il présent? »
 
-La Montagne du Ciel Vert trembla et toutes les restrictions environnantes disparurent. Une voix ancienne s'éleva de la montagne:
+Le Pic du Ciel Vert trembla et toutes les restrictions environnantes disparurent. Une voix ancienne s'éleva de la montagne:
 
 « Au sommet. Je t'attendrai ici. »
 
@@ -32,7 +32,7 @@ En entendant cela, l'Estimé Taureau Vert rit. Il ne semblait nullement embarras
 
 « Haha! Quoi qu'il en soit, ce vieil homme n'a jamais entendu parler de quiconque au sein de la Secte de la Grande Âme ayant maîtrisé le Dao de l’Œil de l'Âme. Même l'ancêtre de la première génération n'avait réussi qu'à atteindre 4,1 milliards d'inscriptions. »
 
-« Cependant, le talent de l'Ancien Wang est prodigieux et vous avez traversé bien des épreuves. Peut-être trouverez-vous un moyen de maîtriser le plus grand sort de ma Secte de la Grande Âme. » L'Estimé Taureau Vert sourit en parlant.
+« Cependant, le talent de l'Ancien Wang est prodigieux et vous avez sans doute connu bien des rencontres fortuites. Peut-être trouverez-vous un moyen de maîtriser le plus grand sort de ma Secte de la Grande Âme. » L'Estimé Taureau Vert sourit en parlant.
 
 « Foutaises! » Wang Lin ne fit preuve d'aucune politesse. Il parlait rarement ainsi, mais il trouvait l'expression actuelle de l'Estimé Taureau Vert tout simplement trop malveillante.
 
@@ -105,8 +105,8 @@ Pourtant, malgré la tentation, ces sorts n'étaient pas ce qu'il cherchait. Il 
 
 Lorsqu'il posa le pied, Wang Lin ressentit un choc mental comme s'il avait été frappé. Son corps trembla sous l'impact de la marche, mais il resta immobile.
 
-Au sixième étage, Yan Lu était assise, un corps d'âme flottant au-dessus de sa tête. Des filaments d'énergie spirituelle s'échappaient de ce corps pour pénétrer dans son esprit.
+Au sixième étage, Yan Luan était assise, un corps d'âme flottant au-dessus de sa tête. Des filaments d'énergie spirituelle s'échappaient de ce corps pour pénétrer dans son esprit.
 
-Au moment précis où le pied de Wang Lin toucha les marches du sixième étage, Yan Lu ouvrit soudainement les yeux, révélant une lueur étrange.
+Au moment précis où le pied de Wang Lin toucha les marches du sixième étage, Yan Luan ouvrit soudainement les yeux, révélant une lueur étrange.
 
 « La personne qui entre dans le Pavillon des Écritures de l'Âme à ce moment précis est probablement ce Wang Lin! Sa culture est singulière; il ne peut pas être simplement au stade avancé du Vide Spirituel. Voyons s'il parvient à monter ici, alors je pourrai juger de son véritable niveau! »

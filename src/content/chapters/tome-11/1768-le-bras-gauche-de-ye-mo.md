@@ -12,7 +12,7 @@ Cependant, bientôt, le regard de Wang Lin passa son chemin, comme s'il ne s'agi
 
 La respiration de Wang Lin était calme. À présent, non seulement ses blessures étaient guéries, mais il avait l'impression de détenir la puissance du monde entier. C'était comme s'il pouvait détruire l'univers d'un seul coup de poing. La puissance du Dao Antique le mettait très à l'aise.
 
-C'était là le véritable héritage. Il était évident que tous les héritages n'étaient pas extrêmement douloureux.
+C'était là le véritable héritage. Si chaque héritage devait être extrêmement douloureux, cela ne conviendrait manifestement pas.
 
 La puissance du Dao Antique résonnait dans tout son corps. Elle parcourait chaque centimètre de sa chair et de son sang, donnant à Wang Lin le sentiment qu'il contrôlait le monde. Son âme originelle semblait avoir reçu une nourriture suffisante de son propre corps. Ce dernier émanait une douce lumière, comme s'il était prêt à déclencher un sort à tout instant.
 
@@ -34,7 +34,7 @@ La femme Ancien Dieu hocha la tête sans prononcer un mot.
 
 « Qu'est-ce qui est scellé là-bas? » demanda Wang Lin en désignant l'endroit où il ressentait cet appel.
 
-« C'est la montagne arrière de la Secte Dong Ling, là où se trouve le Bassin de Dong Ling. Cependant, ce lieu n'a été créé qu'à partir des souvenirs du Maître; il n'a donc aucun pouvoir réel », répondit la femme Ancien Dieu avec un regard confus.
+« C'est la montagne arrière de la Secte Dong Lin, là où se trouve le Bassin de Dong Lin. Cependant, ce lieu n'a été créé qu'à partir des souvenirs du Maître; il n'a donc aucun pouvoir réel », répondit la femme Ancien Dieu avec un regard confus.
 
 Les yeux de Wang Lin s'illuminèrent. Après une courte réflexion, il s'élança dans les airs.
 
@@ -66,13 +66,13 @@ Il frappa le sol de son pied droit pour tenter de pénétrer la glace, mais une 
 
 Wang Lin fixa intensément la surface glacée. Cet endroit était très étrange et différait de la glace environnante.
 
-« Le Bassin de Dong Ling... Cet endroit doit bien être le Bassin de Dong Ling. J'ignore simplement ce qui est si mystérieux pour que le Souverain Céleste aux Sept Couleurs ait souhaité le recréer... » Wang Lin l'examina minutieusement, mais ne trouva rien d'anormal.
+« Le Bassin de Dong Lin... Cet endroit doit bien être le Bassin de Dong Lin. J'ignore simplement ce qui est si mystérieux pour que le Souverain Céleste aux Sept Couleurs ait souhaité le recréer... » Wang Lin l'examina minutieusement, mais ne trouva rien d'anormal.
 
 Le bassin gelé paraissait tout à fait ordinaire.
 
 Il s'agenouilla et posa sa main droite sur la glace. En appuyant doucement, des craquements résonnèrent. Des fissures apparurent tandis que le bassin gelé tremblait. Cependant, dès leur apparition, une énergie froide jaillit et la glace retrouva instantanément son état initial.
 
-Wang Lin agita sa manche et une lueur sanglante jaillit alors que l'épée de sang apparaissait. Dans un fracas assourdissant, l'épée s'élança vers la glace. Une dépression se forma et d'innombrables fissures se propagèrent, mais elles se refermèrent en un instant.
+Wang Lin agita sa manche et une lueur sanglante jaillit alors que l'épée de sang apparaissait. Dans un fracas assourdissant, l'épée s'élança vers la glace, mais fut violemment repoussée et projetée au loin. Une dépression se forma dans la glace et d'innombrables fissures se propagèrent, mais elles se refermèrent en un instant.
 
 Wang Lin s'assit sur la surface gelée et son regard perça la couche de glace pour se poser sur le bras gauche de Ye Mo. Il commença à discerner quelques indices.
 
@@ -90,7 +90,7 @@ Cette attaque était comme si Wang Lin frappait une multitude de fois simultané
 
 Tenant le fragment, Wang Lin l'examina avec soin et tenta de le consumer avec son essence de feu, mais il fut incapable de le faire fondre. Ses yeux se plissèrent; il sentait une force étrange à l'intérieur de ce bloc. Il trouva cette force similaire à une essence.
 
-Mais il y avait une nuance: c'était comme si cet endroit n'était pas réellement scellé par la glace, et que s'il s'immergeait dans le bassin, ses essences en seraient grandement nourries.
+Mais il y avait une nuance: c'était comme si, sans ce gel, s'immerger dans le bassin pour cultiver nourrirait grandement ses essences.
 
 Cependant, non seulement cette puissance était faible, mais elle fluctuait de manière irrégulière. Wang Lin réfléchit un instant et une lueur d'illumination traversa son regard.
 
@@ -100,7 +100,7 @@ La culture du Souverain Céleste aux Sept Couleurs étant limitée, il n'avait p
 
 Après une réflexion, Wang Lin rangea la glace dans son espace de stockage. Elle restait très étrange et ne fondait pas; elle continuait d'émaner une aura glaciale.
 
-Fixant le fragment, Wang Lin prit une profonde inspiration et leva sa main droite. Alors que le Dao Antique Immortel imprégnait sa main, il griffa à nouveau la glace. Des grondements tonitruants se succédèrent. Par cette méthode brute et laborieuse, Wang Lin mit plusieurs heures à creuser un tunnel dans la glace.
+Fixant le fragment, Wang Lin prit une profonde inspiration et leva sa main droite. Alors que le Dao Antique Immortel imprégnait sa main, il griffa à nouveau la glace. Des grondements tonitruants se succédèrent. Par cette méthode brute et laborieuse, Wang Lin mit plusieurs heures à creuser une cavité dans la glace.
 
 Au bout d'un demi-bâton d'encens de travail, un dernier fracas retentit. Wang Lin arracha un morceau de glace, exposant enfin le bras gauche de Ye Mo!
 

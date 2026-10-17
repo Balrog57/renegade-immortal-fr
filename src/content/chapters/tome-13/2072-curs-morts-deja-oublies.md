@@ -18,7 +18,7 @@ Elle se retourna et aperçut un étranger vêtu de blanc, abrité sous un parapl
 
 La femme esquissa un léger sourire sans toutefois parler. Elle fixa Wang Lin, et leurs regards se croisèrent sous la pluie, s'attardant longuement l'un sur l'autre.
 
-Qing Hong regarda Wang Lin et dit doucement: « Je vous ai rencontré dans mon rêve. Lorsque je suis devenue une cultivatrice du troisième niveau, je vous ai rencontré dans mon rêve. »
+Qing Hong regarda Wang Lin et dit doucement: « Je vous ai rencontré dans mon rêve. Lorsque je suis devenue une cultivatrice de la troisième étape, je vous ai rencontré dans mon rêve. »
 
 « Croyez-vous à la réincarnation? » Le regard de Wang Lin quitta la femme pour s'attarder sur la pluie qui tombait du ciel.
 
@@ -26,7 +26,7 @@ Qing Hong regarda Wang Lin et dit doucement: « Je vous ai rencontré dans mon r
 
 « Je... » La voix de Wang Lin se brisa, puis, après un long silence, il hocha la tête. « J'y crois. »
 
-La femme tourna les yeux vers la pluie et murmura: « Si même l'Ascendant Empyréen aux Cheveux Blancs y croit, alors moi aussi j'y crois. J'ai toujours eu l'impression d'attendre qu'on me donne une réponse... Dès que j'ai atteint le troisième niveau, j'ai su que la personne que j'attendais, c'était vous. »
+La femme tourna les yeux vers la pluie et murmura: « Si même l'Ascendant Empyréen aux Cheveux Blancs y croit, alors moi aussi j'y crois. J'ai toujours eu l'impression d'attendre qu'on me donne une réponse... Dès que j'ai atteint la troisième étape, j'ai su que la personne que j'attendais, c'était vous. »
 
 « La réincarnation... Je me suis toujours demandé si j'avais eu une vie antérieure. Sinon, pourquoi aimerais-je le rouge ou les papillons? Je m'interrogeais aussi sur l'origine de mes préférences. Rien ne surgit du néant; si cela ne vient pas de cette vie, c'est qu'il vient de la précédente. »
 
@@ -66,7 +66,7 @@ Au milieu de l'averse, le corps de Wang Lin trembla et il se retourna brusquemen
 
 « Cette pluie naît dans le ciel et meurt sur la terre. Le processus qui les lie est la vie... Cœurs morts, déjà oubliés... »
 
-Ces mots résonnaient dans son esprit, et le regard de l'homme chauve s'imprima nettement dans sa mémoire. Wang Lin ne pouvait les comprendre autrefois, mais avec le recul, il en ressentait désormais toute la douleur et la mélancolie.
+Ces mots résonnaient dans son esprit, et le regard de l'homme chauve s'imprima nettement dans sa mémoire. Wang Lin ne pouvait les comprendre autrefois, mais avec le recul, il en ressentait désormais toute la douleur et la compassion.
 
 Il s'éloigna, l'esprit tourmenté par cette réponse qu'il ne voulait pas affronter.
 
@@ -100,7 +100,7 @@ Il était profondément satisfait de sa vie. Bien que simple, il se complaisait 
 
 Sa vie était paisible, empreinte d'une chaleur qu'il chérissait par-dessus tout. Né dans cette ville, il y avait grandi entouré de camarades de jeu. Bien que chacun ait fondé sa propre famille, ils se retrouvaient souvent pour boire, rire et évoquer le passé.
 
-La nuit, lorsqu'il sombrait dans le sommeil, il faisait un rêve. Dans ce songe, il parcourait le monde entier. Il semblait être un Empereur Céleste menant les peuples au combat contre leurs ennemis.
+La nuit, lorsqu'il sombrait dans le sommeil, il faisait un rêve. Dans ce songe, il parcourait le monde entier. Il semblait être un Empereur Céleste menant ses partisans au combat contre leurs ennemis.
 
 Ce rêve était fait de séparations, de sang et de chagrin. Il y avait aussi, dans ce songe, une fille nommée Shuang... le même nom que sa fille actuelle.
 

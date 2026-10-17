@@ -26,7 +26,7 @@ Cette scène soudaine stupéfia le vieil homme.
 
 En s'éloignant, il n'avait aucune sueur froide sur le corps et son rythme cardiaque était parfaitement normal. À cet instant, il se croyait lui-même, alors comment pourrait-il avoir peur?
 
-Une fois sorti du temple, le vieil homme affichait une expression sombre qui ne cessait de fluctuer. Il fixait les débris de pilules et de trésors devant lui, incapable de juger la véracité des paroles de Liu Jinbiao.
+Une fois Liu Jinbiao sorti du palais, le vieil homme affichait une expression sombre qui ne cessait de fluctuer. Il fixait les débris de pilules et de trésors devant lui, incapable de juger la véracité des paroles de Liu Jinbiao.
 
 Il n'avait jamais été confronté à une telle situation!
 
@@ -36,7 +36,7 @@ Il n'avait jamais été confronté à une telle situation!
 
 « Si ses paroles sont vraies, je... je ne peux vraiment pas le provoquer. Après tout, ce qu'il dit est exact: il n'a volé aucun trésor de valeur ni aucune vie, seulement quelques pilules de bas rang... » Le vieil homme resta interdit un long moment.
 
-À ce moment précis, Liu Jinbiao sortit du temple, mais les disciples de la Secte du Nuage lui barrèrent la route.
+À ce moment précis, Liu Jinbiao sortit du palais, mais les disciples de la Secte du Nuage lui barrèrent la route.
 
 Wang Lin avait tout observé et ne put s'empêcher d'être choqué. Il s'attendait à ce que Liu Jinbiao en pâtisse un peu, mais les événements avaient évolué trop rapidement. Même Wang Lin ne put s'empêcher d'admirer Liu Jinbiao.
 
@@ -44,7 +44,7 @@ Wang Lin avait tout observé et ne put s'empêcher d'être choqué. Il s'attenda
 
 Le vieil homme fixait Liu Jinbiao qui, désormais, se tenait à l'extérieur du palais, entouré par les disciples de la Secte du Nuage.
 
-« Si j'avais su que cela serait si complexe, je l'aurais ignoré. Pourquoi même l'avoir capturé? Bien sûr, ses propos semblent crédibles sans l'être vraiment. Mais si je le laisse partir ainsi, cela signifierait que j'ai été intimidé par ses paroles, et ma perte serait trop grande... » Le vieil homme serra les dents, prêt à intervenir.
+« Si j'avais su que cela serait si complexe, je l'aurais ignoré. Pourquoi même l'avoir capturé? Certes, mieux vaut le croire que ne pas le croire. Mais si je le laisse partir ainsi, cela signifierait que j'ai été intimidé par ses paroles, et ma perte serait trop grande... » Le vieil homme serra les dents, prêt à intervenir.
 
 Cependant, au même instant, Liu Jinbiao se retourna et effleura son sac de rangement de la main droite. Il en sortit un jeton de bois de la taille d'une paume et le lança vers le vieil homme.
 
@@ -54,7 +54,7 @@ Le vieil homme saisit le jeton noir et, après un coup d'œil, son visage se dé
 
 Gu Ya!
 
-« Le matériau est banal; ce n'est qu'un simple morceau de bois. Pourtant, il contient une aura si terrifiante qu'elle fait trembler mon cœur. Cette aura est imprégnée de mort, elle est extraordinaire! » Le vieil homme était suspicieux auparavant, mais après avoir vu le jeton, il était convaincu à 70 ou 80 % que les paroles de Liu Jinbiao étaient la vérité.
+« Le matériau est banal; ce n'est qu'un simple morceau de bois. Pourtant, il contient une aura si terrifiante qu'elle fait trembler mon cœur. Cette aura est imprégnée de mort, elle est extraordinaire! Et cette écriture dégage une saveur d'une fierté solitaire à l'extrême... Elle ne peut être tracée par un cultivateur ordinaire: ces caractères renferment tout un univers! » Le vieil homme était suspicieux auparavant, mais après avoir vu le jeton, il était convaincu à 70 ou 80 % que les paroles de Liu Jinbiao étaient la vérité.
 
 Si Liu Jinbiao avait sorti le jeton immédiatement, le vieil homme aurait été sceptique. Mais après l'intimidation préalable, l'effet était radicalement différent!
 
@@ -70,7 +70,7 @@ L'expression de Liu Jinbiao resta impassible et il laissa échapper un ricanemen
 
 Dès qu'il toucha le sol, son visage devint livide. Il ne pouvait plus contrôler son corps qui se mit à trembler violemment. Il était envahi par une terreur persistante.
 
-« Quel danger! Malédiction, j'ai failli perdre la vie sur ce Continent du Grand Sage! » Liu Jinbiao prit une profonde inspiration, le cœur serré par l'angoisse.
+« Quel danger! Malédiction, j'ai failli ruiner toute ma réputation sur ce Continent du Grand Sage! » Liu Jinbiao prit une profonde inspiration, le cœur serré par l'angoisse.
 
 « Quelle perte pour toutes ces pilules... Hélas, j'étais trop absorbé par mon rôle, au point de croire moi-même que ces pilules ne valaient pas la peine de mon temps... Tant de pilules ont été détruites! » En repensant à la manière dont il les avait jetées avec tant de désinvolture, il fut submergé par le regret.
 
@@ -90,7 +90,7 @@ Cette voix surgit si soudainement qu'elle fit tressaillir Liu Jinbiao. Il se cal
 
 Il n'avait jamais ressenti cela, même au sein de la Secte du Nuage. En réalité, il n'avait jamais éprouvé une telle sensation de sa vie. Tremblant, il s'appuya contre un arbre et fixa Wang Lin.
 
-« Mon maître est le disciple du Grand Empyréen Gémeaux, l'Exalté Empyréen Gu Ya. Je pratique le Dao de la tromperie avec son approbation. J'ai... j'ai le jeton de mon maître! » Liu Jinbiao tremblait en sortant le jeton de bois noir. Alors qu'il s'apprêtait à l'agiter, la main de Wang Lin s'étira et le jeton vola directement dans sa paume.
+« Mon maître est sous les ordres du Grand Empyréen Gémeaux, l'Exalté Empyréen Gu Ya. Je pratique le Dao de la tromperie avec son approbation. J'ai... j'ai le jeton de mon maître! » Liu Jinbiao tremblait en sortant le jeton de bois noir. Alors qu'il s'apprêtait à l'agiter, la main de Wang Lin s'étira et le jeton vola directement dans sa paume.
 
 Wang Lin l'examina un instant puis sourit: « C'est une belle imitation. Vous avez dû vous tromper vous-même en utilisant la seconde étape de la tromperie, vous répétant sans cesse que vous êtes l'Exalté Empyréen Gu Ya avant même de graver le nom. »
 
@@ -104,7 +104,7 @@ Il connaissait même la seconde étape du Dao de la tromperie! Il savait que cet
 
 Rien qu'en voyant le sourire de l'autre, Liu Jinbiao sentit sa raison vaciller. C'était comme si une terreur abyssale émanait de son âme même.
 
-Cette sensation devenait plus familière pour Wang Lin à mesure qu'il l'observait; c'était comme s'il avait déjà rencontré cet homme quelque part...
+Plus Liu Jinbiao regardait Wang Lin, plus cette sensation lui devenait familière; c'était comme s'il l'avait déjà rencontré quelque part...
 
 « Vous... Qui êtes-vous!? » Son corps tremblait et ses yeux étaient emplis d'une peur indicible.
 

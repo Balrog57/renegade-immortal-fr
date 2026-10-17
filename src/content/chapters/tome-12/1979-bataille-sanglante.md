@@ -38,7 +38,7 @@ Les environs devinrent totalement silencieux, jonchés d'ossements. Le brouillar
 
 « Allons-y! » Wang Lin fit un pas en avant et se précipita vers le bout de la longue rue.
 
-L'Exalté Empyréen Hai Zi mordilla sa lèvre inférieure et le suivit. Cette bataille était une épreuve qu'elle aurait du mal à affronter. Plus de trente personnes avaient été mobilisées, et chacune possédait un niveau de culture d'Exalté Empyréen!
+L'Exalté Empyréen Hai Zi mordilla sa lèvre inférieure et le suivit. Avec sa culture, il lui était déjà difficile de participer pleinement à un tel massacre. Plus de trente personnes avaient été mobilisées, et chacune possédait un niveau de culture d'Exalté Empyréen!
 
 L'Exalté Empyréen Hai Zi avait de nombreux amis et avait rencontré la plupart des Exalté Empyréens. Cependant, elle n'avait jamais vu ces trente individus auparavant — ils étaient tous des inconnus!
 
@@ -66,9 +66,9 @@ Bien qu'ils ne soient pas encore proches, une puissance proche de celle d'un Asc
 
 Derrière eux, deux autres personnes émergèrent du vent et de la neige. Ces deux individus possédaient également une culture d'Ascendant Empyréen. Ils observaient la scène froidement avant de lever les mains; un vent noir hurla alors, formant deux pythons gigantesques qui s'enroulaient dans le ciel.
 
-« Messagers de l'armure spirituelle! » Wang Lin les reconnut d'un coup d'œil!
+« Messagers de l'armure d'âme! » Wang Lin les reconnut d'un coup d'œil!
 
-« Ces deux-là m'sont inconnus. J'ai vu les 48 autres Ascendants Empyréens à la Secte du Soleil Violet, mais je n'ai jamais rencontré ceux-ci, et aucun d'eux ne possède d'armure spirituelle... Ils ont dû voir leur niveau de culture élevé au rang d'Ascendant Empyréen par une méthode spéciale avant de recevoir leurs armures!
+« Ces deux-là me sont inconnus. J'ai vu les 48 autres Ascendants Empyréens à la Secte du Soleil Violet, mais je n'ai jamais rencontré ceux-ci, et aucun d'eux ne possède d'armure d'âme... Ils ont dû voir leur niveau de culture élevé au rang d'Ascendant Empyréen par une méthode spéciale avant de recevoir leurs armures!
 
 « Dans la cité ancestrale, la seule personne capable de faire cela est l'Empereur Céleste! »
 
@@ -98,11 +98,11 @@ Des déflagrations tonnantes résonnèrent et les deux combattants en noir crach
 
 Wang Lin parcourut une centaine de pieds avant de trébucher. Sa Lame Yin s'enfonça dans le sol alors qu'il recrachait une bouchée de sang exhalant une vapeur blanche!
 
-Alors que Wang Lin se soutenait péniblement sur sa lame, une main apparut derrière lui. Cette main surgit silencieusement et pointa directement le dos de la main de Wang Lin!
+Alors que Wang Lin se soutenait péniblement sur sa lame, une main apparut derrière lui. Cette main surgit silencieusement et pointa directement l'arrière de la tête de Wang Lin!
 
 Ce doigt portait une étrangeté indicible, comme s'il n'appartenait pas à ce monde. Pourtant, il était apparu comme un Grand Empyréen créant quelque chose à partir du néant!
 
-Le doigt pointa vers le bas et, alors qu'il se trouvait à sept pouces de Wang Lin, celui-ci ne se retourna pas. Au lieu de cela, il chargea en avant en pivotant son corps. La Lame Yin, plantée dans le sol, balaya l'arrière pour entrer en collision avec le doigt!
+Le doigt pointa vers le bas et, alors qu'il se trouvait à sept pouces de la tête de Wang Lin, celui-ci ne se retourna pas. Au lieu de cela, il chargea en avant en pivotant son corps. La Lame Yin, plantée dans le sol, balaya l'arrière pour entrer en collision avec le doigt!
 
 Des craquements retentirent et de multiples fissures parcoururent la Lame Yin de Wang Lin. Les innombrables éclats de la lame reflétaient le calme qui régnait dans les yeux de Wang Lin. Il ne semblait nullement surpris par la destruction de son arme; à cet instant, ses yeux brillèrent d'une lumière dorée éblouissante!
 

@@ -72,7 +72,7 @@ Wang Lin sourit amèrement. Devant lui, l'expression de Gu Ya trahissait son emb
 
 Wang Lin fut stupéfait.
 
-« Faux, tout est faux... » Le corps de Gu Ya trembla tandis qu'il pensait: *« Ah, petites ancêtres, vous ne pouvez pas lui dire ça! »* Ne se soucieant plus de rien d'autre, il envoya rapidement un message de Sens Divin à Wang Lin:
+« Faux, tout est faux... » Le corps de Gu Ya trembla tandis qu'il pensait: *« Ah, petites ancêtres, vous ne pouvez pas lui dire ça! »* Ne se souciant plus de rien d'autre, il envoya rapidement un message de Sens Divin à Wang Lin:
 
 « Ces deux enfants... Ce que le Grand Empyréen Gémeaux appelle son père est leur père mortel après leur réincarnation. Elles ont perdu une partie de leurs souvenirs lors de la réincarnation, et j'avais peur qu'elles ne soient tristes, alors j'ai inventé des choses pour les rassurer. Senior, je vous en prie, ne leur en tenez pas rigueur... Hélas. »
 

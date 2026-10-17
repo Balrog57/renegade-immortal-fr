@@ -6,7 +6,7 @@ bookTitle: Mysteries of the Ancient Era
 en: Chapter 1771 - Do You Dare to Fight Me Head On
 slug: osez-vous-me-combattre-de-front
 ---
-Wang Lin s'arrêta et regarda la troisième concubine. Lorsqu'il croisa son regard, il y vit de la gravité et de la détermination. C'était ce que Wang Lin ressentait lui aussi.
+Wang Lin s'arrêta et regarda la troisième concubine. Lorsqu'il croisa son regard, il y vit de la gravité et de la détermination. C'était une sensation très nette.
 
 L'expression froide de Wang Lin se détendit légèrement. Grâce à sa sagesse, il pouvait voir qu'elle voulait sincèrement l'aider. Il se souvint de leur rencontre dans l'Ancienne Tombe. Après avoir silencieusement réfléchi un instant, le regard de Wang Lin tomba sur le poignet de la femme.
 
@@ -40,17 +40,17 @@ Le corps de Wang Lin ne bougea pas d'un iota et il laissa échapper un froid ren
 
 Le jeune homme vacilla légèrement et fit un demi-pas en arrière. Il fixa Wang Lin avec une puissante intention de combat!
 
-« Wang Lin! Je vous ai enfin rattrapé. Je suis Yun Yifeng, de la Planète des Cinq Éléments. Notre dernière bataille était précipitée et peu satisfaisante. Aujourd'hui, osez-vous me combattre de front, sans stratagème ni l'Arc de Li Guang? » La lumière disparut de la plateforme de pierre. Le jeune homme en bleu fixa Wang Lin droit dans les yeux.
+« Wang Lin! Je vous ai enfin rattrapé. Je suis Yun Yifeng. Notre combat sur la Planète des Cinq Éléments fut précipité et peu satisfaisant. Aujourd'hui, osez-vous me combattre de front, sans stratagème ni l'Arc de Li Guang? » La lumière disparut de la plateforme de pierre. Le jeune homme en bleu fixa Wang Lin droit dans les yeux.
 
 « Si vous parvenez à me vaincre, je suivrai tous vos ordres tant que nous serons au cœur du monde caverneux! » Yun Yifeng s'avança hors de la plateforme pour faire face à Wang Lin. Dans son regard, la troisième concubine, Tang Shan, n'existait pas. Seul Wang Lin comptait!
 
 En observant Yun Yifeng, la froideur dans les yeux de Wang Lin s'intensifia. Il manquait l'âme d'un puissant cultivateur, et cet homme était venu seul. Cela ferait gagner du temps à Wang Lin, mais le niveau de culture de cet homme n'était pas si élevé. Wang Lin sentait que sa seule âme ne suffirait pas.
 
-Autrefois, sur la Planète des Cinq Éléments, il avait égalé la force de Wang Lin, mais ce dernier venait tout juste de briser la formation et était blessé. De plus, le sort de Déchirure du Ciel n'était pas encore complet. Désormais, Wang Lin était au sommet de sa culture, et son sort de Déchirure du Ciel était capable de briser les cieux.
+Autrefois, sur la Planète des Cinq Éléments, il avait égalé la force de Wang Lin, mais ce dernier venait tout juste de briser la formation et était blessé. De plus, le sort de Déchirure du Ciel n'était pas encore complet. Désormais, Wang Lin était au sommet de sa culture et, ayant obtenu le bras gauche de Ye Mo, son sort de Déchirure du Ciel était accompli, d'une puissance stupéfiante.
 
 Wang Lin ne considérait pas Yun Yifeng comme une menace. Cependant, si cet homme respectait sa promesse après sa défaite, Wang Lin en serait touché.
 
-Wang Lin dit lentement: « Vos paroles sont insignifiantes! »
+Wang Lin dit lentement: « Les paroles ne prouvent rien! »
 
 Les yeux de Yun Yifeng s'illuminèrent et il frappa son front de la main droite. Une goutte de pacte de sang vola vers Wang Lin.
 
@@ -70,7 +70,7 @@ En un instant, sept lames furent extraites de la brume et lancées vers Wang Lin
 
 « Huit Lames Coupent l'Âme! » rugit Yun Yifeng, tandis que sept ombres superposées apparaissaient. C'était comme si sept copies de lui surgissaient, toutes armées d'une lame. Les sept attaquèrent simultanément.
 
-Ces sept lames se lièrent entre elles, et les signes vagues d'une huitième lame apparurent! Deux lames pour la poignée, quatre pour le corps et une pour la pointe!
+Ces sept lames se lièrent entre elles, et les signes vagues d'une huitième lame apparurent! Deux corps pour la poignée, quatre pour la lame et un pour la pointe!
 
 Le monde devint sombre et distordu, comme si le sortilège le plus puissant de Yun Yifeng était la seule chose subsistant dans l'existence!
 
@@ -80,9 +80,9 @@ Une paire de mains gigantesques apparut devant lui. Ces mains étaient rugueuses
 
 Dans un mouvement brusque, ces deux bras saisirent le vide et déchirèrent sans pitié la voûte céleste. Des grondements tonitruants résonnèrent alors qu'une immense faille s'ouvrait, reliant la terre au ciel.
 
-De loin, on aurait dit que le monde devant Wang Lin s'était effondré. La faille exhalait une aura ancienne et une force destructrice capable d'anéantir l'univers. Des fracas retentirent lorsque les huit lames entrèrent en collision avec la faille. Les lames se brisèrent, tout comme le corps de Yun Yifeng!
+De loin, on aurait dit que le monde devant Wang Lin s'était effondré. La faille exhalait une aura ancienne et une force destructrice capable d'anéantir l'univers. Des fracas retentirent lorsque les huit lames entrèrent en collision avec la faille. Une lame se brisa, ainsi qu'un des corps de Yun Yifeng!
 
-Peu après, les deuxième, troisième et quatrième formes s'effondrèrent avec la lame.
+Aussitôt après, les deuxième, troisième et quatrième corps s'effondrèrent avec leurs lames.
 
 « Vous vouliez un combat de front? Je n'utiliserai même pas mon sort d'arrêt. Vous voulez une confrontation directe, je vous donnerai une confrontation directe!! » La voix de Wang Lin était glaciale et résonna à travers le monde.
 
@@ -104,7 +104,7 @@ S'il avait tenté quoi que ce soit, Wang Lin l'aurait tué sans hésiter, même 
 
 Alors que ce combat touchait à sa fin, le brouillard autour de la montagne commença à bouger pour former une tête imposante. Un rugissement tonitruant retentit.
 
-Le corps de Wang Lin fut enveloppé par son aura de Dao Antique et il recula de plus de mille pieds pour y résister. Tang Shan, témoin de la bataille, se retira rapidement aux côtés de Wang Lin.
+Le corps de Wang Lin fut enveloppé par son aura de Dao Antique et il recula de mille pieds pour y résister. Tang Shan, témoin de la bataille, se retira rapidement aux côtés de Wang Lin.
 
 Tandis que les grondements éclataient, le ciel au loin se déforma et une silhouette floue apparut.
 
@@ -112,7 +112,7 @@ Tandis que les grondements éclataient, le ciel au loin se déforma et une silho
 
 Un soleil surgit devant la silhouette floue, dégageant une lumière solaire infinie qui entra en collision avec l'épée de sang. Un fracas tonitruant retentit alors que la silhouette floue était forcée de reculer, révélant enfin le Souverain!
 
-À son apparition, Yun Yifeng serra les dents et avala quelques pilules. Il chargea et utilisa Huit Lames Coupent l'Âme. Huit lames illusoires apparurent et se lièrent pour foncer vers le Souverain!
+À son apparition, Yun Yifeng serra les dents et avala quelques pilules. Il chargea et utilisa Huit Lames Coupent l'Âme. Huit ombres apparurent et se lièrent pour former une lame fendant le ciel, qui fonça vers le Souverain!
 
 Tang Shan ne resta pas en retrait non plus. Elle n'hésita pas à former un sceau d'un geste de la main. Sept portes dorées apparurent devant Yun Yifeng, et sept autres apparurent également devant Wang Lin!
 
@@ -120,4 +120,4 @@ Tang Shan ne resta pas en retrait non plus. Elle n'hésita pas à former un scea
 
 La plupart des sorts étaient orientés vers l'attaque, et même les sorts de protection ne pouvaient généralement être utilisés que sur soi-même. Ceux capables d'agir sur autrui étaient extrêmement rares. C'était la première fois que Wang Lin voyait un tel sort capable de protéger quelqu'un d'autre!
 
-La Secte des Portes Célestes à laquelle appartenait Tang Shan n'était qu'une petite secte et ne faisait pas partie des treize grandes sectes, mais il restait célèbre. La raison en était simple: la plupart de leurs sorts étaient des techniques de protection conçues pour protéger les autres!
+La Secte de la Porte Céleste à laquelle appartenait Tang Shan n'était qu'une petite secte et ne faisait pas partie des Neuf Sectes et Treize Factions, mais elle était pourtant célèbre. La raison en était simple: la plupart de leurs sorts étaient des techniques de protection conçues pour protéger les autres!

@@ -8,7 +8,7 @@ slug: une-occasion-en-or
 ---
 « Il y a au total 999 marches de pierre, et chaque centaine représente 10 % de ma puissance! À travers les âges, aucun Grand Empyréen n'a pu atteindre la 600e marche sous ma volonté.
 
-« La personne qui est allée le plus loin était un Grand Empyréen nommé Dong Lin, du clan céleste. Il n'a pas réussi à atteindre la 600e marche et, après avoir laissé quelqu'un derrière lui, je l'ai laissé partir.
+« La personne qui est allée le plus loin était un Grand Empyréen nommé Dong Lin, du clan céleste. Il n'a pas réussi à atteindre la 600e marche et, après avoir laissé quelque chose derrière lui, je l'ai laissé partir.
 
 « Quant à toi… Voyons jusqu'à quelle marche tu pourras monter! » Une voix extrêmement indifférente résonna lorsque le pied de Wang Lin se posa sur la 100e marche.
 
@@ -20,7 +20,7 @@ Les yeux de Wang Lin s'illuminèrent. Bien que son visage fût pâle, il ne flan
 
 La paume de la main droite de Wang Lin était blanche, tandis que le dos de sa main était noir. Alors que le dragon fondait sur lui, il abattit sa paume pour frapper la créature.
 
-Des grondements tonnelforts résonnèrent soudainement. Le dragon trembla et poussa un cri déchirant. Sa tête s'effondra, et l'effondrement se propagea rapidement. Le dragon entier se désintégra en cendres et disparut.
+Des grondements tonitruants résonnèrent soudainement. Le dragon trembla et poussa un cri déchirant. Sa tête s'effondra, et l'effondrement se propagea rapidement. Le dragon entier se désintégra en cendres et disparut.
 
 Simultanément, les marches menant au sommet de la montagne reprirent leur aspect normal et cessèrent d'être tordues. C'était comme si tout ce que Wang Lin avait vu auparavant n'avait été qu'une illusion.
 
@@ -44,7 +44,7 @@ Au sommet de la montagne, Xuan Luo regardait Wang Lin depuis le haut de la tour 
 
 « C'est moi qui l'ai amené ici, et c'est à cause de moi qu'il est venu au clan ancien. Je dois l'emmener! » songea silencieusement Xuan Luo.
 
-« S'il ne peut franchir la 200e marche, Xuan Luo, laisse ton disciple derrière toi. » La silhouette floue dans la brume derrière Xuan Luo prononça ces mots glacials.
+« Il ne franchira pas la 200e marche. Xuan Luo, laisse ton disciple derrière toi. » La silhouette floue dans la brume derrière Xuan Luo prononça ces mots glacials.
 
 Mais avant que Xuan Luo ne puisse répondre, Wang Lin poussa un rugissement et l'aura solaire du Grand Empyréen derrière lui se rétracta rapidement.
 
@@ -62,7 +62,7 @@ Au moment où le pied de Wang Lin se posa sur la 200e marche, l'individu assis s
 
 Lorsqu'il réapparut, il était sur l'escalier et marchait vers Wang Lin. Il agita la main, le visage totalement inexpressif, comme s'il portait un masque humain. Il pointa alors le doigt vers Wang Lin!
 
-À cet instant, le monde bascula. C'était comme si un gouffre géant s'était ouvert dans la réalité. La terre trembla et toute la montagne fut ébranlée.
+À cet instant, le monde bascula. C'était comme si un trou géant s'était ouvert dans la voûte céleste. La terre trembla et toute la montagne fut ébranlée.
 
 Les pupilles de Wang Lin se rétractèrent. De son point de vue, cette puissance était comparable à celle d'un Grand Empyréen!
 
@@ -74,7 +74,7 @@ Dans ce moment de crise, toute l'aura solaire du Grand Empyréen qu'il avait abs
 
 La culture de Wang Lin entra en cycle, et alors que ses essences s'activaient, quatre-vingt-dix-neuf images rémanentes apparurent autour de lui. Il leva sa main droite et frappa le doigt!
 
-Avec ce coup de poing, les ombres du Dao Ancien apparurent derrière lui. L'Ancien Dieu, l'Ancien Démon et l'Ancien Diable lancèrent tous un coup! Au-dessus des ombres du Dao Ancien, se trouvait une ombre dorée. Cette silhouette était floue mais dégageait une énergie céleste d'une pureté extrême, et elle porta également un coup de poing.
+Avec ce coup de poing, les ombres du Dao Ancien apparurent derrière lui. L'Ancien Dieu, l'Ancien Démon et l'Ancien Diable lancèrent tous un coup! Au-dessus des ombres du Dao Ancien, se trouvait une ombre dorée. Cette silhouette était floue mais dégageait une énergie céleste d'une pureté extrême qui s'enroulait autour de la puissance du clan ancien, et elle porta également un coup de poing.
 
 À cet instant, une masse de gaz noir s'échappa du corps de Wang Lin. Ce gaz était imprégné de massacre et de folie. Il fusionna avec le tonnerre pour former un tonnerre de carnage, créant ainsi un autre coup de poing!
 

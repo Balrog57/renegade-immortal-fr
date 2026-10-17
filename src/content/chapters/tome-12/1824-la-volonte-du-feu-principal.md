@@ -46,7 +46,7 @@ Wang Lin recula et agita sa manche. L'empreinte dorée de Xuan Luo apparut et r�
 
 L'aura puissante de l'empreinte contenait un fragment du pouvoir de Xuan Luo. Elle se referma instantanément sur le visage fantomatique qui, dans un bang fracassant, poussa un cri misérable avant de disparaître devant Wang Lin.
 
-Une lumière dorée brilla intensément et l'empreinte vola vers la jeune femme. En la voyant, celle-ci eut un haut-le-cœur. Ses pupilles se rétractèrent et elle s'arrêta net.
+Une lumière dorée brilla intensément et l'empreinte vola vers la jeune femme. En la voyant, celle-ci inspira brusquement. Ses pupilles se rétractèrent et elle s'arrêta net.
 
 Simultanément, les yeux de Wang Lin s'illuminèrent et il recula, disparaissant à nouveau dans les profondeurs de la veine de feu. La lumière dorée faiblit et l'empreinte cessa sa progression, disparaissant en même temps que l'épée de sang.
 
@@ -60,23 +60,23 @@ Après un long moment, la froideur reprit place dans son regard.
 
 « Et alors, s'il possède un trésor offert par un Grand Empyréen? Cet homme détient l'épée de sang appartenant au clan de l'Ancien Dao. Il est évident qui est ce Grand Empyréen! »
 
-« Même si les Grands Empyréens des anciens pays sont puissants, ils ne peuvent pas nous contrôler, nous les Célestes! Même si je me suis trompée et que le Grand Empyréen derrière lui est un Céleste, il a osé s'en prendre à la veine de feu principale de la Secte de la Grande Âme; j'aurai donc raison de le tuer. De plus, je ne cherche pas à le tuer, je cherche simplement à l'arrêter... Même les Grands Empyréens ne peuvent être aussi déraisonnables! » murmura-t-elle en levant la tête pour charger à nouveau vers la veine de feu principale.
+« Même si les Grands Empyréens des anciens pays sont puissants, ils ne peuvent pas nous contrôler, nous les Célestes! Même si je me suis trompée et que le Grand Empyréen derrière lui est un Céleste, il a osé s'en prendre à la veine de feu principale de la Secte de la Grande Âme; il est donc normal que je le poursuive et j'ai raison de le faire. De plus, je ne cherche pas à le tuer, je cherche simplement à l'arrêter... Même les Grands Empyréens ne peuvent être aussi déraisonnables! » murmura-t-elle en levant la tête pour charger à nouveau vers la veine de feu principale.
 
 Le tempérament de cette femme était farouche, et son niveau de culture actuel était le reflet de sa personnalité; elle n'abandonnerait pas si facilement. Bien que l'empreinte dorée l'ait déstabilisée, sa décision était prise.
 
-Ce n'était plus une affaire à la portée de Du Qing.
+Sur ce point, elle était bien au-dessus de Du Qing.
 
-Dans une autre partie de la veine de feu principale, le véritable corps d'essence de Wang Lin détecta les mouvements de la jeune femme et poussa un soupir.
+Dans une autre partie de la veine de feu principale, Wang Lin, grâce à la volonté de son véritable corps d'essence en ces lieux, perçut les mouvements de la jeune femme et poussa un soupir.
 
-« Les cultivateurs ayant véritablement atteint le stade du Vide Tribulant sont tous des êtres déterminés. Un trésor formé par un Grand Empyréen ne les fera pas reculer si facilement... Puisqu'elle refuse de céder, voyons qui de nous deux sera le plus rapide! » Le regard de Wang Lin devint résolu et il disparut.
+« Les cultivateurs ayant véritablement atteint le stade de la Tribulation du Vide sont tous des êtres déterminés. Un trésor formé par un Grand Empyréen ne les fera pas reculer si facilement... Puisqu'elle refuse de céder, voyons qui de nous deux sera le plus rapide! » Le regard de Wang Lin devint résolu et il disparut.
 
-Tandis que le véritable corps d'essence de Wang Lin continuait d'absorber la veine de feu principale, la lutte du dragon s'affaiblissait. Seuls les cheveux du véritable corps d'essence ressemblaient encore à des plumes, mais à cet instant, des cheveux noirs apparurent à la racine.
+Au plus profond de la veine de feu principale, dans la tête de l'âme du dragon, tandis que le véritable corps d'essence de Wang Lin continuait d'absorber et de dévorer, les rugissements et la lutte du dragon s'affaiblissaient. Seuls les cheveux du véritable corps d'essence ressemblaient encore à des plumes, mais à cet instant, des cheveux noirs apparurent à la racine.
 
 Cette chevelure noire semblait enveloppée d'une lueur sombre et diffuse. Une fois cette propagation terminée, le véritable corps d'essence serait totalement formé!
 
 Le temps s'écoulait lentement. Le véritable corps d'essence de Wang Lin ignorait tout danger extérieur, concentré exclusivement sur l'absorption de la veine de feu principale. Il jouait sa survie contre la montre. Si la jeune femme arrivait avant qu'il n'ait achevé sa formation, tous ses efforts seraient vains.
 
-Une telle opportunité ne se présenterait plus jamais!
+Retrouver une telle opportunité serait extrêmement difficile!
 
 Son corps original continuait d'apparaître devant la jeune femme, utilisant divers sorts pour entraver sa progression. Cependant, après plusieurs tentatives, elle finit par l'ignorer purement et simplement pour charger vers les profondeurs de la veine.
 
@@ -110,7 +110,7 @@ Wang Lin perçut vaguement une lumière et une chaleur intense. Cette conjonctio
 
 La volonté du feu voulait tout consumer, y compris elle-même. Elle contenait un soupçon de folie mêlé à une détermination inflexible et défiant les cieux, prête à embraser l'univers entier.
 
-Elle allait réduire le Sens Divin de Wang Lin et tout ce qui l'entourait en cendres!
+Elle allait réduire le Sens Divin de Wang Lin et tout ce qu'il était en cendres!
 
 « Le feu! L'origine de ma compréhension du feu n'est pas l'Oiseau Vermillon, mais le cœur d'une bougie qui oscille sous le vent sans jamais s'éteindre! »
 

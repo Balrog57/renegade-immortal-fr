@@ -12,7 +12,7 @@ Il possédait déjà une essence et se trouvait au stade avancé du Vide Spiritu
 
 À l'instant où il vit la colonne de feu, il distingua vaguement une silhouette enveloppée de flammes portant un cercueil sur le dos. L'homme d'âge moyen sentit une aura menaçante émaner de là, faisant trembler son cœur.
 
-« Quel genre de cadavre est-ce là?! » L'expression de l'homme d'âge moyen devint sombre alors qu'il fixait Kang Ren, qui restait pétrifié par la peur. Il laissa échapper un reniflement froid et s'avança vers le feu.
+« Où voit-on un cadavre là-dedans?! » L'expression de l'homme d'âge moyen devint sombre alors qu'il fixait Kang Ren, qui restait pétrifié par la peur. Il laissa échapper un reniflement froid et s'avança vers le feu.
 
 Sachant qu'il possédait lui-même un haut niveau de culture et ne ressentant aucune aura trop puissante provenant de l'individu dans les flammes, il chargea vers le brasier.
 
@@ -50,7 +50,7 @@ Voyant la pluie ainsi figée, le visage du vieil homme aux cheveux blancs fut en
 
 À l'intérieur de la grotte, le désespoir de Kang Ren avait atteint son paroxysme. Il avait vu l'Ancien Zhao, au statut extrêmement élevé, être repoussé et recracher du sang par une simple parole issue des flammes. En voyant l'embrasement, il comprit qu'il avait causé un désastre sans précédent!
 
-« Ceci... Quelle est cette chance? C'était un Ancêtre! »
+« Ceci... Ce n'est pas une chance, c'est un Ancêtre! »
 
 Dans le feu, Wang Lin referma les yeux. Lors de l'explosion des flammes, son Sens Divin avait déjà balayé la zone. Il n'y avait personne ici qui mérite son attention.
 
@@ -108,4 +108,4 @@ Le son d'un battement de cœur émana de son corps et se propagea rapidement, de
 
 Au même moment, alors que les quatre anciens chargeaient vers la grotte pour la sceller et l'empêcher de partir, Wang Lin leva la main droite vers la terre. Son visage afficha une expression féroce.
 
-« Extrais l'âme du feu terrestre! »
+« Extrais l'âme de la veine de feu terrestre! »

@@ -22,13 +22,13 @@ Au sein du Clan Céleste, dans la Secte Dao Yi, les années avaient transformé 
 
 Pourtant, à cet instant, un rugissement retentit à la Secte Dao Yi. Tandis que l'écho résonnait, l'un des monts s'effondra et une silhouette enveloppée de brumes grises en jaillit. Cette figure, d'une allure féroce, fixait l'horizon.
 
-« Le Royaume Divin Immémorial!! Il pourrait y avoir là-bas un moyen pour moi de me débarrasser définitivement de la malédiction ancestrale et de faire progresser ma culture! »
+« Le Royaume Divin Immémorial!! Il pourrait y avoir là-bas un moyen pour moi de me débarrasser définitivement de la malédiction et de faire progresser ma culture! »
 
 Au sein de la Secte Ziyang, les deux adorables fillettes étaient en retraite. Les yeux de l'Ancêtre Céleste se trouvaient entre elles deux, émettant une étrange lumière qui les reliait. À cet instant, elles ouvrirent les yeux simultanément et regardèrent dans la même direction. Leurs regards semblaient transpercer les murs pour embrasser le monde extérieur.
 
 Wu Feng fut le premier du Clan Céleste à remarquer ce phénomène; il se tenait sur un iceberg, l'œil chargé d'anticipation.
 
-Au même moment, profondément sous le palais de la Cité Ancestrale Céleste, existait un espace superposé. À l'intérieur de cet espace se trouvait une montagne, où le fou demeurait immobile.
+Au même moment, profondément sous le palais de la Cité Ancestrale Céleste, existait un espace superposé. À l'intérieur de cet espace se trouvait une montagne, métamorphose du fou, qui demeurait immobile.
 
 Outre les puissants membres du Clan Céleste, les gens du Clan Ancien portaient également une attention soutenue à l'ouverture du Royaume Divin Immémorial. Les Grands Empyréens des clans Anciens Ji et Shi observaient tous deux la scène.
 
@@ -42,23 +42,23 @@ Dans la zone centrale, là où les trois pays du Clan Ancien se rejoignaient, un
 
 « Enfin... Il s'est ouvert complètement... Le jour où j'ai tout appris, je savais que je ne pourrais rien changer... » La silhouette secoua la tête, laissant paraître une rare trace d'amertume.
 
-« Des centaines d'années plus tard... Mer de souffrance... »
+« Des centaines d'années plus tard... Les tribulations incommensurables... »
 
-« Toutes les âmes sous les cieux doivent subir la tribulation divine... Libère-toi des convictions qui ne mènent qu'à la destruction. Marche sur le chemin du véritable Dao! » murmura la silhouette floue.
+« Tous les êtres doivent traverser d'innombrables tribulations... Quitter l'abîme d'une seule obsession... Suivre le décret et pratiquer la véritable cultivation... » murmura la silhouette floue.
 
 Après que le ciel du Continent Astral Immortel eut basculé dans la nuit pour la huitième fois avant de revenir à la normale, le dernier vortex au-dessus de la montagne disparut. Cependant, les huit piliers restaient dressés au-dessus de la mer immense; peu importait la violence des vagues qui s'écrasaient contre eux, ils ne bougeaient pas.
 
 Dans le cercle formé par les huit piliers, la mer se transformait progressivement en brume, tandis qu'au-delà, elle demeurait liquide.
 
-Sous la montagne effondrée, l'Enseignant Impérial du Dao Ancien, dont l'apparence rappelait celle de l'Omniscient et du Souverain Céleste aux Sept Couleurs, affichait un visage grave. Ses mains continuaient de tracer des sceaux alors qu'il pressait la formation en murmurant des sons étranges.
+Sous la montagne effondrée, l'Ancien Maître Impérial du Dao, dont l'apparence rappelait celle de l'Omniscient et du Souverain Céleste aux Sept Couleurs, affichait un visage grave. Ses mains continuaient de tracer des sceaux alors qu'il pressait la formation en murmurant des sons étranges.
 
 Sa voix ressemblait au murmure de foules innombrables, mais il était impossible d'en distinguer une once de clarté. Lorsque Wang Lin entendit cela, ses yeux brillèrent d'un éclat imperceptible.
 
-« Contenez le Dao Céleste. Toutes les âmes sous les cieux doivent subir la tribulation divine... Libère-toi des convictions qui ne mènent qu'à la destruction. Face à l'inconnu infini, chaque âme doit résoudre ses questions terrestres et s'affranchir des machinations du ciel. Obtenez le chemin de la vie... et marchez sur le chemin du véritable Dao! » Les murmures incessants de l'Enseignant Impérial du Dao se muèrent soudainement en ces paroles.
+« Emprisonne et scelle le Dao du ciel. Tous les êtres doivent traverser d'innombrables tribulations; quitte l'abîme d'une seule obsession. Devant l'incommensurable, les êtres doivent encore dénouer ce monde obscur d'aujourd'hui, se libérer des pensées du ciel et saisir la voie de la vie future... jusqu'à la véritable cultivation! » Les murmures incessants de l'Ancien Maître Impérial du Dao se muèrent soudainement en ces paroles.
 
 À l'instant même où ses mots résonnèrent, la formation libéra une lumière infinie. Puis, d'immenses filets apparurent dans cet espace! C'était le filet que Wang Lin avait brisé lorsqu'il tentait d'entrer dans cet espace! Cependant, tandis que la lumière de la formation scintillait, des fissures se propagèrent sur les mailles.
 
-L'Enseignant Impérial du Dao Ancien avait utilisé une méthode pour téléporter la formation hors de son espace initial afin de la projeter sur le Continent Astral Immortel!
+L'Ancien Maître Impérial du Dao avait utilisé une méthode pour téléporter la formation hors de son espace initial afin de la projeter sur le Continent Astral Immortel!
 
 Il faut préciser que la formation à l'intérieur de la montagne désertée n'était qu'une illusion. Wang Lin avait déployé toute sa puissance pour briser la frontière et pénétrer cet espace; désormais, la formation utilisait cette même méthode pour s'en extraire et devenir réelle!
 
@@ -66,11 +66,11 @@ Et ce qui émergea avec elle fut l'avatar de massacre de Wang Lin! À cet instan
 
 Cette scène fit briller les yeux de Wang Lin.
 
-Lorsque la formation perça la frontière pour atteindre le Continent Astral Immortel, l'Enseignant Impérial du Dao poussa un rugissement. Une lumière aux dix couleurs jaillit de la formation et s'élança vers les cieux. De loin, on aurait dit qu'elle formait un neuvième pilier!
+Lorsque la formation perça la frontière pour atteindre le Continent Astral Immortel, l'Ancien Maître Impérial du Dao poussa un rugissement. Une lumière aux dix couleurs jaillit de la formation et s'élança vers les cieux. De loin, on aurait dit qu'elle formait un neuvième pilier!
 
 L'avatar de massacre de Wang Lin recula de quelques pas pour fusionner avec le corps original de celui-ci tandis que la lumière s'élevait. Wang Lin apparut aux côtés du faisceau et observa cette ascension vers les cieux. Il ressentit clairement la force indescriptible et terrifiante qui en émanait.
 
-À l'intérieur du pilier de lumière, l'Enseignant Impérial du Dao rugit: « Neuvième pilier, ouvre le Royaume Divin Immémorial! » Le pilier de lumière s'élança vers le ciel et se dirigea vers la mer immense séparant le Clan Ancien du Clan Céleste.
+À l'intérieur du pilier de lumière, l'Ancien Maître Impérial du Dao rugit: « Neuvième pilier, ouvre le Royaume Divin Immémorial! » Le pilier de lumière s'élança vers le ciel et se dirigea vers la mer immense séparant le Clan Ancien du Clan Céleste.
 
 Au milieu de l'océan, dans le cercle formé par les huit piliers, un rayon de lumière jaillit de l'horizon et le neuvième pilier apparut en son centre. Le ciel changea de teinte et des ondulations se propagèrent dans l'éther. Bientôt, la voûte céleste du Continent Astral Immortel fut entièrement parcourue de rides.
 
@@ -82,7 +82,7 @@ L'océan infini laissa échapper un grondement puissant qui résonna sur tout le
 
 Il était impossible de décrire la magnitude de cette mer, mais soulever l'océan tout entier n'était pas l'apanage d'un Grand Empyréen. Même le Grand Empyréen Gu Dao ne pouvait en être capable.
 
-Alors que la mer montait, un gouffre abyssal fut révélé. Ce précipice, parsemé d'innombrables cavités et irrégularités, était resté caché sous les eaux, privé de lumière solaire depuis des éons!
+Alors que la mer montait, un gouffre abyssal fut révélé. Ce précipice, couvert d'une multitude de vase, plein de creux et de bosses, où gisaient d'innombrables algues couchées, était resté caché sous les eaux, privé de lumière solaire depuis des éons!
 
 La montée des eaux se poursuivit, dépassant bientôt les terres du Clan Ancien et du Clan Céleste. La mer était si profonde qu'il était impossible d'en mesurer l'étendue en un temps si court. Lorsque cette étendue infinie survola les terres des deux clans, elle continuait de s'élever. Les spectateurs étaient frappés de stupeur; ils ne pouvaient plus distinguer la limite entre la mer et le ciel.
 
@@ -96,14 +96,14 @@ La porte était close et n'était pas encore ouverte!
 
 « Hélas, ton massacre est insuffisant... Autrement, la porte pourrait s'ouvrir immédiatement, mais il faudra désormais 500 ans pour que la puissance nécessaire s'accumule afin de l'ouvrir... »
 
-« Ainsi, Wang Lin, rencontrons-nous dans 500 ans au sein du Royaume Divin Immémorial! Lors de nos retrouvailles, tu connaîtras la vérité! » Dans la montagne désertée à l'extérieur de la cité impériale du Dao Ancien, l'Enseignant Impérial du Dao disparut lentement de la formation scintillante.
+« Ainsi, Wang Lin, rencontrons-nous dans 500 ans au sein du Royaume Divin Immémorial! Lors de nos retrouvailles, tu connaîtras la vérité! » Dans la montagne désertée à l'extérieur de la cité impériale du Dao Ancien, l'Ancien Maître Impérial du Dao disparut lentement de la formation scintillante.
 
 Wang Lin fixa la silhouette qui s'effaçait et dit soudainement: « C'est vous qui avez détruit la Secte Dong Lin. »
 
-Mais il n'obtint aucune réponse. Un rire résonna tandis que la formation se dissipait, emportant l'Enseignant Impérial du Dao. L'endroit n'était plus que ruines.
+Mais il n'obtint aucune réponse. Un rire résonna tandis que la formation se dissipait, emportant l'Ancien Maître Impérial du Dao. L'endroit n'était plus que ruines.
 
 Wang Lin resta silencieux, pensif un long moment, puis se retourna. Il s'élança vers le ciel tel un rayon de lumière et disparut.
 
-Wang Lin n'avait plus aucune raison de rester au Dao Ancien. Tout appartenait désormais au passé. Pourtant, il restait ici une personne qu'il considérait toujours comme son maître, bien qu'il ait utilisé sa propre mort pour rompre leur lien...
+Wang Lin n'avait plus aucune raison de rester au Dao Ancien. Tout appartenait désormais au passé. Pourtant, il restait ici une personne qu'il considérait toujours comme son maître, bien qu'il ait déjà rendu cette faveur en mourant une fois...
 
 Un maître qu'il ne pouvait reconnaître publiquement, mais qui demeurerait à jamais son maître dans son cœur.

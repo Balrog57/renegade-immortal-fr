@@ -18,13 +18,13 @@ Le jeune homme à la chemise fleurie fixa Wang Lin et rugit: « Fou? C'est toi l
 
 « Eh... Se pourrait-il que ce soit vous, mon bienfaiteur? » Le fou se frotta les yeux et fit plusieurs fois le tour de Wang Lin. Le jeune homme en vert ne lui tenait plus la jambe et attendait sur le côté.
 
-« Très bien, admettons que ce soit toi. Maintenant que j'ai salué mon bienfaiteur, je te demande: qui a battu le grand-père de Petite Fleur? Était-ce lui! » Le jeune homme à la chemise fleurie pointa l'Enseignant Impérial, qui affichait un air contrarié.
+« Très bien, admettons que ce soit toi. Maintenant que j'ai salué mon bienfaiteur, je te demande: qui a battu le grand-père de Petite Fleur? Était-ce lui! » Le jeune homme à la chemise fleurie pointa le Maître Impérial, qui affichait un air contrarié.
 
-La voix légèrement irritée de l'Empereur Céleste résonna depuis le Temple du Dao Céleste: « Dao Fei, si tu continues à faire des siennes, je te verrouillerai à nouveau dans une cellule! C'est la cérémonie de remise des titres; Luo Gong a lancé un défi et a échoué. Cela n'a rien à voir avec l'Enseignant Impérial. Recule! »
+La voix légèrement irritée de l'Empereur Céleste résonna depuis le Temple du Dao Céleste: « Dao Fei, si tu continues à faire des siennes, je te verrouillerai à nouveau dans une cellule! C'est la cérémonie de remise des titres; Luo Gong a lancé un défi et a échoué. Cela n'a rien à voir avec le Maître Impérial. Recule! »
 
 « Ah? » Le jeune homme à la chemise fleurie fut déconcerté un instant. Confus, il ne parvenait pas à saisir la situation. Il se retourna et agrippa le jeune homme en robe verte derrière lui.
 
-« Aide-moi à y voir clair, je suis un peu perdu... Si le grand-père de Petite Fleur n'a pas été battu par l'Enseignant Impérial, alors qui est-ce? A-t-il défié mon Bienfaiteur? C'est incompréhensible... Vite, aide-moi à analyser la situation. »
+« Aide-moi à y voir clair, je suis un peu perdu... Si le grand-père de Petite Fleur n'a pas été battu par le Maître Impérial, alors qui est-ce? A-t-il défié mon Bienfaiteur? C'est incompréhensible... Vite, aide-moi à analyser la situation. »
 
 Le jeune homme en vert affichait une expression amère lorsqu'il regarda Wang Lin, puis le jeune homme à la chemise fleurie avant de prendre la parole.
 
@@ -36,11 +36,11 @@ Le jeune homme en vert affichait une expression amère lorsqu'il regarda Wang Li
 
 Le jeune homme à la chemise fleurie continua d'agiter son éventail tout en rugissant vers Xu Liguo, qui faisait semblant d'être mort.
 
-Xu Liguo ouvrit les yeux et bondit dans les airs. Affichant un sourire flatteur, il s'approcha rapidement. Il jeta un regard furtif au vieil homme de la famille Luo qui affichait un sourire amer, puis fixa Wang Lin.
+Xu Liguo ouvrit les yeux et bondit dans les airs. Affichant un sourire flatteur, il s'approcha rapidement, dans une attitude de petit policier des mortels. Il jeta un regard furtif au vieil homme de la famille Luo qui affichait un sourire amer, puis fixa Wang Lin.
 
 Cependant, lorsque son regard croisa celui de Wang Lin, le corps de Xu Liguo trembla. Ce tremblement vint des profondeurs mêmes de son âme. Il fixa Wang Lin, abasourdi. Cela ressemblait à un rêve, comme s'il avait déjà rencontré cet homme par le passé. Cette personne lui était si familière...
 
-« Démon... Ma... » murmura inconsciemment Xu Liguo, comme si un souvenir était sur le point de refaire surface. Mais à cet instant, le jeune homme à la chemise fleurie l'attrapa et le secoua violemment.
+« Étoile Maléfique... Ma... » murmura inconsciemment Xu Liguo, comme si un souvenir était sur le point de refaire surface. Mais à cet instant, le jeune homme à la chemise fleurie l'attrapa et le secoua violemment.
 
 Cette secousse tira Xu Liguo de sa confusion. Le visage pâle, il pointa Wang Lin du doigt et recula précipitamment.
 
@@ -52,7 +52,7 @@ Cette secousse tira Xu Liguo de sa confusion. Le visage pâle, il pointa Wang Li
 
 Wang Lin ferma les yeux, dissimulant la tristesse qui y régnait. Il savait que le fou n'avait aucun souvenir du monde des grottes.
 
-« Dao Fei, pars! » Une voix colérique s'éleva du Temple du Dao Céleste et l'Empereur Céleste en sortit. D'un revers de main, il projeta le jeune homme à la chemise fleurie qui étranglait Wang Lin, l'envoyant au loin comme une feuille de saule. Le jeune homme en robe verte et Xu Liguo s'enfuirent rapidement; ils n'osaient rester.
+« Dao Fei, pars! » Une voix colérique s'éleva du Temple du Dao Céleste et l'Empereur Céleste en sortit. D'un revers de main, il projeta le jeune homme à la chemise fleurie qui étranglait Wang Lin, l'envoyant au loin comme un duvet de saule. Le jeune homme en robe verte et Xu Liguo s'enfuirent rapidement; ils n'osaient rester.
 
 L'Empereur Céleste fronça les sourcils et rugit: « Gardes de l'Armure Noire, expulsez-le du palais et interdisez-lui toute entrée! »
 
@@ -84,7 +84,7 @@ L'Empereur Céleste resta pensif un instant. Il hocha la tête et cessa de tente
 
 La cérémonie prit fin à midi. Tandis que les cultivateurs quittaient la place, Wang Lin s'en alla également. Il avait décliné l'invitation de l'Empereur Céleste à séjourner au palais et quitta les lieux via un réseau de transfert.
 
-Il fit un détour par le Manoir Li, puis prit le dragon marin ainsi que Liu Jinbiao pour retourner à l'auberge de la ville orientale.
+Il ne s'attarda pas au Manoir Li, mais emmena le dragon marin ainsi que Liu Jinbiao pour retourner à l'auberge de la ville orientale.
 
 « Je l'ai vu... Même s'il a perdu la mémoire, il semble très heureux pour l'instant, et cela me suffit... » Wang Lin se tenait près de la fenêtre, contemplant le ciel qui s'obscurcissait. Il était resté là tout l'après-midi.
 
@@ -104,11 +104,11 @@ La voix qui s'éleva n'était ni pressée ni lente, elle était d'une grande dou
 
 « Puisque le Grand Empyréen Jiu Di m'y invite, j'irai naturellement », répondit Wang Lin avec un léger sourire.
 
-À travers la tempête, la lumière lunaire perçait les nuages. La neige s'accumulait tandis que les passants pressaient le pas, mais bientôt, la rue se vida. Wang Lin et Hai Zi affrontèrent la neige en descendant la rue. Ils laissèrent derrière eux quatre longues traînées d'empreintes qui furent rapidement ensevelies par la poudreuse.
+Dans la tempête, la lune brillante était voilée. La neige s'accumulait tandis que les passants pressaient le pas, mais bientôt, la rue se vida. Wang Lin et Hai Zi affrontèrent la neige en descendant la rue. Ils laissèrent derrière eux quatre longues traînées d'empreintes qui furent rapidement ensevelies par la poudreuse.
 
 « À l'exception de certains lieux précis dans la cité ancestrale, la téléportation est interdite. Il y a un réseau de transfert non loin d'ici, nous atteindrons bientôt le Mont de l'Empereur. »
 
-« D'après ce que vous avez dit plus tôt, vous avez l'intention de partir. Quand partirez-vous? » demanda doucement Hai Zi en marchant aux côtés de Wang Lin.
+« À en juger par votre silhouette de tout à l'heure, vous semblez vouloir partir. Quand partirez-vous? » demanda doucement Hai Zi en marchant aux côtés de Wang Lin.
 
 « Après le Mont de l'Empereur, je partirai... » Les pas de Wang Lin dans la neige produisaient un craquement régulier.
 

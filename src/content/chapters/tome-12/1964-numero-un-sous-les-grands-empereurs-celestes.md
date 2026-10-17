@@ -6,7 +6,7 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1964 - Number One Under the Grand Empyreans!"
 slug: numero-un-sous-les-grands-empereurs-celestes
 ---
-Alors qu'ils se trouvaient devant le 17e palais, Wang Lin dit lentement: « Ascendant Empyréen Ming Dao, attends-moi à l'extérieur. Ne t'en va pas avant que je ne sois sorti. »
+Alors qu'ils entraient dans le 17e palais, Wang Lin dit lentement: « Ascendant Empyréen Ming Dao, attends-moi à l'extérieur. Ne t'en va pas avant que je ne sois sorti. »
 
 Ses paroles étaient d'une cruauté extrême. Non seulement il avait souligné que l'Ascendant Empyréen Ming Dao ne pourrait pas franchir ce palais, mais il lui avait également coupé toute voie de fuite. Si Ming Dao échouait et partait, cela laisserait un démon intérieur dans son cœur!
 
@@ -80,9 +80,9 @@ Dans la capitale impériale, le palais était plongé dans un silence de mort, e
 
 « J'aurais dû écouter le Maître Impérial et tuer ce Wang Lin! Mais j'ai pensé qu'avec mon statut de Grand Empyréen, que j'agisse moi-même ou par procuration, je ne devais pas faire d'une petite affaire un problème majeur... Je lui ai laissé l'opportunité de grandir, pensant que tout était sous mon contrôle! »
 
-« Peu importe sa progression, une fois qu'il arrivera dans la capitale impériale, je trouverai un prétexte pour le capturer et le livrer au Maître Impérial. »
+« Peu importe sa progression, une fois qu'il arrivera dans la capitale impériale, je trouverai un prétexte pour effacer sa conscience et le livrer au Maître Impérial. »
 
-« Mais je ne m'attendais pas à ce qu'il atteigne un tel niveau, capable d'attirer l'attention des autres Grands Empyréens... Il a même dû détruire Ming Dao, que j'ai recruté à grand prix... » L'Empereur Céleste murmurait seul face à l'illusion, mais ses lèvres esquissaient un léger sourire en contradiction avec ses paroles.
+« Mais je ne m'attendais pas à ce qu'il atteigne un tel niveau, capable d'attirer l'attention des autres Grands Empyréens... Il veut même détruire Ming Dao, que j'ai recruté à grand prix... » L'Empereur Céleste murmurait seul face à l'illusion, mais ses lèvres esquissaient un léger sourire en contradiction avec ses paroles.
 
 « S'il passe le 17e palais, il attirera sans aucun doute l'attention de ce vieux Jiu Di. Une fois qu'il sera recruté par lui... » L'Empereur Céleste ferma les yeux.
 
@@ -90,7 +90,7 @@ Dans la capitale impériale, le palais était plongé dans un silence de mort, e
 
 « Mais... j'espère qu'il passera... et qu'il infligera un coup impitoyable à Ming Dao... » En ouvrant les yeux, le sourire étrange sur son visage s'accentua.
 
-« Ming Dao, tu ne peux pas décevoir cet Empereur. Ce Roi a tant fait pour toi... Il a même permis à ce Wang Lin de grandir... »
+« Ming Dao, tu ne peux pas décevoir cet Empereur. Cet Empereur a tant fait pour toi... Il a même permis à ce Wang Lin de grandir... »
 
 Continent Central, Montagne de l'Empereur. Jiu Di contemplait intensément la feuille d'automne devant lui. En réfléchissant, il perçut un problème que les autres Grands Empyréens semblaient ignorer.
 

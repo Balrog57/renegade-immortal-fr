@@ -8,13 +8,13 @@ slug: jhesitais-face-a-tout-cela-jusqua-ce-que-je-voie-pour-la-seconde-fois-cett
 ---
 « J'hésitais face à tout cela, jusqu'à ce que je voie pour la seconde fois cette montagne couverte de neige aux sept couleurs, ainsi que cette silhouette tenant le corps dans le temple ancestral de Shi Antique. J'ai senti que quelque chose clochait, mais en même temps, une idée folle est née! » Wang Lin ne regarda pas l'Omniscient, mais fixa le pont situé derrière lui.
 
-« J'avais peur de l'échec que j'avais entrevu, j'avais peur d'avoir échoué à ressusciter Wan Er. Je craignais que tout ne soit qu'une vie antérieure où j'avais rencontré Wan Er et fait de mon mieux pour la ressusciter, en vain; alors je me suis immergé dans le Dao du Rêve pour modifier la réincarnation jusqu'à ce que mon rêve devienne réalité!
+« J'avais peur que cette scène soit réelle, peur que la résurrection de Wan Er ait échoué. Je craignais que tout ne soit qu'une vie antérieure où j'avais rencontré Wan Er et fait de mon mieux pour la ressusciter, en vain; alors je me suis immergé dans le Dao du Rêve pour modifier la réincarnation jusqu'à ce que mon rêve devienne réalité!
 
 « Cependant, était-ce vraiment une vie antérieure... Je ne le pense pas! J'avais peur que tout soit vrai, alors il me fallait vérifier, il me fallait changer les choses! » Les yeux de Wang Lin brillèrent d'un éclat vif.
 
-« À l'époque, à l'intérieur de la Perle Défiant le Ciel, j'ai entendu une voix. Cette voix ne cessait de me répéter qu'il manquait quelque chose, qu'une pièce manquait...
+« À l'époque, à l'intérieur de la Perle Défiant le Ciel, j'ai entendu une voix. Cette voix ne cessait de me répéter qu'il en manquait un... qu'il en manquait un...
 
-« Je ne savais toujours pas ce qui manquait...
+« Je ne savais toujours pas lequel manquait...
 
 « Dans le monde de la grotte, j'ai vu une scène. L'Empereur Céleste Bai Fan a pointé le ciel avant de sombrer dans la folie. J'ai appris plus tard qu'il avait réalisé par inadvertance que ce monde n'était qu'une simple grotte. Il ne put l'accepter et perdit la raison.
 
@@ -64,17 +64,17 @@ Wang Lin fixa calmement l'Omniscient.
 
 « Il a placé la boussole sur le Continent Astral Immortel et y est entré à plusieurs reprises. Cependant, à chaque fois, le continent se dissipait rapidement après son entrée.
 
-« Ce n'est que lorsqu'il est arrivé dans le Royaume Divin Immémorial lors d'une réincarnation qu'il a pu accomplir la tâche que je lui avais assignée: il a brisé la boussole avant de se dissiper. Cela a rendu la boussole incomplète et a libéré l'esprit du trésor qui y résidait!
+« Ce n'est que lorsqu'il est arrivé, une dernière fois et tel une réincarnation, dans le Royaume Divin Immémorial qu'il a pu accomplir la tâche que je lui avais assignée: il a brisé la boussole avant de se dissiper. Cela a rendu la boussole incomplète et a libéré l'esprit du trésor qui y résidait!
 
 « C'est vous. » Wang Lin fixa l'Omniscient. En entendant cela, le corps de ce dernier trembla violemment, ses yeux emplis d'incrédulité et d'une peur indescriptible.
 
 « Impossible, c'est impossible! »
 
-« Voilà ma méthode: vous libérer pour vous utiliser, vous qui êtes l'essence même de la Boussole de la Frontière, afin de ressusciter ma femme.
+« Voilà ma méthode: vous libérer pour vous utiliser, vous qui êtes l'essence même de la Boussole des Limites, afin de ressusciter ma femme.
 
 « La réincarnation est juste là. Une fois que vous l'avez pleinement comprise, vous pouvez la manipuler à votre guise. Si vous ne la comprenez pas, vous l'appelez "vie antérieure". C'est un cercle qui est éternellement présent. On peut le voir, on peut le ressentir.
 
-« Comme les paroles de Mo Zi, comme les souvenirs de Papillon Rouge, ou comme lorsque vous avez reconnu l'avatar de massacre sur la montagne désertée du Dao Antique.
+« Comme les paroles de Mo Zhi, comme les souvenirs de Papillon Rouge, ou comme lorsque vous avez reconnu l'avatar de massacre sur la montagne désertée du Dao Antique.
 
 « L'Ancêtre Ancien et l'Ancêtre Céleste n'ont pas su percer le mystère de la réincarnation. Ils pensaient que tout était faux et sont morts en cherchant le Dao... Voilà ce qu'est la réincarnation...
 

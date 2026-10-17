@@ -50,7 +50,7 @@ Lorsque le vent passa, il rouvrit les yeux: la mort et la décomposition avaient
 
 En avançant, des ondulations résonnèrent autour de Wang Lin. Les autres ne pouvaient pas les voir; c'était le signe que Wang Lin s'autorisait à devenir une partie du rêve.
 
-Lorsqu'il et Liu Jinbiao atterrirent, deux rayons de lumière jaillirent du lointain, révélant deux cultivateurs, un homme et une femme.
+Lorsque lui et Liu Jinbiao atterrirent, deux rayons de lumière jaillirent du lointain, révélant deux cultivateurs, un homme et une femme.
 
 Ces deux cultivateurs étaient très jeunes. L'homme était fort beau et manifesta rapidement son respect. La femme à ses côtés était magnifique et observa Wang Lin avec un regard curieux.
 
@@ -120,13 +120,13 @@ Le vieil homme resta silencieux un moment, songeant. Puis, il prit la cruche et 
 
 Le vieil homme contempla le grand temple au loin et dit lentement: « Peut-être... Je suis assis ici depuis très longtemps. Peut-être êtes-vous réellement venu ici par votre rêve. »
 
-Il demanda doucement: « La Secte Dong Lin de votre rêve était-il identique à celui-ci? »
+Il demanda doucement: « La Secte Dong Lin de votre rêve était-elle identique à celle-ci? »
 
 « Le même. » En regardant le vieillard, Wang Lin pouvait ressentir toute sa détresse.
 
 « Merci... » Le vieil homme ferma les yeux. Deux larmes coulèrent sur ses joues. Avec son niveau de culture, il ne devrait plus connaître la sensation des pleurs, mais quand Wang Lin avait répondu « le même », les larmes s'étaient mises à couler.
 
-« Je suis assis ici depuis si longtemps... Vous êtes le seul à m'avoir apporté un sentiment de familiarité... C'est ma maison... Je l'ai quittée il y a bien longtemps, lorsque je suis devenu un Ascendant Empyréen, et quand je suis revenu, tout était déjà ainsi... » Le vieil homme ouvrit les yeux, lesquels étaient noyés dans une douleur et une tristesse indicibles.
+« Je suis assis ici depuis si longtemps... Vous êtes le seul qui, après avoir tout percé à jour, m'ait apporté un sentiment de familiarité... C'est ma maison... Je l'ai quittée il y a bien longtemps, lorsque je suis devenu un Ascendant Empyréen, et quand je suis revenu, tout était déjà ainsi... » Le vieil homme ouvrit les yeux, lesquels étaient noyés dans une douleur et une tristesse indicibles.
 
 « Je ne sais pas qui a fait cela... Je ne peux pas le découvrir. Même les Grands Empyréens n'y parviennent pas... Je peux seulement m'asseoir ici avec mes souvenirs et créer ce rêve, le laisser m'accompagner et permettre à la Secte Dong Lin d'exister... jusqu'au jour de ma mort... » murmura le vieil homme, la voix rauque.
 

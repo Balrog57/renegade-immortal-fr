@@ -18,7 +18,7 @@ La tempête se dissipa progressivement, permettant à l'ancêtre de la Secte du 
 
 Wang Lin regarda l'ancêtre avec une expression solennelle. Ce coup de poing contenait neuf sorts, mais il n'avait pu en bloquer que six. Ses trois pas successifs avaient servi à neutraliser les trois derniers.
 
-« Est-ce là la puissance des Grands Empyréens? Redoutable! » Les yeux de Wang Lin brillèrent. Il désirait affronter un Exalté Empyréen!
+« Est-ce là la puissance des Exaltés Empyréens? Redoutable! » Les yeux de Wang Lin brillèrent. Il désirait affronter un Exalté Empyréen!
 
 « Ainsi, c'est donc ainsi que combattent les cultivateurs de rang Exalté Empyréen... » En repensant au coup de poing de l'ancêtre, le regard de Wang Lin s'illumina davantage.
 
@@ -26,13 +26,13 @@ Il était en train d'apprendre!
 
 « Voici le deuxième coup! » L'ancêtre de la Secte du Dao Démoniaque fit un pas en avant. Ses cheveux roux flottaient sans qu'aucun vent ne les agite et ses yeux brillaient d'une lueur étrange. Tandis qu'il levait la main droite, son corps entier oscillait rapidement entre le réel et l'illusoire. C'était un spectacle d'une étrangeté absolue alors qu'il lançait son second assaut!
 
-Dès que ce deuxième coup apparut, tout la Secte du Dao Démoniaque trembla. Comme si une force invisible s'était manifestée pour déchirer le ciel et la terre, l'espace autour de Wang Lin se mua en un vide absolu!
+Dès que ce deuxième coup apparut, toute la Secte du Dao Démoniaque trembla. Comme si une force invisible s'était manifestée pour déchirer le ciel et la terre, l'espace autour de Wang Lin se mua en un vide absolu!
 
 C'était un néant sans fin. Dans cette obscurité, Wang Lin ne distinguait plus ni le ciel ni la terre. Il semblait seul dans un autre monde, avec pour unique présence ce coup de poing!
 
 Ce coup contenait 18 sorts.
 
-Si un Exalté Doré avait été témoin de cela, il n'aurait ressenti que désespoir et horreur, car il n'aurait pas eu la moindre capacité de résistance. Même dix Exaltés Dorés n'auraient pu retarder ce coup d'un seul souffle.
+Si un Exalté Doré avait été témoin de cela, il n'aurait ressenti que désespoir et horreur, car il n'aurait pas eu la moindre capacité de résistance. Même plus de dix Exaltés Dorés agissant ensemble n'auraient pu retarder ce coup d'un seul souffle.
 
 Il ne s'agissait plus d'une différence de quantité, mais de qualité!
 
@@ -40,7 +40,7 @@ Les cultivateurs Exaltés Dorés utilisaient encore des sorts pour combattre. En
 
 « Dix-huit sorts contenus dans un seul poing... Incroyable! Fusionner le Dao avec mon corps... je n'en suis pas encore capable! » Les yeux de Wang Lin étincelèrent tandis qu'il levait la main droite. Il frappa de toutes ses forces pour contrer le second coup qui fonçait sur lui!
 
-« Je ne peux pas encore fusionner le Dao à mon corps ni déclencher des sorts par un simple mouvement. Mais ce coup contient une fusion de mes pouvoirs anciens et célestes. Il n'utilise pas de sorts, mais il est imprégné de ma foi et de ma volonté! » L'intention de combat embrasa le regard de Wang Lin. Il poussa un rugissement en s'avançant pour que leurs poings entrent en collision!
+« Je ne peux pas encore fusionner le Dao à mon corps ni déclencher des sorts par un simple mouvement. Mais ce coup est la fusion de la puissance de mon corps du Dao Antique et de ma culture. Il n'utilise pas de sorts, mais il est imprégné de ma foi et de ma volonté! » L'intention de combat embrasa le regard de Wang Lin. Il poussa un rugissement en s'avançant pour que leurs poings entrent en collision!
 
 Un fracas tonitruant résonna dans le vide. Alors que le son devenait plus intense, le néant commença à se désagréger. En un instant, le vide fut déchiré par une onde de choc destructrice.
 
@@ -90,7 +90,7 @@ Par conséquent, l'ancêtre de la Secte du Dao Démoniaque n'avait jamais entend
 
 « Endurer deux de mes coups prouve qu'il est qualifié pour être un Exalté Empyréen. Et posséder une telle reconnaissance du Taureau Céleste... ceci... » L'ancêtre laissa transparaître une émotion qu'il avait contenue depuis longtemps.
 
-« Tout Grand Empyréen qui verrait cet homme voudrait le prendre sous son aile... Je me demande quel niveau de culture il atteindra avec le pouvoir de l'armure de l'âme! » Les yeux de l'ancêtre s'illuminèrent. Il leva la main droite et lança le troisième coup.
+« Tout Grand Empyréen qui verrait cet homme voudrait le prendre sous son aile... Je me demande quelle puissance de combat il atteindra maintenant qu'il a emprunté la force de l'âme! » Les yeux de l'ancêtre s'illuminèrent. Il leva la main droite et lança le troisième coup.
 
 Dès que ce coup fut projeté, le poing contenant ses 27 sorts créa un trou noir gigantesque entre lui et Wang Lin. Ce gouffre semblait tout dévorer, engloutissant les ruines de la Secte du Dao Démoniaque.
 
@@ -102,4 +102,4 @@ Wang Lin ouvrit les yeux, son corps s'emplissant de la puissance d'un Exalté Do
 
 Ce second corps fit un pas, puis un troisième, un quatrième, un cinquième... jusqu'à ce que quatre-vingt-dix-huit corps soient visibles. Quatre-vingt-dix-sept étaient des images rémanentes, et un seul était réel.
 
-« Je ne peux pas fusionner le Dao à mon corps ni utiliser de sorts par mes simples mouvements. Cependant, je peux utiliser l'Art des Sorts Rapides pour déclencher 98 sorts simultanément afin de combattre un Exalté Empyréen! »
+« Je ne peux pas fusionner le Dao à mon corps ni utiliser de sorts par mes simples mouvements. Cependant, je peux utiliser l'Art Rapide des Sorts pour déclencher 98 sorts simultanément afin de combattre un Exalté Empyréen! »

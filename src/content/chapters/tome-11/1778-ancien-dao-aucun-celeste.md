@@ -6,11 +6,11 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1778 - Ancient Dao, No Celestials!"
 slug: ancien-dao-aucun-celeste
 ---
-« Ce fut une bataille entre dieux et êtres célestes... » La culture de Wang Lin disparut lentement tandis que ses essences se dissimulaient. À cet instant, tout son corps dégageait l'aura dense de l'Ancien Dao.
+« C'est une bataille entre dieux et êtres célestes... » La culture de Wang Lin disparut lentement tandis que ses essences se dissimulaient. À cet instant, tout son corps dégageait l'aura dense de l'Ancien Dao.
 
-« Autrefois, le Souverain Céleste aux Sept Couleurs combattit Ye Mo, et à la fin, Ye Mo mourut... Quel dommage. Aujourd'hui, je poursuivrai ce combat contre toi! »
+« Autrefois, le Souverain Céleste aux Sept Couleurs combattit Ye Mo, et à la fin, Ye Mo mourut... Quel regret. Le combat d'aujourd'hui peut s'appeler le destin: je poursuivrai ce combat contre toi! »
 
-Wang Lin leva sa main droite et serra le poing avec acharnement. Des craquements résonnèrent dans sa main. Ses yeux argentés brillèrent alors qu'il fit tournoyer sa manche et marcha vers le Vieux Fantôme Zhan.
+Wang Lin leva sa main droite et serra le poing avec acharnement. Des battements de cœur retentirent depuis sa paume. Ses yeux argentés brillèrent alors qu'il fit tournoyer sa manche et marcha vers le Vieux Fantôme Zhan.
 
 En avançant, le battement de cœur qui résonnait dans le corps de Wang Lin grondait, semant le chaos dans la poitrine du Vieux Fantôme Zhan. Ce dernier ressentit une douleur lancinante au thorax, son expression devenant sombre.
 
@@ -20,7 +20,7 @@ Dans le ciel, la Poupée Yi Si se transforma en une brume noire et se précipita
 
 Alors que ce rythme cardiaque rugissait violemment, le Vieux Fantôme Zhan laissa échapper un rugissement. Ignorant la douleur qui lui déchirait la poitrine, il chargea Wang Lin.
 
-« Esprit confus, effondrement en un pas! » Une intention meurtrière fulgura dans les yeux de Wang Lin alors qu'il poussait un cri de guerre. Tous les sons du monde semblèrent converger vers le Vieux Fantôme Zhan. Son cœur commença à montrer des signes d'effondrement imminent.
+« Cœur en désordre, effondrement en un pas! » Une intention meurtrière fulgura dans les yeux de Wang Lin et le monde gronda. Tous les sons du monde semblèrent converger vers le Vieux Fantôme Zhan. Son cœur commença à montrer des signes d'effondrement imminent.
 
 L'expression du Vieux Fantôme Zhan devint féroce et il serra sa poitrine. Celle-ci s'affaissa alors qu'il utilisait son pouvoir pour contraindre son cœur, l'empêchant de battre par la force.
 
@@ -58,13 +58,13 @@ Au même instant, l'ombre vague de huit démons anciens apparut entre les pilier
 
 De loin, ces huit piliers fumants de vent ardent fusionnèrent pour former une tempête!
 
-Le corps du Vieux Fantôme Zhan fut projeté dans cette tempête de feu et de vent. Un grondement tonitruant retentit alors qu'il tentait de forcer le passage.
+Le corps du Vieux Fantôme Zhan s'engouffra dans cette tempête de feu et de vent. Un grondement tonitruant retentit alors qu'il tentait de forcer le passage.
 
 Cependant, il n'en eut pas le temps. La Poupée Yi Si poussa un rugissement et rattrapa le Vieux Fantôme Zhan.
 
 Wang Lin se trouvait au cœur de la tempête de feu et de vent. Après un coup de poing et une vague, sa main droite s'immobilisa dans les airs. Puis, il tendit l'index et pointa vers l'avant!
 
-« Dao Démoniaque, Inversion de la Vie et de la Mort! » lança Wang Lin en pointant le Vieux Fantôme Zhan. L'expression de ce dernier changea brusquement lorsqu'il sentit la force vitale de son corps se muer instantanément en une aura de mort!
+« Dao Diabolique, Inversion de la Vie et de la Mort! » lança Wang Lin en pointant le Vieux Fantôme Zhan. L'expression de ce dernier changea brusquement lorsqu'il sentit la force vitale de son corps se muer instantanément en une aura de mort!
 
 Alors que Wang Lin pointait, l'Ancienne Tombe commença à s'effondrer. Que ce soit cette strate, celle du dessous ou celle du dessus, elles étaient toutes imprégnées d'une aura de mort infinie.
 
@@ -72,12 +72,12 @@ Cette aura de mort était née de la multitude de vies ayant péri ici au fil de
 
 En un instant, l'aura de mort envahit tout. Elle était si dense qu'elle formait une mer, transformant ce monde en rotation en une mer morte!
 
-Au sein de cette aura funeste, l'essence du démon ancien se propageait, et l'on pouvait vaguement entendre les hurlements des spectres.
+Au sein de cette aura funeste, l'aura du diable ancien se propageait, et l'on pouvait vaguement entendre les hurlements des spectres.
 
 « Dieu, Démon, Diable, Ancien Dao, Aucun Céleste!! » murmura Wang Lin en ouvrant ses paumes pour pousser doucement vers l'avant. Les pouvoirs des trois anciens clans fusionnèrent rapidement dans son corps.
 
 Dieu Ancien à 9 étoiles!
-Démon Ancien à 9 étoiles!
+Diable Ancien à 9 étoiles!
 Démon Ancien à 8 étoiles!
 
 Ces puissances se fondirent en une seule au sein de Wang Lin pour former le pouvoir de l'Ancien Dao. C'était la force la plus absolue dont il disposait. Elles se rassemblèrent dans sa main droite et, alors qu'il avançait, une ombre gigantesque apparut devant lui!
@@ -106,8 +106,8 @@ Tandis qu'il fuyait, le ciel pétrifié s'effondra et d'immenses failles spatial
 
 La quatrième fleur noire s'effondra soudainement, se brisant en une tempête de débris.
 
-Le sang jaillit du coin de la bouche de Wang Lin et il ne put le contenir. Il recula de plus de mille pieds dans les ruines de l'Ancienne Tombe. Ses yeux étaient empreints de pitié et d'amertume.
+Le sang jaillit du coin de la bouche de Wang Lin et il ne put le contenir. Il recula de plusieurs milliers de pieds dans les ruines de l'Ancienne Tombe. Ses yeux étaient empreints de regret et d'amertume.
 
 « J'ai utilisé le pouvoir de "l'Ancien Dao, Aucun Céleste" de force, mais il s'est quand même échappé... Je n'aurai pas la force de l'utiliser de nouveau de sitôt. Si j'avais eu l'œil gauche et que mon démon ancien avait été à neuf étoiles, cette bataille n'aurait pas été si difficile! »
 
-« Je ne suis toujours pas son égal... Peu importe, je me rendrai à la cinquième fleur pour trouver la véritable porte du Continent Astral Immortel. Alors, j'ouvrirai cette porte et j'emprunterai la puissance du Continent Astral Immortel pour le sceller! » Wang Lin poussa un long soupir et disparut de l'Ancienne Tombe en plein effondrement.
+« Je ne suis toujours pas son égal... Peu importe, je me rendrai à la cinquième fleur pour trouver la véritable porte. J'ouvrirai alors la grande porte du monde caverneux et j'emprunterai la puissance du Continent Astral Immortel pour le sceller! » Wang Lin poussa un long soupir et disparut de l'Ancienne Tombe en plein effondrement.

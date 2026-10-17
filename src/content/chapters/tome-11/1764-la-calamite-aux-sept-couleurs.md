@@ -16,7 +16,7 @@ Les yeux de la bête restaient clos, comme s'ils avaient été scellés à jamai
 
 La bête fondit instantanément sur le Daoïste aux Sept Couleurs. Juste au moment où elle s'apprêtait à le dévorer, celui-ci forma un sceau de la main et frappa l'animal.
 
-La paume aux sept couleurs percuta la tête de la bête dans un fracas de tonnerre. La créature poussa un rugissement féroce et fut repoussée de 1 000 pieds. Cependant, sa tête se tordit et se rétracta, s'arrêtant net juste avant d'inspirer!
+La paume aux sept couleurs percuta la tête de la bête dans un fracas de tonnerre. La créature poussa un rugissement féroce et fut repoussée de 1 000 pieds. Cependant, sa tête se tordit et se rétracta, puis, à 1 000 pieds de là, elle aspira violemment en direction du Daoïste aux Sept Couleurs!
 
 Lorsqu'elle aspira l'air, le corps du Daoïste aux Sept Couleurs trembla violemment. D'immenses quantités de lumière aux sept couleurs furent arrachées à son corps et absorbées par la bête!
 
@@ -84,7 +84,7 @@ Les trois généraux, frappés par les ondes de choc de la flèche, crachèrent 
 
 Cependant, à ce moment précis, un rugissement colérique retentit. Les huit Poissons-Œil, couverts de sang pourpre, furent repoussés sur plus de 10 000 pieds. La lumière aux sept couleurs entourant le Daoïste se distordit et s'estompa immédiatement.
 
-Le Daoïste aux Sept Couleurs fut ainsi révélé. Sa poitrine était un véritable carnage. La flèche l'avait transpercé, mais il avait réussi à saisir la pointe de la flèche, empêchant ainsi le projectile de traverser complètement son corps et de le détruire.
+Le Daoïste aux Sept Couleurs fut ainsi révélé. Sa poitrine était un véritable carnage. La flèche l'avait transpercé, mais il avait réussi à saisir l'extrémité arrière de la flèche, empêchant ainsi le projectile de traverser complètement son corps et de le détruire.
 
 Le visage du Daoïste aux Sept Couleurs était pâle, mais son regard était féroce. Il arracha sans pitié la flèche de sa poitrine dans une gerbe de sang. Allié à son expression sauvage, le spectacle était terrifiant!
 

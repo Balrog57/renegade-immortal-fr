@@ -8,7 +8,7 @@ slug: noir-blanc-or
 ---
 Lorsque Wang Lin ouvrit les yeux dans la chambre secrète, la silhouette enveloppée de brume au sommet de la tour du Mont Gu Dao poussa un soupir.
 
-« Cela fait... 400 ans... »
+« Il reste... 400 ans... »
 
 Au sein du clan céleste, les 72 âmes s'étaient calmées après avoir hurlé et imploré le ciel. Cependant, seul le Grand Empyréen Jiu Di savait ce qui s'était passé, et son cœur était troublé. Il cultivait, mais il regardait constamment le ciel avec un mélange d'effroi et de nostalgie dans les yeux.
 
@@ -38,7 +38,7 @@ Contemplant le démon ancien devant lui, les yeux de Song Tian brillèrent d'éc
 
 Song Tian s'assit, les yeux clos, tandis que le regard du démon ancien révélait une lueur monstrueuse. L'être afficha une expression lugubre avant de se retirer dans la faille et de disparaître.
 
-À l'instant même où le démon ancien disparut, Wang Lin prit une profonde inspiration dans le pays de Luo Huo. Ses yeux étaient empreints de détermination, mais lorsqu'il vérifia son niveau de culture, il fronça les sourcils.
+À l'instant même où le démon ancien disparut, Wang Lin expira profondément dans le pays de Luo Hou. Ses yeux étaient empreints de détermination, mais lorsqu'il vérifia son niveau de culture, il fronça les sourcils.
 
 Il ne parvenait pas à déterminer son rang actuel. Il avait dépassé le pic du stade de la Tribulation du Vide, mais n'était pas encore un Grand Empyréen. Il avait l'impression que ce qu'on appelait un Grand Empyréen se trouvait à seulement une demi-étape de son état actuel.
 
@@ -68,15 +68,15 @@ Wang Lin ne fit rien et se contenta d'observer l'âme de l'Empereur Céleste ouv
 
 Constatant que Wang Lin n'était nullement affecté, l'Empereur Céleste fut stupéfait. À l'instant même où la surprise le frappa, la main droite de Wang Lin se referma.
 
-Une puissance fulgurante s'engouffra dans l'âme de l'Empereur Céleste et, dans un fracas assourdissant, celui-ci mourut définitivement. Son âme se changea en une masse informe sur le point de se dissiper. Les yeux de Wang Lin brillèrent intensément et sa main gauche s'élança vers le vide. Une tête gigantesque apparut soudainement dans la chambre secrète.
+Une puissance fulgurante s'engouffra dans l'âme de l'Empereur Céleste et, dans un fracas assourdissant, celui-ci mourut définitivement. Son âme se changea en une masse informe sur le point de se dissiper. Les yeux de Wang Lin brillèrent intensément et sa main gauche s'élança vers le vide. Une tête gigantesque apparut soudainement dans le ciel et la terre, à l'extérieur de la chambre secrète.
 
-C'était la tête de l'Ancêtre Céleste, et lors de son apparition, une lumière dorée et dense se répandit. Cela fit changer les couleurs du monde et emplit la pièce d'une énergie céleste dense.
+C'était la tête de l'Ancêtre Céleste, et lors de son apparition, une lumière dorée se répandit dans toutes les directions. Elle ébranla le monde et l'emplit d'une dense énergie immortelle.
 
 « L'âme pour guide, fusionnez! » Wang Lin agita sa manche et l'âme de l'Empereur Céleste se divisa en sept filaments gazeux qui s'envolèrent vers la tête de l'Ancêtre Céleste.
 
 Ces sept filaments se précipitèrent vers les sept orifices!
 
-Wang Lin se leva soudainement et sortit de la chambre secrète pour la première fois en 100 ans. Il se tint au-dessus de la tête de l'Ancêtre Céleste et fit un geste vers le ciel.
+Wang Lin se leva soudainement et sortit de la chambre secrète pour la première fois en 100 ans. Il se tint devant la tête de l'Ancêtre Céleste et fit un geste vers le ciel.
 
 Un soleil géant apparut derrière la tête de l'Ancêtre Céleste. Ce soleil était noir et blanc, n'étant qu'une silhouette plutôt qu'un corps matériel comme un véritable soleil de Grand Empyréen.
 
@@ -98,7 +98,7 @@ Cependant, la vitesse de fonte ralentit et, avec le temps, sembla même s'arrêt
 
 Ce n'est qu'en franchissant le premier Pont du Piétinement des Cieux que l'on pouvait réellement les extraire du monde et les utiliser.
 
-Les yeux de Wang Lin brillèrent et il murmura pour lui-même: « Pas étonnant que la rumeur dise que le Grand Empyréen Gu Dao pouvait tuer d'autres Grands Empyréens, et que plusieurs d'entre eux périrent par sa main lors de la grande guerre il y a des éons... »
+Les yeux de Wang Lin brillèrent et il murmura pour lui-même: « Pas étonnant que la rumeur dise que le Grand Empyréen Gu Dao pouvait tuer d'autres Grands Empyréens, et que plusieurs d'entre eux périrent par sa main lors de la grande bataille il y a des dizaines de milliers d'années... »
 
 « Avec ce pouvoir de manipuler les lois du monde, il ne devrait pas être difficile de terrasser des Grands Empyréens! »
 

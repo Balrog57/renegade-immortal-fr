@@ -56,7 +56,7 @@ Simultanément, elle vit la brume émanant de la terre envahir le monde. Des hur
 
 Les trois cultivateurs de la Tribulation du Vide tentèrent de s'extraire de la brume, mais la voix sombre de Lu Wenran résonna:
 
-« Cher compagnon, pourquoi cette hâte de partir? » Tandis que ses paroles résonnaient, tous les cultivateurs de la Tribulation du Vide se précipitèrent et le combat éclata.
+« Cher compagnon, pourquoi cette hâte de partir? » Tandis que ses paroles résonnaient, tous les cultivateurs de la Tribulation du Vide du palais souterrain surgirent et le combat éclata.
 
 À la lisière de la Prairie du Ciel Extrême, la femme contrôlant la boussole ouvrit soudainement les yeux. Sans hésiter, elle agita sa manche et guida les milliers de cultivateurs du Continent du Démon Vert vers la prairie.
 
@@ -72,7 +72,7 @@ Des nuages sombres parsemaient l'azur et une neige noire tombait. Cette neige to
 
 « Wang Lin, sors de ta cachette! Pourquoi jouer à ce jeu ici? » L'expression d'Xu Decai était sombre alors qu'il inspectait les lieux.
 
-Dès que sa voix résonna, la silhouette de Wang Lin surgit d'une ondulation à des dizaines de milliers de pieds de lui. Vêtu de blanc immaculé, il fixait Xu Decai avec froideur.
+Dès que sa voix résonna, la silhouette de Wang Lin surgit d'une ondulation à des dizaines de milliers de pieds de lui. Les cheveux blancs flottant au vent, vêtu de blanc immaculé, il fixait Xu Decai avec froideur.
 
 « Tes sorts sont très rapides. Voyons alors lequel de nous deux l'est le plus! » Les yeux de Wang Lin s'illuminèrent.
 
@@ -80,9 +80,9 @@ Dès que sa voix résonna, la silhouette de Wang Lin surgit d'une ondulation à 
 
 À l'instant où ce mot fut prononcé, le monde trembla et une épée apparut. Cette lame représentait l'essence karmique de Wang Lin.
 
-Presque simultanément à l'invocation de Wang Lin, Xu Decai forma des sceaux sans hésiter; des millions de sigils apparurent pour constituer un brouillard rouge. Des vagues de cris déchirants s'élevèrent de la brume tandis que des centaines de milliers d'âmes surgissaient, envahissant le ciel.
+Presque simultanément à l'invocation de Wang Lin, Xu Decai forma des sceaux sans hésiter; des millions de marques apparurent pour constituer un brouillard rouge. Des vagues de cris déchirants s'élevèrent de la brume tandis que des centaines, voire des milliers d'âmes surgissaient, envahissant le ciel.
 
-Xu Decai recula. Sa main gauche se leva à nouveau pour tracer des sceaux. Près de sept millions de sigils apparurent, formant une lance qui se tordit pour devenir la tête d'un python géant s'élançant avec la langue sortie.
+Xu Decai recula. Sa main gauche se leva à nouveau pour tracer des sceaux. Près de sept millions de marques apparurent, formant une lance qui se tordit pour devenir un python géant, la langue sortie, qui s'élança en rugissant.
 
 Immédiatement après, Xu Decai fit trois pas de recul et leva les mains, prêt à lancer un autre sort. Il était extrêmement rapide, mais c'était la première fois qu'il ne parvenait pas à égaler Wang Lin!
 

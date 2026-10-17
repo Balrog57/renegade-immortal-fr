@@ -18,13 +18,13 @@ Cependant, cette pensée n'était qu'un luxe, un rêve irréel.
 
 Il avait enduré encore et encore, mais désormais, il ne pouvait plus supporter. Puisque les choses en étaient ainsi, il n'y avait plus besoin d'endurer!!!
 
-Sous le regard de l'assemblée, Wang Lin éclata d'un rire tonitruant tourné vers le ciel, jusqu'à ce que des larmes coulent sur son visage. Ces larmes étaient amères; elles contenaient ses milliers d'années de détermination et son caractère indomptable, elles incarnaient la dévotion de Wang Lin envers sa propre conscience et envers ceux qui lui avaient témoigné de la bonté.
+Sous le regard de l'assemblée, Wang Lin éclata d'un rire tonitruant tourné vers le ciel, jusqu'à ce que des larmes coulent sur son visage. Ces larmes étaient amères; elles contenaient ses milliers d'années d'épreuves et son caractère indomptable, elles incarnaient l'attachement de Wang Lin à la bonté reçue, et sa désolation.
 
 Son rire devint de plus en plus fort, comme s'il avait perdu la raison.
 
-Lorsque ce rire atteignit les oreilles de Xuan Luo, ce fut comme si une paire de mains géantes lui saisissait la tête pour l'arracher. À cet instant, il eut la sensation qu'une partie de lui-même manquait. Son visage pâlit tandis qu'il contemplait Wang Lin, et son regard sembla s'ancrer dans un âge encore plus avancé.
+Lorsque ce rire atteignit les oreilles de Xuan Luo, ce fut comme si une paire de mains géantes lui saisissait le cœur pour l'arracher de sa poitrine. À cet instant, il eut la sensation qu'une partie de lui-même manquait. Son visage pâlit tandis qu'il contemplait Wang Lin, et il parut plus vieux encore, la désolation dans ses yeux plus profonde.
 
-« Moi, Wang Lin, depuis que j'ai commencé la culture durant mon enfance, j'ai traversé d'innombrables massacres et connu la froideur du monde. La plupart des gens que j'ai rencontrés étaient sournois et sinistres... Suis-je destiné à être une étoile solitaire? Ma femme est morte, mon fils est piégé dans la réincarnation, les traces de Situ sont perdues, et Qing Shui a également disparu. Tous ceux qui m'ont montré de la bonté ont fini par souffrir... »
+« Moi, Wang Lin, depuis que j'ai commencé la culture durant mon enfance, j'ai traversé d'innombrables massacres et connu la froideur du monde. La plupart des gens que j'ai rencontrés étaient sournois et sinistres... Suis-je destiné à être une étoile solitaire? Ma femme est morte, mon fils est piégé dans la réincarnation, les traces de Situ sont perdues, et Qing Shui a également disparu. Tous ceux qui m'ont montré de la bonté ont fini séparés de moi... »
 
 « Je tiens énormément à la bienveillance que les autres m'ont témoignée, car elle est rare et doit être chérie. »
 
@@ -76,7 +76,7 @@ L'expression de l'Empereur Dao Antique changea; il recula de quelques pas avant 
 
 Wang Lin piétina le sang sous ses pas tandis qu'il progressait. Il n'était pas rapide, mais chaque enjambée couvrait des centaines de pieds. Des rivières de sang s'écoulaient alors qu'il se frayait un chemin dans le massacre.
 
-Des hurlements résonnèrent lorsque les 36 Démons se transformèrent en 36 rayons de lumière et chargèrent Wang Lin tels 36 dragons. Cependant, Wang Lin ne daigna même pas les regarder alors qu'ils approchaient. Il leva la main droite, et une fumée verte apparut au bout de son doigt avant de se propager.
+Des hurlements résonnèrent lorsque les 36 Démons se transformèrent en 36 rayons de lumière et chargèrent Wang Lin tels 36 dragons. Cependant, Wang Lin ne daigna même pas les regarder alors qu'ils approchaient. Il leva la main droite, et une fumée verte apparut au bout de son doigt avant de se disperser en anneaux de fumée.
 
 C'était le Dao du Feu Extrême!
 
@@ -90,9 +90,9 @@ Il fixa le dos fou de Wang Lin en se remémorant l'autodestruction de son discip
 
 Il savait que si Wang Lin s'était autodétruit, c'était pour pouvoir massacrer sans aucune retenue. Il savait que Wang Lin ne voulait pas l'affecter et qu'il devait rompre leur lien maître-disciple. Le seul moyen de briser ce lien était de... mourir une fois!
 
-Par ce geste, son disciple signifiait à tout l'Empereur Dao, à tout le clan Antique, et même au Grand Empyréen Gu Dao, qu'il assumerait la responsabilité de tout ce qui se passerait ici aujourd'hui!
+Par ce geste, son disciple signifiait à tout le Dao Antique, à tout le clan Antique, et même au Grand Empyréen Gu Dao, qu'il assumerait la responsabilité de tout ce qui se passerait ici aujourd'hui!
 
-Wang Lin ne voulait pas que Xuan Luo devienne un criminel pour l'Empereur Dao, ni le premier Grand Empyréen à avoir tué un empereur antique...
+Wang Lin ne voulait pas que Xuan Luo devienne un criminel pour le Dao Antique, ni le premier Grand Empyréen à avoir tué un empereur antique...
 
 Même à cet instant, son disciple pensait encore à lui. Un tel disciple plongea Xuan Luo dans un profond sentiment de culpabilité.
 
@@ -100,8 +100,8 @@ Même à cet instant, son disciple pensait encore à lui. Un tel disciple plonge
 
 Wang Lin poussa un rugissement et l'aura meurtrière autour de lui se propagea. Elle se mua en un rayon de lumière rouge qui jaillit, ouvrant un sentier sanglant devant lui. Simultanément, il pointa le ciel.
 
-Le palais entier se transforma en une mer obscure, et à l'horizon de cette mer, un soleil commença à poindre. Wang Lin utilisait son sortilège de foi, *Nuit Déchirée*, sur le palais sans la moindre hésitation.
+Le palais entier se transforma en une mer obscure, et à l'horizon de cette mer, un soleil commença à poindre. Wang Lin utilisait son sortilège de foi, *Nuit Brisée*, sur le palais sans la moindre hésitation.
 
 Le soleil se leva et une lumière infinie jaillit. Des murmures s'élevèrent parmi les cris misérables tandis que les corps explosaient en brume sanglante. On ignorait combien de personnes périrent ainsi.
 
-Une fois l'illusion de la mer dissipée, la plupart des mille cultivateurs devant le palais avaient péri. Les survivants furent balayés, et Wang Lin se tint désormais devant le palais. Il pénétra dans l'enceinte, une intention meurtrière déchaînée émanant de son corps, couvrant le ciel derrière lui alors qu'il entrait dans la demeure impériale.
+Une fois l'illusion de la mer dissipée, la plupart des milliers de cultivateurs devant le palais avaient péri. Les survivants furent balayés, et Wang Lin se tint désormais devant le palais. Il pénétra dans l'enceinte, une intention meurtrière déchaînée émanant de son corps, couvrant le ciel derrière lui alors qu'il entrait dans la demeure impériale.

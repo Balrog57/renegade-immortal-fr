@@ -28,7 +28,7 @@ Cependant, il ne s'attendait pas à ce que Wu Feng tienne de tels propos.
 
 « Je n'ai pas autant d'avantages à offrir que toi, et ma chance dans le Royaume Divin Immémorial n'est pas aussi grande que la tienne. » Wu Feng parlait avec calme. Il regarda Wang Lin droit dans les yeux, le regard clair et sincère.
 
-« Mais si tu me suis, tu ne seras pas mon subordonné. Je te prendrai comme disciple pour mon propre maître! Nos niveaux de culture diffèrent, mais nos statuts seront égaux! Ce qui est à moi est à toi! C'est la seule chose que je puisse t'offrir. » Wu Feng contemplait Wang Lin. Il accordait une importance capitale à un tel individu. Il sentait que Wang Lin avait de fortes chances de devenir un Grand Empyréen, et une telle personne valait bien un tel engagement.
+« Mais si tu me suis, tu ne seras pas mon subordonné. Je te prendrai comme disciple au nom de mon propre maître, tu seras mon Junior Frère! Nos niveaux de culture diffèrent, mais nos statuts seront égaux! Ce qui est à moi est à toi! C'est la seule chose que je puisse t'offrir. » Wu Feng contemplait Wang Lin. Il accordait une importance capitale à un tel individu. Il sentait que Wang Lin avait de fortes chances de devenir un Grand Empyréen, et une telle personne valait bien un tel engagement.
 
 Les paroles de Wu Feng stupéfièrent le Grand Empyréen Dao Yi, qui resta silencieux. Une telle condition était en effet bien supérieure aux trésors qu'il avait proposés.
 
@@ -68,13 +68,13 @@ Cependant, Wang Lin ne pouvait laisser cela arriver. Il ne voulait pas qu'elle f
 
 Le silence de Wang Lin fit soupirer Hai Zi intérieurement, mais elle sourit. Elle leva la main droite et tapota l'épaule de Wang Lin.
 
-« Toi, enfin... Je voulais juste t'inviter au Mont de l'Empereur pour te présenter quelques femmes. Humph, si tu ne veux pas venir, tant pis. J'irai trouver quelqu'un d'autre. »
+« Toi, enfin... Je voulais juste t'inviter au Mont de l'Empereur pour te présenter quelques femmes de double culture. Humph, si tu ne veux pas venir, tant pis. J'irai trouver quelqu'un d'autre. »
 
 Wang Lin esquissa un sourire amer.
 
 « Hai Zi, ne fais pas d'imprudence! » Dans le ciel, le Grand Empyréen Jiu Di conservait la même apparence, mais son expression était sérieuse. Pourtant, aucune majesté de Grand Empyréen ne se dégageait de lui; même sérieux, il paraissait ordinaire.
 
-« Wang Lin, ce vieil homme t'acceptera comme disciple. Es-tu d'accord? » Le Grand Empyréen Jiu Di appartenait à la même époque que l'Empereur Céleste. « Si tu acceptes, je peux te promettre qu'une fois le Royaume Divin Immémorial ouvert, je t'aiderai à y pénétrer! Et je t'aiderai à devenir un Grand Empyréen! » C'était un engagement que seuls les Grands Empyréens oseraient formuler, car eux seuls en connaissaient le prix.
+« Wang Lin, ce vieil homme t'acceptera comme disciple. Es-tu d'accord? » Le Grand Empyréen Jiu Di appartenait à la même époque que l'Ancêtre Céleste. « Si tu acceptes, je peux te promettre qu'une fois le Royaume Divin Immémorial ouvert, je t'aiderai à y pénétrer! Et je t'aiderai à devenir un Grand Empyréen! » C'était un engagement que seuls les Grands Empyréens oseraient formuler, car eux seuls en connaissaient le prix.
 
 C'était ce qu'il avait dit à l'Ascendant Empyréen Ming Dao, mais face aux conditions occultes de l'Empereur Céleste, celui-ci n'avait pas choisi Jiu Di.
 

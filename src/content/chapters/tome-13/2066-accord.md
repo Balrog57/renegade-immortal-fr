@@ -6,7 +6,7 @@ bookTitle: Light of the coming end
 en: Chapter 2066 - Agreement
 slug: accord
 ---
-Les chants du ciel, de la terre, du vent, du tonnerre, de la pluie, des nuages, des organes internes, du corps et du sang résonnèrent.
+Les chants du ciel, de la terre, du vent, du tonnerre, des nuages, de la pluie, des organes internes, du corps et du sang résonnèrent.
 
 Les trois signes — le ciel doré et la terre noire, les yeux argentés, et le cri du nouveau-né!
 
@@ -14,7 +14,7 @@ Les neuf chants et les trois signes faisaient l'objet de nombreuses légendes su
 
 À cet instant, dans la cité ancestrale céleste et dans les trois cités impériales du clan Antique, des fissures apparurent sur la statue de l'Ancêtre Céleste et sur celles de l'Ancêtre Antique. Au centre du vaste bassin, le Grand Empyréen Gu Dao fut le témoin personnel de l'accomplissement de la légende.
 
-À ce moment précis, la silhouette apparue au-dessus du clan Antique se tenait là et poussa un rugissement vers l'autre figure gigantesque qui s'était manifestée au-dessus du clan Céleste.
+À ce moment précis, la silhouette apparue au-dessus du clan Antique se tenait là, le regard tourné vers le ciel, tandis qu'une autre figure gigantesque, formée de la même façon, s'était manifestée au-dessus du clan Céleste.
 
 Ces deux figures semblaient soutenir les cieux, mais entre elles, une troisième silhouette surgit. Dès son apparition, une lumière éclatante envahit le monde.
 
@@ -38,7 +38,7 @@ Même si l'Ancêtre Céleste et l'Ancêtre Antique étaient présents, il serait
 
 Désormais, sur le Continent Astral Immortel, aux côtés des légendes de l'Ancêtre Céleste et de l'Ancêtre Antique, on trouverait également les empreintes de Wang Lin.
 
-Aux yeux de Wang Lin, le sort actuel de Gu Dao n'avait fait qu'effleurer le stade de la Foulée sur le Paradis. Il réfléchit silencieusement et, alors que le pied géant n'était plus qu'à cent pieds de lui, il pointa du doigt.
+Aux yeux de Wang Lin, le sort actuel de Gu Dao n'avait fait qu'effleurer le Domaine du Piétinement des Cieux. Il réfléchit silencieusement et, alors que le pied géant n'était plus qu'à cent pieds de lui, il pointa du doigt.
 
 Sur ce geste, le pied géant trembla et se brisa en d'innombrables fragments devant Wang Lin. Une tempête puissante dispersa les débris à travers le monde, sous les yeux du Grand Empyréen Gu Dao.
 
@@ -48,7 +48,7 @@ Gu Dao resta silencieux, plongé dans ses pensées. Son visage parut plus vieux 
 
 Wang Lin resta silencieux. Il observa le Grand Empyréen Gu Dao, puis hocha la tête.
 
-« Merci... » Gu Dao ouvrit les yeux et, ce faisant, reprit son apparence normale. Le brouillard enveloppa à nouveau son corps jusqu'à le recouvrir entièrement. La brume tourbillonna et l'emporta vers la direction du clan Antique.
+« Merci... » Gu Dao ferma les yeux et, en les rouvrant, retrouva son expression habituelle. Le brouillard enveloppa à nouveau son corps jusqu'à le recouvrir entièrement. La brume tourbillonna et l'emporta vers la direction du clan Antique.
 
 Wang Lin fixa l'endroit où Gu Dao s'était volatilisé jusqu'à ce que le brouillard et les grondements de tonnerre disparaissent. Il se tourna vers la tempête marine et marcha vers elle.
 
@@ -104,9 +104,9 @@ Après ses paroles, Song Tian et les autres lui jetèrent des regards froids.
 
 « Je me demande ce que vous trois en pensez? » demanda lentement Ji Du.
 
-Une fois Ji Du achevé, Wu Feng réfléchit un instant avant de répondre: « Ce vieil homme souhaite simplement voir cette scène, sans autre intention. Je peux prêter un serment de foi! »
+Ji Du ajouta: « Ce vieil homme souhaite simplement voir cette scène, sans autre intention. Je peux prêter un serment de foi! » Wu Feng, à ses côtés, réfléchit un instant avant de dire à son tour:
 
-« Je peux également faire un vœu! » ajouta Dao Yi.
+« Moi aussi, je peux faire un serment! »
 
 Dao Yi hésita un moment en regardant Ji Du et Wu Feng avant de hocher la tête. Quant à Gémeaux, elle réfléchit brièvement et accepta.
 
@@ -126,7 +126,7 @@ Ils virent progressivement deux silhouettes apparaître au sein de la lumière q
 
 Les sept furent stupéfaits, mais ce qu'ils virent ensuite les laissa tous médusés, frappés d'une incrédulité totale.
 
-Ils virent le sort de Gu Dao et la "Foulée sur le Paradis" de Wang Lin. Enfin, ils virent Wang Lin pointer l'avant, provoquant l'effondrement du pied géant, puis Gu Dao s'éloigner calmement...
+Ils virent le sort de Gu Dao et le Pas pour Piétiner les Cieux de Wang Lin. Enfin, ils virent Wang Lin pointer l'avant, provoquant l'effondrement du pied géant, puis Gu Dao s'éloigner calmement...
 
 L'apparence de Gu Dao et ses échanges avec Wang Lin n'étaient pas perceptibles pour les sept spectateurs. Cependant, ce qu'ils avaient vu suffit à leur couper le souffle...
 

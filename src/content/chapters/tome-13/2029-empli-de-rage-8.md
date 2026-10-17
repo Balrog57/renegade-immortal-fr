@@ -8,7 +8,7 @@ slug: empli-de-rage-8
 ---
 Lorsque les dizaines de milliers de personnes apparurent, les yeux des près de mille individus à l'extérieur du palais s'écarquillèrent d'incrédulité. Même l'expression de l'Empereur Dao Antique changea, devenant plus sombre encore.
 
-Son père, le vieil homme, eut un haut-le-cœur. Il n'avait rien remarqué auparavant, mais à présent, il regardait Wang Lin avec une terreur toujours plus profonde dans les yeux.
+Son père, le vieil homme, inspira brusquement. Il n'avait rien remarqué auparavant, mais à présent, il regardait Wang Lin avec une terreur toujours plus profonde dans les yeux.
 
 Alors que ces âmes retournaient dans leurs corps, les dizaines de milliers de personnes ouvrirent les yeux. Après un instant de confusion, elles se réveillèrent complètement.
 
@@ -60,7 +60,7 @@ L'expression de l'Empereur Dao Antique changea et il rugit immédiatement: « Ab
 
 « Maintenant que je l'ai expliqué, je vais l'emmener. » Wang Lin tourna la tête et lança un regard froid à l'Empereur Dao Antique, qui était protégé par près de mille hommes.
 
-L'Empereur Dao Antique répliqua aussitôt: « Ridicule. Ton explication est dénuée de sens. Si je te laissais vraiment l'emporter, le monde entier ne se moquerait-il pas de mon incompétence?! De plus, ton raisonnement est illogique. Je pourrais affirmer que cette femme était mon épouse dans une vie antérieure. Que peux-tu faire?! » Sa voix était tranchante et ne montrait aucun signe de recul.
+L'Empereur Dao Antique répliqua aussitôt: « Ridicule. Ton explication ne repose sur aucune preuve. Si je te laissais vraiment l'emporter, le monde entier ne se moquerait-il pas de mon incompétence?! De plus, des explications, moi aussi je pourrais en avoir à l'infini. Je pourrais dire que cette femme était ma concubine dans une vie antérieure. Que peux-tu faire?! » Sa voix était tranchante et ne montrait aucun signe de recul.
 
 Il était convaincu que Wang Lin ne pourrait jamais lui nuire, ni n'oserait le tuer. Il voyait également le respect que Wang Lin portait à Xuan Luo. Avec la présence de ce dernier, il était encore moins probable que Wang Lin attaque.
 
@@ -72,7 +72,7 @@ En tant qu'Empereur Dao, il n'avait rien à craindre; comment laisser Wang Lin f
 
 L'Empereur Dao Antique agita sa manche et dit froidement: « Si tu veux emporter mon impératrice, alors apporte-moi des preuves! »
 
-Wang Lin médita silencieusement. L'intention meurtrière en lui était presque impossible à réprimer et menaçait d'éclater. Il était prêt à massacrer les mille gardes sur son chemin et à se frayer un chemin sanglant jusqu'au palais pour tuer l'Empereur Dao Antique!
+Wang Lin garda le silence. L'intention meurtrière en lui était presque impossible à réprimer et menaçait d'éclater. Il était prêt à massacrer les mille gardes sur son chemin et à se frayer un chemin sanglant jusqu'au palais pour tuer l'Empereur Dao Antique!
 
 Mais il ne pouvait pas le faire. Une légère rougeur monta sur ses joues pâles alors qu'il contenait sa fureur déchaînée.
 
@@ -86,9 +86,9 @@ Au moment où le jade se brisa, tout ce qu'il avait perçu grâce au jade de la 
 
 L'image était d'une clarté incroyable!
 
-« Le Maître Impérial a dit que ce fragment d'âme pourrait faire de moi le véritable Empereur Ancestral de tout le Clan Antique. Ainsi, faire de cette femme mon impératrice serait la plus belle des récompenses pour elle. »
+« Le Maître Impérial a dit que ce fragment d'âme pourrait faire de moi le véritable Empereur Ancestral unifiant les trois clans ancestraux. Ainsi, faire de cette femme mon impératrice serait la plus belle des récompenses pour elle. »
 
-« Bien que cette femme ne soit pas d'une beauté absolue, elle possède son propre charme. J'ignore d'où le Maître Impérial a tiré ce fragment d'âme... Elle doit avoir son propre amant, et peut-être qu'il a ressenti une douleur extrême après sa mort... »
+« Bien que cette femme ne soit pas belle, elle possède son propre charme. J'ignore d'où le Maître Impérial a tiré ce fragment d'âme... Elle a peut-être aussi son propre amant, et peut-être qu'il a ressenti une douleur extrême après sa mort... »
 
 « Hélas, il ne saura jamais que cette femme est entre mes mains... Si seulement je pouvais voir qui était l'amant de cette femme, ce serait bien intéressant. »
 

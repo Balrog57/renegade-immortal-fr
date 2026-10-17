@@ -30,9 +30,9 @@ Tout en criant, Dao Yi transforma sa douleur en intention meurtrière et se pré
 
 Une paume s'abattit, et le monde sembla s'immobiliser, comme si tout fusionnait en un seul point avant de s'écraser sur Wang Lin.
 
-Wang Lin, aux cheveux noirs, leva soudain les yeux, son regard empreint d'une totale indifférence. Tandis que la paume descendait, il rangea le fou et fit un geste de la main. Des grondements tonitruants résonnèrent alors qu'un réseau de tonnerre noir de massacre se forma devant lui.
+Wang Lin, aux cheveux noirs, leva soudain les yeux, son regard empreint d'une totale indifférence. Tandis que la paume descendait, il posa le fou inconscient et fit un geste de la main. Des grondements tonitruants résonnèrent alors qu'un réseau de tonnerre noir de massacre se forma devant lui.
 
-Dès l'apparition du filet, les cheveux noirs de Wang Lin s'agitèrent sans qu'aucun vent ne soufflât. Une aura de massacre et de destruction émana de son corps. À cet instant précis, Wang Lin était l'incarnation même de la destruction!
+Dès l'apparition du filet, les cheveux noirs de Wang Lin s'agitèrent sans qu'aucun vent ne soufflât. Une aura de massacre et de destruction émana de son corps. À cet instant précis, Wang Lin était l'incarnation même du massacre!
 
 Lorsque le massacre se manifeste, c'est le début de la fin!
 
@@ -50,7 +50,7 @@ Le pouvoir de la malédiction devint encore plus intense!
 
 « Tu... Tu... » Les paroles de Dao Yi ne furent plus qu'un sifflement étouffé par l'agonie. S'il n'avait été qu'un Ascendant Empyréen, il serait déjà mort sous une telle douleur.
 
-Wang Lin agita sa manche et dit calmement: « Dao Yi, si tu souhaites encore combattre, je ne m'oppose pas à ce que la malédiction ancestrale s'aggrave pour voir si tu finiras par succomber ou non! »
+Wang Lin agita sa manche et dit calmement: « Dao Yi, si tu souhaites encore combattre, il n'y a pas de malédiction ancestrale sur moi, et cela ne me dérange pas de voir, si ta malédiction s'aggrave, si tu finiras par succomber ou non! »
 
 Dao Yi fixa Wang Lin sans prononcer un mot. Pour la première fois, il ressentit une peur qu'il ne pouvait même pas concevoir. De nouveaux morceaux de chair décomposée chutèrent de son visage; il n'avait plus rien de la beauté qu'il arborait autrefois.
 
@@ -68,7 +68,7 @@ Simultanément, le Grand Empyréen Gémeaux bougea pour rejoindre Wang Lin. Son 
 
 Le visage des deux petites filles était d'une pâleur mortelle; elles paraissaient très faibles. Il semblait que fusionner en une seule entité leur coûtait un prix exorbitant.
 
-Wang Lin n'hésita pas. Dès qu'elles apparurent à ses côtés, il leva le pied droit et écrasa la tête de l'Ancêtre Céleste. La tête trembla, et deux yeux baignés d'une lumière dorée furent expulsés du crâne!
+Wang Lin n'hésita pas. Dès qu'elles apparurent à ses côtés, il leva le pied droit et écrasa la tête de l'Ancêtre Céleste. La tête trembla, et deux yeux souillés de sang doré résiduel furent expulsés du crâne!
 
 La tête de l'Ancêtre Céleste contenait la malédiction ancestrale, mais celle-ci avait été brisée par l'Empereur Céleste et ses compagnons. Lorsque Wang Lin avait recueilli l'âme de l'Empereur Céleste, il en avait pris conscience et ne craignait pas la malédiction.
 

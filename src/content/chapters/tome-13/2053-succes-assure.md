@@ -6,15 +6,15 @@ bookTitle: Light of the coming end
 en: "Chapter 2053 - Help succeed!"
 slug: succes-assure
 ---
-Wang Lin regarda le Grand Empyréen Song Tian élever la Montagne d'Origine vers les cieux; la terre trembla alors qu'une lumière noire toujours plus intense se dégageait de l'artefact.
+Wang Lin regarda le Grand Empyréen Song Tian élever la Montagne d'Origine vers les cieux; la terre trembla alors qu'une lumière noire se dégageait du dessous de la montagne.
 
-Leurs expressions restaient toutes deux calmes tandis qu'il les observait froidement.
+Son expression restait calme tandis qu'il observait froidement la scène.
 
 La montagne s'éleva de plus en plus haut jusqu'à flotter bien au-dessus de la tête de Song Tian. Ce dernier leva sa main droite comme s'il soutenait une masse colossale.
 
 « Wang Lin, si tu peux résister à la puissance de cette Montagne d'Origine, alors j'admettrai ma défaite! » rugit Song Tian en agitant sa main droite pour précipiter la Montagne d'Origine sur Wang Lin.
 
-« Cette montagne s'appelle la Montagne d'Origine. Elle fut la première montagne née chez les Anciens Shi et elle demeure ici depuis des éons. Sa taille n'a pas changé malgré les millénaires. C'est ici que j'ai accompli mon Dao et que je suis devenu un Grand Empyréen. Après avoir raffiné cette montagne, j'ai pu libérer sa force de suppression.
+« Cette montagne s'appelle la Montagne d'Origine. Elle fut la première montagne née chez les Anciens Shi et elle demeure ici depuis d'innombrables dizaines de milliers d'années. Sa taille n'a pas changé le moins du monde. C'est ici que j'ai accompli mon Dao et que je suis devenu un Grand Empyréen. Après avoir raffiné cette montagne, cette montagne peut, entre mes mains, libérer une fois sa force de suppression.
 
 « Wang Lin, encaisse cette attaque! »
 
@@ -62,7 +62,7 @@ Wang Lin ne prêta aucune attention aux nouveaux arrivants. Il agita sa manche a
 
 Une fois réduite, la montagne ressemblait à une tête de taureau, et sa corne brisée était redevenue intacte.
 
-En voyant cela, Song Tian tituba et pâlit. Au cours des éons passés, aucun Grand Empyréen des Anciens Shi n'avait réussi à réduire la montagne à un tel point.
+En voyant cela, Song Tian tituba et pâlit. De génération en génération, aucun Grand Empyréen des Anciens Shi n'avait réussi à réduire la montagne à un tel point.
 
 Quant à Wang Lin, il ne semblait même pas avoir eu besoin de la raffiner pour l'amenuiser; il paraissait pouvoir la manipuler à sa guise. Song Tian ressentit une profonde amertume, laissa échapper un soupir et abandonna toute résistance. Il joignit les mains et s'inclina devant Wang Lin.
 
@@ -84,7 +84,7 @@ Dans le clan Ancien, où le pouvoir impérial était absolu, le prince reconnu c
 
 Un tel événement dépassait l'entendement et provoqua un immense tumulte.
 
-« Ji Du, que fais-tu?! » La première voix à s'élever fut celle de l'homme d'âge mûr debout aux côtés de l'empereur: c'était le prince héritier!
+« Ji Du, que fais-tu?! » La première voix à s'élever fut celle de l'homme d'âge mûr debout aux côtés de l'empereur: c'était le prince aîné!
 
 Au loin, Chi Man ressentait initialement une pointe de frustration, mais il était impuissant. Cependant, ses yeux s'illuminèrent soudainement.
 
@@ -108,9 +108,9 @@ Ji Du prit une profonde inspiration. Jusqu'alors, Wang Lin ne l'avait jamais off
 
 C'était là que se trouvait le temple ancestral.
 
-Le prince héritier et Chi Man étaient livides et semblaient sur le point de parler. L'empereur des Anciens Shi parut comprendre la situation et, après un soupir, prit la parole pour la première fois:
+Le prince aîné et Chi Man étaient livides et semblaient sur le point de parler. L'empereur des Anciens Shi parut comprendre la situation et, après un soupir, prit la parole pour la première fois:
 
-« Le fait que mon enfant ait un parrain tel que le Seigneur Wang est sa chance et une gloire pour les Anciens Shi. Je ne suis pas l'Empereur de l'Ancien Dao, je ne forcerai donc pas Seigneur Wang à partir, car cela causerait un désastre pour les nôtres...
+« Le fait que mon enfant ait un parrain tel que le Seigneur Wang est sa chance et une gloire pour les Anciens Shi. Je ne suis pas l'Empereur de l'Ancien Dao, qui, sans discernement, a chassé le Seigneur Wang et attiré le malheur sur lui-même et sur tout son clan...
 
 « Je demande au Seigneur Wang de rester parmi nous chez les Anciens Shi. Si vous avez la moindre requête, je ferai tout mon possible pour y satisfaire! » Le vieil homme en robe royale joignit les mains et s'inclina devant Wang Lin.
 
@@ -120,6 +120,6 @@ Le prince Ji Du se leva et s'adressa respectueusement à l'empereur: « Père, m
 
 Le vieil homme sourit et répondit sans la moindre hésitation: « Le temple ancestral? Si Seigneur Wang souhaite s'y rendre, alors j'y consens naturellement! » Il n'osait ni contredire ni émettre l'ombre d'une objection au fait que Ji Du ait pris cet homme pour parrain.
 
-Ce Seigneur Wang avait tué l'Empereur de l'Ancien Dao, avait forcé l'entrée de la cité impériale de l'Ancien Dao et en était ressorti vivant. Même le Grand Empyréen Gu Dao n'avait pas bronché. Si, lors de ses assises, même le Grand Empyréen Song Tian n'était pas son égal, comment oserait-on offenser Wang Lin?
+Ce Seigneur Wang avait tué l'Empereur de l'Ancien Dao, avait forcé l'entrée de la cité impériale de l'Ancien Dao et en était ressorti vivant. Même le Grand Empyréen Gu Dao n'avait pas bronché. Et il venait de voir de ses propres yeux que même le Grand Empyréen Song Tian n'était pas son égal: comment oserait-on offenser Wang Lin?
 
 La suprématie du pouvoir impérial ne pesait rien face à une telle puissance.

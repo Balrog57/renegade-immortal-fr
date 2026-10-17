@@ -36,7 +36,7 @@ Le Continent du Taureau Céleste était sous l'influence de la Secte de la Grand
 
 Là se trouvait une chaîne de montagnes noires recouverte de forêts. Un voile de brume enveloppait les monts, où les bêtes se faisaient rares.
 
-Au cœur de cette chaîne montagneuse se dressait un pic solitaire. C'était le sommet le plus élevé, entouré de la brume la plus dense. C'était là que se trouvait la Secte des Sept Dao. Lorsque le monde des grottes se referma, Su Dao scella la Secte des Sept Dao. De nombreuses années s'étaient écoulées, et la Secte des Sept Dao était tombée. Il n'y avait plus aucune créature vivante ici; l'endroit n'était que mort.
+Au cœur de cette chaîne montagneuse se dressait un pic solitaire. Les vapeurs noires y étaient les plus denses et ne s'étaient pas dissipées depuis des dizaines de milliers d'années. C'était là que se trouvait la Secte des Sept Dao. Lorsque le monde des grottes se referma, Su Dao scella la Secte des Sept Dao. De nombreuses années s'étaient écoulées, et la Secte des Sept Dao était tombée. Il n'y avait plus aucune créature vivante ici; l'endroit n'était que mort.
 
 C'était également là que l'on apparaissait après avoir quitté le monde des grottes.
 
@@ -54,11 +54,11 @@ Xuan Luo contempla le pavillon de la Secte des Sept Dao dissimulé dans la brume
 
 « Mais ils sont en sécurité. » Xuan Luo laissa échapper un soupir en fixant le pavillon. Il semblait capable de percevoir le vide à l'intérieur du bâtiment et Wang Lin, qui luttait pour s'en extraire.
 
-« Il reste moins de quatre ans. Disciple, ton Maître a fait tout ce qu'il pouvait... Désormais, tout dépendra de toi... » Xuan Luo ferma lentement les yeux, et entre ses sourcils jaillit une lueur rouge. Cette lumière servait de guide pour que Wang Lin ne s'égare pas.
+« Il reste moins de quatre ans. Disciple, ton Enseignant a fait tout ce qu'il pouvait... Désormais, tout dépendra de toi... » Xuan Luo ferma lentement les yeux, et entre ses sourcils jaillit une lueur rouge. Cette lumière servait de guide pour que Wang Lin ne s'égare pas.
 
 Dans le vide séparant les mondes des grottes du Continent Astral Immortel, le visage de Wang Lin était d'une pâleur mortelle. Il faisait circuler son Pouvoir de Dao Antique dans tout son corps pour résister à la pression démente qui l'assaillait de toutes parts.
 
-Cette pression était déjà d'une puissance indescriptible; sans la bête moustique qui continuait de s'agiter, Wang Lin aurait déjà succombé. Même le roi moustique se déplaçait beaucoup plus lentement et peinait sous la charge. Parfois, il laissait échapper un hurlement silencieux.
+Cette pression était déjà d'une puissance indescriptible; sans la bête moustique qui continuait d'avancer, Wang Lin aurait déjà succombé. Même le roi moustique se déplaçait beaucoup plus lentement et peinait sous la charge. Parfois, il laissait échapper un hurlement silencieux.
 
 Les yeux de Wang Lin étaient injectés de sang. Les essences de son corps étaient épuisées et il ne pouvait plus les régénérer. La seule façon de résister aux lois du Continent Astral Immortel était d'utiliser son corps de Dao Antique.
 

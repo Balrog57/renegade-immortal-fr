@@ -58,7 +58,7 @@ Tout cela était consigné sur la carte en forme de carapace de tortue que l'Anc
 
 « Sur le Continent de l'Est, il ne reste plus que sept Exaltés Empyréens! Je me demande... avec mon niveau actuel, quel rang atteindrai-je si j'utilise l'armure d'âme du Taureau Céleste... » Tandis que la tempête faisait rage, Wang Lin se tenait là, les mains derrière le dos, le regard brillant.
 
-« Je peux ignorer les Exaltés Dorés, les Exaltés Empyréens... Je n'en ai combattu aucun, mais je brûle d'envie de le faire! » Les cheveux blancs de Wang Lin flottaient au vent. D'un revers de manche, il recouvrit sa tête de ses vêtements.
+« Je peux ignorer les Exaltés Dorés. Quant aux Exaltés Empyréens... je n'en ai combattu aucun, mais je brûle d'envie de le faire! » Les cheveux blancs de Wang Lin flottaient au vent. D'un revers de manche, il recouvrit sa tête de ses vêtements.
 
 De loin, Wang Lin semblait porter une robe blanche dissimulant son visage et même sa chevelure immaculée. Il dégageait une aura mystérieuse et ancestrale.
 

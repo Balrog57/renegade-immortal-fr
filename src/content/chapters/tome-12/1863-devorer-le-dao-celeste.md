@@ -12,7 +12,7 @@ Dans un fracas assourdissant, la boue entourant Wang Lin se mit à tourbillonner
 
 « Mort par la boue! » rugit Xu Decai, tandis que la sphère de boue se rétractait violemment.
 
-Xu Decai était une figure célèbre sur le Continent du Démon Vert. Ce qui le rendait terrifiant était sa vitesse d'exécution inégalée. Parmi les cultivateurs de même rang, il pouvait exploiter cet avantage pour lancer des sorts sans interruption, refusant à ses adversaires la moindre seconde de répit jusqu'à ce qu'il les bombarde à mort! C'était aussi la raison pour laquelle, bien qu'il fût un cultivateur errant, il avait été invité par la Secte du Dao Démon!
+Xu Decai était une figure célèbre sur le Continent du Démon Vert. Ce qui le rendait terrifiant était sa vitesse d'exécution inégalée. Parmi les cultivateurs de même rang, il pouvait exploiter cet avantage pour lancer des sorts sans interruption, refusant à ses adversaires la moindre seconde de répit jusqu'à ce qu'il les bombarde à mort! C'était aussi la raison pour laquelle, bien qu'il fût un cultivateur errant, il avait été invité par la Secte de la Voie Démoniaque!
 
 Wang Lin se trouvait à l'intérieur de cette masse et se retrouvait encerclé par quatre colosses de boue. Des grondements sourds résonnaient, mêlés à la puissance mystérieuse de l'encens de Xu Decai qui imprégnait son corps. À l'extérieur de la masse boueuse, une ombre gigantesque semblable à une baleine ouvrit sa gueule pour tout dévorer.
 
@@ -22,17 +22,17 @@ Des tonnerres retentirent. Bientôt, la boue s'effondra sous l'effet d'une force
 
 Depuis sa jeunesse, Wang Lin avait traversé maints massacres. C'était la première fois qu'il se trouvait incapable de riposter, subissant de plein fouet une telle tempête d'attaques. Tout cela était dû à la vitesse terrifiante à laquelle l'ennemi lançait ses sorts.
 
-À l'instant même où Wang Lin sortit des débris de boue, un hurlement retentit et une épée volante jaune chargea vers lui. Derrière cette épée se trouvaient dix-huit géants de boue. Derrière ces derniers, une peinture animée ondula comme un ruban avant de se refermer rapidement sur lui. Derrière la peinture, un os antique dégageant une aura millénaire semblait être projeté vers Wang Lin.
+À l'instant même où Wang Lin sortit des débris de boue, un hurlement retentit et une nuée d'épées volantes jaunes chargea vers lui. Derrière ces épées se trouvaient dix-huit géants de boue. Derrière ces derniers, une peinture animée ondula comme un ruban avant de se refermer rapidement sur lui. Derrière la peinture, un os antique dégageant une aura millénaire semblait être projeté vers Wang Lin.
 
 Puis, l'herbe s'agita et fut arrachée à la terre; chaque brin se transforma en une goutte de liquide vert, formant une multitude de projectiles convergeant vers lui. Derrière cela, un brouillard balaya le monde, semblant arracher les nuages du ciel pour former deux paumes géantes qui fonçaient sur Wang Lin par la gauche et par la droite.
 
-L'ombre de la baleine, qui s'était transformée en neuf pythons empoisonnés, rouvrit sa gueule, prête à dévorer Wang Lin une seconde fois. Cette chose était extrêmement étrange. Selon l'expérience de Xu Decai, dès que la baleine aurait dévoré trois fois, tout cultivateur de même niveau serait gravement blessé!
+L'ombre de la baleine, qui s'était transformée en neuf pythons empoisonnés, rouvrit sa gueule, prête à dévorer Wang Lin une seconde fois. Cette chose était extrêmement étrange. Selon l'expérience de Xu Decai, dès qu'elle aurait dévoré plus de trois fois, tout cultivateur de même niveau serait gravement blessé!
 
 Face à ce spectacle, Wang Lin sentit son cuir chevelu s'engourdir. Il n'aurait jamais imaginé qu'un être puisse lancer des sorts avec une telle intensité. En un laps de temps si court, l'adversaire avait déployé une variété de sortilèges phénoménale. Les environs étaient saturés d'attaques, donnant à Wang Lin l'illusion de ne pas affronter un seul homme, mais une armée entière!
 
-Il était trop tard pour réfléchir lorsqu'une épée jaune chargea vers lui, chargée d'une aura si puissante qu'elle semblait destinée à trancher sa chair. La vitesse et la succession ininterrompue des sorts ne lui laissèrent aucun répit. À peine apparut-il que les attaques le percutèrent.
+Il était trop tard pour réfléchir lorsque la nuée d'épées jaunes fondit sur lui, chargée d'une aura si puissante qu'elle semblait destinée à trancher sa chair. La vitesse et la succession ininterrompue des sorts ne lui laissèrent aucun répit. À peine apparut-il que les attaques le percutèrent.
 
-Des bruits de craquements frénétiques et des sons de chocs métalliques résonnèrent contre son corps. L'épée frappa Wang Lin, le projetant en arrière. Ses vêtements étaient en lambeaux; c'était l'état le plus pitoyable qu'il ait jamais connu! Sans son Corps du Dao Antique, cette épée volante aurait pu le blesser sérieusement.
+Des bruits de craquements frénétiques et des sons de chocs métalliques résonnèrent contre son corps. Les épées frappèrent Wang Lin, le projetant en arrière. Ses vêtements étaient en lambeaux; c'était l'état le plus pitoyable qu'il ait jamais connu! Sans son Corps du Dao Antique, ces épées volantes auraient pu le blesser sérieusement.
 
 Sans lui laisser le temps de reprendre son souffle, les dix-huit géants de boue se rapprochèrent. Lorsqu'ils furent à moins de cent pieds de lui, ils n'attaquèrent pas: ils explosèrent tous simultanément.
 
@@ -40,13 +40,13 @@ Sans lui laisser le temps de reprendre son souffle, les dix-huit géants de boue
 
 L'explosion des dix-huit colosses créa un vortex dévastateur qui enveloppa Wang Lin. Alors qu'il crachait du sang et tentait de reculer, la peinture animée s'approcha. Dans un frémissement, elle généra des couches de tourbillons qui piégèrent Wang Lin. Tandis que les grondements continuaient, la peinture se désintégra pour libérer 108 000 fils qui s'engouffrèrent dans le corps de Wang Lin pour le détruire de l'intérieur.
 
-Mais ce n'était pas fini. Après la peinture, l'os baigné d'une lumière noire fut projeté vers lui. En approchant, une immense fissure apparut, laissant échapper une aura terrifiante d'où surgit une tête gigantesque. C'était celle d'un chien, mais d'une férocité extrême. Dégageant une aura sanguinaire, ses yeux rouges fixèrent l'os devant Wang Lin avant qu'elle ne pousse un hurlement et ne charge. Ce chien était une bête féroce capturée par Xu Decai, utilisée pour blesser ses ennemis sans aucun inconvénient pour son maître!
+Mais ce n'était pas fini. Après la peinture, l'os baigné d'une lumière noire fut projeté vers lui. En approchant, une immense fissure apparut, laissant échapper une aura terrifiante d'où surgit une tête gigantesque. C'était celle d'un chien, mais d'une férocité extrême. Dégageant une aura sanguinaire, ses yeux rouges fixèrent l'os devant Wang Lin avant qu'elle ne pousse un hurlement et ne charge. Ce chien était une bête féroce élevée en captivité par Xu Decai, avec laquelle il blessait ses ennemis, invincible partout où elle passait!
 
 La bête était trop rapide et se rapprocha instantanément. Simultanément, elle mordit l'os tandis que sa tête massive percutait Wang Lin. Du sang jaillit du coin de la bouche de Wang Lin, mais une pluie de liquide vert suivit la bête. Ce liquide s'abattit sur lui dans un fracas tonitruant.
 
 Alors que le chaos régnait, l'assaut final se précisait: les deux paumes géantes qui fonçaient sur lui par la gauche et la droite n'étaient plus qu'à moins de cent pieds. Des craquements déchirants retentirent, comme si son corps ne pouvait supporter une telle pression. À ce moment critique, Wang Lin leva les bras et frappa de plein fouet les deux paumes entrantes.
 
-Au même instant, l'ombre de la baleine ouvrit sa gueule et chargea vers lui. Des grondements tonitruants secouèrent la Prairie du Ciel Extrême lorsque les poings de Wang Lin entrèrent en collision avec les paumes. Un nuage de brume sanguine jaillit de son corps alors qu'il était repoussé. L'ombre de la baleine se rapprocha, prête à l'engloutir. À cet instant, Xu Decai rayonnait de fierté.
+Au même instant, l'ombre de la baleine ouvrit sa gueule et chargea vers lui. Des grondements tonitruants secouèrent la Prairie de l'Extrême Ciel lorsque les poings de Wang Lin entrèrent en collision avec les paumes. Un nuage de brume sanguine jaillit de son corps alors qu'il était repoussé. L'ombre de la baleine se rapprocha, prête à l'engloutir. À cet instant, Xu Decai rayonnait de fierté.
 
 Wang Lin ouvrit la bouche et cracha une pierre noire. Dès son apparition, la pierre explosa d'une lumière sombre qui fusionna avec l'obscurité de la nuit. Une ombre de baleine, mais plusieurs fois plus imposante, surgit alors. C'était le Dao Céleste de Wang Lin: la Bête des Limbes!
 
@@ -70,6 +70,6 @@ Les yeux de Wang Lin brillèrent en fixant Xu Decai. Son cœur battait la chamad
 
 Cependant, malgré ses recherches désespérées, il ne trouva aucune trace de l'aura de Wang Lin. Il semblait avoir l'avantage dans cette bataille, mais son cœur était consumé par une douleur atroce!
 
-À cet instant, deux vieux monstres du stade intermédiaire de la Tribulation du Vide et une cultivatrice du stade initial de la Tribulation du Vide quittèrent leurs équipes pour s'approcher. Mais la silhouette de Wang Lin apparut encore plus loin, au sein même de l'équipe que les trois cultivateurs de la Tribulation du Vide avaient laissée derrière eux.
+À cet instant, deux vieux monstres du stade intermédiaire de la Tribulation du Vide et une cultivatrice du stade initial de la Tribulation du Vide quittèrent leurs équipes pour s'approcher. Mais la silhouette de Wang Lin apparut encore plus loin, derrière l'équipe que les trois cultivateurs de la Tribulation du Vide avaient laissée derrière eux.
 
 L'objectif de Wang Lin était clair: attirer ces trois individus loin d'ici pour entamer un massacre et éliminer tous ceux qui se trouvaient sur son chemin.

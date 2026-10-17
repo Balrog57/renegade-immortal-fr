@@ -10,13 +10,13 @@ Le premier et le second pont semblaient très proches, mais Wang Lin vola pendan
 
 Ce pont était plusieurs fois plus vaste que le premier. Wang Lin n'hésita pas à poser le pied sur le second pont. À l'instant même où il toucha le sol, son corps spirituel trembla comme s'il allait s'effondrer. C'était comme si sa culture n'était pas digne de fouler ce pont.
 
-Un grondement retentit et Wang Lin sentit son esprit exploser tandis que le monde semblait basculer. Son Sens Divin et son âme parurent se séparer. Il entrevit vaguement un continent sous la brume, et celui-ci lui était très familier. Sur le côté gauche se trouvaient 72 continents, et sur le côté droit, 36 pays. Au centre s'étendait un vaste bassin où la mer tournait avec frénésie.
+Un grondement retentit et Wang Lin sentit son esprit exploser tandis que le monde semblait basculer. Son Sens Divin et son âme parurent se séparer. Il entrevit vaguement un continent sous la brume, et celui-ci lui était très familier. Sur le côté gauche se trouvaient 72 continents, et sur le côté droit, 36 pays. Au centre s'étendait un vaste bassin où une mer dressée à la verticale tournait avec frénésie.
 
 Dans les profondeurs de l'océan, il vit neuf piliers colossaux reliés entre eux pour former l'allure d'une porte.
 
 La porte était close et non ouverte.
 
-« Le Piétinement du Ciel... Suis-je en train de piétiner le ciel en ce moment même... » Wang Lin ne pouvait plus ressentir sa propre existence alors qu'il contemplait la terre en contrebas. Il médita silencieusement tout en tournant son regard vers la direction du clan céleste. Les 72 continents se transformèrent soudainement en 72 âmes hurlant vers les cieux.
+« Le Piétinement du Ciel... Suis-je en train de piétiner le ciel en ce moment même... » Wang Lin ne pouvait plus ressentir sa propre existence alors qu'il contemplait la terre en contrebas. Il médita silencieusement tout en tournant son regard vers la direction du clan céleste. Les 72 continents se transformèrent soudainement en 72 bêtes féroces et monstrueuses hurlant vers les cieux.
 
 Cela incluait le Taureau Céleste, le Scorpion Démon Vert et de nombreuses bêtes scellées dont il avait lu l'existence. Les bêtes semblèrent remarquer le regard de Wang Lin et poussèrent toutes un rugissement. Wang Lin pouvait clairement ressentir leur peur, mais il percevait aussi une autre intention derrière cette crainte.
 
@@ -84,9 +84,9 @@ Wang Lin retira son regard du clan céleste. En voyant le Taureau Céleste et Li
 
 Tout en méditant silencieusement, il tourna son attention vers le clan Ancien. En regardant dans cette direction, il constata qu'une agitation similaire à celle du clan céleste secouait le clan Ancien.
 
-La terre tremblait alors que les 36 âmes des 36 pays apparaissaient toutes. Cela incluait le Luo Huo, dont une partie de l'âme avait été dévorée par Wang Lin.
+La terre tremblait alors que les 36 âmes des 36 pays apparaissaient toutes. Cela incluait le Luo Hou, dont une partie de l'âme avait été dévorée par Wang Lin.
 
-Le Luo Huo se manifesta dans sa totalité. Sa tête était une immense masse de chair semblable à une planète de culture. Sa queue ressemblait à celle d'un dragon, et il n'en possédait pas une, mais neuf. Il hurla vers le ciel en implorant de l'aide.
+Le Luo Hou se manifesta dans sa totalité. Sa tête était une immense masse de chair semblable à une planète de culture. Sa queue ressemblait à celle d'un dragon, et il n'en possédait pas une, mais neuf. Il hurla vers le ciel en implorant de l'aide.
 
 Xuan Luo sortit de sa méditation en porte close. Il observa la scène et eut un haut-le-cœur.
 

@@ -6,7 +6,7 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1980 - Not Going!"
 slug: je-ne-partirai-pas
 ---
-Ce point représentait l'apogée de la puissance de Wang Lin. Il contenait non seulement son avatar dans le vide, mais aussi toute la force de son armure spirituelle. Le corps véritable à cinq éléments et le corps véritable d'essence tonnerre de Wang Lin se manifestèrent. Même ses trois essences éthérées apparurent, formant trois immenses vortex derrière lui!
+Ce point représentait l'apogée de la puissance de Wang Lin. Il contenait non seulement son avatar dans le vide, mais aussi toute la force de son armure d'âme. Le corps véritable à cinq éléments et le corps véritable d'essence tonnerre de Wang Lin se manifestèrent. Même ses trois essences éthérées apparurent, formant trois immenses vortex derrière lui!
 
 Toute cette force convergea vers son doigt. Grâce à la formation créée par la lumière dorée et le fragment d'épée, Wang Lin pouvait exploiter la puissance de son avatar dans le vide jusqu'à son paroxysme.
 
@@ -16,7 +16,7 @@ Le vent et la neige hurlaient à travers la longue rue. Le doigt surgissant du v
 
 Dans le tumulte de la neige et du vent, lorsque les deux doigts entrèrent en collision, la puissance du Dao Antique de Wang Lin jaillit, étant la première à heurter l'autre doigt.
 
-Des grondements tonitruants retentirent. Les 98 images rémanentes des cinq Veines de Sortilèges fusionnèrent en une seule et, alliées à la puissance du Taureau Céleste, formèrent la deuxième onde de choc contre le doigt!
+Des grondements tonitruants retentirent. Les 99 images rémanentes des cinq Veines Magiques fusionnèrent en une seule et, alliées à la puissance du Taureau Céleste, formèrent la deuxième onde de choc contre le doigt!
 
 Le fracas de l'orage résonna à travers le monde tel un tonnerre dans une nuit silencieuse. Cela força l'Exalté Empyréen Hai Zi, qui s'empressait d'apporter son aide, à s'interrompre, incapable de progresser davantage.
 
@@ -86,7 +86,7 @@ La voix de Wang Lin perça le fracas!
 
 Alors que Wang Lin parlait, le soleil doré entourant son corps brilla de plus belle et les cent flèches s'effondrèrent. Même le doigt qui s'était reformé pour la troisième fois émit des sifflements et dégagea d'importantes quantités de gaz noir!
 
-Wang Lin poussa un rugissement et fit un geste de la main. Le soleil formé par Nuit Brisée balaya l'espace devant lui et bombarda tout sur son passage. La nuit se dissipa et la silhouette qui apparut s'effondra après avoir percuté le soleil!
+Wang Lin poussa un rugissement et fit un geste de la main. Le soleil formé par Nuit Brisée balaya l'espace devant lui et bombarda tout sur son passage. La nuit se dissipa et le doigt apparu dans le vide s'effondra aussitôt après avoir percuté le soleil!
 
 Tandis que le tonnerre grondait, la lumière environnante disparut pour revenir à la normale. C'était toujours la même longue rue, et le vent et la neige couvraient de nouveau le monde!
 
@@ -94,7 +94,7 @@ Cependant, sept déchirures marquaient les vêtements de Wang Lin. Sept fragment
 
 Le sang coula de sa bouche alors qu'il reculait de quelques pas en titubant. Sa main droite se serra en un poing et il frappa la bordure de la rue scellée. À l'impact, le vide entourant la rue commença à se distordre.
 
-Un bouclier en forme d'anneau apparut tel une coupe et enveloppa la rue. Juste avant que les ondulations ne disparaissent, Wang Lin vit dix mille cultivateurs vêtus de noir assis à l'extérieur de la rue.
+Un bouclier en forme d'anneau apparut tel une coupe et enveloppa la rue. Juste avant que les ondulations ne disparaissent, Wang Lin vit des dizaines de milliers de cultivateurs vêtus de noir assis en rangs à l'extérieur de la rue.
 
 Ces cultivateurs noirs semblaient reliés entre eux par une force commune. C'étaient eux qui avaient scellé cet endroit avec cette puissance étrange.
 
@@ -104,11 +104,11 @@ Ces cultivateurs noirs semblaient reliés entre eux par une force commune. C'ét
 
 Alors que la voix retentissait, les ondulations sur la rue s'estompèrent. Une fois celles-ci disparues, le monde extérieur que Wang Lin percevait devint flou jusqu'à n'être plus qu'un vide absolu.
 
-Cependant, au moment où les images de l'extérieur s'effacèrent, Wang Lin vit que cent personnes parmi les dix mille avaient avalé une pilule. Leurs corps s'effondrèrent et des âmes originelles semblables à de la fumée volèrent vers la rue scellée.
+Cependant, au moment où les images de l'extérieur s'effacèrent, Wang Lin vit que plusieurs centaines de personnes parmi ces dizaines de milliers avaient avalé une pilule. Leurs corps s'effondrèrent et des âmes originelles semblables à de la fumée volèrent vers la rue scellée.
 
-Simultanément, cent ombres vaporeuses apparurent dans le vent et la neige. Elles affichaient toutes un niveau de culture d'Exalté Empyréen et chargèrent Wang Lin, faisant totalement fi de leur propre vie.
+Simultanément, plusieurs centaines d'ombres vaporeuses apparurent dans le vent et la neige. Elles affichaient toutes un niveau de culture d'Exalté Empyréen et chargèrent Wang Lin, faisant totalement fi de leur propre vie.
 
-Le regard de Wang Lin était calme, mais une lueur y brillait tandis qu'il observait les cent figures se précipiter vers lui. Son attention se porta sur le doigt qui s'était reformé et flottait là, immobile.
+Le regard de Wang Lin était calme, mais une lueur y brillait tandis qu'il observait ces centaines de figures se précipiter vers lui. Son attention se porta sur le doigt qui s'était reformé et flottait là, immobile.
 
 « Puisque vous ne voulez pas que je parte, alors je ne partirai pas aujourd'hui! La meilleure façon de briser ce piège mortel est de tous vous massacrer. Ce piège se rompra une fois que je l'aurai fait. » Les cheveux blancs de Wang Lin commencèrent à s'allonger et leurs racines devinrent noires, comme si sa chevelure entière allait virer au noir!
 

@@ -54,11 +54,11 @@ Cette scène était identique à l'illusion qu'il avait contemplée après le ne
 
 Wang Lin détourna le regard du pont pour fixer l'Omniscient. Sans mot dire, il s'avança lentement. Un instant plus tard, il se tenait sur la montagne où tombait la neige septicolore. Il observa les flocons qui l'entouraient et soupira.
 
-« Ce vieil homme a attendu ce jour pendant une éternité. Tout ceci est un rêve pour toi, mais chaque fois que tu viens ici, une distorsion apparaît dans ton songe! » L'Omniscient rit en agitant les mains.
+« Ce vieil homme a attendu ce jour très, très longtemps. Tout ceci est un rêve pour toi, mais chaque fois que tu viens ici, une distorsion apparaît dans ton songe! » L'Omniscient rit en agitant les mains.
 
 À ce geste, le continent circulaire se mit à gronder. Tandis que la terre tremblait, un gaz noir et dense jaillit des nombreuses tranchées. Cette fumée noire s'élança vers le ciel et se précipita vers la montagne.
 
-En un instant, le gaz occulta le ciel pourpre. Puis, il se rassembla derrière l'Omniscient pour former une figure gigantesque.
+En un instant, le gaz occulta le ciel couleur de sang. Puis, il se rassembla derrière l'Omniscient pour former une figure gigantesque.
 
 Cette silhouette était d'une hauteur prodigieuse, semblant soutenir le monde entier. De loin, elle portait une robe noire qui dissimulait son visage, mais Wang Lin reconnut immédiatement qu'il s'agissait de la même entité que l'Omniscient devant lui.
 
@@ -86,7 +86,7 @@ Cette silhouette était d'une hauteur prodigieuse, semblant soutenir le monde en
 
 Wang Lin ferma les yeux, puis les rouvrit un instant plus tard. Il fixa la figure gigantesque et dit lentement: « Ainsi en est-il donc. Alors, qui êtes-vous exactement? »
 
-L'Omniscient répondit d'un ton sombre: « Ce vieil homme est le gardien de la Boussole des Limites. À l'époque, tu me l'as arrachée des mains! J'ai un disciple, tu dois le connaître. Son nom est Mo Zi! »
+L'Omniscient répondit d'un ton sombre: « Ce vieil homme est le gardien de la Boussole des Limites. À l'époque, tu me l'as arrachée des mains! J'ai un disciple, tu dois le connaître. Son nom est Mo Zhi! »
 
 Wang Lin resta silencieux, songeur.
 
@@ -98,7 +98,7 @@ Les yeux de l'Omniscient s'illuminèrent. D'un geste de la main droite, une part
 
 Il vit une version passée de lui-même, celle qui avait échoué à ressusciter Li Muwan. Il y vit l'expression de douleur, le rugissement de colère et les yeux égarés par la folie.
 
-« Même si le ciel exige ta mort, je te ramènerai! Je briserai les cieux, je pulvériserai la terre. Je plongerai dans la réincarnation pour vous retrouver tous et vous ramener à jamais... »
+« Même si le ciel exige ta mort, je te ramènerai! Je briserai les cieux, je pulvériserai la terre. Je plongerai dans la réincarnation pour en extraire chaque parcelle de toi et reforger vie après vie... »
 
 « Si je ne réussis pas, alors moi, Wang Lin, je ne m'éveillerai jamais. Je resterai immergé dans la réincarnation avec vous pour l'éternité... »
 

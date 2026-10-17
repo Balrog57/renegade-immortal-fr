@@ -32,7 +32,7 @@ Peu après, une nuée de poussière s'éleva comme une armée de chevaux au galo
 
 « Il s'avère que c'est Seigneur Wang Lin. » Une silhouette descendit du ciel; en voyant Wang Lin, ses yeux s'illuminèrent mais son expression devint sombre.
 
-« Lord n'était-il pas parti? Pourquoi forcez-vous l'entrée? Savez-vous que c'est une mort... » Avant qu'il ne puisse achever sa phrase, Wang Lin laissa échapper un rugissement.
+« Le Seigneur n'était-il pas parti? Pourquoi forcez-vous l'entrée? Savez-vous que c'est une mort... » Avant qu'il ne puisse achever sa phrase, Wang Lin laissa échapper un rugissement.
 
 « Dégagez! Quiconque se mettra sur mon chemin mourra! » Wang Lin s'avança comme une bête féroce. Il lança un coup de poing et le monde gronda. Les dizaines de personnes devant lui tremblèrent, puis leurs corps explosèrent!
 

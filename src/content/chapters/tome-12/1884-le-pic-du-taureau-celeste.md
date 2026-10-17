@@ -6,7 +6,7 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: Chapter 1884 - Heavenly Bull’s Peak
 slug: le-pic-du-taureau-celeste
 ---
-Ce silence semblait avoir été orchestré pour faciliter son départ. Les yeux de Wang Lin s'illuminèrent. Tout s'était produit si soudainement qu'il n'avait pas le temps d'en saisir toutes les nuances, mais il était déjà trop tard pour réfléchir. Il s'élança aussitôt.
+Ce silence semblait avoir été orchestré pour faciliter son départ. Les pupilles de Wang Lin se contractèrent. Tout s'était produit si soudainement qu'il n'avait pas le temps d'en saisir toutes les nuances, mais il était déjà trop tard pour réfléchir. Il s'élança aussitôt.
 
 Il déploya sa vitesse maximale pour quitter la Secte Gui Yi. Derrière lui, le regard de Bord-des-Nuages brillait d'une lueur étrange tandis qu'il poursuivait Wang Lin, porté par sa culture de stade avancé du Tribulant du Vide.
 
@@ -20,7 +20,7 @@ Wang Lin s'éloigna de milliers de kilomètres de la Secte Gui Yi. Il lui était
 
 « Une fois la tête de ce Wang Lin entre mes mains, je pourrai réclamer ma récompense à la Secte Gui Yi. Malgré les complications, je n'aurai qu'à dire que j'agis selon les ordres du Maître de la Secte. La Secte de la Grande Âme ne pourra rien objecter non plus. Après tout, c'est Wang Lin qui nous a trahis le premier. Je ne fais que tuer un traître! » Le fait que Bord-des-Nuages ait atteint le milieu du stade du Tribulant du Vide en tant que cultivateur errant et qu'il ait obtenu la reconnaissance du Taureau Céleste prouvait son exceptionnel talent. En un éclair, sa décision fut prise.
 
-Alors que Bord-des-Nuages levait la main, les sept étoiles dans le ciel bleu resplendirent. C'était comme si une force antique s'était amassée dans l'éther. Les sept astres poussèrent un hurlement puissant avant de chuter du ciel infini.
+Alors que Bord-des-Nuages levait la main, les sept étoiles dans le ciel bleu resplendirent. C'était comme si les forces du ciel et de la terre s'étaient amassées de toutes parts dans l'azur. Les sept astres poussèrent un hurlement puissant avant de chuter du ciel infini.
 
 Ce rugissement semblait capable de fendre la voûte céleste, générant une force indescriptible. Des ondulations résonnèrent sous les pieds de Wang Lin alors qu'il s'apprêtait à fuir. Soudain, il leva les yeux vers le firmament.
 
@@ -64,7 +64,7 @@ C'était la deuxième fois que Wang Lin utilisait *Nuit Brisée* depuis qu'il po
 
 Tang Jia, ayant décidé de prêter main-forte, n'hésita pas. Ses mains tracèrent des sceaux et un fouet doré gigantesque surgit dans cette nuit noire. Le fouet fendit l'air avec une aura capable de dévaster les cieux, visant Bord-des-Nuages. Sa vitesse d'incantation ne pouvait rivaliser avec celle de Wang Lin: là où ce dernier lançait trois sorts, elle n'en exécutait qu'un seul.
 
-Le visage de Bord-des-Nuages se décomposa. Il était prisonnier des huit portes, le sort le plus puissant de Tang Jia, qu'elle maîtrisait déjà au stade moyen du Tribulant du Vide. Ce scellement était si puissant que les yeux de Bord-des-Nuages devinrent rouges de rage meurtrière. À cet instant, il oublia tout le reste. Il mordit sa langue pour cracher du sang, lequel se mua en une multitude de fantômes écarlates qui se précipitèrent contre les portes en poussant des hurlements stridents.
+Le visage de Bord-des-Nuages se décomposa. Il était prisonnier des huit portes, le sort dans lequel Tang Jia excellait le plus, lancé avec la force du sommet du stade moyen du Tribulant du Vide après avoir revêtu l'armure de l'âme. Ce sort misait surtout sur l'entrave et, scellé ainsi, Bord-des-Nuages eut un éclair meurtrier dans les yeux. À cet instant, il oublia tout le reste. Il mordit sa langue pour cracher du sang, lequel se mua en une multitude de fantômes écarlates qui se précipitèrent contre les portes en poussant des hurlements stridents.
 
 Dans un fracas tonitruant, les huit portes s'effondrèrent. À peine Bord-des-Nuages s'était-il dégagé qu'il dut affronter la troisième transformation de la Lance aux Sept Couleurs. Incapable d'esquiver, il agita sa manche et fit apparaître un petit bouclier blanc de la taille d'une paume. Le choc fut violent.
 
@@ -72,7 +72,7 @@ Un grondement de tonnerre résonna et la lance se brisa, mais d'innombrables fis
 
 Le rempart blanc vola en éclats et l'empreinte de la paume s'abattit sur Bord-des-Nuages.
 
-Le visage de ce dernier pâlit sous le choc. Propulsé en arrière, il pressa ses doigts entre ses sourcils et poussa un rugissement de guerre. Tandis qu'il rugissait, l'image du Taureau Céleste apparut et rugit à son tour. Des ondulations se propagèrent et l'empreinte de la paume s'effondra, mais Wang Lin avait déjà lancé trois sorts. Alors que le choc de la paume se dissipait, *Nuit Brisée* enveloppa la zone, et un soleil levant surgit avec la puissance nécessaire pour déchirer la nuit!
+Le visage de ce dernier pâlit sous le choc. Propulsé en arrière, il pressa ses doigts entre ses sourcils et poussa un grondement sourd vers le ciel. Sous ce grondement, une image de l'âme du Taureau Céleste apparut derrière lui et rugit à son tour. Des ondulations se propagèrent et l'empreinte de la paume s'effondra, mais Wang Lin avait déjà lancé trois sorts. Alors que le choc de la paume se dissipait, *Nuit Brisée* enveloppa la zone, et un soleil levant surgit avec la puissance nécessaire pour déchirer la nuit!
 
 « Un sort... un sort de Foi! » Après avoir été bombardé de sorts, Bord-des-Nuages comprit enfin l'anomalie de ce soleil. Ses yeux se remplirent d'une terreur extrême et il tenta de reculer précipitamment.
 
@@ -82,4 +82,4 @@ Cependant, il fut trop tard. Le soleil s'éleva dans le ciel et la force de déc
 
 Tout en reculant, il s'arrêta net et pressa ses mains contre ses sourcils. Il se cambra légèrement, puis projeta violemment quelque chose vers l'avant.
 
-Un Taureau Céleste apparut, la patte avant levée. Sa corne pointée vers le ciel, il chargea de toutes ses forces... vers le soleil!
+Un Taureau Céleste apparut, les sabots avant levés. Ses deux cornes prêtes à fendre le ciel, il chargea de toutes ses forces... vers le soleil!

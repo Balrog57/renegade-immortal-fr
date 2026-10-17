@@ -46,7 +46,7 @@ Gu Dao observa le phénomène et dit: « Lorsque toute l'eau aura été aspirée
 
 «...Pour une réponse! » Gu Dao se tourna vers Wang Lin.
 
-« Après avoir obtenu les souvenirs de l'Ancêtre Céleste, il y avait une question à laquelle je devais l'aider à répondre... J'ai attendu ce jour pendant longtemps, et votre arrivée fut l'opportunité dont j'avais besoin pour trouver cette réponse! »
+« Après avoir obtenu les souvenirs de l'Ancêtre Antique, il y avait une question à laquelle je devais l'aider à répondre... J'ai attendu ce jour pendant longtemps, et votre arrivée fut l'opportunité dont j'avais besoin pour trouver cette réponse! »
 
 « La réponse... » murmura Wang Lin.
 
@@ -56,7 +56,7 @@ Gu Dao observa le phénomène et dit: « Lorsque toute l'eau aura été aspirée
 
 « Je peux ressentir cette mort dans ses souvenirs. Il a marché vers la fin avec hésitation, incrédulité et détermination. »
 
-« Tous deux ont payé le prix de la mort pour poursuivre la réponse et, ce faisant, ils ont jeté les bases d'un héritage. Peut-être était-ce pour nous protéger, » marmonna Gu Dao.
+« Tous deux ont payé le prix de la mort pour poursuivre la réponse et, ce faisant, ils ont jeté les bases de l'héritage du clan Céleste et du clan Antique. Peut-être était-ce pour les protéger, » marmonna Gu Dao.
 
 Les alentours grondaient sans relâche et le vortex continuait sa voracité jusqu'à ce qu'il ne reste plus que la moitié de la tempête marine. L'eau de mer avait totalement disparu dans le vortex, son destin étant inconnu.
 
@@ -104,7 +104,7 @@ La demeure n'était pas vaste et l'intérieur restait simple, mais elle dégagea
 
 À ses côtés se tenait une autre femme. Vêtue de blanc, son apparence restait incertaine — seule sa chevelure retombait devant son visage. Son dos était d'une grande élégance, mais une tristesse émanait de cette beauté, inspirant à quiconque la voyait un mélange d'amour et de compassion. Elle était comme un poisson dans l'eau: on ne pouvait voir ses larmes, mais lorsqu'elle vous regardait depuis les profondeurs, on aurait pu en goûter l'amertume en puisant dans l'eau.
 
-La vieille femme, réticente à l'idée de partir, dit doucement: « Dong Mei... Je vais rejoindre Anunt Chang... Ne t'en fais pas... Quand je te quitterai, tu seras la seule qui restera... Toi et moi sommes différents. Je ne suis qu'une personne ordinaire et ma vie est limitée... Mais toi, tu possèdes le sang ancien et tu peux cultiver... Prends soin de toi. »
+La vieille femme, réticente à l'idée de partir, dit doucement: « Dong Mei... Je vais rejoindre Tante Chang... Ne pleure pas... Quand je te quitterai, tu seras la seule qui restera... Toi et moi sommes différents. Je ne suis qu'une personne ordinaire et ma vie est limitée... Mais toi, tu possèdes le sang ancien et tu peux cultiver... Prends soin de toi. »
 
 C'était Song Zhi...
 

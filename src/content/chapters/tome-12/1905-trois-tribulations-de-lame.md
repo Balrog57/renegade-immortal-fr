@@ -10,7 +10,7 @@ Wang Lin bondit du temple du scorpion et chargea vers le tambour céleste. La La
 
 Le son du tambour résonna; alors que les vibrations pénétraient jusqu'aux os de Wang Lin, d'innombrables ombres surgirent des ondulations créées par l'instrument.
 
-Chaque ombre portait une armure rouge sang, semblable à celle de soldats célestes. Des milliers d'entre elles apparurent et chargèrent Wang Lin avec une intention meurtrière dévastatrice.
+Chaque ombre portait une armure rouge sang, semblable à celle de soldats célestes. Des centaines, voire des milliers d'entre elles apparurent et chargèrent Wang Lin avec une intention meurtrière dévastatrice.
 
 C'était la deuxième des trois Tribulations Internes Arcaniques: la Tribulation des Ombres Sanguines!
 
@@ -22,15 +22,15 @@ En temps normal, les cultivateurs affrontaient rarement ces trois Tribulations I
 
 Le caractère terrifiant de cette tribulation résidait dans le fait qu'elle ne pouvait être détruite. Par conséquent, peu de gens parvenaient à la franchir!
 
-Wang Lin ignorait comment les autres avaient surmonté cette épreuve, mais il possédait sa propre méthode. Tandis que les milliers d'ombres sanguines convergeaient vers lui, Wang Lin flotta dans les airs et une lumière dorée monstrueuse jaillit de ses yeux.
+Wang Lin ignorait comment les autres avaient surmonté cette épreuve, mais il possédait sa propre méthode. Tandis que près d'un millier d'ombres sanguines convergeaient vers lui, Wang Lin flotta dans les airs et une lumière dorée monstrueuse jaillit de ses yeux.
 
-Sous cet éclat doré, le regard de Wang Lin dégageait une puissance de suppression phénoménale. Cette force provenait du fragment d'épée que l'ancien à la robe verte avait fusionné dans ses yeux. Même l'âme du scorpion avait été soumise par ce regard; il n'en était rien pour les ombres sanguines!
+Sous cet éclat doré, le regard de Wang Lin dégageait une puissance de suppression phénoménale. Cette force provenait du fragment d'épée que l'ancien à la robe verte avait fusionné dans ses yeux. Même l'âme du scorpion avait été soumise par ce regard; à plus forte raison les ombres sanguines!
 
 Le regard de Wang Lin balaya le ciel. Toutes les ombres touchées par cette vision tremblèrent et n'osèrent plus bouger. Elles manifestèrent une peur profonde, comme si le Ciel lui-même descendait sur elles. Cette pression invisible leur donnait l'impression qu'elles seraient impitoyablement anéanties au moindre demi-pas en avant!
 
 Une fois son regard passé, sa voix froide retentit: « Disparaissez! »
 
-Sa voix n'était pas forte, mais lorsqu'elle frappa les milliers d'ombres sanguines, elle eut la puissance des cieux. Leurs corps tremblèrent et elles reculèrent instinctivement.
+Sa voix n'était pas forte, mais lorsqu'elle frappa près d'un millier d'ombres sanguines, elle eut la puissance des cieux. Leurs corps tremblèrent et elles reculèrent instinctivement.
 
 N'étant que des illusions formées par les Tribulations Internes Arcaniques, elles manquaient d'intelligence, mais ressentaient une peur viscérale face au regard de Wang Lin. Elles reculèrent sur des milliers de pieds avant de disparaître à nouveau dans les ondulations.
 
@@ -38,7 +38,7 @@ On utilisait diverses méthodes pour franchir cette tribulation, mais nul n'avai
 
 Alors que les ombres s'évanouissaient, Wang Lin se précipita vers le tambour géant. Celui-ci était sur le point de délivrer son troisième coup.
 
-Puisqu'il était possible de l'atteindre, Wang Lin s'approcha et leva la Lame Yin. Il abattit un coup magistral sur le tambour géant!
+Avant même que le tambour ne soit frappé, Wang Lin était déjà arrivé. Il leva la Lame Yin et l'abattit d'un coup sur le tambour géant!
 
 Lors de ce coup, le vrai corps aux cinq éléments de Wang Lin ainsi que ses ombres superposées apparurent. Ils levèrent leurs mains droites et la Lame Yin se manifesta. Trois frappes fulgurantes suivirent l'attaque initiale de Wang Lin!
 
@@ -64,7 +64,7 @@ Cette veine permettait à Wang Lin de fusionner l'énergie céleste et l'énergi
 
 Bien que ce cheveu ne puisse pas parfaitement assurer la fusion de l'énergie céleste et de l'énergie ancienne, il avait un effet certain. Au moins, une énergie céleste extrêmement pure pouvait circuler à travers la veine formée par ce brin!
 
-Cette énergie céleste permettrait à Wang Lin d'utiliser un trésor qui le rendait presque invisible dans le monde des grottes!
+Cette énergie céleste permettrait à Wang Lin d'utiliser un trésor qui le rendait presque invincible dans le monde des grottes!
 
 Un tel trésor pourrait menacer de véritables cultivateurs au stade initial de la Tribulation du Vide!
 

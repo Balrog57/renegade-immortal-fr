@@ -16,7 +16,7 @@ Alors qu'il rugissait, le monde gronda, d'immenses nuages furent déchirés et d
 
 « Détruire ma secte, massacrer mes disciples! Peu importe qui vous êtes, vous êtes morts!!!
 
-« Si vous vous trouvez sur le Continent du Taureau Céleste, vous êtes morts!!! Je vais vous capturer, je vais vous réduire en morceaux, je vais vous faire souffrir pendant des milliers d'années, je vais vous faire regretter d'avoir cultivé!!! » rugit le jeune homme, tandis qu'une aura terrifiante jaillissait de son corps. Les mille disciples les plus proches n'eurent même pas le temps de pousser un cri qu'ils étaient déjà tous morts.
+« Si vous vous trouvez sur le Continent du Taureau Céleste, vous êtes morts!!! Je vais vous capturer, je vais vous réduire en morceaux, je vais vous faire souffrir pendant cent millions d'années, je vais vous faire regretter d'avoir cultivé!!! » rugit le jeune homme, tandis qu'une aura terrifiante jaillissait de son corps. Les milliers de disciples les plus proches n'eurent même pas le temps de pousser un cri qu'ils étaient déjà tous morts.
 
 « Je vais te tuer! » Le jeune homme se retourna et tendit la main vers un disciple. Ce dernier était pétrifié par la peur alors que le jeune homme lui saisissait la tête.
 
@@ -24,11 +24,11 @@ Son puissant Sens Divin s'engouffra dans l'esprit du disciple pour fouiller son 
 
 Une fois les souvenirs obtenus, l'apparence de Wang Lin apparut clairement dans les yeux du jeune homme.
 
-L'un des Anciens qui s'était transformé en dragon trembla et dit: « Vieux... Grand Ancêtre... Cet homme s'appelle Wang... Il... Il a dit qu'il n'avait tué personne, Grand Ancêtre. Il n'a détruit la secte que parce que quelqu'un tentait de le transformer en marionnette... »
+L'un des Anciens qui s'était transformé en dragon trembla et dit: « Vieil... Vieil Ancêtre... Cet homme se dit nommé Wang... Il... Il a dit qu'il n'avait tué personne, Vieil Ancêtre. Il n'a détruit la secte que parce que quelqu'un tentait de le transformer en marionnette... »
 
 À peine eut-il fini de parler que le cœur de l'homme d'âge moyen qui avait perdu ses bras rata un battement et qu'il laissa échapper un soupir.
 
-« Ce Sun Mengde n'est pas resté assez longtemps au sein de la Secte du Dragon Bleu pour comprendre le tempérament du Grand Ancêtre... Le Grand Ancêtre ne se soucie guère du sort de la Secte du Dragon Bleu, il ne tient qu'à son honneur... »
+« Ce Sun Mengde n'est pas resté assez longtemps au sein de la Secte du Dragon Bleu pour comprendre le tempérament du Vieil Ancêtre... Le Vieil Ancêtre ne se soucie guère du sort de la Secte du Dragon Bleu, il ne tient qu'à son honneur... »
 
 Alors que le vieil homme parlait, le jeune homme se retourna et fixa Sun avec un regard féroce.
 
@@ -84,7 +84,7 @@ Tout en méditant, il fendait les airs tel un rayon de lumière. Ce mode de vol 
 
 Le Roi des Moustiques était trop singulier et ne serait pas prudent de l'invoquer ici.
 
-Une demi-lunaison plus tard, une vaste chaîne de montagnes apparut devant lui. Les sommets s'étendaient à perte de vue. D'un simple coup d'œil, on pouvait estimer qu'ils étaient plus de dix mille.
+Une demi-lunaison plus tard, une vaste chaîne de montagnes apparut devant lui. Les sommets s'étendaient à perte de vue. D'un simple coup d'œil, on pouvait estimer qu'ils étaient des dizaines de milliers.
 
 Le Continent du Taureau Céleste était un monde de montagnes. Wang Lin l'avait appris via les souvenirs de Kang Ren et l'avait constaté par lui-même ces quinze derniers jours.
 
@@ -114,9 +114,9 @@ L'expression de Wang Lin resta calme, mais ses yeux brillèrent de réflexion. L
 
 Il l'avait utilisé comme une expérience pour confirmer sa théorie!
 
-« Tous les objets ne vont pas disparaître. Certains seront endommagés, mais ils se disperseront dans l'inconnu », songea Wang Lin.
+« Tous les objets ne vont pas disparaître. Certains ne subiront pas de grands dégâts, mais ils se disperseront vers on ne sait où », songea Wang Lin.
 
-« L'Épée Sanglante doit être extraite... Tout comme le sceau doré que le Maître avait solidifié. Il contient la puissance d'un cultivateur du Vide Arcanique au stade initial et me sera très utile...
+« L'Épée Sanglante doit être extraite... Tout comme le sceau doré dans lequel le Maître a solidifié la technique divine du Vieux Fantôme Zhan. Il contient un coup d'un cultivateur de la Tribulation du Vide au stade initial et me sera très utile...
 
 « Aussi, le Fouet des Âmes. Il est spécialisé dans le traitement de l'âme originelle. Ce serait dommage qu'il disparaisse dans l'espace de stockage...
 

@@ -64,7 +64,7 @@ La Cité Ancestrale était divisée en quatre secteurs: est, sud, ouest et nord.
 
 Dans les quatre sous-cités, on trouvait de nombreux manoirs. Chaque manoir représentait une faction. Ce n'étaient pas des sectes, mais ils possédaient un pouvoir supérieur à la plupart d'entre elles.
 
-Parmi eux s'élevaient quatre rois, couronnés comme les plus puissants de chaque sous-cité: le Manoir Li de la ville du Nord, le Manoir Luo de la ville du Sud, le Manoir Shan de la ville de l'Ouest et le Manoir Meng de la ville de l'Est. Ces quatre colosses dominaient la région.
+Parmi eux s'élevaient quatre rois, couronnés comme les plus puissants de chaque sous-cité: le Manoir Li de la ville du Nord, le Manoir Luo de la ville du Sud, le Manoir Shan de la ville de l'Ouest et le Manoir Meng de la ville de l'Est. Ces quatre colosses imposaient leur loi aux cinq continents.
 
 En outre, il existait une puissance transcendante capable de rivaliser avec le pouvoir impérial: la montagne située entre les villes de l'ouest et de l'est. Cette montagne portait le nom d'Empereur!
 
@@ -74,35 +74,35 @@ Une montagne, un homme, un Grand Empyréen Jiu Di; ensemble, ils faisaient en so
 
 Concernant la mystérieuse Secte du Dao, beaucoup supposaient que sa raison d'être était de contenir le Mont Empereur, qui semblait lui-même opprimer le pouvoir impérial!
 
-C'était une structure de pouvoir interne à la Cité Ancestrale que peu de gens ignoraient; seuls les Grands Empyréens pouvaient en percevoir clairement les rouages. Après avoir passé un an dans la Secte Yang Pourpre, Wang Lin souhaitait se rendre à la Cité Ancestrale. Le Grand Empyréen Gémeaux avait utilisé le sort de fusion d'âmes pour extraire ses souvenirs de la cité afin de les transmettre à Wang Lin.
+C'était une structure de pouvoir interne à la Cité Ancestrale que peu d'étrangers connaissaient aussi en détail; seuls les Grands Empyréens pouvaient en percevoir clairement les rouages. Après avoir passé un an dans la Secte Yang Pourpre, Wang Lin souhaitait se rendre à la Cité Ancestrale. Le Grand Empyréen Gémeaux avait utilisé le sort de fusion d'âmes pour extraire ses souvenirs de la cité afin de les transmettre à Wang Lin.
 
 Les cinq grands continents du clan céleste étaient divisés en 72 continents plus petits. Les quatre saisons y étaient également légèrement différentes. Il faudrait plusieurs mois pour que les vents glaciaux et la neige qui balayaient le Continent Oriental recouvrent le Continent Central.
 
-C'était la première neige de la Cité Ancestrale. Elle était abondante, semblant recouvrir la cité tout entière. Alors que la neige s'accumulait devant la porte orientale, même l'horizon devenait flou.
+C'était la première neige de la Cité Ancestrale. Elle était abondante, couvrant près de la moitié de la cité. Alors que la neige s'accumulait devant la porte orientale, même l'horizon devenait flou.
 
 Il n'y avait aucun mortel dans cette ville. C'était un lieu rare au sein du clan céleste où seuls les cultivateurs résidaient. L'énergie céleste y était si dense qu'elle créait une pression rendant toute vie mortelle impossible.
 
-Ce jour-là, devant la porte orientale de la Cité Ancestrale, là où la neige recouvrait la plaine infinie, une silhouette apparut progressivement. Cet homme portait un manteau et affrontait le vent en marchant vers la porte.
+Ce jour-là, devant la porte orientale de la Cité Ancestrale, là où la neige recouvrait la plaine infinie, une silhouette apparut progressivement. Cet homme portait un manteau de paille et un chapeau de bambou, et affrontait le vent en marchant vers la porte.
 
-Sa capuche dissimulait ses traits, mais sa stature ne suggérait pas celle d'un vieillard, mais plutôt celle d'un jeune homme. Pourtant, peu importait la violence de la tempête sur son corps, elle ne parvenait pas à effacer l'aura antique qu'il dégageait.
+Son chapeau de bambou dissimulait ses traits, mais sa stature ne suggérait pas celle d'un vieillard, mais plutôt celle d'un jeune homme. Pourtant, peu importait la violence de la tempête sur son corps, elle ne parvenait pas à effacer l'aura antique qu'il dégageait.
 
 À plusieurs centaines de milliers de kilomètres de la Cité Ancestrale, l'homme s'arrêta. Il leva lentement les yeux, et son regard sembla percer le rideau de neige pour contempler la cité au loin.
 
-« Empereur Céleste... je viens... » Wang Lin fixa l'horizon et laissa la neige se déposer sur son manteau, effaçant ses traces.
+« Empereur Céleste... je viens... » Wang Lin fixa l'horizon et laissa la neige se déposer sur son manteau de paille, effaçant ses traces.
 
-« Ce devrait être ma dernière bataille dans le clan céleste... Je vais voir si ce fou se souvient de moi... Alors, je n'aurai plus de regrets. » Wang Lin baissa silencieusement la tête. Sa capuche ne servait pas seulement à se protéger des éléments, elle cachait aussi son visage. Il avança en silence.
+« Ce devrait être ma dernière étape dans le clan céleste... Je viens trouver le fou, voir s'il se souvient encore de moi... Alors, je n'aurai plus de regrets. » Wang Lin baissa silencieusement la tête. Son chapeau ne servait pas seulement à se protéger des éléments, il cachait aussi son visage. Il avança en silence.
 
 Il n'était pas obligé de venir dans la Cité Ancestrale. Il savait que c'était extrêmement dangereux pour lui, mais il venait malgré tout.
 
-Certaines choses doivent être accomplies pour vivre une vie sans regrets! Certains poursuivent leurs émotions et suivent leur propre voie avec détermination.
+Certaines choses doivent être accomplies pour vivre une vie sans regrets! Certains poursuivent leurs sentiments sans regret; d'autres, par amitié, persévèrent comme on cherche l'ivresse.
 
-Pour leurs proches, même face à un précipice, ils s'accrocheraient de leurs mains pour l'escalader lentement.
+Plus nombreux encore sont ceux qui agissent pour leurs proches: même face à un précipice, ils s'accrocheraient de leurs mains pour l'escalader lentement.
 
 Wang Lin tenait profondément à ses sentiments envers son amante, sa famille et ses amis. C'étaient des liens qu'il possédait peu dans sa vie solitaire, et il les chérissait...
 
 En perdre un représenterait une véritable perte.
 
-Le fou l'avait aidé. Après le temps passé dans le Dao des Rêves, il ne pouvait partir sans revoir cet homme. Il voulait savoir si son vieil ami allait bien.
+Le fou l'avait aidé. Après les soixante années passées avec lui dans le Dao des Rêves de l'Étoile Zhuque, il ne pouvait partir sans revoir cet homme. Il voulait savoir si son vieil ami allait bien.
 
 C'était avec de telles pensées qu'il était venu.
 

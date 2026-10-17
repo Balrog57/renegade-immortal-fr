@@ -28,7 +28,7 @@ Cette caverne de plusieurs milliers de pieds de large était dominée par un sol
 
 Bien qu'il ne s'agisse que d'une silhouette, c'était bel et bien le Soleil du Grand Empyréen de Wang Lin!
 
-Sous ce Soleil du Grand Empyréen reposait une tête haute de 1 000 pieds. Elle n'avait ni yeux ni oreilles, et une profonde fissure marquait son crâne. C'était la tête de l'Ancêtre Céleste!
+Sous ce Soleil du Grand Empyréen reposait une tête haute de 100 pieds. Elle n'avait ni yeux ni oreilles, et une profonde fissure marquait son crâne. C'était la tête de l'Ancêtre Céleste!
 
 Wang Lin avait disposé d'innombrables restrictions autour de cette grotte. Avec son niveau de culture actuel, ces barrières étaient extrêmement puissantes. Oubliez les Exaltés Empyréens, même les Ascendants Empyréens ne pourraient les ressentir.
 
@@ -38,7 +38,7 @@ La silhouette de Wang Lin apparut aux côtés de la tête de l'Ancêtre Céleste
 
 Il s'assit devant la tête de l'Ancêtre Céleste et expulsa un panache de gaz vert. Le gaz pénétra dans la tête, provoquant un tressaillement de l'Ancêtre Céleste. Une immense quantité de lumière dorée fut libérée, aussitôt absorbée par le soleil au-dessus, se transformant en une clarté noire et blanche qui nourrissait l'astre.
 
-Durant ces trois mois, son Soleil du Grand Empyréen avait absorbé la tête de l'Ancêtre Céleste, mais comment pourrait-elle être raffinée si facilement? Il serait difficile de l'assimiler totalement en si peu de temps.
+Durant ces presque trois mois, son Soleil du Grand Empyréen avait absorbé la tête de l'Ancêtre Céleste, mais comment pourrait-elle être raffinée si facilement? Il serait difficile de l'assimiler totalement en si peu de temps.
 
 Après réflexion, Wang Lin ouvrit les yeux et leva la main droite. Sa main s'avança dans le vide et une lumière dorée sombre se propagea depuis sa paume. Une âme faible aux yeux clos reposait dans la main de Wang Lin. Bien qu'il paraisse calme, ses pupilles se rétractèrent et son expression devint grave.
 
@@ -48,11 +48,11 @@ L'Empereur Céleste, capturé par Wang Lin, était dans un état lamentable. Il 
 
 Bien que cette pression fût celle d'un Grand Empyréen, l'énergie céleste n'était pas pure — elle était extrêmement chaotique et exsudait un sentiment de défaite. On aurait dit que l'âme souffrait d'une douleur indicible.
 
-« Quelle puissante malédiction ancestrale... » murmura Wang Lin pour lui-même. Il continua à apposer des sceaux sur l'âme de l'Empereur Céleste. Malgré son niveau de culture et sa puissance, alliés à la force propre de l'Empereur Céleste, ils ne parvenaient toujours pas à expulser la malédiction ancestrale. Cependant, il réussissait à maintenir un équilibre pour que l'âme ne se dissipe pas.
+« Quelle puissante malédiction... » murmura Wang Lin pour lui-même. Il continua à apposer des sceaux sur l'âme de l'Empereur Céleste. Malgré son niveau de culture et sa puissance, alliés à la force propre de l'Empereur Céleste, ils ne parvenaient toujours pas à expulser la malédiction. Cependant, il réussissait à maintenir un équilibre pour que l'âme ne se dissipe pas.
 
 « J'avais initialement l'intention d'utiliser la pression de cette âme pour forcer la fusion de mes pouvoirs céleste et ancien, mais cela semble désormais superflu. Néanmoins, c'est l'âme de l'Empereur Céleste; elle me reste très utile », songea Wang Lin en contemplant son propre Soleil du Grand Empyréen.
 
-« Hélas, la malédiction ancestrale est trop forte... Si je pouvais l'expulser, je pourrais fusionner son âme dans mon Soleil du Grand Empyréen et l'utiliser comme guide pour dévorer de force la tête de l'Ancêtre Céleste... » Wang Lin porta sa main gauche à son menton, pensif. Soudain, ses yeux s'illuminèrent et sa main gauche traça un sceau. Une fois terminé, il pointa l'âme située dans sa main droite.
+« Hélas, la malédiction est trop forte... Si je pouvais l'expulser, je pourrais fusionner son âme dans mon Soleil du Grand Empyréen et l'utiliser comme guide pour dévorer de force la tête de l'Ancêtre Céleste... » Wang Lin porta sa main gauche à son menton, pensif. Soudain, ses yeux s'illuminèrent et sa main gauche traça un sceau. Une fois terminé, il pointa l'âme située dans sa main droite.
 
 L'âme de l'Empereur Céleste tressaillit brusquement sous le geste de Wang Lin. Il ouvrit la bouche dans un hurlement silencieux, tandis que les restrictions autour de la grotte commençaient à scintiller.
 
@@ -60,17 +60,17 @@ Le visage de Wang Lin était très sérieux alors que sa main gauche visait l'â
 
 Lorsque sa main gauche fut pleinement levée, le gaz gris autour de son doigt se mua soudainement en une ombre semblable à un spectre maléfique. Elle ouvrit la bouche et chargea le doigt de Wang Lin.
 
-Cependant, juste au moment où elle allait dévorer son doigt, les yeux de Wang Lin se plissèrent et ses pupilles devinrent argentées. La lumière argentée frappa le spectre qui trembla soudainement de peur, avant de rétrécir rapidement pour ne former que la moitié de sa taille initiale. Wang Lin l'attrapa et l'écrasa sans pitié.
+Cependant, juste au moment où elle allait dévorer son doigt, les yeux de Wang Lin se plissèrent et ses pupilles devinrent argentées. La lumière argentée frappa le spectre qui trembla soudainement de peur, avant de rétrécir rapidement pour ne plus faire que moins de la moitié de sa taille initiale. Wang Lin l'attrapa et l'écrasa sans pitié.
 
 Le gaz gris se dissipa.
 
 Le front de Wang Lin était couvert de sueur et la lueur argentée de ses yeux s'estompa. Il esquissa un sourire amer.
 
-« La fusion des pouvoirs céleste et ancien peut éliminer la malédiction ancestrale... Cependant, avec mon niveau de culture actuel, je ne peux tenir longtemps et je ne peux expulser la malédiction d'un seul coup... » Wang Lin regarda l'âme de l'Empereur Céleste. La parcelle de malédiction ancestrale qu'il avait extraite s'était déjà reformée.
+« La fusion des pouvoirs céleste et ancien peut éliminer la malédiction... Cependant, avec mon niveau de culture actuel, je ne peux tenir longtemps et je ne peux expulser la malédiction d'un seul coup... » Wang Lin regarda l'âme de l'Empereur Céleste. La parcelle de malédiction qu'il avait extraite s'était déjà reformée.
 
 Dans un soupir, Wang Lin agita la main droite pour ranger l'âme de l'Empereur Céleste. Il resta assis là, plongé dans ses pensées, avant de laisser échapper un dernier soupir.
 
-« Il semble que je doive attendre que ma culture augmente afin de maintenir plus longtemps le pouvoir fusionné, pour ainsi dissiper la malédiction ancestrale et la fusionner avec mon Soleil du Grand Empyréen. »
+« Il semble que je doive attendre que ma culture augmente afin de maintenir plus longtemps le pouvoir fusionné, pour ainsi dissiper la malédiction et la fusionner avec mon Soleil du Grand Empyréen. »
 
 « Cette malédiction est étrange et l'identité de l'Empereur Céleste est particulière; il n'est donc pas opportun de demander l'aide de Maître Xuan Luo. » Wang Lin avait ses propres secrets, et à moins d'une nécessité absolue, il avait pour habitude de ne rien divulguer.
 
@@ -90,13 +90,13 @@ La lueur argentée envahit ses yeux, lui donnant un regard glacial. Wang Lin fix
 
 Cependant, puisque l'esprit de Wang Lin contenait ces souvenirs, certains d'entre eux se lièrent et surgirent dans son esprit à la vue de la silhouette.
 
-Il s'agissait d'un homme vêtu d'une robe grise, aux longs cheveux. Il ressemblait trait pour trait à la statue de la cité impériale de l'Ancien Dao. C'était l'Ancêtre Ancien!
+Il s'agissait d'un homme vêtu d'une robe grise, aux longs cheveux. Il ressemblait trait pour trait à la statue de la cité impériale du Dao Ancien. C'était l'Ancêtre Ancien!
 
 Sa main gauche était derrière lui tandis qu'il flottait dans les cieux. Il contemplait l'horizon avec un mépris et un dédain manifestes, paraissant hautain. Tandis qu'il regardait le ciel, des amas de points noirs convergeaient vers lui. Ces points n'étaient autres que des hordes de bêtes féroces.
 
 Ces créatures possédaient des têtes humaines mais des corps de lions. Elles ne disposaient que de deux membres antérieurs — leurs membres postérieurs et leur queue semblaient s'être métamorphosés en queues de poisson.
 
-En passant au-dessus de lui, elles poussaient des rugissements perçants. La plus puissante d'entre elles dégageait une aura proche de celle d'un Grand Empyréen.
+En passant au-dessus de lui, elles poussaient des rugissements perçants. La plus puissante d'entre elles dégageait une aura proche de celle d'un Grand Empyréen, mais encore un peu en deçà.
 
 Pourtant, l'homme à la robe grise les regardait toujours avec dédain. Il leva la main droite et pointa le doigt vers l'avant.
 

@@ -6,17 +6,17 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1950 - Come Again!"
 slug: reviens
 ---
-Pour les cultivateurs, treize ans n'étaient qu'un éclair. Durant ces treize dernières années, Wang Lin avait appréhendé l'essence de l'Origine Absolue; il possédait désormais une essence spéciale supplémentaire!
+Pour les cultivateurs, treize ans n'étaient qu'un éclair. Durant ces treize dernières années, Wang Lin avait appréhendé l'essence de l'absolu commencement; il possédait désormais une essence spéciale supplémentaire!
 
 Quant à l'essence de la Fin Absolue, après treize ans passés à contempler la nuit dévorer la lumière plus de 4 000 fois, Wang Lin ne l'avait pas encore pleinement maîtrisée, mais il en avait acquis une certaine compréhension grâce au Bassin Dong Lin.
 
 Au cours de ces treize années de compréhension, cette voix basse n'était jamais réapparue.
 
-Wang Lin était assis à l'extérieur, sur l'autel bordant le Bassin Dong Lin. Son niveau de culture était resté inchangé durant ces treize dernières années, mais pour une raison quelconque, alors qu'il observait les levers et couchers de soleil, ses cheveux s'étaient lentement allongés.
+Wang Lin était assis à l'extérieur, sur l'autel bordant le Bassin Dong Lin. Son niveau de culture était resté inchangé durant ces treize dernières années, mais pour une raison quelconque, alors qu'il observait les levers et couchers de soleil, ses cheveux s'étaient lentement allongés, tombant jusqu'à sa taille.
 
 Après un long moment, il ouvrit les yeux. Son œil gauche abritait un soleil levant, tandis que son œil droit était empli de ténèbres. Ces deux yeux étranges donnaient à Wang Lin une apparence très singulière.
 
-« L'essence de l'Origine Absolue peut fusionner avec les essences de Massacre et de Restriction pour devenir la quatrième essence au sein du corps véritable d'essence de tonnerre. Quant à l'essence de la Fin Absolue... je ne l'ai pas encore totalement comprise et n'en ai acquis qu'une compréhension partielle, mais je peux tout de même la fusionner. Peut-être que ma culture connaîtra une percée car mon corps véritable d'essence de tonnerre possédera alors cinq essences... » L'expression de Wang Lin était calme. La raison pour laquelle il s'était rendu à la Secte Dong Lin était de trouver l'opportunité de franchir un nouveau palier dans sa culture.
+« L'essence de l'absolu commencement peut fusionner avec les essences de Massacre et de Restriction pour devenir la quatrième essence au sein du corps véritable d'essence de tonnerre. Quant à l'essence de la Fin Absolue... je ne l'ai pas encore totalement comprise et n'en ai acquis qu'une compréhension partielle, mais je peux tout de même la fusionner. Peut-être que ma culture connaîtra une percée car mon corps véritable d'essence de tonnerre possédera alors cinq essences... » L'expression de Wang Lin était calme. La raison pour laquelle il s'était rendu à la Secte Dong Lin était de trouver l'opportunité de franchir un nouveau palier dans sa culture.
 
 Une fois cette opportunité saisie et son niveau de culture augmenté, il pourrait se rendre à l'Épreuve Empyrée afin de parachever ses préparatifs avant de partir pour la capitale impériale.
 
@@ -34,7 +34,7 @@ D'un revers de main, la robe blanche du corps véritable d'essence de tonnerre d
 
 Une fois la robe totalement noire, la force destructrice à l'intérieur sembla s'intensifier.
 
-Tandis que Wang Lin observait silencieusement son corps véritable d'essence, l'Origine Absolue de son œil gauche s'envola discrètement entre lui et le corps d'essence. Après un instant, elle pénétra dans le corps véritable d'essence de tonnerre.
+Tandis que Wang Lin observait silencieusement son corps véritable d'essence, l'absolu commencement de son œil gauche s'envola discrètement entre lui et le corps d'essence. Après un instant, elle pénétra dans le corps véritable d'essence de tonnerre.
 
 Le corps véritable d'essence de tonnerre trembla et une lumière perçante émana de lui. Cette lumière sembla déclencher une force de rejet face à la destruction qui résidait en son sein.
 
@@ -46,7 +46,7 @@ Cependant, au moment même où le soleil noir fusionnait avec le corps véritabl
 
 Bien que le soleil noir ne fût pas riche en essence, il fut sans doute immédiatement absorbé par le tonnerre de massacre en raison de sa similitude avec la destruction. Le tonnerre de massacre changea une fois de plus!
 
-Le tonnerre de massacre était une existence capable de détruire le monde et de déchirer le vide. Après avoir intégré l'essence de la Fin Absolue, une aura destructrice se propagea depuis le corps véritable d'essence de tonnerre, et même le Sens Divin de Wang Lin sentit qu'il ne pouvait plus la contenir.
+Le tonnerre de massacre était une existence capable de détruire le monde, de déchirer toute lumière et de la réduire au néant. Après avoir intégré l'essence de la Fin Absolue, une aura destructrice se propagea depuis le corps véritable d'essence de tonnerre, et même le Sens Divin de Wang Lin sentit qu'il ne pouvait plus la contenir.
 
 Massacrer toute vie et détruire un monde. Déchirer la lumière afin que la nuit enveloppe le monde et transforme tout en ruines. Telle était la puissance totale du corps véritable d'essence de tonnerre que Wang Lin avait forgé!
 
@@ -54,19 +54,19 @@ Cependant, cette force était piégée à l'intérieur du corps d'essence par l'
 
 Le corps véritable d'essence de tonnerre tenait à peine en équilibre avec l'essence de Restriction qui le scellait. Mais avec l'ajout de l'essence de la Fin Absolue, cet équilibre déjà précaire s'effondra brutalement.
 
-Pourtant, Wang Lin ne s'attendait pas à cela. Lorsque l'essence de Restriction ne put plus contenir la destruction et se brisa, la lumière de l'essence de l'Origine Absolue fusionna avec l'essence de Restriction. Un nouveau sceau fut créé pour restaurer un équilibre face à la destruction.
+Pourtant, Wang Lin avait tout prévu. Lorsque l'essence de Restriction ne put plus contenir la destruction et se brisa, la lumière de l'essence de l'absolu commencement fusionna avec l'essence de Restriction. Un nouveau sceau fut créé pour restaurer un équilibre face à la destruction.
 
 Sous ce cycle constant de scellement et de résistance, le corps véritable d'essence de tonnerre de Wang Lin était comme un brasier prêt à exploser. C'était comme un mortel tenant un feu ardent entre ses mains.
 
 Soit on le maîtrise totalement, soit on se laisse consumer par les flammes.
 
-Destruction et sceau, ténèbres et lumière. À cet instant, le corps véritable d'essence de tonnerre atteignit tout juste un équilibre. Bien que l'essence de l'Origine Absolue ait fusionné avec l'essence de Restriction, elle n'était pas assez puissante pour résister aux essences de Massacre et de Fin Absolue. Le danger n'était pas écarté, mais Wang Lin devait poursuivre ainsi.
+Destruction et sceau, ténèbres et lumière. À cet instant, le corps véritable d'essence de tonnerre atteignit tout juste un équilibre. Bien que l'essence de l'absolu commencement ait fusionné avec l'essence de Restriction, elle n'était pas assez puissante pour résister aux essences de Massacre et de Fin Absolue. Le danger n'était pas écarté, mais Wang Lin devait poursuivre ainsi.
 
 Dès l'instant où il avait accidentellement créé le tonnerre de massacre, il était destiné que ce corps véritable d'essence soit radicalement différent du corps véritable des cinq éléments.
 
 Au sein du corps véritable d'essence, les quatre essences spéciales s'étaient fusionnées pour résister à cette force. Lorsqu'elles parvinrent enfin à ne former qu'une seule entité, le corps véritable d'essence ouvrit les yeux. Son œil gauche était de lumière et son œil droit de ténèbres. Il avança vers Wang Lin et se superposa à lui comme une silhouette transparente. Puis, il s'assit et fusionna avec Wang Lin.
 
-À cet instant précis, le niveau de culture de Wang Lin bondit soudainement du stade initial du Tribulant du Vide au stade intermédiaire. Tandis que sa culture progressait, le monde changea de teinte et les nuages au-dessus de lui se dispersèrent. Le ciel au-dessus de la Secte Dong Lin oscillait entre l'obscurité et la clarté. Il alternait ainsi entre ombre et lumière jusqu'à ce qu'un grondement sourd émane du corps de Wang Lin. Une puissante bourrasque fit fouetter ses cheveux et ses vêtements. Il avait percé le stade intermédiaire du Tribulant du Vide!
+À cet instant précis, le niveau de culture de Wang Lin bondit soudainement du stade initial du Tribulant du Vide au stade intermédiaire. Tandis que sa culture progressait, le monde changea de teinte et les nuages au-dessus de lui se dispersèrent. Le ciel au-dessus de la Secte Dong Lin oscillait entre l'obscurité et la clarté. Il alternait ainsi entre ombre et lumière jusqu'à ce qu'un grondement sourd émane du corps de Wang Lin. Une puissante bourrasque fit fouetter ses cheveux blancs et ses vêtements. Il avait percé le stade intermédiaire du Tribulant du Vide!
 
 Wang Lin se redressa brusquement, et les bouleversements mondiaux disparurent sans laisser de trace. Tout revint à la normale: plus de vent, plus de mouvement, seul régnait le silence.
 
@@ -86,7 +86,7 @@ Derrière lui, un soupir chargé de décennies de solitude et de tristesse, mêl
 
 À cause de sa solitude, il avait créé un rêve issu de ses souvenirs pour l'accompagner.
 À cause de son chagrin, il était resté dans cette secte moribonde, se remémorant le passé tout en montant une garde silencieuse.
-À cause de sa persévérance, même après des dizaines de milliers d'années, la haine et la folie profondément enfouies restaient gravées en lui, à l'instar de ces mots sur la stèle de pierre!
+À cause de sa persévérance, même après des dizaines de milliers d'années, la haine et la folie enfouies au fond de sa tristesse semblaient s'être muées en sang, qui recopiait, trait après trait, les mots de la stèle de pierre!
 
 Wang Lin partit.
 
@@ -98,7 +98,7 @@ Cependant, il ne quitta pas le Continent du Grand Sage; il se contenta de s'inst
 
 Après une profonde inspiration, Wang Lin ferma les yeux et son Sens Divin se concentra au sommet de sa tête. Il projeta un corps invisible qui s'élança vers le ciel.
 
-« Cette fois, je dois me faire un nom en un seul mouvement! Cette fois, je dois forcer tous les Exaltés Empyréens à lever les yeux pour me regarder... Cette fois, je deviendrai le premier parmi les Exaltés Empyréens!
+« Cette fois, je dois me faire un nom en un seul mouvement! Cette fois, je dois forcer tous les Exaltés Empyréens à lever les yeux pour me regarder... Cette fois, je serai l'un des Ascendants Empyréens!
 
 « Cette fois, je deviendrai le 49e Ascendant Empyréen! Cette fois, j'utiliserai la puissance de l'armure d'âme du Taureau Céleste! »
 
@@ -114,6 +114,6 @@ De même, ces Exaltés Empyréens aperçurent Wang Lin, qui venait d'atteindre l
 
 « Il savait probablement qu'il ne pourrait pas passer et s'était retiré de lui-même. Cette fois, il doit avoir acquis une nouvelle compréhension et trouvé la confiance nécessaire pour franchir le cinquième palais... »
 
-« C'est lui! » Devant le premier palais se tenait un homme d'âge moyen vêtu de noir. Son air arrogant semblait faire fuir quiconque autour de lui; il fut le premier à voir arriver Wang Lin.
+« C'est lui! » Devant le premier palais se tenait un homme d'âge moyen vêtu de noir. De caractère solitaire, il n'avait personne autour de lui; il fut le premier à voir arriver Wang Lin.
 
 Il s'appelait Zhu Lin! Autrefois, il avait franchi le septième palais mais s'était arrêté au huitième.

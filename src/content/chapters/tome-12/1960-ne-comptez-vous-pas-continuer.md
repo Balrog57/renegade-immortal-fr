@@ -52,7 +52,7 @@ Dans l'Épreuve Empyrée, Wang Lin, qui était descendu jusqu'au neuvième palai
 
 « Ming Dao! » L'expression du jeune homme en robe noire était glaciale et arrogante.
 
-« Je vous demande pourquoi vous m'arrêtez! »
+« Je vous demande pourquoi vous ne continuez pas! »
 
 Wang Lin fronça les sourcils et, après réflexion, devina pourquoi Ming Dao agissait ainsi. Il semblait qu'en franchissant le 13e palais, il avait surpassé les exploits passés de cet homme.
 
@@ -60,7 +60,7 @@ Wang Lin fronça les sourcils et, après réflexion, devina pourquoi Ming Dao ag
 
 « Entrer dans le Dao avec fierté et cultiver avec un cœur empreint de fierté. Ne permettre à personne de le surpasser... Cette fierté emplit son cœur et son âme. Pas étonnant qu'il soit devenu le premier parmi les Ascendants Empyréens. Il ne semble se soucier de rien d'autre que de se concentrer corps et âme sur le Dao! » Wang Lin sourit et ignora le jeune homme en noir. Il s'envola vers l'endroit où se trouvaient Dao Yi et Wu Feng.
 
-« Wang Lin salue les deux Grands Empyréens. Après cette Épreuve Empyrée, j'ai une affaire urgente à régler et je dois partir. » Ignorant Ming Dao, Wang Lin s'inclina devant Dao Yi et Wu Feng.
+« Wang Lin salue les deux Grands Empyréens. Je m'arrête ici pour cette Épreuve Empyrée, j'ai une affaire importante à régler et je dois partir. » Ignorant Ming Dao, Wang Lin s'inclina devant Dao Yi et Wu Feng.
 
 « Franchir le 13e palais signifie que vous pouvez être considéré comme étant au sommet de mon clan céleste. Je viendrai vous trouver! » Le Grand Empyréen Wu Feng sourit et hocha la tête à Wang Lin.
 
@@ -124,7 +124,7 @@ Les Grands Empyréens Dao Yi et Wu Feng froncèrent les sourcils. Dao Yi hésita
 
 « Ming Dao, tu as du cran! Tu oses attaquer ici? » Tout en parlant, il agita la main droite. À cet instant, un rire s'éleva d'un cultivateur en contrebas. Une lumière dorée enveloppa l'un des Exaltés Empyréens et une image se matérialisa autour de lui: une ombre vêtue d'une robe dorée et d'une couronne — c'était l'Empereur Céleste!
 
-Cet Empereur Céleste était apparu en utilisant son propre sort spécial! Il fit un geste de la main vers Wu Feng, neutralisant ainsi la puissance de sa vague.
+Cet Empereur Céleste était apparu en utilisant son propre sort spécial! Il fit un geste de la main vers Wu Feng, neutralisant ainsi la puissance de sa manche.
 
 À l'intérieur du réseau de transfert, Wang Lin leva les yeux, une intention meurtrière brillant dans son regard! À l'origine, il ne voulait pas semer le chaos ici, mais les agissements de l'Ascendant Empyréen Ming Dao avaient fait jaillir l'intention de tuer dans son cœur!
 

@@ -20,7 +20,7 @@ Après trois ans passés sous le désert, Wang Lin ouvrit les yeux. Son regard s
 
 Lorsqu'il avait affronté le premier coup de l'ancêtre de la Secte du Dao Démoniaque, Wang Lin avait été forcé de reculer de trois pas. Désormais, après trois ans, bien que son niveau de culture fût resté inchangé, sa force de combat avait considérablement augmenté.
 
-« Malheureusement, après trois ans d'observation, j'ai appris que les âmes originelles des Exaltés Dorés ne me permettent de créer que jusqu'à six Veines de Sorts, alors qu'il m'en faut neuf! » Wang Lin avait clairement ressenti la puissance de l'Art du Sort Rapide lors de son combat contre l'ancêtre de la Secte du Dao Démoniaque.
+« Malheureusement, après trois ans d'observation, j'ai appris que les âmes originelles des Exaltés Dorés ne me permettent de créer que jusqu'à six Veines de Sorts, alors qu'il m'en faut neuf! » Wang Lin avait clairement ressenti la puissance de l'Art Rapide des Sorts lors de son combat contre l'ancêtre de la Secte du Dao Démoniaque.
 
 Cependant, la raison pour laquelle ce sort était si puissant résidait dans la qualité exceptionnelle des Veines de Sorts que Wang Lin avait formées. Mais plus la qualité est élevée, plus il est difficile de créer de nouvelles Veines.
 
@@ -28,7 +28,7 @@ L'âme originelle du Maître de la Secte du Dao Démoniaque avait ouvert la quat
 
 « Créer de nouvelles Veines de Sort de cette manière est vraiment... trop difficile. La sixième nécessite neuf Exaltés Dorés, la septième requiert neuf Exaltés Empyréens. Se pourrait-il que la huitième exige neuf Ascendants Empyréens...? Si tel est le cas, la neuvième nécessitera-t-elle neuf Grands Empyréens...? Peut-être que la neuvième n'exigera qu'un seul Grand Empyréen... » Wang Lin sourit amèrement.
 
-« L'Art du Sort Rapide doit être cultivé. Il est extrêmement puissant et me permet d'utiliser toute ma force!
+« L'Art Rapide des Sorts doit être cultivé. Il est extrêmement puissant et me permet d'utiliser toute ma force!
 
 Mon véritable niveau de culture n'est qu'au début du stade Tribulation du Vide. En raison de cette restriction, mon poing ne peut intégrer au maximum que neuf sorts. Je dois obtenir les essences de métal et de bois dès que possible pour en former les corps véritables d'essence. Ensuite, une fois les cinq éléments fusionnés en un seul, mon niveau de culture s'élèvera au milieu du stade Tribulation du Vide.
 
@@ -60,7 +60,7 @@ Le continent Terre-Meng était majoritairement recouvert de déserts qui s'éten
 
 Ces tempêtes pouvaient varier en intensité. Les plus faibles faisaient trembler les mortels, mais les plus violentes faisaient frémir les cultivateurs qui cherchaient immédiatement à les éviter. En cause: une étrange force magnétique qui affectait lourdement les pratiquants, capable de les aspirer au point que même leur âme originelle ne pourrait s'échapper.
 
-Heureusement, les tempêtes dotées d'une telle force étaient rares. Elles étaient si vastes qu'elles pouvaient être aperçues de loin, laissant le temps de les contourner. Cependant, dans la partie orientale du continent, une région demeurait enveloppée par une tempête de sable perpétuelle. Tous les cent ans, cette tempête atteignait son apogée, rendant toute visibilité impossible dans la zone environnante.
+Heureusement, les tempêtes dotées d'une telle force étaient rares. Elles étaient si vastes qu'elles pouvaient être aperçues de loin, laissant le temps de les contourner. Cependant, dans la partie orientale du continent, une région demeurait enveloppée par une tempête de sable perpétuelle. Tous les cent ans, cette tempête atteignait son apogée, et sur des dizaines de milliers de kilomètres à la ronde, on n'apercevait presque plus aucune silhouette.
 
 En temps normal, cet endroit était plongé dans l'obscurité par les tourbillons de sable, ce qui le rendait très difficile d'accès sans une méthode spéciale.
 
@@ -82,7 +82,7 @@ C'était là que se trouvait la Secte de la Terre.
 
 L'ensemble de la secte ressemblait à un jardin d'Éden, semblant presque irréel au milieu de la tempête. On y trouvait des montagnes, des cours d'eau et des pavillons partout, ainsi qu'une multitude de disciples survolant la zone.
 
-La Secte de la Terre comptait moins de 30 000 disciples, ce qui tranchait avec les neuf autres sectes et treize factions. Elle ne recherchait que les talents exceptionnels, et non des disciples ordinaires!
+La Secte de la Terre comptait moins de 30 000 disciples, ce qui tranchait avec le reste des neuf sectes et treize factions. Elle ne recherchait que les talents exceptionnels, et non des disciples ordinaires!
 
 Les disciples suivaient une hiérarchie stricte composée de neuf rangs différents. Parallèlement, la quantité de ressources allouée à chaque disciple était bien supérieure à celle des autres sectes, car elle n'avait qu'à se diviser entre 30 000 membres!
 
@@ -122,8 +122,8 @@ La confusion se lut dans les yeux de l'homme.
 
 « Est-ce vraiment seulement un rêve...? » L'homme ferma les yeux.
 
-Tandis que l'homme sombrait dans son trouble, Wang Lin franchit calmement le rideau de lumière. Il traversa la tempête déchaînée et ressentit la force magnétique, mais il parvint à l'ignorer.
+Tandis que l'homme sombrait dans son trouble, Wang Lin, impassible, se tenait devant le rideau de lumière de la Secte de la Terre. Il avait traversé la tempête déchaînée et ressenti la force magnétique, mais il pouvait l'ignorer.
 
 Le dragon marin s'immobilisa, portant Wang Lin, immobile malgré le vent. Ses yeux fixaient la Secte de la Terre avec un regard glacial.
 
-« Maître de la Secte de la Terre, Ancien, sortez sans tarder! » Au milieu de la tempête, le Sens Divin de Wang Lin se propagea comme le tonnerre à travers toute la secte. Il résonna dans le cœur de chaque cultivateur, y compris celui de l'homme confus.
+« Maître de la Secte de la Terre, Ancien, venez me voir sans tarder! » Au milieu de la tempête, le Sens Divin de Wang Lin se propagea comme le tonnerre à travers toute la secte. Il résonna dans le cœur de chaque cultivateur, y compris celui de l'homme confus.

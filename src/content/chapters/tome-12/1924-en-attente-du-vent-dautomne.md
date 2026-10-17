@@ -28,7 +28,7 @@ Un seul mot, un simple son, suffisait à infliger de graves blessures à un Maî
 
 « Senior, je vous en prie, ne soyez pas en colère. Ce descendant est jeune dans sa culture. Bien que talentueux, il est trop téméraire et a été trop gâté par ce junior. Je vais immédiatement le destituer de son poste de Maître de Secte et vous le livrer pour que vous puissiez faire votre justice. Je trouverai une nouvelle personne pour assumer cette fonction! »
 
-Ce revirement soudain stupéfia les près de mille disciples de rang 5. Ils regardèrent Wang Lin avec une terreur indescriptible.
+Ce revirement soudain stupéfia les plusieurs milliers de disciples de rang 5. Ils regardèrent Wang Lin avec une terreur indescriptible.
 
 L'homme nommé Qing tremblait, tandis que la femme à ses côtés lui serrait la main. La sueur perla dans leurs paumes.
 
@@ -62,13 +62,13 @@ La femme trembla, recula inconsciemment de quelques pas pour se cacher derrière
 
 « Zhou Yiting… » Après avoir entendu ce nom, Wang Lin fixa la femme d'un regard profond.
 
-« Autrefois, Zhou Yi appelait Qing Shuang "Ting Er"… Dans cette vie, elle ne devrait pas se souvenir de son passé… » Wang Lin ferma les yeux. À l'époque, il avait commis un acte.
+« Autrefois, Zhou Yi appelait Qing Shuang "Ting Er"… Ce caractère « Yi » de Yiting signifie à la fois « souvenir » et « Yi »… Elle ne devrait plus jamais, de toute cette vie, retrouver les souvenirs de sa vie antérieure… » Wang Lin ferma les yeux. À l'époque, il avait commis un acte.
 
 Il n'aurait pas dû le faire, car chacun a droit à ses souvenirs. Mais lors de la réincarnation de Qing Shuang, il avait effacé sa mémoire!!
 
 Ce n'était pas un simple sceau, il avait totalement oblitéré ses souvenirs!! Cela avait causé une souffrance intense à son âme. C'est pourquoi elle ressentait encore une peur inimaginable envers Wang Lin, même après la réincarnation.
 
-« Je ne crois pas que vous ayez perdu le souvenir de Zhou Yi; vous avez simplement choisi la froideur. J'ai été témoin de la majeure partie de votre vie avec Zhou Yi. Puisque vous avez choisi d'oublier et que vous avez accepté de vous réincarner par mes soins, je suppose que vous l'avez fait intentionnellement. Par conséquent, je vais vous aider à effacer vos souvenirs!!
+« Je ne crois pas que vous n'ayez pas retrouvé à l'époque le souvenir de Zhou Yi; vous avez simplement choisi la froideur. J'ai été témoin de la majeure partie de votre vie avec Zhou Yi. Puisque vous avez choisi d'oublier et que vous avez accepté de vous réincarner par mes soins, je suppose que vous l'avez fait intentionnellement. Par conséquent, je vais vous aider à effacer vos souvenirs!!
 
 Désormais, vous n'aurez plus les souvenirs de votre vie antérieure. Vous ne posséderez que ceux de votre vie actuelle!! » C'était ce que Wang Lin s'était dit en effaçant la mémoire de Qing Shuang.
 
@@ -92,7 +92,7 @@ J'avais le pressentiment qu'elle était mon épouse dans ma vie antérieure… S
 
 Il semble que le but de mon existence soit tourné vers elle. Attendre qu'elle se retourne enfin pour me regarder… » murmura l'homme, les yeux empreints d'une profonde confusion.
 
-Son expression confuse était la même que celle qu'il arborait lorsqu'il gardait le cadavre pendant mille ans, espérant un miracle...
+Son expression confuse était la même que celle qu'il arborait lorsqu'il montait la garde pendant des milliers d'années dans le monde de la grotte, espérant un miracle...
 
 Le silence devint total, seule la voix de l'homme résonnait encore. Le vieil homme de l'Exalté Doré observa la scène, puis regarda Wang Lin. Il nourrissait des conjectures et méditait en silence.
 

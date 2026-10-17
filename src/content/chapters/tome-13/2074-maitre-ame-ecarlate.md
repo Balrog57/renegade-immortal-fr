@@ -8,7 +8,7 @@ slug: maitre-ame-ecarlate
 ---
 Maître Nan Yunzi n'avait plus que son âme originelle lorsqu'il fixa le jeune homme baigné dans la lumière sanglante. En écoutant les paroles de ce dernier, il laissa échapper un rire empreint de tristesse.
 
-« Deux jours. Depuis que Wang Lin a créé le Royaume Céleste, tous ceux qui ont vécu ici sont des survivants de la guerre contre le Royaume Extérieur. Existe-t-il un dicton dans le Royaume Intérieur, l'avez-vous entendu? » rugit Maître Nan Yunzi, et tous les cultivateurs levèrent soudainement les yeux.
+« Deux jours. Depuis que Wang Lin a créé le Royaume Céleste, tous ceux qui ont vécu ici sont des survivants de la guerre contre le Royaume Extérieur. Existe-t-il un dicton dans notre Royaume Céleste, l'avez-vous entendu? » rugit Maître Nan Yunzi, et tous les cultivateurs levèrent soudainement les yeux.
 
 « Les cultivateurs comme nous ne reculent jamais devant le combat! »
 

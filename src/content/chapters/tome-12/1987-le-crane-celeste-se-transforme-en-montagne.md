@@ -6,7 +6,7 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1987 - The Celestial Skull Turns Into a Mountain!"
 slug: le-crane-celeste-se-transforme-en-montagne
 ---
-Roar!!
+Rugissement!!
 
 Ming Dao laissa échapper un rugissement tandis que son corps se redressait dans l'eau gelée, provoquant des craquements sinistres. Ses cheveux poussèrent si rapidement qu'ils dépassèrent la longueur de son corps pour s'étaler sur la surface glacée.
 
@@ -56,7 +56,7 @@ La seule chose qui persistait était l'obsession née de sa transformation: sauv
 
 Il se changea en une brume noire et, profitant du combat entre l'Enseignant Impérial et Ming Dao, il chargea vers les chaînes suspendues. Dès que la brume noire enveloppa la chaîne pour secourir le fou, une lumière dorée jaillit du corps de ce dernier. Cette lueur était identique à celle de la statue de l'Ancêtre Céleste dans le palais.
 
-Sous cette lumière divine, une puissance fit trembler son cœur, une force à laquelle même sa soif de massacre ne pouvait résister. Dès que la lumière dorée toucha la brume noire, celle-ci commença à se dissiper. La brume fut fragmentée en fils et expulsée du corps de Wang Lin.
+Sous cette lumière divine, une puissance fit trembler son cœur, une force que même son massacre ne pouvait anéantir. Dès que la lumière dorée toucha la brume noire, celle-ci commença à se dissiper. La brume se réduisit en fils noirs qui se rassemblèrent, forçant à apparaître la silhouette de Wang Lin aux cheveux noirs.
 
 Sous l'éclat doré, le Wang Lin aux cheveux noirs fut entouré d'un gaz noir qui, dès son apparition, s'évapora dans un sifflement. Une douleur fulgurante lacéra l'âme de Wang Lin et enveloppa son corps, l'empêchant de s'approcher du fou!
 
@@ -64,7 +64,7 @@ Il recula brusquement, mais sous l'effet de la lumière dorée, ses cheveux chan
 
 Cette puissance contraignait Wang Lin à abandonner sa forme de massacre et de destruction pour retrouver sa forme aux cheveux blancs! Bien que ses cheveux ne soient plus noirs, il était toujours repoussé par la lumière dorée. L'onde de choc le fit cracher du sang et contracter ses pupilles. Il fixa les chaînes entourant le fou, les yeux écarquillés par le choc!
 
-« Ceci... est-ce là le pouvoir de la lignée de l'Ancêtre Céleste?! L'Empereur Céleste a-t-il choisi l'Ascendant Empyréen Ming Dao, ou son petit frère, Dao Fei?! » Tandis que Wang Lin reculait, l'Enseignant Impérial pointa l'Ascendant Empyréen Ming Dao du doigt, ce qui projeta le corps de Ming Dao en arrière.
+« Ceci... est-ce là le pouvoir de la lignée de l'Ancêtre Céleste?! L'Empereur Céleste a-t-il choisi l'Ascendant Empyréen Ming Dao, ou son petit frère, Lian Daofei?! » Tandis que Wang Lin reculait, l'Enseignant Impérial pointa l'Ascendant Empyréen Ming Dao du doigt, ce qui projeta le corps de Ming Dao en arrière.
 
 Cependant, l'Ascendant Empyréen Ming Dao, en retrait, poussa un rugissement et sa peau commença à se décomposer rapidement. De nombreuses plaies apparurent sur son corps, et une lumière dorée jaillissait de ces blessures en même temps qu'elles pourrissaient.
 
@@ -96,9 +96,9 @@ Le visage de l'Enseignant Impérial devint instantanément livide. Alors que la 
 
 Wang Lin hésita, puis, après avoir serré les dents, il se jeta dans l'eau. Dès qu'il y entra, l'Enseignant Impérial utilisa un sort inconnu qui fit bouillir l'eau et la transforma en un vortex avant qu'elle ne s'effondre. Un autre espace se cachait sous ce palais!
 
-Le ciel était rouge comme le bassin de sang. À cet instant, une faille s'ouvrit dans les cieux, des ondulations résonnèrent, et Wang Lin ainsi que l'Enseignant Impérial tombèrent à travers. La paume dorée et la silhouette de Ming Dao les suivirent.
+Le ciel était rouge comme le bassin de sang. À cet instant, une faille s'ouvrit dans les cieux, des vagues de sang déferlèrent, et Wang Lin ainsi que l'Enseignant Impérial tombèrent à travers. La paume dorée et la silhouette de Ming Dao les suivirent.
 
-Neuf montagnes mystérieuses se dressaient sur le sol!
+Neuf montagnes étranges se dressaient sur le sol!
 
 L'une d'elles était sculptée en forme de crâne. Ce crâne regardait le ciel, et il ressemblait trait pour trait à l'Ancêtre Céleste!
 

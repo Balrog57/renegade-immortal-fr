@@ -14,9 +14,9 @@ L'essence de tonnerre de Wang Lin était née d'une moitié d'ancien dragon du t
 
 Grâce à cette moitié d'ancien dragon, Wang Lin possédait l'embryon d'une essence. Puis, après avoir absorbé le tonnerre du Clan du Tonnerre Dispersé, son essence n'était plus qu'à un pas de la perfection!
 
-Ce pas ne fut pas facile à franchir, mais Wang Lin traça une voie inédite en créant des tons accompagnateurs. Il utilisa l'âme du Crapaud du Tonnerre et son Royaume Ji pour parfaire ces tons, rapprochant ainsi son essence de la complétion totale!
+Ce pas ne fut pas facile à franchir, mais Wang Lin traça une voie inédite en créant des tonnerres d'accompagnement. Il utilisa l'âme du Crapaud du Tonnerre et son Royaume Ji pour parfaire ces tonnerres, rapprochant ainsi son essence de la complétion totale!
 
-Puis, il y a cent ans, sur le Continent Astral Immortel, le maître de la Secte du Dao Démoniaque, qui possédait une essence de tonnerre différente, versa la sienne dans Wang Lin. Il avait même dévoré deux Perles de l'Empereur du Tonnerre pour en transférer le pouvoir à Wang Lin!
+Puis, il y a plus de cent ans, dans le temple du scorpion, le maître de la Secte du Dao Démoniaque, qui possédait une essence de tonnerre différente, versa la sienne dans Wang Lin. Il avait même dévoré deux Perles de l'Empereur du Tonnerre pour en transférer le pouvoir à Wang Lin!
 
 Tout cela s'était accumulé pour permettre à l'essence de tonnerre de Wang Lin de changer radicalement et de condenser un corps véritable d'essence!
 
@@ -108,7 +108,7 @@ Tandis que Wang Lin fusionnait ses essences en contemplant les trois dernières,
 
 Si le Continent Astral Immortel était le monde, alors il existait un vide semblable à l'espace au-delà de ce monde.
 
-Dans un lieu extrêmement éloigné du Continent Astral Immortel se trouvait un autre continent. Ce dernier ne pouvait rivaliser avec le Continent Astral; il en faisait moins un dixième et n'abritait aucune trace de vie.
+Dans un lieu extrêmement éloigné du Continent Astral Immortel se trouvait un autre continent. Ce dernier ne pouvait rivaliser avec le Continent Astral; il ne faisait même pas un dixième de sa taille et n'abritait aucune trace de vie.
 
 On n'y voyait que des ruines de mort. C'était comme si une multitude d'êtres y avaient vécu, avant de périr tous dans une catastrophe.
 
@@ -116,7 +116,7 @@ Au centre de ce continent se dressaient les vestiges d'une cité immense, avec u
 
 Cet homme paraissait ordinaire, mais ses cheveux étaient d'une longueur stupéfiante. Ses chevelures mesuraient près de mille pieds de long et retombaient sur les ruines de la statue.
 
-Au moment même où le corps véritable de l'essence de tonnerre de Wang Lin fusionna avec l'essence de massacre pour engendrer le tonnerre de massacre, cet homme d'âge moyen sembla s'éveiller d'un sommeil millénaire et ouvrit les yeux.
+Au moment même où le corps véritable de l'essence de tonnerre de Wang Lin fusionna avec l'essence de massacre pour engendrer le tonnerre de massacre, cet homme d'âge moyen sembla s'éveiller d'un sommeil de plusieurs dizaines de milliers d'années et ouvrit les yeux.
 
 Ses yeux n'avaient point de pupilles; ils n'étaient qu'un vide empli de mort.
 

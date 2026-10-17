@@ -32,7 +32,7 @@ Cette fois, Ming Dao n'hésita pas comme auparavant et hocha sobrement la tête.
 
 Continent Central, au sommet du Mont Empereur. Le Grand Empyréen Jiu Di se tenait sur la cime de la montagne et détourna son regard d'une feuille d'automne. Après un long moment, il ouvrit les yeux, laissant poindre une lueur.
 
-« Je n'ai pu recruter l'Ascendant Empyréen Ming Dao, et voilà qu'il nourrit une rancœur envers l'Empereur Céleste. Je veux voir qui pourra rivaliser avec moi! » Le Grand Empyréen Jiu Di se tourna vers l'Exalté Empyréen Hai Zi, qui ouvrait lentement les yeux, et rit.
+« Je n'ai pu recruter l'Ascendant Empyréen Ming Dao, et l'Empereur Céleste a un contentieux avec Wang Lin. Je veux voir qui pourra rivaliser avec moi! » Le Grand Empyréen Jiu Di se tourna vers l'Exalté Empyréen Hai Zi, qui ouvrait lentement les yeux, et rit.
 
 « Hai Zi, suis le Maître. Le Maître acceptera ce Wang Lin comme disciple et fera de lui ton Senior Frère. Qu'en dis-tu? »
 
@@ -78,7 +78,7 @@ Après un long moment, le dragon finit d'expirer son souffle et se laissa aller 
 
 Une fois que Liu Jinbiao eut terminé sa culture et absorbé totalement l'essence originelle du dragon, Wang Lin se leva et lui lança un regard.
 
-« Ne fais pas de bruit, il est temps de partir. »
+« Assez de bêtises, il est temps de partir. »
 
 Sous le regard de Wang Lin, Liu Jinbiao eut l'impression que toutes ses pensées étaient mises à nu. Il cligna des yeux, affichant une expression embarrassée, et se leva précipitamment.
 
@@ -116,7 +116,7 @@ L'autre était un jeune homme en rouge à l'allure ambitieuse qui, à cet instan
 
 « Et toi, Petit Qing, souviens-toi: si les choses tournent mal, brise le jade pour que mon grand frère leur donne une leçon! » Le jeune homme en chemise fleurie renifla et pointa du doigt la demeure gigantesque devant eux.
 
-Le manoir était immense et dégageait, de loin, une pression puissante. La porte était close et aucun garde n'était posté. Sur l'entrée trônait une plaque verte au fond rouge, sur laquelle étaient inscrits deux caractères dorés!
+Le manoir était immense et dégageait, de loin, une pression puissante. La porte était close et aucun garde n'était posté. Sur l'entrée trônait une plaque à fond rouge et cadre vert, sur laquelle étaient inscrits deux caractères dorés!
 
 Manoir Li
 

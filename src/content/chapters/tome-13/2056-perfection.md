@@ -50,7 +50,7 @@ Les discussions se multipliaient dans toute la ville, devenant le sujet de toute
 
 Car il ne restait plus que quatre mois avant d'atteindre le record d'un an, la plus longue première division de l'âme enregistrée chez les Anciens Shi!
 
-« Peut-il tenir un an? Il faut dire que le record absolu pour une première division est d'un an! S'il ne meurt pas lors de la seconde division, il pourrait devenir un Grand Empyréen! »
+« Peut-il tenir un an? Il faut dire que le record absolu pour une première division est d'un an! Si cet homme-là n'était pas mort lors de la seconde division, il serait peut-être devenu un Grand Empyréen! »
 
 « Huit mois... Cet homme est véritablement fou de supporter une telle douleur. »
 
@@ -64,13 +64,13 @@ Huit mois de souffrance n'avaient pas entamé sa détermination. Il allait atten
 
 Le rugissement de l'Ancêtre Ancien était la seule chose qui résonnait encore dans son esprit.
 
-« Si je veux que le ciel s'effondre, il s'effondrera! Si je veux que cette terre se brise, elle se brisera! Si je veux qu'un être meure, personne n'osera m'arrêter! Si je veux qu'aucun céleste ne survive, qui oserait les sauver... »
+« Si je veux que le ciel s'effondre, il s'effondrera! Si je veux que cette terre se brise, elle devra se briser! Si je veux que les êtres vivants périssent, nul n'osera ne pas périr! Si je veux que ce firmament n'ait plus d'immortels, qui oserait encore subsister... »
 
 Alors qu'il résistait de toutes ses forces, le neuvième mois arriva, puis le dixième et le onzième passèrent en un clin d'œil.
 
 Song Tian était assis devant le temple ancestral, montant la garde pour le onzième mois consécutif. Il n'était pas surpris que Wang Lin tienne jusque-là, et il spéculait que ce dernier pourrait tenir environ un an.
 
-« En vérité, une année suffit à peine pour permettre à l'âme originelle de se fragmenter. Seul cet insensé d'il y a des éons avait tenu vingt-huit mois pour que les fragments deviennent poussière! » Song Tian ne regarda pas le temple ancestral et calcula mentalement le temps écoulé.
+« En vérité, une année suffit à peine pour permettre à l'âme originelle de se fragmenter. Seul cet insensé d'il y a des dizaines de milliers d'années avait tenu vingt-huit mois pour que les fragments deviennent poussière! » Song Tian ne regarda pas le temple ancestral et calcula mentalement le temps écoulé.
 
 Lorsque le douzième mois passa, suivi de deux autres, toute la cité des Anciens Shi fut en émoi. Tous fixaient la statue de l'Ancêtre Ancien, se demandant qui était cet individu et jusqu'où il pourrait tenir!
 
@@ -110,7 +110,7 @@ Au trente-sixième mois, alors que Xuan Luo hésitait, les neuf halos brillèren
 
 Xuan Luo se redressa et observa la scène avec excitation.
 
-Song Tian eut un haut-le-cœur, puis recula de dix mille pieds pour mieux voir.
+Song Tian inspira profondément, puis recula de dix mille pieds pour mieux voir.
 
 Dans le palais, l'Empereur des Anciens Shi, nerveux, se tenait près de la fenêtre, les yeux rivés vers le temple ancestral.
 

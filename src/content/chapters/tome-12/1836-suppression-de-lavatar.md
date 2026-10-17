@@ -24,11 +24,11 @@ Quel que soit leur niveau de culture, qu'il s'agisse des plus jeunes disciples, 
 
 Tout cela était dû au regard terrifiant de Wang Lin!
 
-L'Ancien Taureau Vert se trouvait également au Pic du Ciel Vert. Après que Wang Lin eut jeté un regard à Yan Lu, il tourna immédiatement les yeux vers lui. Lorsque le regard de l'Estimé Taureau Vert croisa celui de Wang Lin, son expression changea radicalement. Son corps trembla et une vapeur verte jaillit derrière lui pour former son véritable corps d'essence.
+L'Ancien Taureau Vert se trouvait également au Pic du Ciel Vert. Après que Wang Lin eut jeté un regard à Yan Lu, il tourna immédiatement les yeux vers lui. Lorsque le regard de l'Estimé Taureau Vert croisa celui de Wang Lin, son expression changea radicalement. Son corps trembla et une vapeur verte jaillit derrière lui pour former son corps véritable d'essence.
 
 Le regard de Wang Lin disparut bientôt, mais l'Estimé Taureau Vert sentait encore son cœur palpiter, les yeux emplis de choc. Ce regard était impitoyable, indifférent, comme si le monde entier n'était qu'une poussière sous ses pieds et devait lui rendre culte!
 
-L'Ancien Taureau Vert n'avait jamais visité la capitale royale des pays anciens. S'il avait vu la statue imposante de l'Ancêtre Ancien, il aurait ressenti une étrange familiarité.
+L'Ancien Taureau Vert n'avait jamais visité la cité impériale du clan Dao Antique. S'il avait vu, dans l'immense cité flottant dans les airs, la statue de l'Ancêtre Ancien qui soutenait presque le ciel, il aurait ressenti une étrange familiarité.
 
 L'aura de l'immense ombre de Wang Lin dans le ciel était d'une similitude frappante avec celle de l'Ancêtre Ancien, malgré quelques nuances dans les détails.
 
@@ -38,7 +38,7 @@ Dans le ciel, l'ombre gigantesque de Wang Lin retira son regard et ferma les yeu
 
 Dès que Wang Lin ferma les yeux, il leva le pied et fit un pas avec calme. Lorsque son pied toucha la marche, un grondement de tonnerre résonna. L'illusion des escaliers trembla comme si elle ne pouvait supporter son poids.
 
-C'était comme si le pas de Wang Lin émergeait directement du vide lointain. Oubliez le Pavillon des Écritures de l'Âme, il semblait que même la Secte de la Grande Âme ou le Continent entier du Taureau Vert ne pourraient supporter un tel pas!
+C'était comme si le pas de Wang Lin émergeait directement du vide lointain. Oubliez le Pavillon des Écritures de l'Âme, il semblait que même la Secte de la Grande Âme ou le Continent entier du Taureau Céleste ne pourraient supporter un tel pas!
 
 Alors que le fracas tonitruant résonnait, Wang Lin fit un autre pas. Il ne s'arrêtait pas, mais ne se précipitait pas non plus. D'un calme olympien, il gravissait les marches comme s'il était chez lui.
 
@@ -58,7 +58,7 @@ Une pression céleste jaillit de son regard et enveloppa la terre en contrebas. 
 
 À l'instant où ses paroles retentirent, le sens divin de Yan Lu qui occupait la disciple frémit, puis se dissipa lentement. La disciple recula de quelques pas, les yeux embués de confusion.
 
-À cet instant, tout la Secte de la Grande Âme fut plongé dans un silence de mort... Puis, bientôt, un immense tumulte éclata dans tout le secteur.
+À cet instant, toute la Secte de la Grande Âme fut plongée dans un silence de mort... Puis, bientôt, un immense tumulte éclata dans tout le secteur.
 
 « Il... il a réussi!! »
 

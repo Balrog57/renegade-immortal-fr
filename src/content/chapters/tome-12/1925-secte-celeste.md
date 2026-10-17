@@ -6,9 +6,9 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: Chapter 1925 - Heaven Secte
 slug: secte-celeste
 ---
-« Cette affaire semble injuste envers Qing Shuang et n'est pas équitable pour Qing Lin... Je n'aurais pas dû faire cela... Mais l'obsession de mille ans de Zhou Yi... Peu importe, je ne peux pas tout rendre parfait. » Wang Lin soupira.
+« Cette affaire semble injuste envers Qing Shuang et n'est pas équitable pour Qing Lin... Je n'aurais pas dû faire cela... Mais l'obsession de milliers d'années de Zhou Yi... Peu importe, je ne peux pas tout rendre parfait. » Wang Lin soupira.
 
-Tandis que le dragon de mer sous lui rugissait, ils quittèrent la Secte Terrestre. Avant d'arriver ici, Wang Lin ne s'attendait pas à les rencontrer, elle et lui.
+Tandis que le dragon de mer sous lui rugissait, ils quittèrent la Secte de la Terre. Avant d'arriver ici, Wang Lin ne s'attendait pas à les rencontrer, elle et lui.
 
 « Situ, Qing Shui, Xu Liguo, Liu Jinbiao... Tant d'amis du passé. Je me demande s'ils sont quelque part... sous le même ciel. » Assis sur la tête du dragon de mer, Wang Lin leva les yeux vers l'azur avec un regard mélancolique.
 
@@ -16,11 +16,11 @@ Tandis que le dragon de mer sous lui rugissait, ils quittèrent la Secte Terrest
 
 « Et aussi... Li Qianmei. » Après avoir rencontré le premier vieil ami réincarné, Wang Lin sentit des ondes de nostalgie résonner dans son cœur. Leurs visages si vivants défilèrent dans son esprit.
 
-Sous les ordres de Wang Lin, le dragon de mer fonça vers la seconde puissance du continent: la Secte Terrestre de Meng, une secte d'égale envergure à la Secte Terrestre.
+Sous les ordres de Wang Lin, le dragon de mer fonça vers la seconde puissance du continent: la Secte Terre-Meng, une secte d'égale envergure à la Secte de la Terre.
 
-Grâce au niveau de culture d'Exalté Empyréen de Wang Lin et à la puissance du dragon de mer d'Exalté Doré, le voyage se déroula sans encombre. La Secte Terrestre de Meng remit respectueusement la carte de jade, craignant de déplaire à Wang Lin.
+Grâce au niveau de culture d'Exalté Empyréen de Wang Lin et à la puissance du dragon de mer d'Exalté Doré, le voyage se déroula sans encombre. La Secte Terre-Meng remit respectueusement la carte de jade, craignant de déplaire à Wang Lin.
 
-Wang Lin déploya également son Sens Divin sur tout le Continent Terrestre de Meng. Bien que les chances fussent faibles, il souhaitait tenter de retrouver d'anciens amis.
+Wang Lin déploya également son Sens Divin sur tout le continent Terre-Meng. Bien que les chances fussent faibles, il souhaitait tenter de retrouver d'anciens amis.
 
 Mais il ne trouva rien.
 
@@ -95,7 +95,7 @@ La bataille dura sept jours. Wang Lin et le vieil homme s'affrontèrent vingt-tr
 
 « D'accord! » Wang Lin se leva et son Vrai Corps des Cinq Éléments apparut!
 
-Avec un seul corps véritable, la puissance de combat de Wang Lin décuplerait, lui permettant de rivaliser avec un Exalté Empyréen ayant fusionné dix-huit sorts!
+Avec un seul avatar, la puissance de combat de Wang Lin décuplerait, lui permettant de rivaliser avec un Exalté Empyréen ayant fusionné dix-huit sorts!
 
 « Un Vrai Corps d'Essence! Et ce n'est pas un simple corps d'essence, mais un corps issu de la fusion de multiples essences! » Les pupilles du vieil homme se rétractèrent en contemplant la forme de Wang Lin.
 

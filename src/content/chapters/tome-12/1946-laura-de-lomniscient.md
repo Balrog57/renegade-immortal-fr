@@ -8,7 +8,7 @@ slug: laura-de-lomniscient
 ---
 « Au fil des innombrables années, j’ai étudié cette inscription. Je veux savoir qui a détruit ma Secte Dong Lin et quelles étaient ses intentions!
 
-« Ma Secte Dong Lin n'a jamais été impliqué dans les querelles du monde et a toujours suivi des règles de secte strictes. Les disciples sortent rarement, et encore moins créent des inimitiés avec autrui. Même moi, j'ai peu d'amis et je me suis consacré uniquement à la culture.
+« Ma Secte Dong Lin n'a jamais été impliqué dans les querelles du monde et a toujours suivi des règles de secte strictes. Les disciples sortent rarement, et encore moins créent des inimitiés avec autrui. Même moi, j'ai de nombreux amis sur la grande voie du clan céleste, tout en me consacrant uniquement à la culture.
 
 « Pourtant, la Secte Dong Lin, ma demeure… a été détruit… Je suis allé voir un Grand Empyréen pour qu’il m’aide à diviner, mais même lui n'a pu déterminer la cause de la destruction de ma Secte Dong Lin…
 
@@ -42,7 +42,7 @@ Une ligne de mots tracés en sang marquait la stèle!
 
 « Verrouillez le destin des cieux et scellez l'au-delà. Ceux qui n'atteignent pas le vrai Dao sombreront dans une mer de souffrance et perdront à jamais la voie du véritable Dao. Marchez sur le chemin du vrai Dao! »
 
-Les mots écrits en sang n'étaient plus d'un rouge vif, mais étaient depuis longtemps séchés en un brun sombre. Une aura de terreur émanait de la stèle, enveloppant tout la Secte Dong Lin. Le ciel s'obscurcit, comme si une main gigantesque avait occulté le soleil au-dessus de la secte.
+Les mots écrits en sang n'étaient plus d'un rouge vif, mais étaient depuis longtemps séchés en un brun sombre. Une aura de terreur émanait de la stèle, enveloppant toute la Secte Dong Lin. Le ciel s'obscurcit, comme si une main gigantesque avait occulté le soleil au-dessus de la secte.
 
 C'était comme si cette force aveuglait les cieux eux-mêmes!
 
@@ -58,13 +58,13 @@ Ce qui choqua Wang Lin fut l'écriture des mots sur la pierre. Plus il regardait
 
 Une écriture peut être imitée, mais l'aura qu'elle dégage est extrêmement difficile à reproduire. Wang Lin ne se contentait pas de reconnaître l'écriture; il reconnaissait son aura!
 
-« Tout… L’Omniscient… » Wang Lin fut stupéfait. Comment avait-il pu oublier cette aura? C'était un être qu'il redoutait profondément dans le monde des grottes.
+« Ciel… L’Omniscient… » Wang Lin fut stupéfait. Comment avait-il pu oublier cette aura? C'était un être qu'il redoutait profondément dans le monde des grottes.
 
 Cet individu faisait partie du Dao Céleste, et bien qu'il ait été détruit par Wang Lin, ce dernier soupçonnait que l’Omniscient n’était pas mort!
 
 L'écriture et l'aura ici ne sont pas identiques à celles de la stèle du Royaume aux Sept Couleurs. Cependant, l'apparence même de cette pierre brouillait la compréhension qu'avait Wang Lin du monde des grottes.
 
-« Monde des grottes… Continent Astral Immortel… Secte Dong Lin… La seule chose qui relie ces trois lieux est le Souverain Céleste aux Sept Couleurs! Mais son âme fut divisée en trois et scellée par moi… La troisième âme est Su Dao… Je suis même venu à la Secte Dong Lin dans le monde des grottes…
+« Monde des grottes… Continent Astral Immortel… Secte Dong Lin… La seule chose qui relie ces trois lieux est le Souverain Céleste aux Sept Couleurs! Mais son âme fut divisée en trois et détruite par moi… La troisième âme est Su Dao… Je suis même venu à la Secte Dong Lin dans cette illusion, à l'époque…
 
 « Mais pourquoi… Pourquoi cette inscription est-elle apparue ici? Cette stèle, pourquoi le monde des grottes possède-t-il également cette stèle? Que se passe-t-il réellement… » Tandis que Wang Lin fixait la pierre, la confusion se lisait dans ses yeux.
 

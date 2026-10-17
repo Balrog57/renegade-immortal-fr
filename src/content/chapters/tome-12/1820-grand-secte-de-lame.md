@@ -14,7 +14,7 @@ Cet endroit était l'une des deux sectes les plus puissantes du Continent du Tau
 
 Une neige verdâtre tombait sur la Montagne Céleste. Elle recouvrait le corps et les cheveux de Wang Lin, ainsi que le sol. Il restait immobile au milieu des flocons.
 
-D'ici, la Secte de la Grande Âme ne semblait pas très éloigné, mais même en volant, il faudrait plusieurs jours pour l'atteindre. Si la distance paraissait si grande, outre la montagne elle-même, c'était parce que les ondulations émanant de la Secte de la Grande Âme créaient un décalage visuel.
+D'ici, la Secte de la Grande Âme ne semblait pas très éloigné, mais même en volant, il faudrait plusieurs jours pour l'atteindre. Si la distance paraissait si courte, outre la hauteur de la Montagne Céleste, c'était parce que les ondulations émanant de la Secte de la Grande Âme créaient un décalage visuel.
 
 Après un long moment, Wang Lin ferma les yeux et déploya son Sens Divin. Il perçut vaguement le principal filon de feu sous la Secte de la Grande Âme. Celui-ci se ramifiait en d'innombrables branches qui s'étendaient à travers tout le Continent du Taureau Céleste.
 
@@ -30,7 +30,7 @@ Cent mille cultivateurs représentaient un nombre colossal, pourtant, cachés da
 
 De nombreuses auras d'essence extrêmement puissantes émanaient des montagnes; elles appartenaient à des cultivateurs de la troisième étape.
 
-« La Secte de la Grande Âme du Continent Astral Immortel... Il est en effet très puissant. Une seule secte suffit à balayer le Monde des Grottes. » Wang Lin observa la scène avec calme tout en réfléchissant.
+« La Secte de la Grande Âme du Continent Astral Immortel... Elle est en effet très puissante. Une seule secte suffit à balayer le Monde des Grottes. » Wang Lin observa la scène avec calme tout en réfléchissant.
 
 Sans son véritable corps d'essence de feu, Wang Lin n'aurait pas provoqué un tel colosse. Cependant, le principal filon de feu terrestre sous la Secte de la Grande Âme était bien trop important pour lui. Même s'il devait arracher les dents d'un tigre, il devait tenter sa chance.
 
@@ -56,7 +56,7 @@ Une secte telle que la Secte de la Grande Âme possédait une formation extrême
 
 S'il voulait entrer, il devait attendre qu'un disciple passe et provoque une fluctuation dans la formation.
 
-Face à un disciple ordinaire, il aurait choisi de fusionner avec son corps pour s'infiltrer, mais cela présentait des inconvénients. Bien que l'idée semble séduisante, le fait que le nom de la secte contienne le mot « Âme » signifiait qu'ils possédaient une compréhension profonde de l'âme.
+Un cultivateur ordinaire choisirait peut-être de fusionner avec le corps d'un disciple de la Secte de la Grande Âme pour entrer, mais cela présentait des inconvénients. Bien que l'idée semble séduisante, le fait que le nom de la secte contienne le mot « Âme » signifiait qu'ils possédaient une compréhension profonde de l'âme.
 
 Autrement, ils n'auraient pu créer un sort d'illusion multicouche.
 
@@ -76,7 +76,7 @@ Il n'était pas anxieux. Il avait assez de temps et de patience pour observer ca
 
 Durant ces sept jours, la formation ondula près de 1 000 fois au passage des disciples. Wang Lin remarqua lentement que les fluctuations différaient selon l'identité des disciples.
 
-Au cours de ces dix jours, Wang Lin avait observé près de 1 000 disciples différents de la Secte de la Grande Âme. Il nota certaines particularités physiques propres à la secte.
+Au cours de ces dix jours, Wang Lin avait observé plus de 1 000 disciples différents de la Secte de la Grande Âme. Il nota certaines particularités physiques propres à la secte.
 
 Par exemple, leurs âmes. Si l'âme de chaque disciple était une flamme, alors cette flamme était si robuste qu'elle ne fluctuait que très peu.
 
@@ -86,7 +86,7 @@ Cette fumée était invisible et apparut instantanément aux côtés du corps du
 
 Dès son entrée, l'essence de restriction de Wang Lin servit à compenser la formation. Puis, il simula rapidement ce qu'il avait appris en observant ces vingt derniers jours. En quelques respirations, il changea de forme des centaines de fois.
 
-Ce n'est que lorsque le disciple eut quitté la formation et s'en fut volant sans rien remarquer que la fumée de Wang Lin sortit également du périmètre.
+Ce n'est que lorsque le disciple, sorti de la formation, s'envola vers les montagnes sans rien remarquer que la fumée de Wang Lin pénétra également à l'intérieur de la formation.
 
 Son intrusion n'avait causé aucun changement dans la formation ou, pour être plus précis, tous les changements avaient été masqués par les ondulations provoquées par l'entrée dudit disciple.
 
@@ -112,7 +112,7 @@ Alors que le Sens Divin balayait la zone, des ondulations résonnèrent à trave
 
 « Me suis-je fait repérer? » Wang Lin n'eut pas le temps de réfléchir alors que le Sens Divin se rapprochait de lui. Il recula, mais il semblait ne plus avoir nulle part où se cacher. Il vola vers les trois rayons de lumière qui s'éloignaient au loin.
 
-Il se déplaça à sa vitesse maximale pour pénétrer dans le corps de l'homme. La raison n'était pas le niveau de culture de ce dernier, mais le fait que le Sens Divin appartînt à une femme. D'après l'expérience de Wang Lin, la plupart des femmes à ce stade de culture étaient arrogantes et méprisaient les disciples masculins; elles ne pratiquaient donc pas de recherches trop minutieuses. Après tout, une fouille détaillée équivalait à regarder quelqu'un nu.
+Il se déplaça à sa vitesse maximale pour pénétrer dans le corps de l'homme. La raison n'était pas le niveau de culture de ce dernier, mais le fait que le Sens Divin appartînt à une femme. D'après l'expérience de Wang Lin, la plupart des femmes à ce stade de culture étaient hautaines et ne fouillaient pas trop minutieusement le corps d'un disciple masculin. Après tout, une fouille détaillée équivalait à regarder quelqu'un nu.
 
 Au moment où Wang Lin pénétra dans l'homme, le Sens Divin passa.
 
@@ -120,4 +120,4 @@ Il ne s'attarda pas, mais balaya directement la distance. Après avoir couvert t
 
 « Ce n'est pas que j'ai été découvert, c'est simplement que la Secte de la Grande Âme a pour habitude d'avoir un puissant cultivateur en alerte qui déploie périodiquement son Sens Divin... » Wang Lin se rassembla à l'intérieur du corps de l'homme et forma un vortex entouré de restrictions.
 
-Tandis que Wang Lin réfléchissait, la femme à ses côtés le réprimanda: « Pourquoi restes-tu là debout? Si nous sommes en retard pour livrer le Fruit de la Division de l'Âme à la Senior Sister, nous serons punis! »
+Tandis que Wang Lin réfléchissait, la femme à ses côtés le réprimanda: « Pourquoi restes-tu là debout? Si nous sommes en retard pour livrer le Fruit de la Division de l'Âme aux Senior Sisters, nous serons punis! »

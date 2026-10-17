@@ -6,7 +6,7 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1846 - Meeting for the First Time!"
 slug: première-rencontre
 ---
-Sur ces mots, la mer resta inchangée, mais il y laissa une parcelle de son sens divin. Cette fraction de sens divin pouvait sembler inutile pour l'instant, mais à l'avenir, elle jouerait un rôle prépondérant.
+Sous cette pression de sa main, la mer resta inchangée, mais Wang Lin y laissa une parcelle de son sens divin. Prudent, il savait que cette fraction de sens divin pouvait sembler inutile pour l'instant, mais qu'elle pourrait très bientôt jouer un rôle.
 
 Ce sens divin s'était fusionné avec l'océan, le rendant extrêmement difficile à détecter.
 
@@ -52,11 +52,11 @@ Wang Lin avait trouvé un moyen de percer les trois premières couches!
 
 Le Tigre Blanc et ses compagnons ne pouvaient rien voir de tout cela; ils étaient très graves et regardaient Wang Lin avec anxiété. Après tout, beaucoup de temps s'était écoulé.
 
-Même à cet instant, aucun cultivateur de la Secte du Démon Vert n'était apparu. C'était étrange, comme le calme précédant la tempête, ce qui leur procurait un sentiment oppressant.
+Même à cet instant, aucun cultivateur du Continent du Démon Vert n'était apparu. C'était étrange, comme le calme précédant la tempête, ce qui leur procurait un sentiment oppressant.
 
 Wang Lin demeurait calme, l'esprit concentré sur les sept couches de restrictions. Plus il progressait, plus il trouvait la restriction profonde. Après les trois premières couches, ces zones de brouillard ténu devenaient difficiles à déceler.
 
-Mais Wang Lin possédait l'essence de restriction; il ne comptait pas uniquement sur la déduction, mais aussi sur son regard d'essence. À ses yeux, toutes les restrictions du monde semblaient s'immobiliser.
+Mais Wang Lin possédait l'essence de restriction; il ne comptait pas uniquement sur la déduction, mais aussi sur son regard d'essence. Sous son regard, toutes les restrictions du monde semblaient ne plus pouvoir se dissimuler.
 
 Après une autre demi-minute et après avoir percé les trois premières couches, les yeux de Wang Lin brillèrent et il effectua dix-sept mouvements! Dix-sept lignes de sang jaillirent des deux yeux géants derrière lui. Dans la quatrième couche, six lignes formèrent un petit cercle là où le brouillard était fin.
 
@@ -92,13 +92,13 @@ Le brouillard de la sixième couche était très dense et ne présentait aucune 
 
 Dans un fracas assourdissant, Wang Lin força l'ouverture de la sixième couche avec le Tigre Blanc et ses compagnons!
 
-« Ce humble Yun Kong vient de loin. Pourquoi l'honorable Daoïste est-il si pressé de partir? » Une voix grave résonna à la surface de la mer. L'ombre d'épée qui avait traversé les quatre premières couches se métamorphosa en un cultivateur vêtu de bleu.
+« Cet humble Yun Kong vient de loin, par-delà mille montagnes. Pourquoi l'honorable Daoïste est-il si pressé de partir? » Une voix grave résonna à la surface de la mer. L'ombre d'épée qui avait traversé les quatre premières couches se métamorphosa en un cultivateur vêtu de bleu.
 
 Ce cultivateur ressemblait à un jeune homme. Il portait des vêtements simples, sans le moindre ornement. Ses longs cheveux drapés sur ses épaules lui donnaient une allure élégante.
 
 Il était d'une grande beauté mais dégageait une froideur extrême, et il tenait une épée de sept pieds dans sa main. Sous ce ciel sombre, un frisson semblait parcourir l'air, et l'épée émettait un éclat glacial.
 
-Ce n'était pas le corps originel de Yun Kong, mais un avatar formé par son intention d'épée. Bien qu'il ne s'agisse que d'un avatar, il contenait 60 % de son intention!
+Ce n'était pas le corps originel de Yun Kong, mais un avatar formé par son intention d'épée. Bien qu'il ne s'agisse que d'un avatar, il contenait près de 60 % de son intention d'épée!
 
 Tout en parlant, il leva les yeux et fit un pas vers la cinquième couche! Il leva sa main droite et l'épée qu'il tenait balaya le ciel.
 

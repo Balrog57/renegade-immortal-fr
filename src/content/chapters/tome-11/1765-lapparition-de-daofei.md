@@ -24,11 +24,11 @@ Ces huit flèches étaient rigoureusement identiques aux Flèches de Li Guang. I
 
 Le Grand Empyréen Xuan Luo contemplait calmement les huit Poissons-Œil. Il était le seul à connaître le véritable pouvoir de ces créatures.
 
-« Une fois que les Poissons-Œil ouvrent leurs yeux, ils peuvent prendre n'importe quelle forme et acquérir une partie de son pouvoir... Cependant, il est extrêmement difficile pour cette bête d'ouvrir les yeux. Ceux qui se trouvent dans cette grotte sont très intéressants... » Les yeux de Xuan Luo s'illuminèrent d'une lueur d'intérêt.
+« Une fois que les Poissons-Œil ouvrent leurs yeux, ils peuvent prendre n'importe quelle forme et acquérir une partie de son pouvoir... Cependant, il est extrêmement difficile pour cette bête d'ouvrir les yeux. Ceux qui se trouvent dans cette grotte sont très rares... » Les yeux de Xuan Luo s'illuminèrent d'une lueur d'intérêt.
 
 Les neuf Flèches de Li Guang se mêlèrent, rendant impossible l'identification de la véritable. Elles foncèrent droit sur le Daoïste aux Sept Couleurs. Son expression changea brusquement et les écrans lumineux qui l'entouraient se distordirent dans un fracas de tonnerre!
 
-Les sept écrans de lumière s'effondrèrent, entraînant avec eux les neuf Flèches de Li Guang. Pourtant, celles-ci ne se dissipèrent pas; elles se reformèrent en huit Poissons-Œil. Ils atterrirent non loin de l'endroit où le premier avait disparu, et les neuf Poissons-Œil étaient désormais à leur dernier souffle.
+Les sept écrans de lumière s'effondrèrent, entraînant avec eux les huit Flèches de Li Guang. Pourtant, celles-ci ne se dissipèrent pas; elles se reformèrent en huit Poissons-Œil. Ils atterrirent non loin de l'endroit où le premier avait disparu, et les neuf Poissons-Œil étaient désormais à leur dernier souffle.
 
 Cet effondrement créa une onde de choc qui obscurcit la vision et le Sens Divin. La neuvième Flèche de Li Guang perça tout sur son passage pour atteindre le Daoïste aux Sept Couleurs.
 
@@ -36,7 +36,7 @@ Un gémissement misérable s'éleva de l'onde de choc, accompagnée de grondemen
 
 Dans un rugissement de rage, il chargea en avant. Faisant fi de ses blessures, il se précipita vers Wang Lin, porté par une intention meurtrière et une folie dévorante.
 
-« Ce vieil homme sacrifiera même son troisième esprit pour te tuer! » Le Daoïste aux Sept Couleurs hurla et ses mains formèrent un sceau. Neuf soleils aveuglants apparurent autour de son corps.
+« Ce vieil homme sacrifiera même sa troisième âme pour te tuer! » Le Daoïste aux Sept Couleurs hurla et ses mains formèrent un sceau. Neuf soleils aveuglants apparurent autour de son corps.
 
 Ces neuf soleils constituaient le sortilège le plus puissant du Daoïste aux Sept Couleurs. Il l'utilisa sans la moindre hésitation pour exterminer Wang Lin!
 
@@ -64,9 +64,9 @@ Le monde commença à se briser. Ce monde était en train d'être détruit!
 
 Cependant, ce n'était pas la fin. Cette force destructrice représentait la pleine puissance du Daoïste aux Sept Couleurs, et les 300 mondes en décomposition ne pouvaient y résister. À mesure que l'onde se propageait, les 300 mondes commencèrent à s'effondrer les uns après les autres.
 
-Le visage de la Tortue Noire était pétrifié par la terreur; il poussa un cri et recula précipitamment avec le Général Oiseau Vermillon. Le Souverain pâlit et se transforma en un rayon de lumière rouge pour s'enfuir.
+Le visage de la Tortue Noire était pétrifié par la terreur; il poussa un cri et recula précipitamment avec le Général Oiseau Vermillon. Le Souverain pâlit et se transforma en une longue traînée de lumière pour s'enfuir.
 
-Au loin, les expressions de la troisième concubine, du Maître Daoïste Bleu Rêve et des habitants de la planète des Cinq Éléments changèrent radicalement. Ils reculèrent tous hors de la première fleur qui formait les 300 mondes détruits!
+Au loin, les expressions de la troisième concubine, du Maître Daoïste Bleu Rêve et des habitants de la planète des Cinq Éléments changèrent radicalement. Ils reculèrent tous hors de la Première Fleur des 300 Mondes, saturée de force destructrice!
 
 Au centre de la force destructrice, la poitrine du Daoïste aux Sept Couleurs trembla. La collision entre la troisième flèche et les neuf soleils avait créé une onde de choc qui s'était propagée dans son corps, faisant jaillir le sang de sa poitrine et le laissant gravement blessé.
 
@@ -98,7 +98,7 @@ Cependant, son apparition et ses propos semèrent un chaos immense dans les envi
 
 Au loin, le Vieux Fantôme Zhan, entouré par la Voile Fantôme, avait déjà ouvert les yeux mais choisit de ne pas sortir du brouillard. Il avait tout vu, et ses yeux brillaient d'une lueur indéchiffrable.
 
-Non loin de là, le Souverain en fuite trembla et manqua de trébucher lorsque le Fou rugit:
+Non loin de là, le Souverain en fuite trembla et manqua de trébucher en entendant les paroles du fou:
 
 « Ma... Maître!! »
 

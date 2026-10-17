@@ -24,9 +24,9 @@ Alors que le corps de Wang Lin tremblait violemment, les yeux de Xuan Luo s'illu
 
 Mais au moment même où Xuan Luo se retournait, la porte de la tour s'ouvrit de nouveau et le jeune homme en sortit.
 
-« Grand Empyréen Xuan Luo, l'Ancêtre Gu vous appelle. »
+« Grand Empyréen Xuan Luo, le Seigneur Gu vous convoque. »
 
-Xuan Luo marqua un temps d'arrêt, puis resta plongé dans une longue réflexion silencieuse. La main droite toujours tendue vers Wang Lin, il se tourna vers la tour. Le jeune homme lança un regard profond à Wang Lin avant de retourner dans la tour et de refermer la porte.
+Xuan Luo marqua un temps d'arrêt, puis resta plongé dans une longue réflexion silencieuse. Puis il pointa un doigt de sa main droite entre les sourcils de Wang Lin, se tourna et entra dans la tour. Le jeune homme lança un regard profond à Wang Lin avant de retourner dans la tour et de refermer la porte.
 
 Le geste de Xuan Luo avait soudainement fait vibrer le cœur de Wang Lin. Cette aura lui procurait une sensation de chaleur intérieure. Elle ne supprimait pas sa culture, mais résistait au son des cloches en lui.
 
@@ -42,9 +42,9 @@ Wang Lin leva soudain la tête.
 
 Ses yeux étaient injectés de sang et sa culture s'activa instantanément. Conjuguée à son pouvoir ancien, elle atteignit le sommet de sa puissance.
 
-« Je n'ai aucune culture du clan céleste! Ce que je possède est ma propre force, acquise au cours de mes 3 000 ans de vie! De quel droit m'ordonnez-vous de la dissiper?! » Wang Lin rugit et les sons des cloches à l'intérieur de son corps éclatèrent. Ils entrèrent en collision avec sa culture et il cracha une bouchée de sang. Il continua de reculer comme poussé par une force invisible, jusqu'à ce qu'il se retrouve au milieu de la montagne.
+« Je n'ai aucune culture du clan céleste! Ce que je possède est ma propre force, acquise au cours de mes plus de 3 000 ans de vie! De quel droit m'ordonnez-vous de la dissiper?! » Wang Lin rugit et les sons des cloches à l'intérieur de son corps éclatèrent. Ils entrèrent en collision avec sa culture et il cracha une bouchée de sang. Il continua de reculer comme poussé par une force invisible, jusqu'à ce qu'il se retrouve au milieu de la montagne.
 
-« Mes essences sont ma perception de la vie. Elles sont le fruit de mes luttes! De quel droit m'ordonnez-vous de les dissiper?! » Wang Lin leva les yeux, son regard de plus en plus injecté de sang. Il poussa un rugissement vital.
+« Mes essences sont la sédimentation de ma vie, elles portent mon destin et mes luttes! De quel droit m'ordonnez-vous de les dissiper?! » Wang Lin leva les yeux, son regard de plus en plus injecté de sang. Il poussa un rugissement vital.
 
 Alors qu'il rugissait, Wang Lin cracha une troisième bouchée de sang. Son corps trembla tandis que le son des cloches heurtait à nouveau sa culture. Il recula jusqu'au pied de la montagne. Il ne restait plus que 19 marches derrière lui!
 
@@ -108,7 +108,7 @@ Mais...
 
 Cette chance disparut totalement alors qu'un événement majeur se déroulait dans la cité impériale de l'Ancien Dao!
 
-Dans le palais de la cité impériale de l'Ancien Dao, l'Empereur de l'Ancien Dao siégeait sur son trône. Devant lui, trois vieillards vêtus de pourpre étaient agenouillés, transportés par l'excitation.
+Dans le palais de la cité impériale de l'Ancien Dao, l'Empereur de l'Ancien Dao siégeait dans une salle annexe. Devant lui, trois vieillards vêtus de pourpre étaient agenouillés, transportés par l'excitation.
 
 « Votre Majesté, depuis des centaines d'années, nous avons cherché d'innombrables femmes pour fusionner avec l'âme, mais aucune n'y est parvenue. Le rejet était immense et aucune ne pouvait nourrir l'âme. »
 

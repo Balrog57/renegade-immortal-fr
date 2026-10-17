@@ -18,7 +18,7 @@ Le corps véritable des cinq éléments de Wang Lin affichait une expression ext
 
 « Depuis que je suis apparu, je ne retournerai pas en arrière avant que le massacre et la destruction ne soient achevés! Toi... disparais! » Les yeux du Wang Lin aux cheveux noirs ne contenaient aucune lueur alors qu'il balayait d'un revers de main le corps véritable des cinq éléments.
 
-D'un seul geste, le corps véritable des cinq éléments manifesta une lutte désespérée avant de s'effondrer instantanément. Le corps se transmuta à nouveau en cinq essences et vola vers la main droite du Wang Lin aux cheveux noirs avant de disparaître.
+D'un seul geste, le corps véritable des cinq éléments manifesta une lutte désespérée avant de s'effondrer instantanément. Le corps se transmuta à nouveau en plusieurs essences qui, avec les cinq autres essences, volèrent vers la main droite du Wang Lin aux cheveux noirs avant de disparaître.
 
 « Maintenant, dis-moi qui tu es! » Le Wang Lin aux cheveux noirs s'arrêta devant l'Exalté Empyréen Hai Zi et la fixa. Sa voix était glaciale, chargée d'une intention meurtrière.
 
@@ -54,7 +54,7 @@ Le vieil homme était le Grand Empyréen Jiu Di. Son visage était grave. Après
 
 Le Wang Lin aux cheveux noirs déclara calmement: « Dans ce piège, au-delà du pouvoir de l'Enseignant Impérial, il y a aussi vous. »
 
-« Destruction et massacre... Je me demandais ce que tu avais utilisé pour franchir le 17e palais. Avec ton niveau de culture, une simple armure d'âme ne suffisait pas pour atteindre un tel niveau...
+« Destruction et massacre... Je me demandais ce que tu avais utilisé pour franchir le 17e niveau. Avec ton niveau de culture, une simple armure d'âme ne suffisait pas pour atteindre un tel niveau...
 
 « Ainsi, il s'avère que tu possèdes le pouvoir qui représente la destruction et le massacre! » Les pupilles de Jiu Di se rétractèrent légèrement. Cette paume contenait la puissance d'un Grand Empyréen, et pourtant elle n'avait fait reculer Wang Lin que de neuf pas!
 

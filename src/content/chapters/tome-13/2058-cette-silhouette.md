@@ -36,7 +36,7 @@ Soudain, l'un des trois halos autour de la statue vacilla comme une flamme de bo
 
 « Un autre a disparu! »
 
-« Il ne reste que deux halos. Cette division d'âme dure depuis vingt ans... Peut-il vraiment échouer ainsi... »
+« Il ne reste que deux halos. Cette division d'âme dure depuis presque vingt ans... Peut-il vraiment échouer ainsi... »
 
 « Quand ces deux halos disparaîtront, il... Vite, regardez, un autre vient de s'éteindre! »
 
@@ -62,7 +62,7 @@ Une réponse venait enfin d'éclater au grand jour!
 
 « C'est lui! Ce Wang Lin est celui qui a tué l'Empereur du Dao Antique il y a plus de cent ans! C'est bien lui! »
 
-« La rumeur dit que ce Wang Lin est le dixième Grand Empyréen du Continent Astral Immortel. Mon Dieu, je n'aurais jamais imaginé que la personne subissant la calamité soit ce Wang Lin! »
+« La rumeur dit que ce Wang Lin est déjà le dixième soleil du Continent Astral Immortel. Mon Dieu, je n'aurais jamais imaginé que la personne subissant la calamité soit ce Wang Lin! »
 
 Alors que les rugissements anxieux de Xuan Luo faisaient vibrer la cité impériale de l'Ancien Shi, le dernier halo restant devint encore plus pâle. Il semblait sur le point de s'évanouir à tout instant.
 
@@ -86,7 +86,7 @@ Aucune vie ne subsistait dans ce monde, comme s'il avait été abandonné depuis
 
 Une neige aux sept couleurs tombait sur la montagne, et le spectacle était d'une grande beauté.
 
-Une silhouette vague se dessinait au sommet. Il ne pouvait distinguer qu'un homme tenant un corps. Ses longs cheveux flottaient au gré du vent. Cette scène était empreinte de désolation et de tristesse.
+Une silhouette vague se dessinait au sommet. Il ne pouvait distinguer qu'un homme portant un cadavre dans ses mains. Les longs cheveux du cadavre flottaient au gré du vent. Cette scène était empreinte de désolation et de tristesse.
 
 Wang Lin fixa cette silhouette. Elle lui inspirait un sentiment de familiarité si profond que son corps en trembla.
 

@@ -8,7 +8,7 @@ slug: bataille-pour-song-tian
 ---
 « Wang Lin!! C'est bel et bien Wang Lin!!! » Un rugissement jaillit de la Secte Dao Yi, et la colère contenue dans ce cri résonna à travers le monde.
 
-Outre la colère, une sensation de peur et d'effroi imprégnait l'air. Face à Wang Lin, la Secte Dao Yi ne pouvait oublier tout ce qui s'était produit dans le palais de la cité ancestrale. À l'époque, Wang Lin était déjà extrêmement puissant, et désormais, il était un Grand Empyréen. Il n'osait même pas imaginer à quel point sa force avait augmenté!
+Outre la colère, une sensation de peur et d'effroi imprégnait l'air. Face à Wang Lin, Dao Yi ne pouvait oublier tout ce qui s'était produit dans le palais souterrain de la cité ancestrale. À l'époque, Wang Lin était déjà extrêmement puissant, et désormais, il était un Grand Empyréen. Il n'osait même pas imaginer à quel point sa force avait augmenté!
 
 Le gigantesque Soleil de Grand Empyréen, second seulement à celui de Gu Dao, témoignait lui aussi de la puissance de Wang Lin!
 
@@ -18,15 +18,15 @@ Dans la Secte Yang Pourpre, les deux petites filles étaient transportées par l
 
 « Il est devenu un Grand Empyréen... »
 
-Sur le Mont de l'Empereur, dans la cité ancestrale, le Grand Empyréen Ji Du regardait en direction du clan Ancien. Son cœur trembla, son visage pâlit légèrement et une incertitude l'envahit.
+Sur le Mont de l'Empereur, dans la cité ancestrale, le Grand Empyréen Jiu Di regardait en direction du clan Ancien. Son cœur trembla, son visage pâlit légèrement et une incertitude l'envahit.
 
-« Lorsqu'il était au palais, il avait déjà formé l'esquisse d'un soleil, puis il a obtenu la tête de l'Ancêtre Céleste... Ce soleil possède trois couleurs: noir, blanc et or. L'or doit provenir de la fusion avec la tête de l'Ancêtre Céleste... »
+« Lorsqu'il était dans le palais souterrain, il avait déjà formé l'esquisse d'un soleil, puis il a obtenu la tête de l'Ancêtre Céleste... Ce soleil possède trois couleurs: noir, blanc et or. L'or doit provenir de la fusion avec la tête de l'Ancêtre Céleste... »
 
 « Normalement, le fait qu'il devienne un Grand Empyréen ne serait pas une surprise totale, mais c'est... cela ne fait que cent ans et il a déjà raffiné la tête de l'Ancêtre Céleste!! »
 
-« Et le moment où il est devenu un Grand Empyréen... » Le cœur de Ji Du tressaillit. Il était le seul à connaître la vérité sur les 72 âmes qui avaient causé ce tumulte. Il repensa au regard échangé plus tôt et ne put s'empêcher de faire le lien avec l'ascension de Wang Lin.
+« Et le moment où il est devenu un Grand Empyréen... » Le cœur de Jiu Di tressaillit. Il était le seul à connaître la vérité sur les 72 âmes qui avaient causé ce tumulte. Il repensa au regard échangé plus tôt et ne put s'empêcher de faire le lien avec l'ascension de Wang Lin.
 
-Ji Du laissa paraître son effroi et murmura pour lui-même: « Ce doit être... impossible!! »
+Jiu Di laissa paraître son effroi et murmura pour lui-même: « Cela devrait être... impossible!! »
 
 Hai Zi, assise à l'angle du Mont de l'Empereur, levait les yeux vers le ciel avec un regard complexe, laissant poindre une lueur d'illumination.
 
@@ -36,7 +36,7 @@ Au sein du clan Ancien, un tollé éclata sur la Montagne de l'Origine du clan A
 
 Dans la cité impériale de l'Ancien Dao, Xuan Luo ressentit l'aura de Wang Lin. Un sourire apparut sur ses lèvres; il était ivre de joie et éclata d'un rire sonore.
 
-Dans le pays de Luo Huo, dans le ciel surplombant le palais, Wang Lin fit un geste de la main et son Soleil de Grand Empyréen aux trois couleurs disparut. Cependant, l'ombre de ce soleil resterait à jamais gravée dans le ciel, tel un symbole de son ascension au rang de Grand Empyréen.
+Dans le pays de Luo Hou, dans le ciel surplombant le palais, Wang Lin fit un geste de la main et son Soleil de Grand Empyréen aux trois couleurs disparut. Cependant, l'ombre de ce soleil resterait à jamais gravée dans le ciel, tel un symbole de son ascension au rang de Grand Empyréen.
 
 Le monde retrouva son calme tandis que la puissance des lois se dissipait lentement. Plusieurs rayons de lumière s'élancèrent du palais, et le premier en vue était celui du Prince Ji Du.
 

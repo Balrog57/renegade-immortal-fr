@@ -28,13 +28,13 @@ Wang Lin demanda lentement: « Qui a sculpté la statue de l'Ancêtre? »
 
 Wang Lin hocha doucement la tête. Il savait qu'une race devait posséder un symbole d'espoir; sans lui, elle ne pourrait perdurer et finirait par s'éteindre lentement.
 
-Il était évident que les statues de l'Ancêtre et ses légendes étaient les symboles en lesquels le clan Ancien croyait! Le Grand Empyréen Gu Dao, gardien du clan Ancien... Rien que ce titre témoignait de sa sagesse.
+Il était évident que les statues de l'Ancêtre et ses légendes étaient les symboles en lesquels le clan Ancien croyait! Le Grand Empyréen Gu Dao, gardien du clan Ancien... Rien que ce geste témoignait de sa sagesse.
 
 Wang Lin et Song Tian restèrent sous la statue, comme s'ils attendaient silencieusement quelque chose.
 
 Peu après, des murmures s'élevèrent de la direction du palais impérial. Un rayon de lumière sombre jaillit vers eux et encercla la statue de l'Ancêtre, formant des halos obscurs.
 
-Au pied de la statue, sur son socle, se trouvait une immense porte. Elle était close, mais dès que les halos sombres apparurent, elle s'ouvrit lentement.
+Entre les pieds de l'Ancêtre, sur l'immense rocher, se trouvait une porte en arc. Elle était close, mais dès que les halos sombres l'entourèrent, des grondements retentirent et elle s'ouvrit lentement.
 
 « Frère Wang, le temple ancestral est ouvert. Je n'y entrerai pas, prenez soin de vous! » Song Tian joignit les mains en signe de respect devant Wang Lin.
 
@@ -54,9 +54,9 @@ Les membres des Anciens Shi avaient tous remarqué l'aura autour de la statue, m
 
 L'ensemble des Anciens Shi ne semblait pas avoir changé, mais les observants attentifs remarquèrent que le Prince Ji Du, qui était habituellement absent de la cité impériale, résidait désormais dans le palais.
 
-Le prince héritier avait été nommé roi il y a dix ans et avait été envoyé aux frontières pour les défendre.
+Dix ans plus tard, le fils aîné de l'empereur fut nommé roi et quitta la cité dans la discrétion, envoyé aux frontières pour les défendre.
 
-Cinq années s'écoulèrent encore. Le Prince Chi Man, le plus probable successeur de l'empereur, fut nommé roi à son tour et renvoyé hors de la cité impériale. Après quinze ans, les princes furent nommés rois et envoyés un à un. Au bout de trente ans, seul le Prince Ji Du demeurait!
+Cinq années s'écoulèrent encore. Le Prince Chi Man, le plus probable successeur de l'empereur, fut nommé roi à son tour et renvoyé hors de la cité impériale. Durant les quinze années suivantes, les princes furent nommés rois et envoyés un à un. Au bout de trente ans, seul le Prince Ji Du demeurait!
 
 Durant ces trente années, le Prince Ji Du resta très discret et n'interagit que peu avec l'extérieur. Son statut d'héritier étant établi, il n'avait plus besoin d'agir dans l'ombre. Il lui suffisait d'attendre.
 
@@ -70,13 +70,13 @@ Il ignorait quand il reverrait son parrain, mais cette habitude ne le quitta jam
 
 Le temps passa lentement, et cette habitude devint un secret.
 
-Outre cela, durant ces trente années, il n'oublia pas l'ordre de Wang Lin. Il avait dépêché de nombreux experts puissants à Ville de la Pierre Noire pour surveiller secrètement une femme nommée Song Zhi.
+Outre cela, durant ces trente années, il n'oublia pas l'ordre de Wang Lin. Il avait dépêché de nombreux experts puissants à Ville de la Pierre Noire pour protéger secrètement une femme nommée Song Zhi.
 
 Après plus d'un siècle, Song Zhi n'était plus la même et portait les marques du temps. Elle ignorait que le seigneur de Ville de la Pierre Noire et d'innombrables experts agissaient ainsi pour elle.
 
 En un éclair, vingt années supplémentaires passèrent. Cinquante ans après l'entrée de Wang Lin dans le temple ancestral, une cérémonie grandiose fut organisée au sein des Anciens Shi.
 
-Ce n'était pas le couronnement de Song Tian, mais son mariage. Il avait choisi comme épouse une descendante de la lignée de Song Tian, nommée Song Yu. Cette femme était choyée par Song Tian et comptait parmi les rares descendantes à pouvoir recevoir personnellement ses enseignements.
+Ce n'était pas le couronnement de Ji Du, mais son mariage. Il avait choisi comme épouse une descendante de la lignée de Song Tian, nommée Song Yu. Cette femme était choyée par Song Tian et comptait parmi les rares descendantes à pouvoir recevoir personnellement ses enseignements.
 
 Ce grand festival dura plusieurs mois, durant lesquels les membres des deux autres clans arrivèrent. Un homme d'âge mûr vint de l'Ancien Dao; si Wang Lin l'avait vu, il aurait remarqué sa ressemblance frappante avec Ye Mo. C'était un descendant de Ye Mo.
 
@@ -96,11 +96,11 @@ La femme fut surprise.
 
 « Parrain, j'ai pris une descendante du Seigneur Song pour épouse. Elle sera la future impératrice des Anciens Shi. Aujourd'hui, je l'ai amenée ici pour lui rendre hommage! » Ji Du parlait avec un respect profond, venant du plus profond de son cœur.
 
-Il se souviendrait à jamais que tout ce qu'il possédait lui avait été accordé par Wang Lin. Il n'oublierait jamais que sans lui, il n'aurait jamais eu la moindre chance de devenir empereur. Même la femme à ses côtés ne serait pas sa femme; elle appartiendrait à Chi Man.
+Il se souviendrait à jamais que tout ce qu'il possédait lui avait été accordé par Wang Lin. Il n'oublierait jamais que sans lui, il n'aurait jamais eu la moindre chance de devenir empereur. Même la femme à ses côtés ne serait peut-être pas sa femme; elle appartiendrait à Chi Man.
 
 « Parrain, il reste cinquante ans avant que cet enfant ne devienne le nouvel empereur. Cet enfant espère pouvoir vous voir ce jour-là... »
 
-La femme sembla soudain se souvenir de quelque chose et regarda le temple avec stupeur. Elle se remémora vaguement que l'ancêtre de sa famille, Seigneur Song, avait un jour mentionné un nom. À l'évocation de ce nom, l'expression de Song Tian était devenue complexe, empreinte d'un immense respect.
+La femme sembla soudain se souvenir de quelque chose et regarda le temple avec stupeur. Elle se remémora vaguement que l'ancêtre de sa famille, Seigneur Song, avait un jour mentionné un nom. À l'évocation de ce nom, l'expression de Song Tian était devenue complexe, mêlée d'émotion et d'une pointe d'admiration.
 
 La femme murmura: « Wang... Seigneur Wang... »
 
@@ -122,4 +122,4 @@ Wang Lin était assis au plus profond du temple. Son corps dégageait une odeur 
 
 Après un long silence, Wang Lin ferma les yeux, et la voix qui s'était manifestée lorsqu'il avait franchi la première calamité de la troisième épreuve pour obtenir cette goutte de sang d'âme résonna dans son esprit:
 
-« Si je veux que ce ciel s'effondre, il s'effondrera. Si je veux que cette terre se brise, elle se brisera! Si je veux qu'un être meure, personne n'osera m'arrêter. Si je veux qu'aucun être céleste ne survive, qui oserait les sauver... »
+« Si je veux que ce ciel s'effondre, il s'effondrera. Si je veux que cette terre se brise, elle devra se briser! Si je veux que les êtres vivants périssent, nul n'osera ne pas périr. Si je veux que ce firmament n'ait plus d'immortels, qui oserait encore subsister... »

@@ -10,15 +10,15 @@ Les compagnons de Wang Lin partirent les uns après les autres. Avant de s'en al
 
 Treize s'agenouilla dans le vide devant Wang Lin. Il leva la tête, le regard empreint d'une détermination sans faille.
 
-« Maître, Treize s'en va. Même si ma mémoire venait à être scellée, je n'oublierai jamais la bonté que vous m'avez témoignée. Même lors de ma réincarnation, je ne l'oublierai pas! » Les paroles de Treize étaient chargées d'une volonté farouche. Sa résolution était si puissante que, même si ses souvenirs étaient effacés, son instinct subsisterait.
+« Maître, Treize s'en va. Même si ma mémoire venait à être scellée, je n'oublierai jamais la bonté avec laquelle vous m'avez transmis le Dao. Même lors de ma réincarnation, je ne l'oublierai pas! » Les paroles de Treize étaient chargées d'une volonté farouche. Sa résolution était si puissante que, même si ses souvenirs étaient effacés, son instinct subsisterait.
 
 Cet instinct était ce qui lui importait le plus: son lien avec Wang Lin en tant que disciple.
 
 Après Treize, ce fut au tour de Situ Nan. Toujours aussi imprévisible, il rit aux éclats tout en s'élançant vers la sortie. Il sortit une cruche de vin et la lança en direction de Wang Lin, qui l'attrapa au vol.
 
-« J'aime boire dans cette vie, mais j'ignore si j'en aurai le goût dans la prochaine! Je te laisse cette cruche. Quand tu me retrouveras, rends-la moi. Hahaha, ce vieux doit se réincarner en roi! Bon sang, un roi, absolument un roi! » Le rire de Situ Nan résonna tandis qu'il disparaissait derrière la porte.
+« J'aime boire dans cette vie, mais j'ignore si j'en aurai le goût dans la prochaine! Je te laisse cette cruche. Quand tu me retrouveras, rends-la moi. Hahaha, ce vieux doit se réincarner en prince! Bon sang, un prince, absolument un prince! » Le rire de Situ Nan résonna tandis qu'il disparaissait derrière la porte.
 
-Toutefois, nul ne savait si son vœu serait exaucé. Se réincarner en roi sur le Continent Astral Immortel était une éventualité dont ni Wang Lin ni Xuan Luo ne pouvaient être certains.
+Toutefois, nul ne savait si son vœu serait exaucé. Se réincarner en prince sur le Continent Astral Immortel était une éventualité dont ni Wang Lin ni Xuan Luo ne pouvaient être certains.
 
 « J'espère que ses désirs se réaliseront... » Wang Lin affichait une expression étrange. Il pressentait que les choses ne se dérouleraient pas comme Situ Nan l'avait imaginé.
 
@@ -52,9 +52,9 @@ Avec un tel niveau de culture, ses sept essences et ses sorts du Dao Antique, ce
 
 Alors que le puissant Sens Divin de Wang Lin balayait les environs, ses yeux brillèrent. Il fit un pas en avant et disparut.
 
-Dans la partie orientale du Système Stellaire Antique se trouvait une planète en forme de croissant. Cette planète possédait une forme irrégulière rare et était imprégnée d'une aura de mort. On y percevait même quelques pulsations féroces.
+Dans la partie orientale du Système Stellaire Antique se trouvait une planète en forme de croissant. Cette planète possédait une forme irrégulière; l'énergie spirituelle y était rare, comme si tout y était mort, et même les bêtes féroces y étaient peu nombreuses.
 
-La planète était recouverte de sable jaune. Le jour n'y existait pas, seule la nuit régnait. En raison de son aspect incomplet, elle ne possédait ni herbe ni arbres, seulement d'immenses rochers gravitant autour d'elle.
+La planète était recouverte de sable jaune. Le jour n'y existait pas, seule la nuit régnait. En raison de son aspect incomplet, elle ne possédait ni herbe ni arbres, seulement de nombreux rochers flottant et tournoyant sans but autour d'elle.
 
 Au sommet de la structure en croissant, le sable jaune flottait dans les airs au-dessus d'un sol sombre. Une faille s'y ouvrait, et au milieu de celle-ci siégeait un vieil homme. Le visage pâle et les yeux clos, il tentait de se soigner. Cependant, du sang noir jaillissait du coin de sa bouche et perlait sur le sol dans un crépitement sinistre.
 
@@ -86,7 +86,7 @@ L'impact de l'effondrement se mua en une onde de choc puissante qui se propagea 
 
 Sous cette violence, des craquements sinistres retentirent devant le Maître Démon Neuf Cieux. Tous ses sorts et trésors volèrent en éclats. Il cracha un flot de sang, serrant les dents pour tenter de s'échapper, mais Wang Lin apparut silencieusement devant lui, sa paume venant frapper directement entre ses sourcils.
 
-« Je suis bien venu pour t'envoyer à la réincarnation, et non pour te tuer! » Les paroles calmes de Wang Lin résonnèrent. Ce fut le dernier son que Neuf Cieux entendit. Lorsque la paume de Wang Lin percuta sa cible, son âme fut scellée et emportée par Wang Lin.
+« Je suis bien venu pour t'envoyer à la réincarnation, et non pour te tuer! » Les paroles calmes de Wang Lin résonnèrent. Ce fut le dernier son que Neuf Cieux entendit. Lorsque la paume de Wang Lin percuta sa cible, il fut scellé et emporté dans l'espace de stockage de Wang Lin.
 
 Wang Lin avait aisément scellé le Maître Démon Neuf Cieux, pourtant affaibli par le Maître du Dao Rêve Bleu. Entre son arrivée et le sceau final, il ne s'était écoulé que quelques respirations. Les yeux de Wang Lin devinrent froids alors qu'il tournait son regard vers l'ouest.
 

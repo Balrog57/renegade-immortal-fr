@@ -24,7 +24,7 @@ Dao Yi, Wu Feng et les Grands Empyréens du clan Ancien, y compris Xuan Luo, ét
 
 Simultanément, un message fut transmis depuis le Mont Gu Dao aux trois clans royaux et à leurs Grands Empyréens. Le message était d'une simplicité glaciale: il ordonnait de cesser d'observer le Royaume Divin Immémorial, car celui-ci s'ouvrirait dans cinq cents ans. Il enjoignait également les trois clans et leurs Grands Empyréens respectifs à se préparer pour la bataille qui éclaterait dans ce délai.
 
-Le Mont Gu Dao n'accorda aucune importance à la mort de l'Empereur de l'Ancien Dao. Ce phénomène étrange suffit à réduire au silence la faction du clan Ancien qui prônait la traque de Wang Lin par le Grand Empyréen Gu Dao; ils ne mentionnèrent plus jamais cette affaire.
+Le Mont Gu Dao n'accorda aucune importance à la mort de l'Empereur de l'Ancien Dao. Ce phénomène étrange suffit à réduire au silence la faction de l'Ancien Dao qui prônait la traque de Wang Lin par le Grand Empyréen Gu Dao; ils ne mentionnèrent plus jamais cette affaire.
 
 À l'instar du clan Ancien, le clan Céleste envoya également un message aux soixante-douze continents, annonçant que le Royaume Divin Immémorial s'ouvrirait dans cinq cents ans. Ils devaient consacrer ces cinq siècles à l'entraînement des puissants sous leur autorité. Les Exaltés Empyréens et les Ascendants Empyréens étaient les plus enthousiastes. Le Royaume Divin Immémorial était pour eux comme la porte du dragon: une fois qu'ils y auraient acquis une fortune, ils deviendraient des Grands Empyréens!
 
@@ -40,11 +40,11 @@ Cinq cents ans, seulement cinq cents ans! Pour les mortels, les cultivateurs de 
 
 Les signes de guerre se manifestaient à travers le Continent Astral Immortel en raison de l'émergence du Royaume Divin Immémorial. Dans un pays situé aux frontières de l'Ancien Dao et de l'Ancien Shi, c'était la saison des pluies. La pluie n'était pas torrentielle, mais elle semblait destinée à durer longtemps.
 
-Même sous les eaux, les cités antiques demeuraient animées. La pluie tombait silencieusement sur la terre, s'accumulant en de petits ruisseaux.
+Sous la pluie, les cités de l'Ancien Dao demeuraient animées, tandis que la terre alentour restait paisible. La pluie tombait sur les feuilles avec un crépitement, puis sur le sol, s'accumulant en de petits ruisseaux.
 
 Le ciel était sombre et brumeux. Dans une montagne non loin de là, un jeune homme vêtu de blanc tenait un parapluie de papier. À ses côtés se trouvait une femme d'une grande beauté, qui contemplait l'horizon avec lui.
 
-« Il existe des histoires à ton sujet et sur le fragment d'âme en moi nommé Wan Er... » dit doucement la femme, détournant son regard de la pluie pour observer l'homme en blanc.
+« Voilà donc l'histoire entre toi et le fragment d'âme en moi nommé Wan Er... ? » dit doucement la femme, détournant son regard de la pluie pour observer l'homme en blanc.
 
 C'était cet homme qui avait forcé le palais de l'Ancien Dao, tué l'Empereur de l'Ancien Dao et s'en était extrait seul contre tous, sans que personne n'ose l'arrêter. C'était lui qui l'avait conduite ici.
 
@@ -58,9 +58,9 @@ La femme resta silencieuse. Elle sentait que le regard tendre de Wang Lin ne s'a
 
 « Où allons-nous? »
 
-« À l'endroit où nous nous sommes rencontrés pour la première fois. » Wang Lin prit la main de Song Zhi alors qu'ils faisaient face à la pluie et s'enfoncèrent dans le lointain.
+« À l'endroit où nous nous sommes rencontrés pour la première fois. » Wang Lin prit Song Zhi dans ses bras et, d'un mouvement, s'avança sous la pluie vers le lointain.
 
-Il ne voyageait pas à pleine vitesse, car il devait ménager le corps fragile de Song Zhi et le fragment d'âme instable en elle. Ainsi, un an s'était écoulé depuis qu'il avait tué l'Empereur de l'Ancien Dao.
+Il ne voyageait pas à pleine vitesse, car il devait ménager le corps fragile de Song Zhi et le fragment d'âme instable en elle. Ainsi, près d'un an s'était écoulé depuis qu'il avait tué l'Empereur de l'Ancien Dao.
 
 Durant cette année, Wang Lin n'avait pas été traqué par le Mont Gu Dao, et le clan Ancien n'avait rien dit. Wang Lin conduisit calmement la femme jusqu'aux confins du territoire de l'Ancien Dao.
 
@@ -74,7 +74,7 @@ Quelques mois plus tard, Wang Lin et Song Zhi quittèrent l'Ancien Dao pour atte
 
 Mais elle parlait de moins en moins. Face à Wang Lin, elle devenait de plus en plus silencieuse, habitée par des sentiments complexes. Au cours de ce voyage, elle sentait parfois Wang Lin lui transmettre une énergie chaleureuse. Elle ignorait son but, mais elle percevait que le fragment d'âme fusionné avec elle montrait des signes de séparation.
 
-« Il est en train de séparer l'âme de la femme nommée Wan Er... Peut-être que lorsque l'âme sera totalement détachée, ce sera mon heure... Mais pouvoir revoir ma patrie, voir tante Chang et sœur Dong, est aussi une bénédiction. » Song Zhi ressentit une amertume au cœur et médita en silence.
+« Il est en train de séparer l'âme de la femme nommée Wan Er... Peut-être que lorsque l'âme sera totalement détachée, ce sera mon heure... Mais pouvoir revoir ma patrie, voir tante Chang et Dong Mei, est aussi une bénédiction. » Song Zhi ressentit une amertume au cœur et médita en silence.
 
 Elle avait peur, mais elle était impuissante.
 
@@ -90,7 +90,7 @@ Wang Lin hocha la tête.
 
 Song Zhi réfléchit un instant, puis sourit en regardant Wang Lin. Elle contempla celui qui l'avait accompagnée pendant plus d'un an, ce visage juvénile qui dégageait pourtant une aura antique.
 
-« Wan Er est très chanceuse... J'espère que vous et elle serez heureux pour toujours. »
+« Wan Er est très heureuse... J'espère que vous et elle serez heureux pour toujours. »
 
 À midi le lendemain, Ville de la Pierre Noire se dessinait au loin. La cité de pierre noire apparut à ses yeux, procurant à Song Zhi un sentiment de retour chez soi.
 
@@ -114,6 +114,6 @@ Une demi-heure plus tard, elle se réveilla, les yeux empreints de confusion. El
 
 À cet instant, le soleil était presque couché, sur le point de disparaître. Song Zhi se leva et toucha son cou, où elle trouva un pendentif en jade dégageant une douce chaleur.
 
-Elle sentait que le fragment d'âme de Wan Er avait disparu. Elle n'était plus Song Zhi, mais elle n'avait subi aucune blessure. Pourtant, une vague d'émotion traversa son cœur et ses yeux s'embuèrent. Après un long moment, elle se retourna et marcha vers Ville de la Pierre Noire, qui n'était plus très loin.
+Elle sentait que le fragment d'âme de Wan Er avait disparu. Elle était toujours Song Zhi et n'avait subi aucune blessure. Pourtant, son cœur se serra d'une pointe de mélancolie et son regard se fit complexe. Elle regarda longuement les alentours déserts, puis se retourna et marcha vers Ville de la Pierre Noire, qui n'était plus très loin.
 
 C'était sa maison.

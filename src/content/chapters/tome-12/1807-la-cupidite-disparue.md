@@ -8,7 +8,7 @@ slug: la-cupidite-disparue
 ---
 Wang Lin se frotta les tempes, pris d'une migraine.
 
-Tandis qu'il hésitait, la nouvelle se répandit: un individu nommé Wang avait déclenché le feu terrestre, brûlé la Secte du Dragon Bleu, massacré des milliers de ses disciples, et vaincu quatre Anciens, détruisant au passage les corps de trois d'entre eux et les bras d'un quatrième.
+Tandis qu'il hésitait, la nouvelle se répandit: un individu nommé Wang avait déclenché le feu terrestre, brûlé la Secte du Dragon Bleu, éveillé l'âme de la branche de la veine de feu, balayé des dizaines de milliers de cultivateurs, massacré des milliers de ses disciples, et vaincu quatre Anciens, détruisant au passage les corps de trois d'entre eux et les bras d'un quatrième.
 
 La Secte du Dragon Bleu était enragée. Ils lancèrent tous leurs disciples dans une recherche effrénée. De nombreuses sectes se gaussèrent de cette affaire, n'ayant que peu d'estime pour la Secte du Dragon Bleu. Cependant, face au niveau de culture de Du Qing et à ses liens avec la Secte de la Grande Âme, elles préférèrent s'en tenir à distance.
 
@@ -30,7 +30,7 @@ Durant ce mois, non seulement Wang Lin méditait sur son espace de stockage, mai
 
 Il commença peu à peu à discerner des indices. Les essences éthérées ne posaient aucun problème; que ce soit dans le monde caverneux ou sur le Continent Astral Immortel, rien n'avait changé. Après tout, les essences éthérées étaient issues de la propre compréhension de Wang Lin.
 
-Cependant, les essences corporelles avaient muté, à l'instar de l'essence du feu. Les essences du tonnerre, du feu et de l'eau, qui avaient atteint le stade de la petite perfection, étaient restées identiques. Quant aux essences du massacre et de la restriction, elles présentaient quelques changements, mais rien de majeur.
+Cependant, les essences corporelles avaient muté, à l'instar de l'essence du feu. Les essences du tonnerre, du feu et de l'eau, cette dernière ayant atteint le stade de la petite perfection, étaient dans le même cas. Quant aux essences du massacre et de la restriction, elles présentaient quelques changements, mais rien de majeur.
 
 « Le moment est venu, je ne peux plus hésiter! » Un jour, alors qu'il était assis dans sa grotte, Wang Lin ouvrit les yeux. Son regard était empreint d'une résolution implacable.
 
@@ -66,7 +66,7 @@ Tout cela se passa en un éclair, et Wang Lin ne put rien y faire. Il n'eut mêm
 
 D'une pensée, il referma l'espace de stockage qui n'avait pas encore succombé afin d'empêcher toute nouvelle destruction.
 
-Quelque temps plus tard, Wang Lin était trempé de sueur. Sa respiration était courte et ses yeux injectés de sang alors qu'il contemplait le vide. Devant lui flottaient une épée ensanglantée et un sceau doré!
+Après ce bref instant, Wang Lin était trempé de sueur. Sa respiration était courte et ses yeux injectés de sang alors qu'il contemplait le vide. Devant lui flottaient une épée ensanglantée et un sceau doré!
 
 L'épée exsudait une intention meurtrière, tandis que le sceau doré dégageait l'aura du Vide Tribulant. On y percevait également une trace de l'aura d'un Grand Empyréen, signe qu'il avait été façonné par l'un des neuf soleils.
 
@@ -76,9 +76,9 @@ L'épée exsudait une intention meurtrière, tandis que le sceau doré dégageai
 
 « Je devrais pouvoir ouvrir mon espace de stockage encore quelques fois, mais chaque ouverture aggravera l'effondrement jusqu'à sa destruction totale... La Marionnette Yi Si est toujours là, elle n'a pas été emportée... » Wang Lin prit une profonde inspiration et dissipa l'aura de solidification, laissant la grotte retrouver lentement son état normal.
 
-En observant l'épée ensanglantée et le sceau doré, les yeux de Wang Lin brillèrent. Il leva la main droite et utilisa la technique de création d'un espace de stockage interne qu'il avait apprise de Kang Ren. Une fissure apparut sur son poignet droit. L'intérieur était plongé dans une obscurité totale et une force de succion en émanait. Elle aspira l'épée et le sceau avant qu'ils ne disparaissent du poignet de Wang Lin.
+En observant l'épée ensanglantée et le sceau doré, les yeux de Wang Lin brillèrent. Il leva la main droite et utilisa la technique de création d'un espace de stockage interne qu'il avait apprise de Kang Ren. Une fissure apparut sur son poignet droit. L'intérieur était plongé dans une obscurité totale et une force de succion en émanait. Elle aspira l'épée et le sceau, puis la fissure disparut du poignet de Wang Lin.
 
-« Ouvrir un espace de stockage par sa propre lignée sanguine... C'est une prouesse que seuls les habitants du Continent Astral Immortel maîtrisent parfaitement. » Wang Lin réfléchit, puis une lueur sanglante jaillit de sa main droite tandis que l'épée s'envolait pour disparaître. Une lumière dorée apparut ensuite lorsque le sceau fut stocké dans sa main.
+« Ouvrir un espace de stockage par sa propre lignée sanguine... C'est une prouesse que seuls les habitants du Continent Astral Immortel maîtrisent parfaitement. » Wang Lin réfléchit, puis une lueur sanglante jaillit de sa main droite: l'épée apparut, puis disparut aussitôt. Une lumière dorée se répandit ensuite et le sceau réapparut dans sa main droite.
 
 Il répéta l'opération plusieurs fois jusqu'à ce qu'il maîtrise parfaitement le processus. Il devait s'assurer de ne pas ouvrir accidentellement son espace de stockage en plein combat, ce qui causerait des dommages irréversibles. Ce n'est qu'alors qu'il se sentit serein.
 
@@ -86,13 +86,13 @@ Il répéta l'opération plusieurs fois jusqu'à ce qu'il maîtrise parfaitement
 
 « La Cupidité doit aussi se trouver sur ce continent... Tant qu'il est là, je ne manquerai pas de richesses! Il me suffira de le rencontrer pour résoudre bien des problèmes... Cupidité, j'attends avec impatience nos retrouvailles sur le Continent Astral Immortel... » Un léger sourire étira les lèvres de Wang Lin.
 
-« Pourtant, ce Cupidité est très étrange. Il est l'un des fragments d'âme du Souverain Céleste aux Sept Couleurs, tout comme Qing Shui, mais il a réussi à quitter le monde caverneux... Même avec l'aide de ce Grand Empyréen, Xuan Luo a également contribué... Cette affaire demeure inexplicable. » Cette question tourmentait Wang Lin depuis longtemps sans qu'il ne puisse en trouver la réponse.
+« Pourtant, ce Cupidité est très étrange. Il est l'un des fragments d'âme du Souverain Céleste aux Sept Couleurs, tout comme Qing Shui et Situ, mais pourquoi n'a-t-il pas eu besoin de se réincarner comme eux pour quitter le monde caverneux?... Même avec l'aide de ce Grand Empyréen, Xuan Luo est également intervenu... Cette affaire demeure inexplicable. » Cette question tourmentait Wang Lin depuis longtemps sans qu'il ne puisse en trouver la réponse.
 
 « Peu importe, je saurai peut-être en plus lors de notre rencontre. Y réfléchir davantage est vain. Je dois d'abord régler le problème du feu terrestre et de mon essence de feu. Du Qing de la Secte du Dragon Bleu n'est pas faible; s'il vient à ma rencontre, la bataille sera féroce! »
 
 « Je viens d'arriver sur le Continent Astral Immortel et je ne souhaite pas attirer trop l'attention, mais il semble que je doive désormais me montrer un peu plus flamboyant pour asseoir ma position! » Une lueur froide traversa le regard de Wang Lin.
 
-Dans la capitale impériale des cieux se dressait un palais luxueux. Ce palais mesurait des centaines de pieds de haut et ressemblait à une demeure céleste. La lumière dorée qui s'en dégageait était éblouissante; même de très loin, son éclat frappait les yeux.
+Dans la capitale impériale du Continent Central des Célestes se dressait un palais luxueux. Ce palais mesurait des centaines de milliers de pieds de haut et ressemblait à une demeure céleste. La lumière dorée qui s'en dégageait était éblouissante; même de très loin, son éclat frappait les yeux.
 
 Dans la grande salle trônait un immense siège de dragon sur lequel siégeait un homme d'âge moyen vêtu d'une robe impériale aux neuf dragons. Cet homme avait les yeux clos, comme plongé dans un rêve léthargique, mais il finit par les ouvrir. Ses pupilles brillaient comme des soleils et l'aura de son sang noble se propagea, dégageant une pression inimaginable.
 

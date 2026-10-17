@@ -12,7 +12,7 @@ L'Enseignant Impérial fit de même et, en un éclair, apparut au sommet d'une a
 
 Une paume dorée géante surgit, remplaçant instantanément tout ce qui occupait le ciel. Celui-ci devint doré, tel une mer de feu solaire.
 
-Cependant, au moment précis où la paume atteignait sa cible, la terre de cet espace trembla. Les yeux de la montagne, dont la forme rappelait celle de l'Ancêtre Céleste, s'illuminèrent. La paume céleste sembla être attirée par ce regard; elle se divisa en deux filaments qui furent rapidement absorbés par les deux yeux de la montagne. L'empreinte de la paume dorée disparut en un instant!
+Cependant, au moment précis où la paume atteignait sa cible, la terre de cet espace trembla. Les yeux de la montagne, dont la forme rappelait celle de l'Ancêtre Céleste, s'illuminèrent. La paume céleste sembla être attirée par ce regard; elle se divisa en deux parties qui furent rapidement absorbées par les deux yeux de la montagne. L'empreinte de la paume dorée disparut en un instant!
 
 Un rugissement furieux retentit faiblement dans le ciel, semblant provenir de l'Empereur Céleste. Ce cri parut traverser de multiples couches d'espace avant de devenir progressivement plus net, comme si l'Empereur Céleste se précipitait désespérément vers ce lieu.
 
@@ -24,7 +24,7 @@ Le visage de l'Enseignant Impérial était livide et il haletait. Semblant avoir
 
 Bien que la paume dorée ait disparu du ciel, le corps de Ming Dao apparut. Sa chair se décomposait rapidement et des pans entiers de peau tombaient, exposant ses os noirs. Son corps émanait toujours une lumière dorée qui corrodait sa propre chair, le poussant à rugir de douleur.
 
-Parce que l'Enseignant Impérial avait brisé le bassin céleste, des fissures s'étaient formées dans le ciel d'où s'écoulait une pluie de sang rouge. Ce sang tombait sur les neuf montagnes et sur le sol, s'accumulant sans fin.
+Parce que l'Enseignant Impérial avait fait voler en éclats le bassin de sang, des fissures s'étaient formées dans le ciel d'où s'écoulait une pluie de sang rouge. Ce sang tombait sur les neuf montagnes et sur le sol, s'accumulant sans fin.
 
 Sous cette pluie sanglante, Ming Dao laissa échapper un rugissement et leva soudainement les yeux. Son regard était trouble, mais empreint d'une intention meurtrière et d'une folie pure. Il fixa Wang Lin, poussa un cri de rage et chargea. Il se changea en une ombre et atteignit instantanément la montagne où se trouvait Wang Lin, dégageant une pression écrasante!
 
@@ -40,9 +40,9 @@ L'expression du jeune homme était calme alors qu'il reculait, fixant la montagn
 
 « Quel genre de montagne est-ce là... Qu'est-ce que cet endroit? » demanda Wang Lin à l'Enseignant Impérial.
 
-« Ce sont les neuf montagnes célestes qui constituent le fondement du clan céleste. Elles protègent le clan et suppriment les 72 âmes scellées. C'est aussi ce qui permet à chaque génération d'Empereur Céleste d'hériter du titre de Huit Extrêmes! »
+« Ce sont les neuf montagnes célestes qui constituent le fondement du clan céleste. Elles protègent le clan et suppriment les esprits des 72 continents du clan. C'est aussi ce qui permet à chaque génération d'Empereur Céleste d'hériter, par la force du lignage, du titre de Huit Extrêmes! »
 
-« Cet endroit est le palais interdit situé sous la demeure impériale, le véritable lieu de culture en porte close de l'Ancêtre Céleste! » répondit l'Enseignant Impérial sans hésiter.
+« Cet endroit est le palais interdit situé sous le palais souterrain de la demeure impériale, le véritable lieu de culture en porte close de l'Ancêtre Céleste! » répondit l'Enseignant Impérial sans hésiter.
 
 « Wang Lin, attaque! » Les yeux de l'Enseignant Impérial s'illuminèrent et il fonça vers Ming Dao. Sa main droite s'étira, faisant apparaître une petite silhouette de lumière blanche qui prit immédiatement la taille d'un homme pour charger à ses côtés.
 
@@ -74,7 +74,7 @@ La puissance de l'Ancêtre Céleste résidait dans la chair et le sang de Ming D
 
 Ils frappèrent sa poitrine, sa jambe droite et son bras gauche. Une douleur fulgurante irradia de ces points, où une lumière dorée jaillit comme pour consumer ses membres.
 
-« Cela arrive parce qu'il s'est éveillé prématurément et n'a pas absorbé assez du lignage de l'Ancêtre Céleste. En suivant sa chair et son sang, ses os vont s'effondrer. S'il parvient à persister, il achèvera le sort du Retour à l'Origine Ancestrale et son corps sera remodelé par la lumière dorée! »
+« Cela arrive parce qu'il s'est éveillé prématurément et n'a pas absorbé assez du lignage de l'Ancêtre Céleste. Lorsque toute sa chair et son sang seront tombés, ses os s'effondreront. S'il parvient à tenir jusqu'à la fin de cet effondrement osseux, la lumière dorée remodèlera son corps, et il aura alors achevé le sort du Retour à l'Origine Ancestrale! »
 
 « Wang Lin, nous ne pouvons plus nous retenir — nous devons déployer toute notre puissance. Nous devons le soumettre avant qu'il ne termine son sort ou ne meure, afin que je puisse te transférer ce pouvoir! » Les paroles de l'Enseignant Impérial étaient faibles et empreintes d'urgence. Il leva la main et de petites silhouettes de lumière commencèrent à émerger de sa paume.
 
@@ -82,13 +82,13 @@ Il mordit une nouvelle fois sa langue et, dans un rugissement, son corps commen�
 
 Le corps de l'Enseignant Impérial tremblait et sa respiration devint rauque. Son visage était extrêmement pâle, enveloppé par l'ombre de la mort.
 
-Voyant l'état de son mentor, Wang Lin serra les dents et poussa la puissance de l'armure d'âme du Taureau Céleste à son paroxysme. Ses cheveux s'agitèrent sans vent alors que son Dao antique et sa culture céleste fusionnaient; il lança alors un coup de poing vers Ming Dao!
+Voyant l'état de l'Enseignant Impérial, Wang Lin serra les dents et poussa la puissance de l'armure d'âme du Taureau Céleste à son paroxysme. Ses cheveux s'agitèrent sans vent alors que son Dao antique et sa culture céleste fusionnaient; il lança alors un coup de poing vers Ming Dao!
 
-Ce coup représentait le summum de la puissance de Wang Lin. En frappant, quatre-vingt-dix-neuf images rémanentes se condensèrent avec son corps original pour s'abattre sur Ming Dao.
+Ce coup représentait le summum de la puissance de Wang Lin. En frappant, quatre-vingt-dix-neuf images rémanentes se condensèrent pour former le corps véritable d'un Taureau Céleste, qui s'abattit sur Ming Dao.
 
 Le corps de Ming Dao frémit; il n'était plus qu'un squelette. Le peu de chair et de sang qui lui restait explosa une fois de plus. Désormais, le corps de Ming Dao n'était plus que d'ossements!
 
-Ses os étaient totalement noirs, mais au centre de sa poitrine palpitait une sphère de lumière dorée émettant un éclat infini. C'était là son héritage de l'Ancêtre Céleste!
+Ses os étaient totalement noirs, mais au centre de sa poitrine palpitait une sphère de lumière dorée de la taille d'un poing, émettant un éclat infini. C'était là son héritage de l'Ancêtre Céleste!
 
 L'explosion de la chair et du sang ne put stopper ni l'homme de sang formé par l'essence vitale de l'Enseignant Impérial, ni le sort issu de l'armure du Taureau Céleste de Wang Lin. Des grondements tonitruants secouèrent l'espace, et Ming Dao sembla sur le point de rompre.
 

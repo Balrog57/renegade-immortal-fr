@@ -36,11 +36,11 @@ Des grondements tonnants résonnèrent dans la nuit noire, tirant d'innombrables
 
 « Quelqu'un tente d'entrer au septième étage du Pavillon des Écritures de l'Âme! »
 
-« Ce chef aux cheveux blancs... À en juger par son apparence, n'est-ce pas le nouvel Ancien Wang? »
+« Cet homme aux cheveux blancs... À en juger par son apparence, n'est-ce pas le nouvel Ancien Wang? »
 
 « Bien que sa culture ne soit pas médiocre, il sera très difficile d'atteindre le septième étage! »
 
-« Haha, voilà un spectacle divertissant. Cela fait presque cent ans que personne n'a tenté l'ascension du septième étage. À part ces vieux briscards, personne n'oserait s'y risquer! »
+« Haha, voilà un spectacle divertissant. Cela fait plus de cent ans que personne n'a tenté l'ascension du septième étage. À part ces vieux briscards, personne n'oserait s'y risquer! »
 
 « Les restrictions à l'intérieur du Pavillon des Écritures de l'Âme sont puissantes. À moins d'avoir réussi une fois à atteindre le septième étage, cet escalier apparaîtra dans le ciel pour que tous puissent voir ses tentatives! Je pense que cet Ancien Wang échouera sans aucun doute! »
 
@@ -58,7 +58,7 @@ Cependant, très peu pensaient que Wang Lin réussirait; la plupart espéraient 
 
 Même l'Estimé Taureau Vert fronça les sourcils. Il leva les yeux, son regard perçant la montagne pour observer l'illusion céleste.
 
-« Il est un peu téméraire... Avec un tel niveau de culture, il est impossible d'atteindre le septième étage... » L'Estimé Taureau Vert soupira en secouant la tête. « C'est une bonne façon de tempérer son esprit. Ne crois pas que mon Secte de la Grande Âme soit si facile à conquérir! »
+« Il est un peu téméraire... Avec un tel niveau de culture, il est impossible d'atteindre le septième étage... » L'Estimé Taureau Vert soupira en secouant la tête. « C'est aussi bien: cela émoussera son arrogance. Ne crois pas que ma Secte de la Grande Âme soit dépourvue de mystères! »
 
 Simultanément, sur trois à cinq pics appartenant à de vieux monstres habituellement en culture isolée, les propriétaires ouvrirent les yeux et regardèrent vers le ciel.
 
@@ -70,7 +70,7 @@ Dans l'illusion céleste, le pied droit de Wang Lin se posa sur la première mar
 
 Cependant, peu après, il ouvrit soudainement les yeux et fixa le sommet de l'escalier. Il leva le pied et commença à avancer!
 
-À chaque pas, un grondement tonitruant résonnait dans tout la Secte de la Grande Âme. En un éclair, Wang Lin franchit cinq marches!
+À chaque pas, un grondement tonitruant résonnait dans toute la Secte de la Grande Âme. En un éclair, Wang Lin franchit cinq marches!
 
 Au sixième étage, Yan Lu fixait Wang Lin. Après l'avoir vu gravir ces cinq marches, son expression changea, avant de redevenir normale.
 
@@ -116,7 +116,7 @@ Simultanément, les expressions de tous ceux de la Secte de la Grande Âme qui v
 
 Le corps véritable d'essence de Wang Lin n'était pas un concept connu de tous à la Secte de la Grande Âme. Le choc qu'il provoquait était indescriptible.
 
-Tout la Secte de la Grande Âme était en émoi. Même certains des vieux monstres en culture isolée furent tirés de leur méditation.
+Toute la Secte de la Grande Âme était en émoi. Même certains des vieux monstres en culture isolée furent tirés de leur méditation.
 
 « Treize marches... » Au Pic Céleste Vert, l'Estimé Taureau Vert devint sérieux. Cependant, il resta assis sans sortir.
 

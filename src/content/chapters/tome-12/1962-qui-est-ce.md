@@ -26,7 +26,7 @@ Arrivé au 14e palais, alors qu'il était sur le point d'y pénétrer, il s'arr�
 
 « Empereur Céleste, ouvrez les yeux et regardez-moi bien! »
 
-« Arrogant! » rugit l'Ascendant Empyréen Ming Dao debout devant l'Empereur Céleste. Cependant, l'Empereur Céleste resta impassible et sourit.
+« Arrogant! » rugit l'Ascendant Empyréen Ming Dao, debout à côté de l'Empereur Céleste. Cependant, l'Empereur Céleste resta impassible et sourit.
 
 « J'attends de voir si tu passeras le 15e palais! » Pourtant, ses pupilles se rétractèrent imperceptiblement.
 
@@ -126,7 +126,7 @@ Après tout, l'un était célèbre depuis de nombreuses années tandis que l'aut
 
 L'expression de Wu Feng devint également sérieuse. Chaque étape de l'Épreuve Empyrée était plus ardue que la précédente. L'Ascendant Empyréen Ming Dao avait déjà tenté le 16e palais à deux reprises, échouant les deux fois.
 
-L'Empereur Céleste observait la scène de loin, l'esprit plongé dans une profonde mélancolie. Les paroles qu'il venait d'énoncer avaient été balayées par Wang Lin, lui infligeant une gifle invisible. À cet instant, un froid glacial envahit son regard alors qu'il scrutait le ciel.
+L'Empereur Céleste observait la scène de loin, le visage extrêmement sombre. Les paroles qu'il venait d'énoncer avaient été balayées par Wang Lin, lui infligeant une gifle invisible. À cet instant, un froid glacial envahit son regard alors qu'il scrutait le ciel.
 
 En un éclair, neuf respirations passèrent. À peine la neuvième achevée, le 16e palais, resté éteint durant d'innombrables années, libéra une lumière dorée éblouissante!
 

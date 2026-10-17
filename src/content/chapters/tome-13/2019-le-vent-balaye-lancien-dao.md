@@ -38,7 +38,7 @@ C'était un événement majeur pour le clan Ancien. L'un des trois anciens emper
 
 Ces derniers jours, face à l'affluence, l'Ancien Dao avait déployé ses trésors les plus puissants pour créer 99 immenses plateformes disposées autour de la cité volante. Les puissants venus de loin y avaient rapidement érigé diverses structures d'habitation, seul moyen d'accueillir une telle foule.
 
-Wang Lin, plongé dans sa culture, ignorait tout de ce tumulte. La nuit précédant les trois derniers jours de cérémonie, la cité impériale brillait de mille feux, vibrante de vie et de bruit, tout comme les 99 plateformes environnantes. En raison de la présence des membres des trois clans, de nombreuses enchères avaient vu le jour, permettant aux peuples de commercer entre eux en attendant l'événement.
+Wang Lin, plongé dans sa culture, ignorait tout de ce tumulte. La nuit, à trois jours de la cérémonie, la cité impériale brillait de mille feux, vibrante de vie et de bruit, tout comme les 99 plateformes environnantes. En raison de la présence des membres des trois clans, de nombreuses enchères avaient vu le jour, permettant aux peuples de commercer entre eux en attendant l'événement.
 
 Une atmosphère de liesse emplissait le palais de l'Ancien Dao. Sur le pavillon le plus élevé, l'Empereur, les mains derrière le dos, contemplait la ville illuminée avec un sourire aux lèvres.
 
@@ -56,7 +56,7 @@ Un second ajouta aussitôt: « J'ai réparti les membres de notre clan et les pu
 
 « Pour la protection, les première à septième armées monteront la garde pour qu'aucun incident ne survienne! »
 
-« L'instructeur impérial a envoyé un message: il viendra personnellement assister à la cérémonie. »
+« L'enseignant impérial a envoyé un message: il viendra personnellement assister à la cérémonie. »
 
 « L'impératrice Song est comme toujours, elle n'est pas encore sortie. Elle semble tenter de se souvenir de quelque chose, mais cela finit systématiquement dans la douleur et elle ne retient rien. »
 
@@ -70,7 +70,7 @@ Les sept s'exprimèrent tour à tour avant de baisser la tête, attendant les or
 
 L'un des sept répondit respectueusement: « Tout est prêt. »
 
-« Bien! » L'homme en robe royale afficha un sourire empreint d'anticipation. D'un revers de manche, il disparut du pavillon. « La marier et lui accorder ce statut sont les plus beaux cadeaux que je puisse lui faire. Instructeur Impérial, j'attends avec impatience le résultat de votre divination... »
+« Bien! » L'homme en robe royale afficha un sourire empreint d'anticipation. D'un revers de manche, il disparut du pavillon. « La marier et lui accorder ce statut sont les plus beaux cadeaux que je puisse lui faire. Enseignant Impérial, j'attends avec impatience le résultat de votre divination... »
 
 Au même instant, dans une pièce calme du palais, se trouvait une femme vêtue d'une robe de phénix. Elle n'était pas d'une beauté absolue, mais possédait un tempérament indicible. Devant son miroir, ses yeux étaient empreints de confusion.
 
@@ -87,7 +87,7 @@ Wang Lin ignorait tout de cette scène et ne pouvait la percevoir. Bien que sa c
 
 Il ignorait que le fragment d'âme de Wan Er qu'il cherchait tant était si près de lui... Si proche... La femme, elle aussi, ignorait que l'être qui la tourmentait respirait la même énergie spirituelle qu'elle.
 
-Le matin de la cérémonie, Wang Lin ouvrit les yeux dans sa grotte souterraine. Une lueur de doute perçait son regard, malgré l'apparition de la sixième Veine de Sort dans son corps. Ce doute venait d'un pressentiment inexplicable, une pointe d'inquiétude nichée au fond de son cœur.
+Au matin de la veille de la cérémonie, Wang Lin ouvrit les yeux dans sa grotte souterraine. Une lueur de doute perçait son regard, malgré l'apparition de la sixième Veine de Sort dans son corps. Ce doute venait d'un pressentiment inexplicable, une pointe d'inquiétude nichée au fond de son cœur.
 
 Après une méditation silencieuse, Wang Lin se leva et sortit de la grotte pour rejoindre la maison en bois. Une silhouette humaine émergeait de l'essence métallique, commençant à prendre forme.
 

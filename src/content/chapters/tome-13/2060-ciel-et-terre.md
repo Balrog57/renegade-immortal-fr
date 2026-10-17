@@ -20,7 +20,7 @@ Devant lui se dressait le grand fourneau, et l'encens attendait d'être allumé.
 
 Même au sein des cités impériales du Dao Antique et de Ji Antique, les regards perçants étaient tournés vers la cité de Shi Antique.
 
-« Empereur de Shi Antique... Parrain, je deviendrai bientôt l'empereur! » Ji Du leva les yeux vers le ciel, son regard se posant sur la statue de l'Ancêtre Suprême au loin. Il prit une profonde inspiration et agita sa manche. Une flamme ardente jaillit autour du fourneau, et l'encens s'embrasa.
+« Empereur de Shi Antique... Parrain, je deviendrai bientôt l'empereur! » Ji Du leva les yeux vers le ciel, son regard se posant sur la statue de l'Ancêtre Ancien au loin. Il prit une profonde inspiration et agita sa manche. Une flamme ardente jaillit autour du fourneau, et l'encens s'embrasa.
 
 « Salutations, Empereur! » Un autre son tonitruant retentit dans tout le palais. Tous les sujets tombèrent à genoux; seul le père de Ji Du resta debout à l'intérieur du palais pour contempler son fils.
 
@@ -64,7 +64,7 @@ Ses longs cheveux, emportés par le vent, se confondaient avec la neige multicol
 
 Pourtant, il ne pouvait distinguer que des cheveux noirs; le reste restait invisible. Il ne pouvait même pas dire si le corps était masculin ou féminin. Le visage pâle, il se précipita désespérément vers la montagne.
 
-Mais malgré sa course effrénée, il ne parvenait pas à s'approcher de la montagne pour identifier le corps. C'était comme si un gouffre infranchissable le séparait de l'édifice de pierre.
+Mais malgré sa course effrénée, il ne parvenait pas à s'approcher de la montagne pour identifier le corps. C'était comme si un gouffre infranchissable le séparait de cette montagne.
 
 Le rugissement devint plus intense, chargé d'une tristesse et d'une rage infinies. Le ciel sembla menacer de s'effondrer à nouveau, comme si ce cri possédait le pouvoir de détruire l'univers.
 
@@ -102,29 +102,29 @@ Wang Lin médita en silence. Il devait occuper son esprit par autre chose, sans 
 
 « Impossible... Impossible... Impossible... » murmura Wang Lin en serrant les dents. Il pointa son âme originelle du doigt, et celle-ci brilla d'un éclat intense. Le temple ancestral tout entier fut enveloppé par cette lumière puissante.
 
-Sous cet éclat, l'ombre de son âme originelle commença à s'étendre jusqu'à occuper tout l'espace. Elle ne s'arrêta pas là: elle enveloppa le temple entier et se projeta vers la statue de l'Ancêtre Suprême.
+Sous cet éclat, l'ombre de son âme originelle commença à s'étendre jusqu'à occuper tout l'espace. Elle ne s'arrêta pas là: elle enveloppa le temple entier et se projeta vers la statue de l'Ancêtre Ancien.
 
 Dans le palais, le tambour résonna.
 
 « Neuvième hommage! »
 
-« Salutations, Empereur!! » Alors que les voix des membres de Shi Antique fusionnaient en un rugissement assourdissant, une lumière extrêmement vive émana de la statue de l'Ancêtre Suprême.
+« Salutations, Empereur!! » Alors que les voix des membres de Shi Antique fusionnaient en un rugissement assourdissant, une lumière extrêmement vive émana de la statue de l'Ancêtre Ancien.
 
-Ji Du, qui flottait dans le ciel près du tambour, tourna brusquement la tête. Il fixa la statue alors que les vingt-sept halos brillaient intensément. Simultanément, une ombre s'étira et recouvrit la moitié de la statue de l'Ancêtre Suprême.
+Ji Du, qui flottait dans le ciel près du tambour, tourna brusquement la tête. Il fixa la statue alors que les vingt-sept halos brillaient intensément. Simultanément, une ombre s'étira et recouvrit la moitié de la statue de l'Ancêtre Ancien.
 
 « Parrain! » Ji Du fut stupéfait un instant, puis ses yeux se remplirent de choc et d'excitation.
 
 Au même moment, tous les autres remarquèrent ce qui arrivait à la statue. Ils virent cette ombre recouvrir instantanément l'idole pour atteindre une taille identique à la sienne!
 
-L'ombre semblait se superposer à la statue, mais en le faisant, l'apparence de l'Ancêtre Suprême changea. Il ressemblait désormais à Wang Lin.
+L'ombre semblait se superposer à la statue, mais en le faisant, l'apparence de l'Ancêtre Ancien devint floue, comme étrangère, et ressemblait vaguement à celle de Wang Lin.
 
-C'était parce que l'âme originelle de Wang Lin s'était étendue pour recouvrir la statue de l'Ancêtre Suprême!
+C'était parce que l'âme originelle de Wang Lin s'était étendue pour recouvrir la statue de l'Ancêtre Ancien!
 
-Dans le ciel, Xuan Luo afficha un sourire de satisfaction. « Les Trois Divisions de l'Âme du Dao Antique... il a enfin réussi!! Je me demande quel genre de présent il obtiendra de l'Ancêtre Suprême... »
+Dans le ciel, Xuan Luo afficha un sourire de satisfaction. « Les Trois Divisions de l'Âme du Dao Antique... il a enfin réussi!! Je me demande quel genre de présent il obtiendra de l'Ancêtre Ancien... »
 
 Sur la Montagne de l'Origine, Song Tian, qui n'assistait pas à la cérémonie de Ji Du, contemplait également la statue, et les mêmes pensées traversaient son esprit.
 
-« Quelle fortune peut-il espérer obtenir de la Bénédiction de l'Ancêtre Suprême... » Song Tian attendait cela avec impatience.
+« Quelle fortune peut-il espérer obtenir de la Bénédiction de l'Ancêtre Ancien... » Song Tian attendait cela avec impatience.
 
 Alors que tous observaient la scène, et même la cérémonie de Ji Du était suspendue, les vingt-sept halos entourant la statue brillèrent d'un vif éclat avant de s'élancer vers le ciel.
 

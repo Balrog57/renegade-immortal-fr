@@ -32,7 +32,7 @@ Gu Dao ressemblait trait pour trait à la statue de l'Ancêtre Ancestral dans le
 
 Gu Dao afficha une expression mélancolique et déclara lentement: « Je suis Gu Dao... et aussi l'Ancêtre Ancestral. J'ai obtenu une partie de la mémoire et de la volonté de l'Ancêtre Ancestral... pour protéger le clan Ancestral et les descendants des familles impériales... Mon apparence a lentement changé après avoir absorbé cette mémoire et cette volonté... » La voix de Gu Dao était basse.
 
-« La distance maximale que vous pouvez parcourir est cet endroit! Les rumeurs disent que vous avez tué un Grand Empyréen du clan Céleste, mais ce n'est qu'une erreur. Il est probable qu'ils aient envahi le centre de la vaste mer et que vous les ayez éliminés. » L'esprit de Wang Lin fut soudainement illuminé. Il venait d'obtenir les réponses à tant de questions.
+« La distance maximale que vous pouvez parcourir est cet endroit! Les rumeurs disent que vous avez tué un Grand Empyréen du clan Céleste sur les terres du clan Céleste, mais c'est probablement une erreur. Il est probable que, lors de leur invasion, ils aient dépassé la ligne centrale de la vaste mer et que c'est pour cela que vous avez pu les éliminer. » L'esprit de Wang Lin fut soudainement illuminé. Il venait d'obtenir les réponses à tant de questions.
 
 Il était perplexe car, avec le niveau de culture de Gu Dao, il aurait pu facilement anéantir le clan Céleste pour qu'il n'en reste plus un seul; pourtant, après d'innombrables années, le clan Céleste existait toujours.
 
@@ -50,7 +50,7 @@ Gu Dao secoua la tête et, au lieu de répondre, murmura pour lui-même: « Apr�
 
 Wang Lin réfléchit un instant en silence, son regard rencontrant celui de Gu Dao.
 
-« Dans le temple ancestral des Shi, j'ai vu une silhouette, et cette figure a fait un pas pour piétiner les cieux. Ce pas m'a profondément bouleversé. Sur le cinquième pont, j'étais immergé dans un monde semblable à une réincarnation. Je ne sais pas combien de temps s'est écoulé, mais au-delà de la compréhension des Huit Dao Extrêmes, ce que j'ai le plus assimilé fut ce pas... À l'origine, je ne pouvais franchir le cinquième pont, mais grâce à ce pas, j'ai pu le traverser. Ce pas, je l'appellerai: Le Pas pour Piétiner les Cieux! » En murmurant cela, ses yeux se remplirent de résolution. Puisque cette bataille était inévitable, il se battrait jusqu'au bout.
+« Dans le temple ancestral de l'Ancien Shi, j'ai vu une silhouette, et cette figure a fait un pas pour piétiner les cieux. Ce pas m'a profondément bouleversé. Sur le cinquième pont, j'étais immergé dans un monde semblable à une réincarnation. Je ne sais pas combien de temps s'est écoulé, mais au-delà de la compréhension des Huit Dao Extrêmes, ce que j'ai le plus assimilé fut ce pas... À l'origine, je ne pouvais franchir le cinquième pont, mais grâce à ce pas, j'ai pu le traverser. Ce pas, je l'appellerai: Le Pas pour Piétiner les Cieux! » En murmurant cela, ses yeux se remplirent de résolution. Puisque cette bataille était inévitable, il se battrait jusqu'au bout.
 
 Après avoir entendu Wang Lin dire qu'il avait franchi le cinquième pont, Gu Dao réfléchit un instant. Il leva ensuite sa main droite et l'agita. « Si vous pouvez résister à ce sort, alors vous serez digne de contempler celui que j'ai étudié durant d'innombrables années: Un Ciel de Dao! »
 
@@ -70,11 +70,11 @@ Wang Lin eut le souffle coupé. Il ignorait jusqu'à quelle hauteur l'ombre atte
 
 Alors qu'il observait ce spectacle, Wang Lin ressentit soudain une douleur atroce dans les yeux. C'était comme si une puissance immense voulait lui arracher les globes oculaires pour en faire le soleil et la lune! Ses mains tremblaient également, semblant vouloir s'élever pour devenir le ciel, tandis que son corps était attiré par une force étrange pour se fondre dans la terre.
 
-C'était un sort de foi! Un sort d'une puissance inouïe où, lorsque la foi d'un être atteint un niveau capable de modifier le monde, le temps et l'espace de tout ce qu'elle enveloppe!
+C'était un sort de foi! Un sort d'une puissance inouïe où, lorsque la foi d'un être atteint un niveau capable de modifier le monde, le temps et l'espace, quiconque est enveloppé par cette foi devient l'un de ses éléments!
 
-Sous l'emprise de cette foi, Wang Lin prit une profonde inspiration et ferma progressivement les yeux. Il ne chercha plus comment briser le sort; il se contenta de fermer les paupières. La silhouette au sommet de la montagne où tombait la neige aux sept couleurs, celle qui soutenait le corps, apparut dans son esprit. Cette figure rugit vers le ciel et fit ce pas vers l'infini!
+Sous l'emprise de cette foi, Wang Lin prit une profonde inspiration et ferma progressivement les yeux. Il ne chercha plus comment briser le sort; il se contenta de fermer les paupières. La silhouette au sommet de la montagne où tombait la neige aux sept couleurs, celle qui tenait un cadavre dans ses bras, apparut dans son esprit. Cette figure rugit vers le ciel avec tristesse et fit ce pas vers le ciel!
 
-Ce pas revint en boucle dans son esprit. Le pied droit de Wang Lin s'éleva lentement et il fit un pas vers le monde créé par la foi de l'Ancêtre. À cet instant, Wang Lin eut l'illusion d'être lui-même cette silhouette tenant le corps et rugissant face au firmament. Un sentiment de tristesse indicible envahit son cœur, comme si on lui en arrachait les entrailles...
+Ce pas revint en boucle dans son esprit. Le pied droit de Wang Lin s'éleva lentement et il fit un pas vers le ciel du monde créé par la foi de l'Ancêtre. À cet instant, Wang Lin eut l'illusion d'être lui-même cette silhouette tenant un cadavre dans ses bras et rugissant face au firmament. Un sentiment de tristesse indicible envahit son cœur, comme si on lui arrachait le cœur...
 
 Il sembla oublier qu'il combattait Gu Dao et qu'il devait retourner dans le monde des grottes. La seule chose qui subsistait dans son esprit était un chagrin, un désespoir et une colère infinis!
 

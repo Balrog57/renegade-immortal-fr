@@ -28,15 +28,15 @@ Il ne vit pas, Wang Lin ne vit pas, et personne ici ne vit que lorsque la femme 
 
 Elle retourna au palais, l'esprit éteint. Derrière elle, l'effervescence de la fête reprit de plus belle.
 
-« Wan Er... Je serais prêt à retourner le ciel tout entier pour retrouver ton reflet... »
+« Wan Er... Je suis prêt à renverser tout le ciel étoilé, juste pour remettre ton reflet à l'endroit... »
 
-« Wan Er, je mettrais le ciel en feu juste pour te donner une raison de ne plus jamais fermer les yeux. »
+« Wan Er, j'ai embrasé tout le firmament de mon feu juste pour te donner une raison de ne plus fermer les yeux. »
 
-« Wan Er, je foudroierais le monde entier pour que tu puisses entendre ma voix. »
+« Wan Er, j'ai fait trembler le monde entier sous le tonnerre pour que tu puisses entendre ma voix. »
 
 « Wan Er, j'ai parcouru des millions de kilomètres et traversé d'innombrables mondes juste pour retrouver ton souffle. »
 
-« Wan Er, je suis devenu un démon pour tuer le Dao, j'ai défié les cieux pour subvertir l'ordre du monde. Je me tenais devant toi, le dos voûté par la solitude, simplement pour que tu ouvres ces yeux qui m'apaisent. »
+« Wan Er, je suis devenu un démon pour tuer le Dao, j'ai défié les cieux, tué des immortels et bouleversé le ciel et la terre. Je me tenais devant toi, le dos voûté par la solitude, simplement pour que tu ouvres ces yeux qui m'apaisent. »
 
 « Wan Er, où est ton âme?! »
 
@@ -46,7 +46,7 @@ Sa tristesse avait toujours été enfouie au plus profond de son cœur, dissimul
 
 Tandis qu'il s'éloignait en silence, ses larmes tombaient sur les toits des maisons qu'il dépassait. Les bruits joyeux du palais résonnaient encore, mais Wang Lin ne voulait pas les entendre. Il cherchait un endroit où il pourrait être seul pour se remémorer ses souvenirs.
 
-Il retourna au Temple du Dao Antique et regagna sa demeure. Il s'assit à l'intérieur, sans aucun cœur pour la culture ou pour contempler le Grand Soleil Empyréen dans le monde de la grotte. Il resta là, contemplant le monde coloré pendant un long moment.
+Il retourna au Temple du Dao Antique et regagna sa demeure. Il s'assit à l'intérieur, sans aucun cœur pour la culture ou pour contempler le Grand Soleil Empyréen dans sa grotte souterraine. Il resta là, contemplant le monde coloré pendant un long moment.
 
 « J'ai une culture qui perce les cieux... Mais à quoi bon... »
 
@@ -54,13 +54,13 @@ Il retourna au Temple du Dao Antique et regagna sa demeure. Il s'assit à l'int�
 
 « Même si je suis le gardien du Dao Antique, je ne peux pas retrouver l'âme de Wan Er... » Le visage de Wang Lin était marqué par la douleur. Il refusait de songer à ce problème; il utilisait sa culture comme un prétexte pour s'anesthésier et se mentir à lui-même. Il s'était convaincu que c'était son seul espoir de retrouver l'âme de Wan Er.
 
-Pourtant, il s'était trompé pendant des milliers d'années, car maintenant qu'il avait vu Song Zhi, qui ressemblait tant à Wan Er, il ne pouvait plus contrôler ses sentiments.
+Pourtant, il s'était menti à lui-même pendant des milliers d'années, car maintenant qu'il avait vu Song Zhi, qui ressemblait tant à Wan Er, il ne pouvait plus contrôler ses sentiments.
 
 Le temps passa lentement. Wang Lin se cloîtra chez lui, endurant une douleur déchirante. Il se replongea dans les souvenirs du passé. Il ne pouvait compter que sur eux pour ne plus se sentir seul...
 
 Tel l'ancêtre de la Secte Dong Lin, resté dans une secte dévastée, n'ayant pour seule compagnie que ses souvenirs.
 
-« Dans ce monde... il y a quelqu'un d'autre avec un tel tempérament... Mais ce n'est pas Wan Er, c'est Song Zhi... Je l'ai rencontrée autrefois à Ville de la Pierre Noire... » Après un long moment, Wang Lin refoula la douleur et les souvenirs enfouis dans son cœur. Il ne voulait pas se montrer vulnérable; cela ne l'aiderait pas à retrouver l'âme de Wan Er.
+« Dans ce monde... il y a quelqu'un d'autre avec un tel tempérament... Mais ce n'est pas Wan Er, c'est Song Zhi... Je l'ai vue autrefois à l'extérieur de la Ville de la Pierre Noire... » Après un long moment, Wang Lin refoula la douleur et les souvenirs enfouis dans son cœur. Il ne voulait pas se montrer vulnérable; cela ne l'aiderait pas à retrouver l'âme de Wan Er.
 
 Dans un profond soupir, Wang Lin ferma les yeux. Lorsqu'il les rouvrit, une certaine sérénité régnait. Pourtant, nichée au plus profond de ce calme, subsistait une ombre de tristesse.
 
@@ -72,11 +72,11 @@ Mais au moment même où il fermait les yeux, il les rouvrit brusquement. Ses ye
 
 « Ce n'est pas possible!!! »
 
-« J'ai rencontré cette Song Zhi à l'extérieur de Ville de la Pierre Noire. À l'époque, cette femme ne dégageait absolument pas le même sentiment qu'au palais. Elle était très ordinaire, tout à fait ordinaire. Bien qu'élégante, elle ne ressemblait en rien à ce que j'ai ressenti au palais! »
+« J'ai rencontré cette Song Zhi à l'extérieur de la Ville de la Pierre Noire. À l'époque, cette femme ne dégageait absolument pas le même sentiment qu'au palais. Elle était très ordinaire, tout à fait ordinaire. Bien que sereine, elle ne ressemblait en rien à ce que j'ai ressenti au palais! »
 
 Le corps de Wang Lin tremblait.
 
-« Si elle avait été la même qu'au palais, il était impossible que je ne l'aie pas remarqué à Ville de la Pierre Noire. J'aurais dû ressentir ce soupçon de familiarité à l'époque! »
+« Si elle avait été la même qu'au palais, il était impossible que je ne l'aie pas remarqué devant la Ville de la Pierre Noire. J'aurais dû ressentir ce soupçon de familiarité à l'époque! »
 
 « Mais alors, je n'ai rien ressenti du tout, et pourtant, quand je l'ai revue au palais, cette sensation familière m'a frappé!!! »
 
@@ -104,7 +104,7 @@ Il était le disciple de Xuan Luo, et Xuan Luo était le gardien du Dao Antique.
 
 Les yeux de Wang Lin s'illuminèrent et il leva la main droite. Un jade noir apparut soudainement dans sa paume!
 
-Ce jade dégageait une lueur sombre et spectrale, comme si un simple regard pouvait vous y emprisonner. Ce jade lui avait été offert par l'Estimé Taureau Vert au sein de la Secte de la Grande Âme. Il provenait du génie du clan Dao Wang qui avait tout orchestré pour obtenir la liberté des siens. Ce génie qui avait extrait son propre cerveau et son cœur pour s'agenouiller devant une statue de Wang Lin, comme s'il implorait le pardon, pesant ainsi l'importance de son esprit face à sa vie!
+Ce jade dégageait une lueur sombre et spectrale, comme si un simple regard pouvait vous y emprisonner. Ce jade lui avait été offert par l'Estimé Taureau Vert au sein de la Secte de la Grande Âme. Il provenait du génie du clan Dao Wang qui avait tout orchestré pour obtenir la liberté des siens. Ce génie qui avait extrait son propre cerveau et son cœur pour s'agenouiller devant une statue de Wang Lin, l'air d'implorer le pardon, comme s'il pesait lui-même ce qui comptait le plus, sa conscience ou ses calculs, ou comme s'il interrogeait Wang Lin!
 
 « Ce jade peut vous aider à diviner l'avenir une fois... » Les paroles gravées dans le jade résonnèrent dans l'esprit de Wang Lin.
 

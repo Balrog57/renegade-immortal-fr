@@ -22,7 +22,7 @@ Alors que son sang bouillonnait, son corps ne pouvait plus le supporter et comme
 
 Pourtant, il ne paraissait pas faible du tout; il semblait au contraire contenir une vitalité et une force terrifiantes. On aurait dit qu'une fois que le corps de Wang Lin serait revenu à l'état où il était lorsqu'il était entré dans le temple ancestral, la puissance de son corps physique atteindrait un niveau prodigieux.
 
-La troisième épreuve du clan Ancien comportait trois calamités. Après le Sang Céleste Ancien venait la Triple Division de l'Âme de l'Ancien Dao! Après avoir survécu à cela, les membres du clan Ancien verraient leur puissance ancienne considérablement accrue.
+La troisième épreuve du clan Ancien comportait trois calamités. Après le Sang Céleste de la Race Ancienne venait la Triple Division de l'Âme de l'Ancien Dao! Après avoir survécu à cela, les membres du clan Ancien verraient leur puissance ancienne considérablement accrue.
 
 De nombreux membres des trois clans ayant atteint 27 étoiles et accédé au rang de Seigneur avaient traversé les trois épreuves et les sept calamités. En particulier, les deux dernières calamités de la troisième épreuve devaient impérativement se dérouler dans le temple ancestral de chaque clan.
 
@@ -34,7 +34,7 @@ Le rugissement dans son esprit devint plus intense encore et son sang sembla s'e
 
 « La Triple Division de l'Âme de l'Ancien Dao... » murmura Wang Lin. D'après la tablette de pierre, il avait appris que cette épreuve ne diviserait pas son âme originelle en trois parties distinctes.
 
-Au lieu de cela, il devait endurer trois cycles complets de division et de fusion. Il devrait subir une douleur atroce à chaque division et ferait preuve d'une persévérance hors du commun pour refusionner son âme originelle lors de la seconde division.
+Au lieu de cela, il devait endurer trois cycles complets de division et de fusion. Il devrait subir une douleur atroce à chaque division et ferait preuve d'une persévérance hors du commun pour refusionner lentement son âme originelle avant d'entamer la division suivante.
 
 Après chaque fusion, son âme originelle et son corps deviendraient bien plus puissants qu'auparavant. Une fois les trois cycles accomplis, il aurait survécu à cette calamité.
 
@@ -46,9 +46,9 @@ Une telle douleur était au-delà des capacités d'un être ordinaire; même la 
 
 Depuis des temps immémoriaux, certains hommes avaient fait preuve d'une persévérance exemplaire. Cependant, bien que cette calamité ne soit pas censée tuer, si l'on laissait son âme originelle se briser totalement sans être capable de la refusionner, la mort pouvait survenir!
 
-C'est pourquoi même la famille impériale et les plus déterminés évitaient rarement ce choix. S'ils tentaient le coup, ils ne pariaient leur vie qu'une seule fois lors de la première division. Très peu osaient prendre ce risque lors de la seconde.
+C'est pourquoi même la famille impériale et les plus déterminés ne faisaient jamais ce choix. Et quand ils le faisaient, ils ne pariaient leur vie qu'une seule fois, lors de la première division. Très peu osaient prendre ce risque lors de la seconde.
 
-Et presque personne n'avait jamais tenté une troisième fois; tous étaient morts.
+Et presque personne n'avait jamais tenté une troisième fois; presque tous étaient morts.
 
 La rumeur prétendait qu'au fil des âges, seul le plus puissant des Grands Empyréens, Gu Dao, avait choisi de se briser totalement et avait finalement réussi.
 
@@ -96,7 +96,7 @@ Ji Du se tenait près de la fenêtre de sa chambre, le regard perdu dans le loin
 
 Au même instant, sur la Montagne de l'Origine, Song Tian sortit de sa méditation en retraite, les mains derrière le dos. Il regarda en direction de la cité impériale.
 
-« Avec son niveau de culture, il choisira certainement de diviser complètement son âme dès la première fois, donc cela ne sera pas court... Peu importe. Lors de sa précédente retraite, j'ai agi à deux reprises contre lui. Bien que je l'aie reconnu plus tard comme l'empereur, je l'avais offensé le premier... Et depuis son arrivée, il n'a pas cherché à me tenir rigueur de cela... Je le protégerai durant sa première division en guise de réparation. » Song Tian s'élança dans les airs et disparut. Il réapparut devant le temple ancestral et s'assit, tournant le dos à l'édifice.
+« Avec son niveau de culture, il choisira certainement de diviser complètement son âme dès la première fois, donc cela ne sera pas court... Peu importe. Lors de sa précédente retraite, j'ai agi à deux reprises contre lui. Bien que j'aie reconnu Ji Du comme empereur par la suite, je l'avais offensé le premier... Et depuis son arrivée, il n'a pas cherché à me tenir rigueur de cela... Je le protégerai durant sa première division en guise de réparation. » Song Tian s'élança dans les airs et disparut. Il réapparut devant le temple ancestral et s'assit, tournant le dos à l'édifice.
 
 « Personne n'est autorisé à s'approcher à moins de 10 000 pieds du temple ancestral. Les contrevenants mourront! » Le Sens Divin de Song Tian se déploya largement.
 

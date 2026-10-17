@@ -22,9 +22,9 @@ Au moment où l'impact se rompit, la silhouette sembla être repoussée par une 
 
 Malgré le sang qu'ils recrachaient, ils ne purent s'arrêter et continuèrent de reculer. Le rugissement de Wang Lin les repoussa sur plus de 10 000 pieds.
 
-Le Mont Gu Dao gronda, et depuis la tour au sommet, une immense main noire surgit. Elle balaya l'air comme un ouragan et grandit jusqu'à atteindre des milliers de pieds de large. C'était comme si une montagne noire à cinq doigts s'abattait sur Wang Lin.
+Le Mont Gu Dao gronda, et depuis la tour au sommet, une immense main noire surgit. Elle balaya l'air comme un ouragan et grandit jusqu'à atteindre environ mille pieds de large. C'était comme si une montagne noire à cinq doigts s'abattait sur Wang Lin.
 
-Cette montagne de jade noir percuta la puissance fusionnée, céleste et ancienne, de Wang Lin.
+Cette montagne noire percuta la puissance fusionnée, céleste et ancienne, de Wang Lin.
 
 Un rugissement tonitruant résonna, et la montagne noire trembla violemment avant d'être repoussée. Elle se dissipa dans le ciel. Simultanément, le corps de Wang Lin frémit et sa puissance fusionnée se scinda à nouveau en forces célestes et anciennes. Le fragment de puissance fusionnée entama un second cycle, mais avec une lenteur telle qu'il semblait qu'il faudrait des décennies pour achever un nouveau cycle complet.
 
@@ -40,7 +40,7 @@ Il n'avait plus besoin de l'aide du Grand Empyréen Gu Dao pour que le sang de l
 
 Immobile, Wang Lin médita silencieusement et joignit les mains en direction du sommet du Mont Gu Dao.
 
-« Merci, Grand Empyréen Gu Dao, pour votre aide », dit-il. Wang Lin n'était pas un homme imprudent. L'écart entre lui et Gu Dao était immense. Même si Gu Dao avait eu l'intention de le renvoyer après les 300 marches, il mit de côté son indifférence habituelle pour lui présenter ses respects.
+« Merci, Grand Empyréen Gu Dao, pour votre aide », dit-il. Wang Lin n'était pas un homme imprudent. L'écart entre lui et Gu Dao était immense. Même si Gu Dao avait dit qu'il le laisserait partir après les 300 marches, Wang Lin enfouit au fond de son cœur sa froideur envers lui et prit congé en lui présentant ses respects.
 
 De plus, il avait pu fusionner sa puissance céleste et ancienne grâce à la pression exercée par Gu Dao. Peut-être était-ce un accident, ou peut-être s'agissait-il d'une reconnaissance silencieuse de la part du Grand Empyréen.
 
@@ -110,7 +110,7 @@ Un instant plus tard, le jade vibra et s'engouffra dans la demeure. Wang Lin, as
 
 Son sens divin parcourut l'objet. C'était un jade de message. Le contenu était bref: une simple invitation.
 
-« L'Empereur du Dao Ancien tiendra la cérémonie pour nommer son impératrice dans dix jours... » L'expression de Wang Lin resta impassible. Ce jade émanait de l'Empereur lui-même pour l'inviter à la cérémonie.
+« L'Empereur du Dao Ancien tiendra la cérémonie pour nommer son impératrice dans dix jours... » L'expression de Wang Lin resta impassible. Ce jade avait été envoyé par le palais impérial du Dao Ancien pour inviter Wang Lin à la cérémonie.
 
 « Si ce jade a pu parvenir jusqu'ici, c'est qu'il a obtenu la reconnaissance de Maître. Cette cérémonie doit donc être d'une importance capitale pour le clan Ancien », songea Wang Lin.
 

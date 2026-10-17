@@ -40,15 +40,15 @@ Wang Lin se trouvait actuellement dans la grotte qu'il avait creusée au cœur d
 
 La mer de feu brûlait avec intensité, se transformant lentement en un oiseau vermillon géant derrière lui. L'oiseau vermillon tournait autour de Wang Lin, faisant rage davantage encore dans la mer de flammes.
 
-Le Cercueil pour Éviter le Ciel qu'il portait depuis toujours avait été placé dans le nouvel espace de stockage qu'il avait ouvert dans son propre corps. À cet instant, sa main traça un sceau et les flammes environnantes se changèrent en sept dragons de feu qui se précipitèrent dans son œil gauche.
+Le Cercueil d'Évitement Céleste qu'il portait sur son dos depuis son arrivée sur le Continent Astral Immortel avait été placé dans le nouvel espace de stockage qu'il avait ouvert dans son propre corps. À cet instant, sa main traça un sceau et les flammes environnantes se changèrent en sept dragons de feu qui se précipitèrent dans son œil gauche.
 
 Ils furent absorbés instantanément par son œil gauche, y formant une empreinte en forme de feu.
 
 L'empreinte scintilla, projetant une lueur éclatante dans la grotte désormais privée de la lumière des flammes!
 
-« Mon propre essence de feu est déjà formée et s'avère même plus puissante que lorsqu'elle était dans le monde de la grotte... Mais elle est incompatible avec le feu terrestre de ce continent du Taureau Céleste... »
+« Ma propre essence de feu est déjà formée et s'avère même plus puissante que lorsqu'elle était dans le monde de la grotte... Mais elle est incompatible avec le feu terrestre de ce continent du Taureau Céleste... »
 
-« Je dois trancher entre ces deux feux... Sinon, si je rencontre une autre personne possédant une essence de feu, elle verra immédiatement que quelque chose ne va pas. De plus, le feu terrestre ici est trop différent, ce qui me place en position de faiblesse! » Wang Lin était sur le Continent Astral Immortel depuis un mois, et il en ressentait déjà les divergences.
+« Je dois trancher entre ces deux feux... Sinon, si je rencontre une autre personne possédant une essence de feu, elle verra immédiatement que quelque chose ne va pas. De plus, le feu terrestre ici est trop différent, ce qui me place en position de faiblesse! » Wang Lin était sur le Continent Astral Immortel depuis plus d'un mois, et il en ressentait déjà les divergences.
 
 Dans le monde de la grotte, il pouvait contrôler tout le feu du monde. Il y était comme l'empereur des flammes et n'avait jamais à se soucier de la consommation de son essence. Tant qu'il respirait, il pouvait rapidement la reconstituer.
 
@@ -78,9 +78,9 @@ Un éclair de froideur traversa le regard de Wang Lin. Ce rugissement ressemblai
 
 Alors que l'écho du rugissement résonnait, l'Oiseau Vermillon formé par Wang Lin poussa un cri strident. Ce fut le cri de l'Oiseau Vermillon: une plainte qui devint une épée acérée perçant les entrailles du sol en direction de la source du fracas!
 
-Wang Lin se déplaçait avec une rapidité fulgurante dans les profondeurs. Il franchissait des distances incommensurables à chaque respiration et atteignit bientôt la source du tumulte!
+Wang Lin se déplaçait avec une rapidité fulgurante dans les profondeurs. Il ne fallut pas longtemps pour qu'il franchisse des distances incommensurables et atteigne bientôt la source du tumulte!
 
-C'était un dragon de feu de plusieurs centaines de pieds de long, irradiant d'une lueur rouge et entouré d'une aura violente. Ce dragon était enroulé sur lui-même, fixant l'Oiseau Vermillon de Wang Lin. À l'approche de ce dernier, il poussa un nouveau rugissement.
+C'était un dragon de feu de plusieurs centaines de milliers de pieds de long, irradiant d'une lueur rouge et entouré d'une aura violente. Ce dragon était enroulé sur lui-même, fixant l'Oiseau Vermillon de Wang Lin. À l'approche de ce dernier, il poussa un nouveau rugissement.
 
 La scène était saisissante. Dans ce monde souterrain, le dragon et l'oiseau vermillon se faisaient face. Le rugissement et le cri entrèrent en collision, déclenchant une bataille de flammes titanesque!
 

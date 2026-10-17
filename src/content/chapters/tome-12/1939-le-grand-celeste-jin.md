@@ -18,27 +18,27 @@ Le secret entourant la Secte Dong Lin les rendait très discrètes parmi les neu
 
 Des nuages blancs parsemaient le ciel au-dessus du Continent du Grand Sage, le couvrant presque toute l'année. Ces nuages semblaient faire partie intégrante de l'azur; si un jour le ciel se dégageait, les mortels en étaient profondément surpris.
 
-À cet instant précis, aux abords d'une cité mortelle sur le Continent du Grand Sage, près d'une centaine de personnes se tenaient debout. Elles étaient guidées par trois ou quatre vieillards à l'apparence chétive mais débordant de vitalité. Leurs serviteurs les soutenaient tandis qu'ils attendaient depuis déjà deux heures.
+À cet instant précis, aux abords d'une cité mortelle sur le Continent du Grand Sage, près d'une centaine de personnes se tenaient debout. Elles étaient guidées par trois ou quatre vieillards à l'apparence maladive, vêtus de façon fastueuse, qui s'efforçaient de garder leur énergie. Leurs serviteurs les soutenaient tandis qu'ils attendaient depuis déjà deux heures.
 
 Le reste de la foule faisait preuve d'une grande patience, comme si leur simple présence ici était un honneur. Tous scrutaient l'horizon, comme en attente d'un événement imminent.
 
 Toutefois, le temps semblait long. Une heure plus tard, il était déjà midi. Le soleil brûlant frappait la terre et même la brise était cuisante.
 
-Certains ne pouvaient plus supporter cette épreuve. Malgré leur force de caractère, la chaleur accablante les faisait vaciller. Près de l'avant, un homme d'âge moyen vêtu d'une robe de fonctionnaire reçut un morceau de glace de la part d'un serviteur. En le plaçant sur son front, il ne put s'empêcher de marmonner une plainte:
+Certains ne pouvaient plus supporter cette épreuve. Malgré leur force de caractère, la chaleur accablante les faisait vaciller. Près de l'avant, un homme d'âge moyen vêtu d'une robe de notable reçut un morceau de glace de la part d'un serviteur. En le plaçant sur son front, il ne put s'empêcher de marmonner une plainte:
 
 « Le Grand Céleste a-t-il oublié de venir... Cela fait presque trois heures que nous attendons. Il est midi, l'heure la plus chaude. Combien de temps devrons-nous encore patienter... »
 
-Un vieillard à l'allure maladive situé devant lui entendit le fonctionnaire et se retourna immédiatement pour lui lancer un regard noir. « Silence! Que le Grand Céleste vienne ou non est une fatalité. Si tu ne veux pas attendre, personne ne te force! »
+Un vieillard à l'allure maladive situé devant lui entendit le fonctionnaire et se retourna immédiatement pour lui lancer un regard noir. « Silence! Même si le Grand Céleste ne venait pas, ce serait normal. Si tu ne veux pas attendre, personne ne te force! »
 
 Après s'être fait réprimander, l'homme afficha un sourire servile et s'apprêta à se justifier.
 
 « Hmph! Le Grand Céleste a accepté de venir après que ce vieil homme et quelques amis l'ont supplié de longues heures durant. Même à mon âge, je reste ici sans oser montrer la moindre marque de manque de respect, et un individu comme toi refuse d'attendre? Si le Grand Céleste venait à être offensé, toute ta famille pourrait bien être bannie de cette ville! » Le vieillard lança un regard féroce à l'homme avant de prendre un mouchoir imprégné de glace pour s'essuyer le front.
 
-« Le Grand Céleste est bienveillant; il accepte de sacrifier son temps de culture pour parcourir le Continent du Grand Sage. Qui ne connaît pas son nom? J'ai entendu dire que la ville de Lin avait invité le Grand Céleste, et que sept enfants avaient été choisis par la suite. Bien que trois d'entre eux aient été renvoyés, quatre ont intégré une secte céleste. Une fois qu'on devient un être céleste, même les poulets et les chiens peuvent s'élever vers les cieux! »
+« Le Grand Céleste est bienveillant; il accepte de sacrifier son temps de culture pour parcourir le Continent du Grand Sage. Qui ne connaît pas son nom? J'ai entendu dire que la ville voisine avait invité le Grand Céleste, et que sept enfants avaient été choisis par la suite. Bien que trois d'entre eux aient été renvoyés, quatre ont intégré une secte céleste. Une fois qu'on devient un être céleste, même les poulets et les chiens peuvent s'élever vers les cieux! »
 
 « C'est exactement ce que l'être céleste a dit: une fois qu'on devient un être céleste, même les poulets et les chiens peuvent s'élever vers les cieux! Si mon petit-fils peut entrer dans une secte céleste, je suis prêt à donner toute ma fortune! » grommela un autre vieil homme, l'expression exaltée.
 
-« C'est vrai! Le préfet Li de la ville de Lin est mon ami, et le Grand Céleste a séjourné chez lui. Sa petite-fille a déjà dépassé la vingtaine et, selon les rumeurs, il était impossible pour elle d'intégrer une secte. Pourtant, à la demande du préfet Li, le Grand Céleste l'a tout de même emmenée! »
+« C'est vrai! Le notable Li de la ville voisine est mon ami, et le Grand Céleste a séjourné chez lui. Sa petite-fille a déjà dépassé la vingtaine et, selon les rumeurs, il était impossible pour elle d'intégrer une secte. Pourtant, à la demande du notable Li, le Grand Céleste l'a tout de même emmenée! »
 
 « J'ai aussi entendu ce que le Grand Céleste a dit... Une fois qu'on devient un être céleste, même les poulets et les chiens peuvent s'élever vers les cieux! Cette phrase est devenue célèbre dans tout le Continent du Grand Sage... »
 
@@ -48,7 +48,7 @@ Alors que la foule discutait avec enthousiasme, oubliant presque la chaleur, une
 
 Au loin, un parasol rouge d'une envergure de plusieurs centaines de pieds s'ouvrit, révélant en dessous un siège de bambou pourpre. Quatre hommes robustes vêtus de robes dorées portaient le siège.
 
-Autour de ces quatre colosses défilait des dizaines d'enfants qui transportaient des fioles précieuses, des éventails ou des jades étincelants.
+Autour de ces quatre colosses défilaient une douzaine d'enfants qui transportaient des fioles précieuses, des éventails ou des jades étincelants.
 
 Sur le siège trônait un vieil homme aux cheveux blancs. Il dégageait une aura si pure qu'il ressemblait à un véritable être céleste au premier coup d'œil!
 
@@ -66,7 +66,7 @@ Leurs voix semblaient fusionner en une seule, témoignant de nombreuses répéti
 
 « Grand Céleste Jin Biao, l'immortel céleste! Grand Céleste Jin Biao, pilier du monde! Grand Céleste Jin Biao, la réincarnation d'un sage! » Tandis que les quatre colosses rugissaient, les enfants autour d'eux scandaient leurs prières à leur tour, faisant résonner leurs voix dans l'air.
 
-Le vieil homme sur le siège affichait un visage bienveillant, mais cette bonté n'était empreinte que d'une immense puissance lorsqu'il observa la foule agenouillée. Il leva la main droite et agita sa manche.
+Le vieil homme sur le siège affichait un visage bienveillant, mais cette bienveillance recelait une pointe de majesté lorsqu'il observa la foule agenouillée. Il leva la main droite et agita sa manche.
 
 Soudain, les couleurs du monde semblèrent changer et les nuages se dispersèrent. Dans un rayon de dix mille kilomètres, le ciel devint parfaitement limpide!
 
@@ -105,4 +105,4 @@ Il paraissait habitué à l'exaltation de la foule. Il souriait, le cœur empli 
 
 À cet instant, sur le Continent du Grand Sage, à des dizaines de milliers de kilomètres de là, des ondulations résonnèrent dans le ciel et Wang Lin apparut. Il scruta les environs et ses yeux s'illuminèrent.
 
-« Voici le Continent du Grand Sage! Où se trouve la Secte Dong Lin? »
+« Voici le Continent du Grand Sage! Le continent où se trouve la Secte Dong Lin! »

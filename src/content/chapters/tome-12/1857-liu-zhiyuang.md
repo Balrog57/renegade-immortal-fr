@@ -6,19 +6,19 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: Chapter 1857 - Liu Zhiyuang
 slug: liu-zhiyuang
 ---
-Wang Lin, qui s'était mêlé à l'armée des dix mille cultivateurs, n'attira pas trop l'attention. Seule Yan Lu jeta un regard vers l'armée, comme si elle cherchait Wang Lin du regard. Mais il y avait bien trop de cultivateurs et les lieux étaient enveloppés d'un brouillard épais; elle ne put le trouver.
+Wang Lin, qui s'était mêlé à l'armée des dix mille cultivateurs, n'attira pas trop l'attention. Seule Yan Luan jeta un regard vers l'armée, comme si elle cherchait Wang Lin du regard. Mais il y avait bien trop de cultivateurs et les lieux étaient enveloppés d'un brouillard épais; elle ne put le trouver.
 
 Au sein de cette brume, les cultivateurs du Continent du Démon Vert progressaient, menés par deux vieillards au stade intermédiaire de la Tribulation du Vide. À leur passage, le brouillard se reculait, comme s'il n'osait s'approcher d'eux. Même sur le Continent Astral Immortel, les cultivateurs du stade intermédiaire de la Tribulation du Vide étaient des souverains capables de soutenir une secte de niveau moyen. Au sein même des grandes organisations, comme les neuf sectes et les treize factions, ils comptaient parmi l'élite des Anciens!
 
 Il est extrêmement difficile de tuer un cultivateur ayant atteint le stade intermédiaire de la Tribulation du Vide. Ils possèdent tout simplement trop de trésors de survie et de sorts protecteurs.
 
-Les deux vieillards du Continent du Démon Vert s'appelaient respectivement Zhang et Zhao. Tous deux provenaient de deux sectes démoniaques différentes, et leurs attaques faisaient trembler le monde. Lu Wenren chargea et entama un combat contre le vieillard nommé Zhang au cœur du brouillard!
+Les deux vieillards du Continent du Démon Vert s'appelaient respectivement Zhang et Zhao. Tous deux provenaient de deux sectes démoniaques différentes, et leurs attaques faisaient trembler le monde. Lu Wenran chargea et entama un combat contre le vieillard nommé Zhang au cœur du brouillard!
 
-Des grondements tonitruants résonnaient et se propageaient dans toutes les directions. Leur affrontement déchaîtait des vents puissants qui balayaient la zone, empêchant tout autre cultivateur de s'approcher.
+Des grondements tonitruants résonnaient et se propageaient dans toutes les directions. Leur affrontement déchaînait des vents puissants qui balayaient la zone, empêchant tout autre cultivateur de s'approcher.
 
-L'autre vieillard, nommé Zhao, fit un pas en avant, prêt à rejoindre le combat contre Lu Wenren. À ses yeux, dès lors qu'ils blesseraient gravement Lu Wenren, le reste des cultivateurs ne représenterait plus une menace! Mais alors qu'il avançait, Yan Lu, Xu Dongde et un autre cultivateur au stade initial de la Tribulation du Vide se dressèrent pour lui barrer la route. Ils luttèrent ensemble contre lui!
+L'autre vieillard, nommé Zhao, fit un pas en avant, prêt à rejoindre le combat contre Lu Wenran. À ses yeux, dès lors qu'ils blesseraient gravement Lu Wenran, le reste des cultivateurs ne représenterait plus une menace! Mais alors qu'il avançait, Yan Luan, Xu Dongde et un autre cultivateur au stade initial de la Tribulation du Vide se dressèrent pour lui barrer la route. Ils luttèrent ensemble contre lui!
 
-En n'importe quel autre lieu, même en unissant leurs forces, ces trois-là ne feraient pas le poids face à un cultivateur du stade intermédiaire de la Tribulation du Vide. La différence de royaume entre les cultivateurs de la Tribulation du Vide est immense, telle l'écart entre le ciel et la terre.
+En n'importe quel autre lieu, même en unissant leurs forces, ces trois-là ne feraient pas le poids face à un cultivateur du stade intermédiaire de la Tribulation du Vide. La différence de royaume entre les cultivateurs de la Tribulation du Vide est immense, tel l'écart entre le ciel et la terre.
 
 Wang Lin, doté de sept essences, pouvait combattre des cultivateurs au stade initial de la Tribulation du Vide; mais même avec ses huit essences actuelles, il ne pouvait toujours affronter que le stade initial sans pouvoir ébranler ceux du stade intermédiaire.
 
@@ -52,23 +52,23 @@ Mais Wang Lin n'était pas impatient; il s'assit simplement. Le brouillard noir 
 
 Il guettait l'instant où il pourrait achever un cultivateur du stade initial de la Tribulation du Vide d'un seul coup.
 
-« Yi Si peut porter un coup dévastateur, l'épée de sang peut blesser, l'Empreinte de l'Esprit Martial peut empêcher la fuite... L'illusion multicouche peut créer l'instant opportun... Et le coup de grâce devra être l'Illusion d'Origine Spirituelle! Cependant, tout cela ne pourra que gravement blesser un cultivateur du stade initial, pas l'achever... » Les yeux de Wang Lin brillaient tandis qu'il fixait l'horizon à des dizaines de milliers de pieds.
+« Yi Si peut porter un coup dévastateur, l'épée de sang peut blesser, l'Empreinte de l'Esprit Martial peut empêcher la fuite... L'illusion multicouche peut créer l'instant opportun... Et le coup de grâce devra être l'Origine de la Fantaisie de l'Âme! Cependant, tout cela ne pourra que gravement blesser un cultivateur du stade initial, pas l'achever... » Les yeux de Wang Lin brillaient tandis qu'il fixait l'horizon à des dizaines de milliers de pieds.
 
 En un éclair, plusieurs heures passèrent. Le fracas des combats ne faiblissait pas, il devenait même plus intense. Le nombre de morts s'alourdissait de chaque côté. Pourtant, Wang Lin restait assis là. Il attendait.
 
-Liu Zhiyuang était un Ancien de la Secte du Dao Démoniaque qui venait d'atteindre le stade initial de la Tribulation du Vide, ce qui lui valait une certaine renommée. Étant également un descendant du Maître de la secte, il possédait des liens de sang prestigieux. Il avait rejoint l'invasion du Continent du Taureau Céleste avec un autre Ancien nommé Xu Wei et deux autres compagnons. Ils affrontaient actuellement trois cultivateurs du stade initial de la Tribulation du Vide du Continent du Taureau Céleste.
+Liu Zhiyuan était un Ancien de la Secte du Dao Démoniaque qui venait d'atteindre le stade initial de la Tribulation du Vide, ce qui lui valait une certaine renommée. Étant également un descendant du Maître de la secte, il possédait des liens de sang prestigieux. Il avait rejoint l'invasion du Continent du Taureau Céleste avec un autre Ancien nommé Xu Wei et deux autres compagnons. Ils affrontaient actuellement trois cultivateurs du stade initial de la Tribulation du Vide du Continent du Taureau Céleste.
 
-L'adversaire semblait posséder une énergie inépuisable, utilisant une multitude de sorts. Les quatre compères avaient leurs Sens Divins obstrués par le brouillard et ne pouvaient les restaurer. Après plusieurs heures, ils commençaient à être acculés.
+L'adversaire semblait posséder une énergie inépuisable, utilisant une multitude de sorts. Les quatre compères avaient leurs Sens Divins obstrués par le brouillard et ne pouvaient pas non plus s'y ressourcer. Après plusieurs heures, ils commençaient à être acculés.
 
-La bataille chaotique entre les sept continuait sous des grondements tonitruants. Liu Zhiyuang, ayant récemment atteint la Tribulation du Vide, commençait à épuiser son énergie céleste. Le brouillard environnant en absorbait également une part considérable.
+La bataille chaotique entre les sept continuait sous des grondements tonitruants. Liu Zhiyuan, ayant récemment atteint la Tribulation du Vide, commençait à épuiser son énergie céleste. Le brouillard environnant en absorbait également une part considérable.
 
-« Maudit brouillard! Quand les messagers arriveront-ils? Si cela continue, cette guerre sera impossible à gagner! » L'expression de Liu Zhiyuang était sombre. Il forma un sceau manuel pour créer un lotus noir qui percuta un dragon noir projeté par l'un des adversaires du Continent du Taureau Céleste.
+« Maudit brouillard! Quand les messagers arriveront-ils? Si cela continue, cette guerre sera impossible à gagner! » L'expression de Liu Zhiyuan était sombre. Il forma un sceau manuel pour créer un lotus noir qui percuta un dragon noir projeté par l'un des adversaires du Continent du Taureau Céleste.
 
-Entre deux explosions, Liu Zhiyuang recula sans hésiter. Nul besoin de mots: ses trois compagnons comprirent son intention et bloquèrent les attaques pour lui permettre de consommer des pilules. Après plusieurs heures de lutte, il était inévitable qu'ils doivent restaurer leur énergie céleste sous peine de ne pouvoir poursuivre.
+Entre deux explosions, Liu Zhiyuan recula sans hésiter. Nul besoin de mots: ses trois compagnons comprirent son intention et bloquèrent les attaques pour lui permettre de consommer des pilules. Après plusieurs heures de lutte, il était inévitable qu'ils doivent restaurer leur énergie céleste sous peine de ne pouvoir poursuivre.
 
-Le visage de Liu Zhiyuang était empreint d'une cruauté extrême. Il pratiquait une méthode de double culture Yin et Yang qui consistait à condenser les âmes des « fours de culture » féminins en un lotus noir. D'innombrables femmes avaient péri par sa main.
+Le visage de Liu Zhiyuan était empreint d'une cruauté extrême. Il pratiquait une méthode de double culture Yin et Yang qui consistait à condenser les âmes des « fours de culture » féminins en un lotus noir. D'innombrables femmes avaient péri par sa main.
 
-En un instant, il recula de dizaines de milliers de pieds. Il agita la main droite, faisant apparaître plus d'une douzaine de sphères lumineuses devant lui. À l'intérieur de chaque sphère se trouvait une femme nue de trois pouces de haut, à l'aspect misérable. Liu Zhiyuang ne prit même pas la peine de les regarder lorsqu'il ouvrit la bouche pour les inhaler.
+En un instant, il recula de dizaines de milliers de pieds. Il agita la main droite, faisant apparaître plus d'une douzaine de sphères lumineuses devant lui. À l'intérieur de chaque sphère se trouvait une femme nue de trois pouces de haut, à l'aspect misérable. Liu Zhiyuan ne prit même pas la peine de les regarder lorsqu'il ouvrit la bouche pour les inhaler.
 
 Cependant, à cet instant précis, non loin de là, Wang Lin, qui s'était tapi dans l'ombre, ouvrit soudainement les yeux, le regard glacial. Il attendait cette occasion depuis si longtemps, et quelqu'un venait enfin de la lui offrir!
 
@@ -76,9 +76,9 @@ Cependant, à cet instant précis, non loin de là, Wang Lin, qui s'était tapi 
 
 Les yeux de Wang Lin brillèrent d'une intention meurtrière. La première promesse qu'il avait faite à la Secte de la Grande Âme était de tuer dix cultivateurs du stade initial de la Tribulation du Vide. Aujourd'hui, il allait abattre le premier!
 
-Alors que Wang Lin bondissait tel un éclair, une lueur sanglante jaillit de sa main. Cette lumière frappa Liu Zhiyuang, qui lui tournait le dos! L'épée de sang possédait une tranchante inégalée; alors qu'elle fonçait sur sa cible, Liu Zhiyuang était sur le point d'engloutir ses sphères lumineuses. Sentant soudain un péril imminent, il abandonna son festin et agita sa manche pour invoquer un lotus noir derrière lui. Le lotus percuta l'épée de sang dans un fracas assourdissant!
+Alors que Wang Lin bondissait tel un éclair, une lueur sanglante jaillit de sa main. Cette lumière frappa Liu Zhiyuan, qui lui tournait le dos! L'épée de sang possédait un tranchant inégalé; alors qu'elle fonçait sur sa cible, Liu Zhiyuan était sur le point d'engloutir ses sphères lumineuses. Sentant soudain un péril imminent, il abandonna son festin et agita sa manche pour invoquer un lotus noir derrière lui. Le lotus percuta l'épée de sang dans un fracas assourdissant!
 
-Dans un grondement de tonnerre, Liu Zhiyuang se retourna brusquement, les yeux emplis d'une rage meurtrière.
+Dans un grondement de tonnerre, Liu Zhiyuan se retourna brusquement, les yeux emplis d'une rage meurtrière.
 
 « Je veux voir qui ose m'attaquer par surprise! »
 

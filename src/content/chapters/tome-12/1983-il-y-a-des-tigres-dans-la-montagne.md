@@ -12,7 +12,7 @@ Il se souvenait de Wang Lin et de la manière dont il avait été façonné en d
 
 Il se souvenait avoir suivi Wang Lin pendant des milliers d'années; il se souvenait de tout ce qu'il était, ainsi que des paroles de son maître impie.
 
-Il se souvenait qu'il s'était pleinement éveillé après avoir quitté le monde de la grotte.
+Ses souvenirs, remontés jusqu'à l'instant de sa réincarnation avant de quitter le monde de la grotte, s'éveillèrent pleinement.
 
 « Ma... Maître! » Le corps de Xu Liguo tremblait et ses yeux s'écarquillèrent. Il fit rapidement quelques pas pour quitter le fou et se précipiter aux côtés de Wang Lin, bousculant au passage Liu Jinbiao qui s'apprêtait à le saluer.
 
@@ -24,13 +24,13 @@ Après avoir écarté l'interloqué Liu Jinbiao, Xu Liguo prit sa place, et la s
 
 « Maître, vous ne pouvez pas m'abandonner — laissez-moi vous suivre. Même si je devais gravir une montagne de lames ou descendre dans une mer de feu, moi, Xu Liguo, je ne sourcillerai même pas!
 
-« Maître, bien que je vous aie rencontré tardivement, c'est moi qui vous ai suivi le plus longtemps. Certains ont peut-être eu la chance d'être trouvés tôt par Maître, mais comment ma loyauté pourrait-elle être comparée à la vôtre? Maître, je vous ai enfin retrouvé! » Tandis que Xu Liguo s'exprimait, il laissa échapper quelques larmes d'excitation, sous le regard hébété de Liu Jinbiao.
+« Maître, bien que je vous aie rencontré tardivement, c'est moi qui vous ai suivi le plus longtemps. Certains ont peut-être eu la chance d'être trouvés tôt par Maître, mais comment ma loyauté pourrait-elle être comparée à celle des autres? Maître, je vous ai enfin retrouvé! » Tandis que Xu Liguo s'exprimait, il plissa fortement les yeux et, sous le regard hébété de Liu Jinbiao, parvint à verser quelques larmes d'excitation.
 
 Tout en criant sa joie avec enthousiasme, Xu Liguo n'oublia pas de lancer un regard venimeux à Liu Jinbiao, comme pour lui signifier qu'il était le véritable serviteur numéro un de leur maître!
 
-« Hmph, hmph! Personne ne connaît mieux ce démon que moi. Quand ton Grand-père Xu suivait ce démon, petit Jinbiao, tu n'étais encore qu'un gamin quelque part à arnaquer les gens. Tu oses voler les faveurs de Maître? Malheur à toi, ce Liu Jinbiao a dû croire qu'il pourrait me surpasser!
+« Hmph, hmph! Personne ne connaît mieux ce démon que moi. Quand ton Grand-père Xu suivait ce démon, petit Jinbiao, tu n'étais encore qu'un gamin quelque part à arnaquer les gens. Tu oses voler les faveurs de Maître? Bon sang, ce Liu Jinbiao avait l'air content tout à l'heure; il a dû croire qu'il pourrait me surpasser!
 
-« Hmph, il faudra que je lui apprenne que son Grand-père Xu n'est pas à prendre en traîne! »
+« Hmph, il faudra que je lui apprenne que son Grand-père Xu n'est pas un tendre! »
 
 Sous le regard de Xu Liguo, Liu Jinbiao sentit immédiatement son cœur trembler. Xu Liguo avait laissé une empreinte profonde en lui. Il hésita, sur le point de répliquer, quand un rugissement retentit à ses côtés!
 
@@ -50,7 +50,7 @@ Wang Lin ignora l'étincelle de défi dans leurs regards et se tourna vers le fo
 
 Xu Liguo se souvint simplement que cet individu l'avait accompagné et tourna les yeux vers le fou. Maintenant que ses souvenirs étaient revenus, son regard envers lui était différent de celui d'autrefois; il ressemblait à celui qu'il avait eu lorsqu'il s'était associé à Liu Jinbiao pour voler le sang du fou.
 
-« Lâche-moi! Ton Grand-père est un maître saint qui est en fait ce démo... Ce fin maître, sage et dégageant une puissante intention de tuer! » À ce moment-là, il jeta un regard rapide vers Wang Lin et son cœur rata un battement. Il avait été éloigné de ce démon trop longtemps et avait failli dire une chose qu'il ne fallait pas.
+« Lâche-moi! Ton Grand-père Xu n'a qu'un seul maître, et c'est ce démo... ce maître à l'aura meurtrière débordante, sage et vaillant! » À ce moment-là, il jeta un regard rapide vers Wang Lin et son cœur rata un battement. Il avait été éloigné de ce démon trop longtemps et avait failli dire une chose qu'il ne fallait pas.
 
 « Va-t'en! Ne harcèle pas ton Grand-père Xu! » Xu Liguo se libéra brusquement et recula de quelques pas, bombant le torse en signe de loyauté.
 
@@ -112,16 +112,16 @@ Les yeux du fou devinrent à nouveau confus sous l'effet de ce contact, et l'emp
 
 Le vent et la neige continuaient de souffler. Tout n'était plus qu'une illusion, comme si rien ne s'était produit. Wang Lin resta là, témoin de la scène. Après un moment de réflexion, ses yeux jaillirent d'une lumière dorée monstrueuse!
 
-« Le lieu de culture isolée de l'Ancêtre Céleste, encore! Ses mots révèlent même qu'il se trouve sous le palais! Il a fait cela pour me pousser à partir! » L'expression de Wang Lin devint sombre alors qu'il fixait la cité ancestrale.
+« Le lieu de culture isolée de l'Ancêtre Céleste, encore! Ses mots révèlent même qu'il se trouve sous le palais! Il a fait cela pour m'obliger à y aller! » L'expression de Wang Lin devint sombre alors qu'il fixait la cité ancestrale.
 
-« L'appel du fou tout à l'heure était clairement le réveil de sa mémoire... Peut-être que tout ceci faisait partie du plan de l'Ancêtre Céleste. Il a utilisé le fou comme appât pour m'empêcher de partir, pour me forcer à aller au palais...
+« L'appel du fou tout à l'heure était clairement le réveil de sa mémoire... Peut-être que tout ceci faisait partie du plan de l'Empereur Céleste. Il a utilisé le fou comme appât pour m'empêcher de partir, pour me forcer à aller au palais souterrain...
 
-« D'abord, je ne suis pas allé au palais lors de la cérémonie des titres. Ensuite, il y a eu ce piège dans la rue — l'Empereur Céleste devait être impliqué. Il voulait me capturer pour m'emmener au palais mais a échoué, ce qui a mené à mon combat contre Jiu Di...
+« D'abord, je n'ai pas choisi d'aller au palais souterrain après la cérémonie des titres. Ensuite, il y a eu ce piège dans la rue — l'Empereur Céleste devait être impliqué. Il voulait me capturer grâce à ce piège mais a échoué, ce qui a mené à mon combat contre Jiu Di...
 
 « Il ne voulait pas agir personnellement, alors il a utilisé le fou pour m'attirer vers ce lieu!
 
-« Le lieu de culture isolée de l'Ancêtre Céleste, le palais... Quel secret se cache là-bas pour que l'Empereur Céleste tente sans cesse de m'y conduire? Dois-je y aller ou non? » Wang Lin médita silencieusement avant de lever brusquement la tête. Ses yeux brillaient de détermination!
+« Le lieu de culture isolée de l'Ancêtre Céleste, le palais souterrain... Quel secret se cache là-bas pour que l'Empereur Céleste tente sans cesse de m'y conduire? Dois-je y aller ou non? » Wang Lin médita silencieusement avant de lever brusquement la tête. Ses yeux brillaient de détermination!
 
 Parfois, même en sachant le danger imminent, on choisit de poursuivre sa route!
 
-Wang Lin prit une profonde inspiration et agita la main droite pour ranger Xu Liguo, Liu Jinbiao et le dragon marin dans son espace de stockage. La neige tombait toujours, mais cette fois, sa cible était le palais!!
+Wang Lin prit une profonde inspiration et agita la main droite pour ranger Xu Liguo, Liu Jinbiao et le dragon marin dans son espace de stockage. La neige tombait toujours, mais cette fois, sa cible était le palais souterrain!!

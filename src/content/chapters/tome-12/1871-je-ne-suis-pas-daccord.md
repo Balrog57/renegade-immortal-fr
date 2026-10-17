@@ -6,7 +6,7 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1871 - I Don’t Agree!"
 slug: je-ne-suis-pas-daccord
 ---
-Alors qu'ils discutaient de cette question, Yan Lu réalisa qu'il s'agissait d'une chance inouïe. Invoquer l'âme du Taureau Céleste pour la revêtir comme une armure et obtenir un gain massif de niveau de culture pendant une courte période permettrait d'augmenter considérablement sa puissance et d'acquérir des bénéfices inimaginables.
+Alors qu'ils discutaient de cette question, Yan Luan réalisa qu'il s'agissait d'une chance inouïe. Invoquer l'âme du Taureau Céleste pour la revêtir comme une armure et obtenir un gain massif de niveau de culture pendant une courte période permettrait d'augmenter considérablement sa puissance et d'acquérir des bénéfices inimaginables.
 
 Cependant, tout le monde ne pouvait y parvenir. Il fallait impérativement établir une connexion avec le Taureau Céleste pour réussir. Plus ce lien était profond, plus l'augmentation du niveau de culture serait terrifiante.
 
@@ -24,19 +24,19 @@ C'était un ordre indiscutable dans les terres célestes. Il durait depuis d'inn
 
 Une fois transgressé, c'était une vie qui tombait, une secte qui périssait, voire un continent entier qui s'effondrait!
 
-L'ordre stipulait que, sauf si la survie même des cultivateurs du continent était en jeu, nul n'était autorisé à endommager les sceaux sur les âmes des bêtes! Avec l'invasion du Continent du Démon Vert, cette directive s'était toutefois assouplie.
+L'ordre stipulait que, sauf si la survie même des cultivateurs du continent était en jeu, nul n'était autorisé à blesser les âmes des bêtes d'outre-ciel qui y étaient scellées! Avec l'invasion du Continent du Démon Vert, cette directive s'était toutefois assouplie.
 
-Yan Lu désirait naturellement une telle opportunité. Xu Dongde la convoit également, tout comme les trois cultivateurs au début de la Tribulation du Vide, mais ils ne pouvaient rivaliser avec Lu Wenran. Même si ce dernier était blessé, compte tenu de ses contributions durant cette guerre, ils ne pouvaient rien dire.
+Yan Luan désirait naturellement une telle opportunité. Xu Dongde la convoit également, tout comme les trois cultivateurs au début de la Tribulation du Vide, mais ils ne pouvaient rivaliser avec Lu Wenran. Même si ce dernier était blessé, compte tenu de ses contributions durant cette guerre, ils ne pouvaient rien dire.
 
 Les grondements sourds continuaient de résonner au-dessus d'eux. C'était comme la faux de la mort prête à faucher leurs vies à tout instant.
 
-« Compagnons cultivateurs, veuillez vous asseoir et libérer toute votre culture. Concentrez vos pensées sur le Taureau Céleste et aidez-moi à invoquer l'âme du continent du Taureau Céleste! » Le cœur de Lu Wenran bouillonnait d'excitation. Il attendait cette opportunité depuis si longtemps. Il savait que bien que l'armure d'âme soit dangereuse, le risque n'était pas insurmontable. Surtout, s'il laissait passer sa chance, il devrait attendre des éternités avant la prochaine occasion.
+« Compagnons cultivateurs, veuillez vous asseoir et libérer toute votre culture. Concentrez vos pensées sur le Taureau Céleste et aidez-moi à invoquer l'âme du Taureau Céleste! » Le cœur de Lu Wenran bouillonnait d'excitation. Il attendait cette opportunité depuis si longtemps. Il savait que bien que l'armure d'âme soit dangereuse, le risque n'était pas insurmontable. Surtout, s'il laissait passer sa chance, il devrait attendre des éternités avant la prochaine occasion.
 
 Cette fois, sept personnes au total seraient éligibles pour obtenir l'armure d'âme. Ces sept individus deviendraient légendaires sur le continent du Taureau Céleste!
 
 Après ses paroles, les cultivateurs en contrebas réfléchirent un instant puis s'assirent. Ils n'avaient pas d'autre choix; c'était l'unique voie.
 
-Yan Lu et ses compagnons, derrière Lu Wenran, étaient réticents, mais il était trop tard; ils ne purent que soupirer intérieurement et s'asseoir. À cet instant, seul Lu Wenran restait debout, incapable de dissimuler l'excitation qui brillait dans ses yeux.
+Yan Luan et ses compagnons, derrière Lu Wenran, étaient réticents, mais il était trop tard; ils ne purent que soupirer intérieurement et s'asseoir. À cet instant, seul Lu Wenran restait debout, incapable de dissimuler l'excitation qui brillait dans ses yeux.
 
 Il regarda le vieil homme nommé Zhou et hocha la tête.
 
@@ -60,11 +60,11 @@ Le sceau sanguin se trouvait au centre de la brume et tourna lentement jusqu'à 
 
 Au fur et à mesure de sa rotation, des grondements de tonnerre commencèrent à résonner. Les profondeurs du vortex semblaient mener vers un espace mystérieux d'où jaillit un rugissement de folie.
 
-ROAR!!
+GROAAAR!!
 
 Dès que ce son retentit, le palais souterrain trembla. En l'entendant, les visages des cultivateurs en contrebas devinrent pâles; ils crachèrent du sang et semblèrent affaiblis.
 
-Même les expressions de Yan Lu et de ses compagnons changèrent à l'audition de ce cri.
+Même les expressions de Yan Luan et de ses compagnons changèrent à l'audition de ce cri.
 
 C'était le rugissement du Taureau Céleste!
 
@@ -76,7 +76,7 @@ Dans la grotte, Wang Lin fixait le vortex dans le ciel. Il écoutait le rugissem
 
 La première étape pour invoquer l'âme du Taureau Céleste consistait à utiliser la culture de plus de mille cultivateurs pour ouvrir un vortex vers le Taureau Céleste scellé. L'empreinte sanguine constituait la seconde étape!
 
-« Compagnons cultivateurs, prélevez neuf gouttes de sang, soit précisément 450 grammes, ni plus ni moins, et concentrez-les sur votre index droit! » Le vieil homme nommé Zhou agita sa main droite et une plaie apparut au bout de son doigt. La quantité exacte de sang s'en échappa.
+« Compagnons cultivateurs, prélevez 450 grammes de sang, ni plus ni moins, et concentrez-les sur votre index droit! » Le vieil homme nommé Zhou agita sa main droite et une plaie apparut au bout de son doigt. La quantité exacte de sang s'en échappa.
 
 Simultanément, les mille cultivateurs levèrent la main droite. À ce stade, il n'y avait plus de retour en arrière possible. Ils suivirent l'exemple du vieil homme et pressèrent leurs doigts pour libérer la quantité requise de sang.
 
@@ -94,17 +94,17 @@ La chaîne rouge continua de tirer, et le rugissement du Taureau Céleste devint
 
 Cependant, la chaîne montra bientôt des signes de rupture. Voyant cela, une lueur glaciale passa dans les yeux de Lu Wenran.
 
-« Cher cultivateur Zhou! » Lu Wenran se tourna soudainement vers le vieil homme. Puis, il jeta un regard aux compagnons de Yan Lu.
+« Cher cultivateur Zhou! » Lu Wenran se tourna soudainement vers le vieil homme. Puis, il jeta un regard aux compagnons de Yan Luan.
 
-Le vieil homme nommé Zhou sourit amèrement intérieurement. Il serra les dents et joignit les mains en signe de respect vers Yan Lu et son groupe.
+Le vieil homme nommé Zhou sourit amèrement intérieurement. Il serra les dents et joignit les mains en signe de respect vers Yan Luan et son groupe.
 
 « Le Taureau Céleste ne sort pas... Je demande aux chers aînés de libérer leurs âmes originelles pour m'aider à extraire l'âme! » Après avoir parlé, le vieil homme toucha son front et son âme originelle s'en échappa. Elle vola vers le vortex pour saisir la chaîne.
 
-Sous le regard rouge et menaçant de Lu Wenran, les trois cultivateurs au stade de la Tribulation du Vide de la Prairie Extrême de la région s'assirent et fermèrent les yeux. Ils se sentaient impuissants alors que leurs âmes originelles s'envolaient pour prêter main-forte au vieil homme Zhou.
+Sous le regard rouge et menaçant de Lu Wenran, les trois cultivateurs au stade initial de la Tribulation du Vide issus des sectes proches de la Prairie de l'Extrême Ciel s'assirent et fermèrent les yeux. Ils se sentaient impuissants alors que leurs âmes originelles s'envolaient pour prêter main-forte au vieil homme Zhou.
 
-« Ancien Yan Lu, Ancien Dongde! » lança Lu Wenran d'un ton glacial.
+« Ancien Yan Luan, Ancien Dongde! » lança Lu Wenran d'un ton glacial.
 
-Yan Lu soupira et n'hésita plus. Les deux s'assirent et leurs âmes originelles jaillirent pour saisir la chaîne rouge. Grâce à la puissance de cinq cultivateurs de la Tribulation du Vide et au guidage du vieil homme Zhou, tous tirèrent de toutes leurs forces.
+Yan Luan soupira et n'hésita plus. Les deux s'assirent et leurs âmes originelles jaillirent pour saisir la chaîne rouge. Grâce à la puissance de cinq cultivateurs de la Tribulation du Vide et au guidage du vieil homme Zhou, tous tirèrent de toutes leurs forces.
 
 Le Taureau Céleste, à l'intérieur du vortex, poussa un rugissement qui déchira les cieux. Il résonna dans le palais, dans la terre et jusqu'à la surface!
 
@@ -114,7 +114,7 @@ Dès l'apparition de cette silhouette, elle brilla d'un éclat intense, captivan
 
 L'armure était d'un noir absolu et dégageait une puissante aura d'âme!
 
-Au moment où l'armure apparut, les âmes originelles de Yan Lu et de ses compagnons retournèrent dans leurs corps, et ils affichèrent des expressions complexes. Lu Wenran, lui, éclata de rire en chargeant vers l'armure.
+Au moment où l'armure apparut, les âmes originelles de Yan Luan et de ses compagnons retournèrent dans leurs corps, et ils affichèrent des expressions complexes. Lu Wenran, lui, éclata de rire en chargeant vers l'armure.
 
 « L'armure d'âme du troisième méridien du Taureau Céleste m'appartient, Lu Wenran! »
 

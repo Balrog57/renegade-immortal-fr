@@ -10,7 +10,7 @@ slug: empli-de-rage-6
 
 Wang Lin ne parvenait pas à distinguer les silhouettes qui se précipitaient vers lui, tant il était entouré. De plus en plus de gens arrivaient tandis que des formations de transfert scintillaient. Tous furent un instant déconcertés avant de se ruer sur Wang Lin sans la moindre hésitation.
 
-À cet instant, seul le corps de Wan Er, dans le palais qui se dressait devant lui, restait visible à ses yeux.
+À cet instant, seule la silhouette de Wan Er, dans le palais qui se dressait devant lui, restait visible à ses yeux.
 
 L'arrivée massive de nouveaux arrivants finit par obstruer totalement sa vue. Après un moment, Wang Lin poussa un rugissement et bondit dans les airs. Il était impossible de se téléporter ou d'utiliser la Distorsion Spatiale ici. Lorsqu'il s'élança, la moitié de ses cheveux vira au noir.
 
@@ -32,7 +32,7 @@ Au loin, le Prince Ji Du s'enthousiasma en voyant cela. Il avait attendu ce jour
 
 Le Prince Ji Du était transporté d'excitation tandis que le Grand Soleil Empyréen noir et blanc s'étendait, libérant une lumière infinie. Au même instant, Wang Lin poussa un rugissement et leva la main droite comme s'il brandissait son propre Grand Soleil Empyréen. D'un geste, il balaya les dizaines de milliers de membres de l'Ancien Dao qui lui barraient la route.
 
-Sous ce mouvement, le Grand Soleil Empyréen fondit sur la terre tel un météore. Le hurlement de l'astre remplaça même le grondement des tambours!
+Sous ce mouvement, le Grand Soleil Empyréen fondit sur la terre tel un météore. Le hurlement de l'astre couvrit même le grondement des tambours!
 
 Des fracas tonitruants résonnèrent alors qu'une puissante onde de choc se propageait. Quiconque fut touché par cette onde mourut instantanément, son corps réduit en cendres. Cette puissance explosa sur la place devant le palais.
 
@@ -44,7 +44,7 @@ Le vieil homme se tenait à 60 000 pieds du palais, et derrière lui se trouvaie
 
 Dès l'apparition du vieil homme, ces mille personnes furent prises d'une excitation fébrile. Même l'Empereur de l'Ancien Dao se montra respectueux.
 
-Au moment où la paume du vieil homme percuta le Grand Soleil Empyréen, son expression changea brusquement. Des bruits de craquements résonnèrent dans son corps et ses cheveux furent projetés en arrière. Il cracha une gorgée de sang et, repoussé par l'impact, poussa un rugissement.
+Au moment où la paume du vieil homme percuta le Grand Soleil Empyréen, son expression changea brusquement. Des bruits de craquements résonnèrent dans son corps et ses cheveux s'agitèrent sans qu'il y ait de vent. Il cracha une gorgée de sang et, repoussé par l'impact, poussa un rugissement.
 
 « De mon sang, j'active la Grande Restriction du clan Ancien! »
 
@@ -74,7 +74,7 @@ Hormis les quelque 1 000 personnes devant le grand hall et les membres des deux 
 
 Wang Lin marchait sur le sol, foulant le sang. Il n'y avait que mille personnes entre lui et le palais, mais beaucoup d'entre elles étaient des êtres puissants.
 
-Le regard de Wang Lin dépassa les 1 000 gardiens du temple, le vieil homme, l'Empereur de l'Ancien Dao, et s'arrêta sur Song Zhi qui le contemplait.
+Le regard de Wang Lin dépassa ces 1 000 personnes, le vieil homme, l'Empereur de l'Ancien Dao, et s'arrêta sur Song Zhi qui le contemplait.
 
 Les yeux de Song Zhi étaient chargés de confusion et d'une pointe de lutte intérieure.
 
@@ -98,7 +98,7 @@ Wang Lin s'immobilisa, son regard ignorant superbement le vieil homme. Il observ
 
 L'intention meurtrière contenue dans ces mots fit frémir le vieil homme. Sa main gauche trembla légèrement; il sentait que Wang Lin pourrait réellement accomplir cela. Ses yeux furent envahis par une soif de sang, mais il renonça à tuer la femme. Après tout, seule sa présence leur permettait d'espérer éliminer Wang Lin. Avant de venir, il avait déjà brisé le jade pour informer le Grand Empyréen Gu Dao. Cela signifiait que la famille royale était en péril et requérait la protection du Grand Empyréen.
 
-Une fois ses paroles prononcées, Wang Lin resta silencieux et avança vers les mille personnes devant lui, tandis que des dizaines de milliers d'autres se ruaient sur lui!
+Une fois ses paroles prononcées, Wang Lin resta silencieux et avança vers les mille personnes devant lui, avant que les dizaines de milliers d'autres n'arrivent sur lui!
 
 « Tuez! » Alors que Wang Lin progressait, les 72 Saints de l'Ancien Dao poussèrent un rugissement unanime. Ils menèrent des centaines de membres de clans à l'assaut de Wang Lin.
 
@@ -108,7 +108,7 @@ Une folie sauvage brilla dans les yeux de Wang Lin. Il n'attaqua pas immédiatem
 
 Sous ce cri, l'ombre ancienne derrière lui ouvrit également la gueule pour hurler à son tour!
 
-Ce rugissement contenait toute la culture de Wang Lin, sa culture ancienne ainsi que la puissance de son sang d'âme. L'onde sonore percuta de plein fouet les 72 Saints.
+Ce rugissement contenait toute la culture de Wang Lin, sa puissance ancienne ainsi que la puissance de son sang d'âme. L'onde sonore percuta de plein fouet les 72 Saints.
 
 Bien que les 72 Saints ne fussent pas faibles et aient attaqué de concert, ils s'effondrèrent tous devant le rugissement de Wang Lin.
 

@@ -20,7 +20,7 @@ Le ciel n'était pas bleu mais semblait couvert de nuages sombres, derrière les
 
 Un vent chargé d'humidité balayait la terre, soulevant des couches de poussière qui s'éparpillaient vers l'immense chaîne de montagnes. Le hurlement du vent faisait bruisser une multitude de feuilles.
 
-De nombreux pavillons et palais de jade étaient érigés au sein de la chaîne de montagnes. Plus de mille édifices se superposaient aux reliefs montagneux. De loin, il était difficile de dire si ces palais avaient été ajoutés à la montagne ou sculptés directement dans la roche!
+De nombreux pavillons et palais de jade étaient érigés au sein de la chaîne de montagnes. Plusieurs milliers d'édifices se superposaient aux reliefs montagneux. De loin, il était difficile de dire si ces palais avaient été ajoutés à la montagne ou sculptés directement dans la roche!
 
 Chaque palais et chaque pavillon était unique. Ils s'étendaient à travers la chaîne de montagnes, tels des temples célestes suspendus!
 
@@ -28,7 +28,7 @@ Une fine couche de nuages enveloppait les montagnes, les faisant apparaître et 
 
 Certains semblaient assises sur ces grues, mais l'épaisseur des nuages rendait toute observation impossible.
 
-À l'intérieur de la chaîne de montagnes coulait l'eau. Elle avait coulé durant des éons pour former un long fleuve qui descendait les pentes avant de se jeter dans un bassin. Ce bassin se ramifiait ensuite en d'innombrables bras différents.
+Au sein de la chaîne de montagnes, derrière les brumes, au-delà des pavillons, devant une salle, sur un sommet, l'eau murmurait: un petit ruisseau sinueux descendait de la cime. Au fil des années, il avait creusé un lit de plus de dix pieds de large qui descendait vers le pied de la montagne avant de rejoindre un bassin. Ce bassin se ramifiait ensuite en d'innombrables bras qui allaient on ne sait où.
 
 Wang Lin était assis sur un rocher au bord de la rivière. Il fixait l'eau en fronçant les sourcils. Le son d'une cloche résonnait depuis un sommet lointain, mais il n'y prêta aucune attention.
 
@@ -48,7 +48,7 @@ En contemplant son reflet dans la rivière, Wang Lin gardait une expression étr
 
 « Continent Astral Immortel... Cet endroit est le Continent Astral Immortel. Je ne m'attendais pas à fouler le sol du Continent Astral Immortel par l'intermédiaire des souvenirs du Souverain aux Sept Couleurs. » Wang Lin leva les yeux vers les neuf soleils et esquissa un sourire amer.
 
-Ce monde appartenait au Souverain aux Sept Couleurs; il était façonné par ses souvenirs. On pourrait dire que tout ici n'était qu'une illusion, mais ce sont des choses qui possèdent une existence propre.
+Ce monde appartenait au Souverain aux Sept Couleurs; il était façonné par ses souvenirs. On pourrait dire que tout ici n'était qu'une illusion, mais tout ce qu'elle contenait s'était réellement produit et avait existé à l'époque.
 
 « Les sectes du Continent Astral Immortel ne sont pas comparables à celles du monde de la grotte... » Wang Lin toucha la robe dao qu'il portait. La protection qu'elle offrait pouvait bloquer l'attaque à pleine puissance d'un cultivateur Ascendant.
 
@@ -96,9 +96,9 @@ Le sentier de montagne était sinueux, chaque pas donnant l'impression de marche
 
 C'était un monde radicalement différent du monde de la grotte.
 
-Des nuages sombres s'accumulaient dans le ciel et commençaient à entrer en collision. Des grondements tonnantes résonnaient tandis que des éclairs parcouraient les nuages tels des serpents d'argent.
+Des nuages sombres s'accumulaient dans le ciel et commençaient à entrer en collision. Des grondements tonnants résonnaient tandis que des éclairs parcouraient les nuages tels des serpents d'argent.
 
-« Il va pleuvoir... » Wang Lin arriva au sommet de la montagne en murmurant, découvrant alors l'imposante salle qui s'y dressait. Le bâtiment mesurait plus de mille pieds de haut et trônait là comme une bête gigantesque.
+« Il va pleuvoir... » Wang Lin arriva au sommet de la montagne en murmurant, découvrant alors l'imposante salle qui s'y dressait. Le bâtiment mesurait plusieurs milliers de pieds de haut et trônait là comme une bête gigantesque.
 
 Devant le temple s'étendait une place de plus de dix mille pieds de large, au centre de laquelle se trouvait un immense fourneau. Neuf bâtons d'encens aussi épais qu'un bras brûlaient, projetant des volutes de fumée verte dans les airs.
 

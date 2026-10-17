@@ -20,7 +20,7 @@ Lorsqu'elle s'en approcha, la branche explosa en une poudre noire qui enveloppa 
 
 Ensuite, la poudre fusionna avec la chair et le sang de Wang Lin. Elle s'enfonça profondément en lui, tandis que des bruits de craquements résonnaient dans tout son être. Son corps dégageait désormais une étrange sensation de robustesse, dépassant celle d'un corps du Dao Ancien. Non seulement il était extrêmement fort, mais il était aussi devenu résilient, le rendant très difficile à détruire.
 
-« Le regard de cette personne n'est pas assez tranchant pour subjuguer autrui. Bien que ce corps soit puissant, il manque de l'aura nécessaire pour dominer le monde. Je vais utiliser les fragments de l'épée céleste que le Seigneur Démon Vert a brisés lors de son combat contre l'Ancêtre Céleste afin de créer cette aura de majesté pour ce corps! » « Désormais, un seul regard de cette personne suffira à subjuguer les cultivateurs!! » Les yeux du vieil homme étaient empreints de folie. D'un revers de la main gauche, il envoya un morceau de métal de la taille d'une paume vers Wang Lin.
+« Le regard de cette personne n'est pas assez tranchant pour subjuguer autrui. Bien que ce corps soit puissant, il manque de l'aura nécessaire pour dominer le monde. Je vais utiliser les fragments de l'épée céleste que le Seigneur Démon Vert a brisés de sa queue de scorpion lors de son combat contre l'Ancêtre Céleste afin de créer cette aura de majesté pour ce corps! » « Désormais, un seul regard de cette personne suffira à subjuguer les cultivateurs!! » Les yeux du vieil homme étaient empreints de folie. D'un revers de la main gauche, il envoya un morceau de métal de la taille d'une paume vers Wang Lin.
 
 Ce fragment était fait d'un matériau inconnu, un alliage entre le métal et le bois. De nombreuses lignes y dessinaient des caractères sombres. Dès son apparition, il emplit l'espace verdoyant d'une énergie d'épée infinie.
 
@@ -36,9 +36,9 @@ L'expression des deux Messagers du Scorpion Vert changea radicalement. Ils fixè
 
 « Bien que je ne puisse pas fusionner ses pouvoirs anciens et célestes — car plus sa lignée est pure, plus son pouvoir céleste sera rejeté — je dois créer une veine séparée afin d'éviter ce rejet. Ainsi, lorsque Seigneur Démon Vert descendra, il pourra atteindre le sommet de sa culture! » marmonna l'homme en robe verte. La folie dans ses yeux s'intensifia. D'un geste de sa manche, il projeta vers Wang Lin quatre feuilles, six pilules exhalant une odeur de sang, une ligne de sang rouge et trois pierres grises.
 
-Chacun de ces objets était d'une valeur inestimable. S'ils avaient été exhibés en public, ils auraient déclenché des combats entre d'innombrables cultivateurs. Le vieil homme n'hésita pas un instant à les sacrifier sur Wang Lin. Les objets se désintégrèrent en une multitude de fragments pour pénétrer dans le corps du jeune homme. Parmi eux, la ligne de sang était la plus précieuse. La rumeur disait qu'il s'agissait d'un fragment de cheveu de l'Ancêtre Céleste!
+Chacun de ces objets était d'une valeur inestimable. S'ils avaient été exhibés en public, ils auraient déclenché des combats entre d'innombrables cultivateurs. Le vieil homme n'hésita pas un instant à les sacrifier sur Wang Lin. Les objets se désintégrèrent en une multitude de fragments pour pénétrer dans le corps du jeune homme. Parmi eux, la ligne de sang était la plus précieuse. La rumeur disait qu'il s'agissait d'un cheveu de l'Ancêtre Céleste!
 
-L'objet paraissait ordinaire, mais peu de choses au monde étaient assez tranchantes pour le couper. Après avoir pénétré le corps de Wang Lin, il y circula neuf fois, la tête et la queue se rejoignant pour former une seconde veine dans son organisme!
+L'objet paraissait ordinaire, mais peu de choses au monde étaient assez tranchantes pour le couper. Après avoir pénétré le corps de Wang Lin, il y serpenta en de multiples courbes, la tête et la queue se rejoignant pour former une seconde veine dans son organisme!
 
 Si l'âme originelle de Wang Lin sortait de la Perle Défiant le Ciel, il pourrait utiliser simultanément le pouvoir ancien et le pouvoir céleste. C'était un exploit que nul n'avait jamais réussi auparavant!
 
@@ -46,7 +46,7 @@ Malgré sa propre détermination, Wang Lin fut stupéfait par celle du vieil hom
 
 « Une fois que le Seigneur Démon Vert aura été ressuscité, il aura besoin d'un trésor tranchant capable de fendre le monde. Il ne serait pas opportun qu'il soit externe; il doit être un trésor interne pour véritablement impressionner Seigneur Démon Vert. »
 
-« Au fil des âges, mon clan a parcouru le monde pour rassembler plus de 90 000 types de matériaux Yin différents. Nous avons également payé n'importe quel prix pour obtenir un fragment d'âme provenant de vingt âmes supprimées du Continent de l'Est, afin de les raffiner ensemble et de forger cette lame Yin! »
+« Au fil des âges, mon clan a parcouru le monde pour rassembler plus de 90 000 types de matériaux Yin différents. Nous avons également payé n'importe quel prix pour obtenir un fragment d'âme provenant de vingt des âmes de suppression du Continent Astral Immortel, afin de les raffiner ensemble et de forger cette lame Yin! »
 
 « Cette lame n'a pas encore subi de Calamité du Continent Astral Immortel. Une fois qu'elle l'aura traversée, elle sera un trésor qui fera rougir les yeux d'un Grand Empyréen! » Les yeux du vieil homme brillèrent d'un éclat vif alors qu'il agitait sa main gauche. Une brume glaciale l'enveloppa et s'élança vers Wang Lin. Une lame invisible semblait se tapir au cœur de la brume!
 

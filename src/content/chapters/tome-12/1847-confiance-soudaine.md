@@ -16,7 +16,7 @@ Wang Lin chargea dans le sixième étage. Il ne restait que le septième avant q
 
 De plus, avec le cultivateur nommé Yun Kong sur ses talons, il ne disposait que de peu de temps. Les yeux de Wang Lin brillèrent alors qu'il traversait le sixième étage. L'énergie de l'épée semblait sur le point de percer lorsque des lignes de sang apparurent dans ses yeux et que deux globes oculaires écarlates se matérialisèrent derrière lui.
 
-« Essence de restriction, utilise l'essence pour pénétrer la restriction! » rugit Wang Lin, tandis que les deux yeux géants derrière lui s'effondraient soudainement. Les innombrables lignes de sang à l'intérieur jaillirent autour de Wang Lin pour former un météore qui fonça vers le septième étage.
+« Essence de restriction, fusionne avec cette grande formation de restriction! » rugit Wang Lin, tandis que les deux yeux géants derrière lui s'effondraient soudainement. Les innombrables lignes de sang à l'intérieur jaillirent autour de Wang Lin pour former un météore qui fonça vers le septième étage.
 
 Au moment où Wang Lin chargea, la sixième couche de brouillard sous lui se déchira. L'énergie de l'épée jaillit, et la puissante intention de l'épée semblait capable de tout détruire!
 
@@ -54,7 +54,7 @@ Le gaz était une essence extrêmement difficile à obtenir. Plus précisément,
 
 Cette essence était bien plus précieuse que n'importe quelle autre!
 
-Dès l'apparition de l'essence de gaz, les paumes d'eau et de feu s'effondrèrent, mais c'est l'énergie de l'épée de Yun Kong qui céda la première. Une puissante onde de choc se propagea dans toutes les directions. Wang Lin recula et utilisa cette force pour propulser Tigre Blanc et sa compagnie vers le septième étage.
+Dès l'apparition de l'essence de gaz, les paumes d'eau et de feu s'effondrèrent, mais l'énergie de l'épée de Yun Kong s'effondra elle aussi, complètement pour la première fois. Une puissante onde de choc se propagea dans toutes les directions. Wang Lin recula et utilisa cette force pour propulser Tigre Blanc et sa compagnie vers le septième étage.
 
 Le corps de Yun Kong trembla et il recula de plusieurs pas sous l'impact. Un rugissement retentit: la marionnette Yi Si fut libérée par Wang Lin et chargea Yun Kong.
 
@@ -64,7 +64,7 @@ Le timing était parfait, et son intention meurtrière se rapprochait. L'express
 
 Tout cela se passa à une vitesse vertigineuse. En un éclair, l'énergie de l'épée atteignit Yi Si et lui trancha le bras droit. La marionnette poussa un cri et recula brusquement. Cependant, le bras sectionné se transforma en cinq brins de gaz noir qui s'engouffrèrent dans le corps de Yun Kong!
 
-Yun Kong laissa échapper un gémissement étouffé tandis que du sang coulait du coin de sa bouche. Ces cinq filaments de gaz noir, chargés d'une intention meurtrière puissante, commencèrent à ravager son intérieur. Ils étaient très difficiles à extirper car ils contenaient également la puissance de l'Ancien Dao!
+Yun Kong laissa échapper un gémissement étouffé tandis que du sang coulait du coin de sa bouche. Ces cinq filaments de gaz noir, chargés d'une intention meurtrière puissante, commencèrent à ravager son intérieur. Ils étaient très difficiles à extirper car ils contenaient également la puissance de la lignée de l'Ancien Dao!
 
 « Cher confrère Yun Kong, nul besoin de m'escorter davantage. Nous nous reverrons dans le futur! » La voix de Wang Lin résonna dans les airs. Yun Kong leva les yeux pour voir la marionnette Yi Si, privée de son bras droit, se dissiper en une brume noire avant d'être récupérée par Wang Lin. Puis, Wang Lin emmena Tigre Blanc et sa compagnie au septième étage et disparut sans laisser de trace.
 
@@ -72,7 +72,7 @@ Ce n'est que lorsque Wang Lin fut loin que Yun Kong esquissa un sourire, mais c'
 
 « Entrer sur le Continent du Taureau Céleste sera très intéressant... La prochaine fois, je ne te laisserai pas t'échapper. Un cultivateur aussi puissant que toi fera un excellent fourneau pour mon épée! » Les yeux de Yun Kong brillèrent alors qu'il s'éloignait. Son visage était pâle; il avait été blessé dans ce combat. Cependant, le moment n'était pas aux soins, car il devait encore accomplir l'ordre des Anciens Ancêtres: raffiner la Mer des Pilules pour recréer cette demi-Pilule Céleste!
 
-À cet instant précis, dans la Mer des Pilules, il ne restait plus rien du Continent du Taureau Céleste. Tous étaient morts!
+À cet instant précis, dans la Mer des Pilules, il ne restait plus un seul cultivateur du Continent du Taureau Céleste. Tous étaient morts!
 
 L'ensemble de la Mer des Pilules était devenu le domaine du Continent du Démon Vert!
 
@@ -98,7 +98,7 @@ Une fois qu'ils disparurent à l'horizon, Wang Lin se tourna de nouveau vers la 
 
 « Depuis mon arrivée sur le Continent Astral Immortel, je n'ai jamais subi une telle perte! Yun Kong, si je ne profite pas du fait que tu sois blessé pour t'éliminer, je ne pourrai pas me le pardonner! » Les cris de Yi Si résonnaient encore dans son esprit, lui causant une douleur lancinante. La culture de Yun Kong était très étrange; son niveau n'était pas élevé, si l'on excepte cette dévastatrice énergie d'épée!
 
-Wang Lin avait déjà extrait le Sens Divin de Yan Lu des deux trésors qu'il avait obtenus d'elle. La gourde contenant 30 millions d'âmes dao pouvait libérer une attaque extrêmement puissante, même avec une seule chance!
+Wang Lin avait déjà extrait le Sens Divin de Yan Luan des deux trésors qu'il avait obtenus d'elle. La gourde contenant 30 millions d'âmes dao pouvait libérer une attaque extrêmement puissante, même avec une seule chance!
 
 Ayant pris sa décision, il chargea vers la Mer des Pilules.
 

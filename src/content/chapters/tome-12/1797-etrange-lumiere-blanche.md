@@ -6,9 +6,9 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: Chapter 1797 - Strange White Light
 slug: etrange-lumiere-blanche
 ---
-Continent Astral Immortel, Continent de l'Est, la Montagne de la Secte des Sept Dao sur le Continent du Taureau Céleste. Xuan Luo était assis dans un pavillon au cœur d'une montagne enveloppée de brume, et cela faisait plusieurs années qu'il attendait.
+Continent Astral Immortel, Continent de l'Est, la Montagne de la Secte des Sept Dao sur le Continent du Taureau Céleste. Xuan Luo était assis devant le pavillon, au sommet d'une montagne noire enveloppée de brume, et cela faisait plusieurs années qu'il attendait.
 
-Six mois s'étaient écoulés depuis l'accord de dix ans qu'il avait conclu avec Wang Lin, mais Xuan Luo n'était pas parti, bien que la marque qu'il avait laissée sur lui ait totalement disparu.
+Six mois s'étaient écoulés depuis l'échéance des dix ans de l'accord conclu avec Wang Lin, mais Xuan Luo n'était pas parti, bien que la marque rouge entre ses sourcils ait totalement disparu.
 
 La disparition de la lumière rouge signifiait que Wang Lin avait perdu son guide, ou peut-être que cela signifiait sa mort.
 
@@ -78,7 +78,7 @@ Sur le Continent Astral Immortel, au sein de la Secte des Sept Dao, Xuan Luo pou
 
 Ce n'était pas qu'il ne voulait plus attendre, mais une puissante vague d'énergie céleste, l'empêchant de rester, provenait du lointain. L'énergie n'était pas encore arrivée, mais un grondement de tonnerre résonna déjà dans le ciel. Un soleil doré apparut à l'horizon, et une silhouette s'y tenait debout.
 
-Simultanément, un autre soleil surgit dans une direction opposée, dégageant un regard glacial.
+Simultanément, un autre soleil surgit dans une autre direction; Dao Yi, à l'intérieur, posait sur lui un regard glacial.
 
 Xuan Luo comprit qu'il devait partir.
 
@@ -90,7 +90,7 @@ Plusieurs années passèrent encore. Certains êtres se réincarnaient sur le Co
 
 Même Xuan Luo ne comprenait pas pourquoi un tel écart existait.
 
-Cette année-là, un enfant naquit dans une ville mortelle du Continent de l'Est… Cet enfant était très singulier. À l'âge de six ou sept ans, il aimait se proclamer roi dès qu'il jouait avec ses compagnons...
+Cette année-là, un enfant naquit dans une ville mortelle du Continent de l'Ouest… Cet enfant était très singulier. À l'âge de six ou sept ans, il aimait se proclamer roi dès qu'il jouait avec ses compagnons...
 
 Si un autre enfant refusait de le suivre, il le frappait ou lui donnait des coups de pied. Il était extrêmement féroce, et ses camarades finirent par avoir peur de lui. Ils commencèrent peu à peu à jouer selon ses règles de roi.
 
@@ -108,10 +108,10 @@ Mu Bingmei était de celles-là. Tang Shan du Continent Astral Immortel l'était
 
 Le Roi Moustique n'avait pas non plus oublié Wang Lin. Autrefois, la bête avait été stoppée par lui, puis elle sembla devenir folle en absorbant les lois du Continent Astral Immortel avec ses compagnons.
 
-Elle avait subi quatre métamorphoses au cours de la dernière décennie! À chaque transformation, le Roi Moustique devenait plusieurs fois plus puissant. La pression environnante s'affaiblissait jusqu'à sembler ne plus exister!
+Elle avait subi quatre métamorphoses au cours de ces dernières dizaines d'années! À chaque transformation, le Roi Moustique devenait plusieurs fois plus puissant. La pression environnante s'affaiblissait jusqu'à sembler ne plus exister!
 
 Finalement, après la cinquième métamorphose, le Roi Moustique dégagea une pression qui ébranla tout le vide. Son corps n'avait plus l'apparence d'une planète; il avait complètement changé pour ressembler à de la fumée.
 
 Cette fumée était diffuse, comme si le moustique venait de surgir d'une peinture à l'encre. Cependant, sa férocité avait atteint son apogée.
 
-Par la suite, le Roi Moustique n'absorba plus les lois du Continent Astral Immortel. Son corps se répandit en une brume qui dévora ses neuf compagnons avant de s'élancer dans le vide infini. Il allait trouver Wang Lin, retrouver son maître!
+Par la suite, le Roi Moustique n'absorba plus les lois du Continent Astral Immortel. Son corps se répandit en une brume qui dévora ses neuf compagnons pour fusionner avec eux, avant de s'élancer dans le vide infini. Il allait trouver Wang Lin, retrouver son maître!

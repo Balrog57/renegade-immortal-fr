@@ -6,7 +6,7 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: Chapter 1902 - Viewing the Arcane Tribulants From Above
 slug: contempler-les-tribulations-arcaniques-den-haut
 ---
-L'homme d'âge moyen regarda au loin et, après un long moment, il murmura pour lui-même: « J'ai éveillé une calamité prématurément... » Il baissa la tête, contempla les ruines en contrebas et déploya son sens divin. Son sens divin était si puissant qu'il couvrit instantanément chaque centimètre de son continent.
+L'homme d'âge moyen regarda au loin et, après un long moment, il murmura pour lui-même: « Je me suis éveillé une calamité plus tôt que prévu... » Il baissa la tête, contempla les ruines en contrebas et déploya son sens divin. Son sens divin était si puissant qu'il couvrit instantanément chaque centimètre de son continent.
 
 Il se souvenait vaguement qu'il y a fort longtemps, il était venu ici et avait détruit cet endroit. Après avoir exterminé toute forme de vie, il avait absorbé l'aura de la mort pour s'immerger dans une culture en isolement.
 
@@ -72,7 +72,7 @@ Dans cette clarté, le niveau de culture de Wang Lin augmenta de nouveau. En mê
 
 Même la majeure partie de l'âme du Scorpion Vert, que Wang Lin avait dévorée après l'échec de la possession, fut absorbée par son âme originelle.
 
-Mais cela ne suffisait pas. Une telle quantité de puissance mondiale ne pouvait que porter le niveau de culture de Wang Lin à un stade infiniment proche du pic de l'Arcane Vide!
+Mais cela ne suffisait pas. Une telle quantité de puissance mondiale ne pouvait que porter le niveau de culture de Wang Lin à un stade infiniment proche du sommet du Vide Arcanique!
 
 Il lui manquait encore de quoi briser les barrières et entrer dans la Tribulation Arcanique pour faire face à l'arrivée des neuf Tribulations Arcaniques!
 
@@ -94,13 +94,13 @@ Le phénomène autour du temple dura plusieurs mois. Durant cette période, une 
 
 Toute cette puissance afflua dans le corps de Wang Lin durant ces mois, faisant grimper sans cesse son niveau de culture. Un jour, après plusieurs mois de tension, sa culture explosa soudainement et des grondements tonitruants résonnèrent dans ses entrailles.
 
-Sous l'effet de ces fracas, son niveau de culture passa du stade avancé de l'Arcane Vide au pic de l'Arcane Vide!
+Sous l'effet de ces fracas, son niveau de culture passa du stade avancé du Vide Arcanique au sommet du Vide Arcanique!
 
 Cette fluctuation fut dissimulée par la déferlante d'énergie mondiale. Les cultivateurs du continent n'osaient pas non plus déployer leur Sens Divin, de peur d'irriter le Scorpion Vert en pleine résurrection. Ils craignaient sa colère, et personne ne remarqua rien.
 
 Atteignant le sommet de l'Arcane Vide, Wang Lin ouvrit les yeux, révélant un regard d'une froideur terrifiante. D'un geste de la main droite, il fusionna son corps véritable d'essence des cinq éléments avec son propre corps.
 
-À cet instant, sa puissance décupla!
+À cet instant, sa puissance fut multipliée plusieurs fois!
 
 Peu après, il agita de nouveau la main et le terrifiant corps véritable d'essence du tonnerre s'avança. Il se superposa à Wang Lin et, dans un craquèlement d'éclairs, fusionna avec lui, devenant une partie intégrante de son être.
 
@@ -114,7 +114,7 @@ Ce sentiment de puissance lui insuffla une confiance absolue en lui-même. Cela 
 
 Wang Lin se leva, les mains derrière le dos, et leva les yeux. Son regard perçait le toit du temple pour atteindre le ciel. Son Sens Divin s'étendit, embrassant l'intégralité du temple.
 
-Le groupe de trois personnes de Yun Yifeng n'était plus là. Apparemment, ils étaient restés trop longtemps et n'osaient plus défier l'endroit.
+Le groupe de trois personnes de Yun Yifeng n'était plus là. Apparemment, ils avaient trop attendu et n'osaient plus s'attarder: ils étaient partis.
 
 Cela n'avait plus d'importance. Pour Wang Lin, Bord-des-Nuages n'était plus qu'une fumée du passé. Ce qu'il devait affronter désormais, c'étaient les neuf Tribulations Arcaniques!
 

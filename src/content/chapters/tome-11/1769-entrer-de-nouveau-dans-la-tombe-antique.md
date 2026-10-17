@@ -12,7 +12,7 @@ Ce gaz semblait infini et continuait de pénétrer dans le membre de Wang Lin. S
 
 Ce n'est qu'après le temps d'un bâton d'encens que la dernière parcelle de gaz pénétra dans son bras gauche. Cette sensation de pouvoir déchirer le monde, qu'il avait ressentie lorsqu'il avait obtenu le bras droit, envahit son cœur.
 
-Il fit bouger lentement ses cinq doigts de la main gauche dans un craquement sinistre. Après un long moment, Wang Lin serra le poing et avança. Il se retrouva au centre du bassin de glace.
+Il fit bouger lentement ses cinq doigts de la main gauche dans un craquement sinistre. Après un long moment, Wang Lin serra le poing et avança d'un pas dans le vide. Il se retrouva en plein ciel, au-dessus du bassin de glace.
 
 Wang Lin leva les deux mains et sentit une puissance colossale emplir son corps. Après avoir absorbé le bras gauche de Ye Mo, un changement stupéfiant s'opéra au niveau des trois étoiles des anciens clans situées entre ses sourcils et dans ses yeux!
 
@@ -28,15 +28,15 @@ Wang Lin poussa un rugissement et griffa le vide de ses deux mains. Ses mains s'
 
 La terre trembla et, après l'effondrement du bassin, une crevasse béante se dessina. Des grondements tonitruants résonnèrent alors que la fissure progressait telle un dragon de terre. Un fracas encore plus intense retentit lorsque le sol s'affaissa, laissant le dragon de terre s'enfoncer plus profondément dans les profondeurs du monde.
 
-Au cœur de la grotte, le fourneau entouré de gaz noirs était couvert de visages. Quiconque y pénétrait voyait son visage apparaître sur l'autel.
+Au cœur de la grotte, le fourneau entouré de gaz noirs était couvert de visages. Quiconque y pénétrait voyait son visage apparaître à sa surface.
 
-Cependant, à cet instant, la plupart des visages avaient totalement disparu. Même celui du Daoïste aux Sept Couleurs s'était effacé. Sur l'avant et l'arrière, les visages de Wang Lin et du Vieux Fantôme Zhan étaient extrêmement nets, entourés de gaz noirs.
+Cependant, à cet instant, la plupart des visages avaient totalement disparu. Même celui du Daoïste aux Sept Couleurs s'était effacé. Sur l'avant et l'arrière, les visages de Wang Lin et du Vieux Fantôme Zhan étaient extrêmement nets, émettant des lueurs noires et attirant les gaz noirs qui entouraient le fourneau.
 
-À ce moment précis, dans l'espace où se trouvait la deuxième fleur, une fissure apparut sur la racine gelée de celle-ci. Cette faille continua de s'étendre jusqu'à pénétrer le cœur de la fleur.
+À ce moment précis, dans l'espace où se trouvait la deuxième fleur, une fissure apparut sur la racine gelée de celle-ci. Cette faille continua de s'étendre jusqu'à la traverser de part en part.
 
 Le sortilège de Déchirure du Ciel avait ouvert ce monde. Wang Lin contempla le monde de glace et avança sans hésiter, disparaissant dans les profondeurs de la terre.
 
-« Le Daoïste aux Sept Couleurs n'est plus une menace. Maintenant, je dois m'occuper du Vieux Fantôme Zhan... Il est prudent et méfiant; il sera difficile de l'approcher... » Wang Lin apparut dans l'espace occupé par la troisième fleur.
+« Le Daoïste aux Sept Couleurs n'est plus une menace. Maintenant, je dois m'occuper du Vieux Fantôme Zhan... Il est prudent et méfiant; il sera difficile de lui tendre un piège... » Wang Lin apparut dans l'espace occupé par la troisième fleur.
 
 Cet endroit était d'un gris monotone, dépourvu de toute trace de vie. C'était un lieu totalement mort; même la troisième fleur devant lui semblait manquer d'eau et paraissait flétrie.
 
@@ -60,7 +60,7 @@ Après réflexion, Wang Lin comprit que le temps pressait. Après une brève hé
 
 Wang Lin connaissait cette voix!
 
-« Tuo Sen... » Wang Lin fut surpris et son regard se fit grave. Il examina de plus près la fleur noire qui recouvrait la majeure partie du ciel. Ses yeux s'illuminèrent lorsqu'il repéra un pétale noir, puis il disparut sans laisser de trace.
+« Tuo Sen... » Wang Lin fut surpris et son regard se fit grave. Il examina de plus près la fleur noire qui recouvrait près de la moitié du ciel. Ses yeux s'illuminèrent, il posa le pied sur un pétale noir, puis il disparut sans laisser de trace.
 
 Une demi-heure après l'entrée de Wang Lin dans la fleur, les autres arrivèrent. Lorsqu'ils virent l'océan mort en contrebas, leurs visages se crispèrent.
 
@@ -76,7 +76,7 @@ Il ne pouvait s'empêcher d'avoir ce sourire. Il connaissait cet endroit: c'éta
 
 « J'aurais dû m'en douter depuis longtemps... Le Souverain Céleste aux Sept Couleurs a créé ce lieu pour enterrer Ye Mo. Pourquoi aurait-il créé un tel endroit sans raison? Il s'avère que c'est la quatrième fleur... » Wang Lin contemplait les lieux avec une expression complexe. Cet endroit lui était très familier.
 
-« Pas étonnant que j'aie cru entendre la voix de Tu Si. Tu Si ne se trouve-t-il pas à l'intérieur de la Tombe Antique... » Wang Lin réfléchit un instant avant de marcher jusqu'au bord de la plateforme de pierre et de plonger son regard dans la brume en contrebas.
+« Pas étonnant que j'aie cru entendre la voix de Tuo Sen. Tuo Sen ne se trouve-t-il pas à l'intérieur de la Tombe Antique... » Wang Lin réfléchit un instant avant de marcher jusqu'au bord de la plateforme de pierre et de plonger son regard dans la brume en contrebas.
 
 Il se souvenait qu'il y avait encore plusieurs couches sous ce brouillard! Une aura extrêmement terrifiante régnait là-dessous, une aura qui l'avait autrefois forcé à faire demi-tour.
 
@@ -106,11 +106,11 @@ Wang Lin prit sa décision et s'élança vers la brume au bord de la plateforme.
 
 Personne ne connaissait cet endroit mieux que lui. Wang Lin avait obtenu toutes les cartes autrefois; il n'avait donc plus besoin d'explorer pour trouver son chemin. La carte était gravée dans son esprit, incluant l'entrée de la couche suivante!
 
-S'il existait une personne dont la connaissance de ce lieu était presque égale à celle de Wang Lin, c'était bien la troisième concubine, qui était toujours vierge!
+S'il existait une personne dont la connaissance de ce lieu était presque égale à celle de Wang Lin, c'était bien la troisième concubine, la Sainte de la Secte de la Porte Céleste du Continent Astral Immortel, qui était toujours vierge!
 
 À cet instant, la troisième concubine flottait dans la brume, observant les alentours avec confusion. Après un long moment, un regard complexe traversa ses yeux.
 
-« La quatrième fleur était donc cet endroit... » La troisième concubine avait obtenu la majeure partie de la carte de la première couche autrefois. C'est ici aussi qu'une onde de choc venait de troubler son esprit calme.
+« La quatrième fleur était donc cet endroit... » La troisième concubine avait obtenu la majeure partie de la carte autrefois. C'est ici aussi qu'une vague d'émotions indicibles avait troublé son esprit calme.
 
 C'était ici qu'elle avait rencontré Wang Lin. Finalement, elle avait été libérée grâce à l'aide de ce dernier et n'avait pas été scellée ici. Elle aimait la solitude et ne savait guère communiquer avec autrui. Lorsqu'elle fut contrainte de devenir la concubine du Souverain aux Sept Couleurs, elle n'avait accepté que pour le salut de sa secte.
 

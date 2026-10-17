@@ -6,7 +6,7 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1780 - With the Flip of a Hand the Cloud Dao is Turned Upside Down!"
 slug: dun-simple-geste-le-dao-des-nuages-est-bouleverse
 ---
-La pluie tombait avec intensité et les voix s'élevaient de plus en plus fort. Pourtant, les neuf bâtons d'encens continuaient de brûler sans montrer le moindre signe d'extinction. La fumée continuait de monter et, quelle que fût la force de l'averse, celle-ci ne parvenait pas à la dissiper.
+La pluie tombait avec intensité et son fracas devenait de plus en plus précipité. Pourtant, les neuf bâtons d'encens continuaient de brûler sans montrer le moindre signe d'extinction. La fumée continuait de monter et, quelle que fût la force de l'averse, celle-ci ne parvenait pas à la dissiper.
 
 La fumée se mêlant à la pluie, l'image ainsi créée était d'une beauté saisissante, tel un rêve éthéré.
 
@@ -68,7 +68,7 @@ Et par-dessus tout, Wang Lin n'était pas disposé à agir ainsi!
 
 Zhou Li baissa la tête, ses yeux trahissant un désir qu'il peinait à dissimuler.
 
-« Le Dao Céleste est endommagé, et sa réparation prendra beaucoup de temps... » dit lentement l'homme d'âge moyen, avant d'enseigner l'art introductif. Puis, d'un geste de la main droite, il projeta deux nuages qui pénétrèrent dans les corps de Wang Lin et de Zhou Li.
+« Le Dao du Ciel subit des pertes; ce qui croît en excès n'est pas comblé... » dit lentement l'homme d'âge moyen, récitant mot à mot la formule d'introduction. Puis, d'un geste de la main droite, il projeta deux nuages qui pénétrèrent dans les corps de Wang Lin et de Zhou Li.
 
 « Les nuages sont entrés en vous. Asseyez-vous immédiatement et faites circuler ces nuages le plus rapidement possible. Le premier à réussir aura l'avantage! Durant ce processus, restez concentrés et ne laissez aucune pensée extérieure vous troubler! » Tandis qu'il parlait, Zhou Li s'assit aussitôt.
 
@@ -110,7 +110,7 @@ Cependant, une vague immense s'était déchaînée dans le cœur de Wang Lin!
 
 « Je comprends! En modifiant les souvenirs du Souverain Céleste aux Sept Couleurs pour créer des contradictions, ces moments de confusion me permettront de ressentir les huit portes! Plus la contradiction et la confusion seront grandes, plus le ressenti sera clair. Je peux même m'en servir pour trouver la véritable porte! »
 
-« Voilà ma seconde méthode! Modifier les souvenirs du Souverain Céleste aux Sept Couleurs! »
+« Voilà ma seule méthode! Modifier les souvenirs du Souverain Céleste aux Sept Couleurs! »
 
 « Su Dao, tu dois consacrer du temps à la pratique de ce sort. Dans cinq mois, la compétition entre les membres de ta génération au sein de la Secte Dong Lin débutera. Les dix premiers pourront accéder au Bassin Dong Lin. Si tu y parviens, tes accomplissements futurs seront incommensurables! »
 

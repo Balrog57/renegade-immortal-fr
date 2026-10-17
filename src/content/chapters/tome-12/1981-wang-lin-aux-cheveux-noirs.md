@@ -14,7 +14,7 @@ Lorsque Wang Lin ouvrit les yeux, ils ne contenaient aucune lumière; ils étaie
 
 De longs cheveux noirs et des yeux sombres!
 
-« Je me demande si je pourrai seulement franchir le premier palais de l'Épreuve Empyréenne dans mon état actuel... » Un sourire étira le coin de la bouche de Wang Lin, mais quiconque aurait vu ce sourire aurait ressenti un frisson glacial.
+« Je me demande si je pourrai seulement franchir le premier niveau de l'Épreuve Empyréenne dans mon état actuel... » Un sourire étira le coin de la bouche de Wang Lin, mais quiconque aurait vu ce sourire aurait ressenti un frisson glacial.
 
 Ce n'était pas un sourire de joie, mais de cruauté!
 
@@ -22,7 +22,7 @@ Lorsque l'Exalté Empyréen Hai Zi vit le sourire de Wang Lin au loin, son corps
 
 Le Wang Lin aux cheveux noirs lui inspirait une peur extrême, comme s'il était son ennemi naturel. Son corps trembla et elle recula de plusieurs pas!
 
-Le doigt qui était apparu dans le vide se rétracta lentement. C'était comme si le vide abritait une paire d'yeux remplis de choc!
+Le doigt qui était apparu dans le vide se rétracta lentement. C'était comme si le vide abritait deux paires d'yeux remplis de choc!
 
 « Que le massacre commence. » Wang Lin bondit dans les airs et un grondement résonna dans son corps. D'innombrables éclairs noirs apparurent autour de lui. Il poussa un rugissement vers le ciel, et ces éclairs jaillirent vers les centaines de silhouettes qui s'approchaient de lui.
 
@@ -44,11 +44,11 @@ Il se déplaçait avec une rapidité fulgurante et apparut instantanément derri
 
 Le corps de Wang Lin tressaillait, mais il continuait de tuer. Il semblait ne plus ressentir la fatigue ni la douleur des blessures. La puissance des autodestructions le bombardait sans relâche, mais cela ne parvenait pas à l'interrompre.
 
-En un laps de temps très court, plus de la moitié des silhouettes périrent sous les éclairs de Wang Lin. Les cent personnes restantes se rassemblèrent pour former une formation lorsqu'un cri retentit: « Formation de Liaison! » La terre trembla et une énergie sembla jaillir des profondeurs. Les cent individus se transformèrent en une paume géante. Cette paume, d'un noir abyssal, s'abattit directement sur Wang Lin!
+En un laps de temps très court, plus de la moitié des silhouettes périrent sous les éclairs de Wang Lin. Les cent personnes restantes se rassemblèrent pour former une formation lorsqu'un cri retentit: « Formez la formation! » La terre trembla et une énergie sembla jaillir des profondeurs. Les cent individus se transformèrent en une paume géante. Cette paume, d'un noir abyssal, s'abattit directement sur Wang Lin!
 
 Wang Lin ne marqua pas de pause. Il leva la main et des centaines d'éclairs noirs apparurent. La destruction et l'intention meurtrière qui les animaient formèrent un gaz noir enveloppant Wang Lin. Ces éclairs volèrent vers la paume comme une pluie de météores.
 
-Rumble, rumble, rumble, rumble!!
+Boum, boum, boum, boum!!
 
 La paume s'effondra soudainement, et les cent personnes à l'intérieur périrent toutes. Lorsque Wang Lin en sortit, du sang coulait de sa bouche, mais la folie dans ses yeux était devenue plus intense encore. Alors qu'il avançait, des ondulations résonnèrent dans le vide devant lui. Le doigt qui avait disparu réapparut soudainement et pointa entre les sourcils de Wang Lin!
 
@@ -86,7 +86,7 @@ Au milieu de ce carnage déchaîné, des milliers de corps furent déchirés en 
 
 Dans un craquement, la moitié d'un bras fut arrachée.
 
-« Sors de là! » rugit Wang Lin en extrayant le membre du vide. Le monde trembla et le bras s'effondra. Ce gémissement étouffé résonna de nouveau depuis le néant!
+« Sors de là! » rugit Wang Lin en extrayant le membre du vide et en le heurtant de la tête. Le monde trembla et le bras s'effondra. Ce gémissement étouffé résonna de nouveau depuis le néant!
 
 « Que tous entrent dans ce lieu et tuent cet homme!! » Une voix empreinte d'une intention meurtrière jaillit du vide.
 
@@ -119,11 +119,11 @@ Il regarda calmement les dizaines de milliers de personnes qui se précipitaient
 
 Ce qui avait disparu incluait également la rue et les maisons environnantes. Elles n'étaient plus que ruines et poussière dans l'histoire. Même les flocons de neige devinrent noirs en tombant.
 
-« Contrains le Dao céleste. Toutes les âmes sous les cieux doivent subir la tribulation divine. Libère-toi des convictions qui ne mènent qu'à la destruction et marche sur le chemin du véritable Dao, » murmura Wang Lin en levant la main droite pour saisir le doigt qui venait soudainement d'apparaître à ses côtés. Puis, il le pressa légèrement.
+« Verrouille le destin du ciel de la mort, scelle la dynastie des Ténèbres. Les êtres qui ne peuvent atteindre le véritable Dao sombrent à jamais dans la mer d'amertume et perdent à jamais le véritable Dao. Que l'on s'élève jusqu'au sommet de la voie de la cultivation, » murmura Wang Lin en levant la main droite pour saisir le doigt qui venait soudainement d'apparaître à ses côtés. Puis, il le pressa légèrement.
 
 Dans un bruit de craquement, le doigt fut broyé! D'un coup sec, une silhouette émettant une lumière blanche fut extraite du vide.
 
-« Tu n'es pas l'Instructeur Impérial. » Wang Lin ne regarda même pas la figure lumineuse. Il desserra sa main droite pour saisir directement le cou de la silhouette avant de presser à nouveau.
+« Tu n'es pas l'Enseignant Impérial. » Wang Lin ne regarda même pas la figure lumineuse. Il desserra sa main droite pour saisir directement le cou de la silhouette avant de presser à nouveau.
 
 La figure trembla violemment et s'effondra soudainement.
 

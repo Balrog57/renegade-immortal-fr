@@ -70,7 +70,7 @@ Les discussions s'intensifièrent alors qu'un autre grondement tonitruant retent
 
 Trente-six hommes robustes émergèrent des lueurs rouges. Ils étaient enveloppés d'une brume écarlate qui rendait leur apparence indéfinissable. Ils s'inclinèrent devant le palais principal, puis prirent place devant les 72 Saints.
 
-L'écho du tambour se poursuivait. Une fois les 36 guerriers assis, un fracas assourdissant, surpassant le tambour et le tumulte des cent mille personnes présentes, retentit. Cela attira l'attention de tous: dix-huit déchirures apparurent dans le ciel, provoquées par des êtres célestes. Puis, dix-huit paires de griffes noires et rouges surgirent du néant!
+L'écho du tambour se poursuivait. Une fois les 36 guerriers assis, un fracas assourdissant, surpassant le tambour et le tumulte de près de dix mille personnes présentes, retentit. Cela attira l'attention de tous: dix-huit immenses déchirures furent ouvertes de force dans le ciel par dix-huit paires de griffes noires et rouges surgies du néant!
 
 Des rugissements tonitruants déchirèrent les cieux. Alors que tous les regards convergeaient vers le haut, dix-huit dragons noirs et rouges jaillirent des failles!
 

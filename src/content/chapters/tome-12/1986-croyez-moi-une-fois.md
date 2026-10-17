@@ -6,17 +6,17 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1986 - Believe Me Once!"
 slug: croyez-moi-une-fois
 ---
-« Est-ce moi, ou l'Ascendant Empyréen Ming Dao... Ou devrais-je dire que le véritable gagnant serait l'Empereur Céleste ou l'Enseignant Impérial? » Wang Lin resta calme et médita silencieusement. Ses émotions ne furent nullement affectées par les paroles de l'Enseignant Impérial.
+« Est-ce moi, ou l'Ascendant Empyréen Ming Dao... Ou devrais-je dire que cette culture illusoire de l'Ancêtre Céleste reviendrait plutôt à l'Empereur Céleste et à l'Enseignant Impérial? » Wang Lin resta calme et médita silencieusement. Ses émotions ne furent nullement affectées par les paroles de l'Enseignant Impérial.
 
 Il observa l'Enseignant Impérial au-dessus de l'autel. Ses propos étaient un mélange de vérité et de mensonge. Cependant, Wang Lin était certain que ce prétendu héritage ne serait pas si simple!
 
 Wang Lin fixa l'Enseignant Impérial et dit lentement: « Je me demande comment vous souhaitez que je coopère afin d'obtenir la culture de l'Ancêtre Céleste? De plus, la rumeur veut que l'Ancêtre Céleste ait disparu; on ignore s'il est mort ou vivant. Dans quelle mesure cet héritage peut-il être réalisé? »
 
-« Cette affaire est complexe, mais l'Empereur Céleste s'est déjà préparé minutieusement. Il a trouvé l'Ascendant Empyréen Ming Dao qui, même sans le lignage de l'Ancêtre Céleste, pourrait déjà devenir le plus puissant des Ascendants après vous. S'il obtient ce lignage, son niveau de culture augmentera de façon incalculable!
+« Cette affaire est complexe, mais l'Empereur Céleste s'est déjà préparé minutieusement. Il a trouvé l'Ascendant Empyréen Ming Dao, le plus grand génie de mon clan céleste, qui, même sans le lignage de l'Ancêtre Céleste, pourrait déjà devenir le plus puissant des Ascendants après vous. S'il obtient ce lignage, son niveau de culture augmentera de façon incalculable!
 
-« Sa haine envers vous se transformera en une obsession pour vous surpasser. Cette obsession pourra considérablement accroître sa vitalité et augmenter ses chances de survivre à la douleur de 40 %, lui permettant ainsi d'extraire avec succès tout son propre lignage pour être transformé en celui de l'Ancêtre Céleste!
+« Sa haine envers vous se transformera en une obsession pour vous surpasser. Cette obsession pourra considérablement accroître sa vitalité et lui donner 40 % de chances de survivre à la douleur du retour ancestral, lui permettant ainsi d'extraire avec succès toute la puissance de son lignage pour se métamorphoser en une culture semblable à celle de l'Ancêtre Céleste!
 
-« À ce moment-là, il deviendra le second Ancêtre Céleste. L'Empereur Céleste a passé de nombreuses années à comploter avec l'Ascendant Empyréen Ming Dao. J'ignore encore ce que l'Empereur Céleste a fait pour qu'il soit si confiant de pouvoir contrôler le puissant Ming Dao une fois qu'il aura réussi le sort du Retour à l'Origine Ancestrale!
+« À ce moment-là, il deviendra le second Ancêtre Céleste. L'Empereur Céleste a passé de nombreuses années à comploter contre l'Ascendant Empyréen Ming Dao. J'ignore encore ce que l'Empereur Céleste a fait pour qu'il soit si confiant de pouvoir contrôler le puissant Ming Dao une fois qu'il aura réussi le sort du Retour à l'Origine Ancestrale!
 
 « J'ai tenté de diviner la vérité, mais tout n'était que flou. J'ai réussi à trouver quelques indices; il s'agirait de quelque chose de similaire à une possession ou à une marionnette! La clé, c'est ce bassin de sang! » L'Enseignant Impérial désigna le bassin situé devant l'autel.
 
@@ -28,9 +28,9 @@ Wang Lin demanda calmement: « Quelles sont vos exigences? »
 
 « Je n'ai qu'une seule condition. Une fois que vous aurez obtenu l'héritage de l'Ancêtre Céleste et serez devenu le second Ancêtre Céleste, vous pourrez remplacer l'Ancêtre Céleste pour lever le sceau de mon clan. Laissez mon clan libre! » Tandis que l'Enseignant Impérial fixait Wang Lin, ses yeux brillaient d'une étrange lumière.
 
-« Ensuite, mon clan choisira de quitter le Continent Astral Immortel pour retourner dans notre patrie. Quant à vous, vous deviendrez la personne la plus puissante du clan céleste. Vous pourrez jouir d'un pouvoir infini tout en restaurant la gloire de l'Ancêtre Céleste!
+« Ensuite, mon clan choisira de quitter le Continent Astral Immortel pour l'au-delà du ciel, afin de retourner dans notre patrie. Quant à vous, vous deviendrez la personne la plus puissante du clan céleste. Vous pourrez jouir d'un pouvoir infini tout en restaurant la gloire de l'Ancêtre Céleste!
 
-« Si vous ne me croyez pas, je peux prêter serment. Si je viole ce contrat, que je sois détruit! » Alors que l'Enseignant Impérial parlait, sa dernière phrase apparut dans les airs et la lumière se condensa pour former un sceau complexe. Le sceau flotta un instant avant de disparaître.
+« Si vous ne me croyez pas, je peux prêter serment. Si je viole ce contrat, que je sois détruit! » Alors que l'Enseignant Impérial parlait, sa dernière phrase, au lieu de s'évanouir, apparut dans les airs sous forme de runes émettant une lueur sombre, qui se condensèrent en un totem complexe. Le totem flotta un instant avant de disparaître.
 
 L'Enseignant Impérial ajouta rapidement: « Ceci est un serment, et la loi du Continent Astral Immortel en est le témoin. Avec votre niveau de culture, vous pouvez naturellement ressentir si ce serment est authentique! »
 
@@ -100,12 +100,12 @@ L'Enseignant Impérial esquissa un sourire amer en regardant Lian Daofei, entrav
 
 « Croyez-moi! » L'Enseignant Impérial était d'une sincérité absolue. Il avait sacrifié sa vie pour que Wang Lin lui accorde sa confiance une unique fois.
 
-Wang Lin regarda l'Enseignant Impérial et médita silencieusement un instant avant de hocher la tête. Il leva le pied et s'apprêta à entrer dans le bassin d'eau semblable à du sang. Cependant, juste au moment où son pied droit allait toucher la surface, celui-ci trembla légèrement.
+Wang Lin regarda l'Enseignant Impérial et médita silencieusement un instant avant de hocher la tête. Il leva le pied et s'apprêta à entrer dans le bassin d'eau semblable à du sang. Cependant, à l'instant où son pied droit s'enfonça dans l'eau semblable à du sang, celui-ci trembla légèrement.
 
 Ce mouvement fut infime, et l'ondulation causée par le contact avec l'eau masqua l'action pour que personne ne puisse la détecter. Un brin d'aura de massacre s'échappa de son pied droit.
 
 Dès l'apparition de cette aura, elle se projeta directement vers l'Ascendant Empyréen Ming Dao qui avait les yeux clos, et pénétra instantanément dans son corps.
 
-L'Enseignant Impérial était transporté d'excitation. Voyant Wang Lin entrer dans le bassin, il leva la main pour former un sceau et utilisa le reste de sa force vitale pour lancer le sort secret. Cependant, à cet instant précis, tout le palais devint soudainement glacial!
+L'Enseignant Impérial était transporté d'excitation. Voyant Wang Lin entrer dans le bassin, il leva la main pour former un sceau et utilisa le reste de sa force vitale pour lancer le sort secret. Cependant, à cet instant précis, tout le palais souterrain devint soudainement glacial!
 
 L'Ascendant Empyréen Ming Dao ouvrit brusquement les yeux, sa confusion se muant en une folie déchaînée. Le froid émanait de son propre corps et, dès qu'il ouvrit les paupières, le bassin d'eau se changea instantanément en glace!

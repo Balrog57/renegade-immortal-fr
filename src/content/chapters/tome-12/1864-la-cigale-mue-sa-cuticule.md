@@ -6,7 +6,7 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: Chapter 1864 - The Cicada Sheds its Carapace
 slug: la-cigale-mue-sa-cuticule
 ---
-À la lisière de la Prairie du Ciel Extrême, la cultivatrice au stade initial de la Tribulation du Vide, entourée de milliers de prétendants, ouvrit les yeux. La boussole illusoire devant elle révélait clairement la position de Wang Lin.
+À la lisière de la Prairie du Ciel Extrême, la cultivatrice au stade initial de la Tribulation du Vide, entourée de milliers de cultivateurs, ouvrit les yeux. La boussole illusoire devant elle révélait clairement la position de Wang Lin.
 
 Elle vit le point représentant Wang Lin disparaître, puis réapparaître au loin. Elle informa immédiatement les cultivateurs qui le poursuivaient.
 
@@ -60,7 +60,7 @@ Il toucha sa poitrine. Une Pierre Spatiale se trouvait dans son corps. Il sentai
 
 Lorsque la Bête des Limbes était apparue pour dévorer l'autre Dao Céleste, Wang Lin avait eu une intuition. Il pressentait vaguement les autres fonctions de cet objet.
 
-« Elle pourrait augmenter le pouvoir de dévoration de la Bête des Limbes, mais cette pierre contient un espace infini... Une fois fusionnée avec la Bête des Limbes, une série de changements se produira... » Les yeux de Wang Lin s'illuminèrent. Il ouvrit la bouche et, dans un éclat de lumière fantomatique, la Pierre Spatiale vola vers sa main.
+« Elle pourrait augmenter le pouvoir de dévoration de la Bête des Limbes, car l'intérieur de cette pierre contient d'innombrables espaces distincts... Une fois fusionnée avec la Bête des Limbes, une série de changements se produira... » Les yeux de Wang Lin s'illuminèrent. Il ouvrit la bouche et, dans un éclat de lumière fantomatique, la Pierre Spatiale vola vers sa main.
 
 Tenant la pierre, Wang Lin réfléchit un instant. Des ondulations apparurent et il disparut sans laisser de trace. Seule la Pierre Spatiale tomba au sol, se cachant parmi les hautes herbes.
 
@@ -88,7 +88,7 @@ Les derniers éléments qu'il fit apparaître furent Yi Si et le Roi des Moustiq
 
 Une fois ces préparatifs achevés, Wang Lin agita sa manche et disparut. Une douce lumière fantomatique émana de l'endroit où la Pierre Spatiale avait été déposée dans la Prairie du Ciel Extrême. Wang Lin apparut, ramassa la pierre, puis scruta l'horizon.
 
-Le champ de massacre était prêt; il ne lui restait plus qu'à broyer ses proies par la force!
+Le champ de massacre était prêt; il ne lui restait plus qu'à y entraîner les autres de force!
 
 D'après le Sens Divin qu'il avait laissé, la boussole était sur le point de périr. Derrière elle, les deux vieux monstres de la Tribulation du Vide étaient sur le point de la rattraper! Bien loin derrière eux, les deux cultivateurs du stade initial accéléraient également.
 

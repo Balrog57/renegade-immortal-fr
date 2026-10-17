@@ -22,7 +22,7 @@ Mille points blancs entouraient l'unique point rouge. Ce point rouge, imprégné
 
 « Ce vieil homme a récupéré son... fragment d'âme à l'époque pour le donner à l'Empereur du Dao Antique. Il a bien agi selon mes plans en trouvant quelqu'un pour fusionner avec cette âme afin de devenir son impératrice... »
 
-« Et tu es venu au palais du Dao Antique, comme je m'y attendais... Tue! Plus tu tueras, plus le bénéfice sera grand pour ce vieil homme! » La silhouette aux sept couleurs sourit, mais lorsqu'il prononça « fragment d'âme », sa voix devint ténue avant de se rétablir rapidement. Il leva la main droite et une lumière blanche brilla; tandis que sa main gauche s'élevait, une lumière noire enveloppa sa paume. Cela fit que les couleurs l'entourant passèrent à neuf!
+« Et tu es venu au palais du Dao Antique, comme je m'y attendais... Tue! Plus tu tueras, plus le bénéfice sera grand pour ce vieil homme! » La silhouette aux sept couleurs sourit, mais lorsqu'il prononça « fragment d'âme », sa voix trembla légèrement avant de se rétablir aussitôt. Il leva la main droite et une lumière blanche brilla; tandis que sa main gauche s'élevait, une lumière noire enveloppa sa paume. Cela fit que les couleurs l'entourant passèrent à neuf!
 
 Au même instant, un rayon de gaz gris apparut de nulle part et fusionna avec les neuf couleurs, les portant à dix!!
 
@@ -46,15 +46,15 @@ L'expression de la silhouette entourée des dix couleurs changea, et il s'exclam
 
 À ce moment précis, dans la cité impériale du Dao Antique, alors que le soupir tombait du ciel, Wang Lin s'arrêta soudainement. Il semblait avoir oublié le danger, les 36 Démons qui chargeaient vers lui et l'Empereur du Dao Antique situé à des dizaines de milliers de pieds de là.
 
-Le rouge dans les yeux de Wang Lin se dissipa progressivement, et la folie ainsi que la férocité sur son visage s'estompèrent lentement, remplacées par une amertume alors qu'il avançait.
+Le rouge dans les yeux de Wang Lin se dissipa progressivement, et la folie ainsi que la férocité sur son visage s'estompèrent lentement, remplacées par une amertume face à la silhouette familière qui descendait du ciel.
 
 Il savait que son maître viendrait certainement et qu'il l'arrêterait sans faute. C'est pourquoi il n'avait rien expliqué et avait tenté de tuer l'Empereur du Dao Antique pour emmener Li Muwan le plus vite possible.
 
-Wang Lin avait depuis longtemps percé les intentions et les agissements de l'Empereur du Dao Antique grâce au jade qui lui avait été confié à la Secte de la Grande Âme. Il avait même entendu ce que l'Empereur avait murmuré près du lit.
+Wang Lin avait depuis longtemps percé les intentions et les agissements de l'Empereur du Dao Antique grâce au jade laissé par l'Ancêtre de la Secte de la Grande Âme. Il avait même entendu ce que l'Empereur avait murmuré près du lit.
 
 Par-dessus tout, l'Empereur du Dao Antique avait forcé Song Zhi à boire avec Wang Lin. Comment l'Empereur aurait-il pu ne pas comprendre en voyant l'expression de Wang Lin? Il se complaisait simplement dans le plaisir de manipuler un couple d'amants.
 
-C'est pourquoi, une fois que Wang Lin comprit tout, il poussa un hurlement annonçant qu'il allait tuer Ye Mo et cet Empereur du Dao Antique!
+C'est pourquoi, une fois que Wang Lin comprit tout, il poussa un hurlement annonçant qu'il allait tuer Ye Dao et cet Empereur du Dao Antique!
 
 Il avait envisagé de dissimuler sa rage et de pénétrer calmement dans le palais pour emmener Song Zhi. Cependant, ses principes avaient été bafoués. S'il pouvait tolérer cela, alors il n'avait plus de principes!
 
@@ -62,15 +62,15 @@ Bien qu'attaquer un Empereur pris au dépourvu puisse sembler être la meilleure
 
 Mais s'il agissait en assassin, cela signifierait qu'il était d'un calme glacial. S'il commettait un tel acte tout en réfléchissant froidement, les dommages causés à la réputation de Xuan Luo seraient irréparables. Wang Lin comprenait tout cela, et il ne choisirait pas cette voie.
 
-Wang Lin n'utiliserait pas de telles méthodes. Il allait reprendre l'âme de Wan Er, tuer l'Empereur du Dao Antique, et le faire en pleine lumière du jour. La seule chose qu'il devait considérer était les sentiments de son maître...
+Wang Lin n'utiliserait pas de telles méthodes. Il allait reprendre l'âme de Wan Er, tuer l'Empereur du Dao Antique, et le faire ouvertement, la tête haute. La seule chose qu'il devait considérer était les sentiments de son maître...
 
 « Maître... » Wang Lin joignit les mains et s'inclina devant la personne qui s'avançait vers lui. Il ne se redressa pas et continua de s'incliner, même lorsque les 36 Démons profitèrent de cette occasion pour se rapprocher.
 
 Dans le ciel, Xuan Luo apparut et regarda Wang Lin. Il semblait avoir beaucoup vieilli et fit un geste de la main vers le sol en contrebas.
 
-D'un seul mouvement, les 36 Démons crachèrent du sang et reculèrent, terrifiés. Tous ceux qui se trouvaient aux côtés de Wang Lin furent projetés à des dizaines de milliers de pieds, ne laissant que Wang Lin, qui poursuivait son inclinaison.
+D'un seul mouvement, les 36 Démons crachèrent du sang et reculèrent, terrifiés. Tous ceux qui se trouvaient aux côtés de Wang Lin furent projetés à 10 000 pieds, ne laissant que Wang Lin, qui poursuivait son inclinaison.
 
-L'Empereur du Dao Antique ricana en voyant Xuan Luo apparaître. Ses yeux s'illuminèrent et il s'avança rapidement: « Seigneur Xuan, Wang Lin a forcé l'entrée du palais pour tenter de voler mon impératrice. En tant que disciple de votre Seigneurie, il nous a trahis! J'espère que le Seigneur Xuan... »
+L'Empereur du Dao Antique ricana en voyant Xuan Luo apparaître. Ses yeux s'illuminèrent et il s'avança rapidement: « Seigneur Xuan, Wang Lin a forcé l'entrée du palais pour tenter de voler mon impératrice. Il est coupable d'une trahison inouïe, indigne d'être le disciple de votre Seigneurie! J'espère que le Seigneur Xuan... »
 
 Avant qu'il ne puisse achever sa phrase, Xuan Luo se tourna brusquement vers lui.
 
@@ -82,7 +82,7 @@ Il allait reprendre la parole, mais face à l'intention meurtrière et à la rag
 
 « Grand Empyréen Xuan Luo... » Le père de l'Empereur du Dao Antique, le vieil homme qui avait perdu son bras droit, soupira et s'inclina devant Xuan Luo.
 
-« Cet enfant manque de respect au pouvoir impérial, mais je crois que le vénérable gardien du Dao Antique traitera cette affaire avec équité. Après tout, cet individu a tué des dizaines de milliers de puissants de mon Dao Antique. Il a mis notre destin en péril, et cela est impardonnable! » Le vieil homme était bien plus avisé que l'empereur actuel. Ses paroles mettaient l'accent sur le fait que Wang Lin avait massacré une multitude de personnes.
+« Cet enfant manque de respect au pouvoir impérial, mais je crois que le vénérable gardien du Dao Antique traitera cette affaire avec équité. Après tout, cet individu a tué des dizaines de milliers de puissants de mon Dao Antique. Il a gravement entamé la vitalité de mon Dao Antique, et cela est impardonnable! » Le vieil homme était bien plus avisé que l'empereur actuel. Ses paroles mettaient l'accent sur le fait que Wang Lin avait massacré une multitude de personnes.
 
 Xuan Luo réfléchit silencieusement, puis il regarda Wang Lin. Ses yeux étaient empreints de regret et de tristesse. Il y avait aussi de la confusion, et son visage paraissait encore plus vieilli. Il observa son disciple, toujours agenouillé là. Ses lèvres tremblèrent, mais il resta incapable de parler.
 

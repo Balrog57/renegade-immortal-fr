@@ -24,7 +24,7 @@ Le pays de Wu Xuan était une nation mortelle située dans la partie nord du Con
 
 Toutefois, les quatre pays maintenaient la situation sous contrôle, évitant ainsi que l'ampleur des conflits ne s'étende trop.
 
-À la frontière entre Wu Xuan et Zhou Ling, une importante garnison était stationnée. Le camp militaire semblait s'étendre à l'infini et regorgeait de monde. Une puissante intention meurtrière imprégnait l'air.
+À la frontière entre Wu Xuan et Zhou Lin, une importante garnison était stationnée. Le camp militaire semblait s'étendre à l'infini et regorgeait de monde. Une puissante intention meurtrière imprégnait l'air.
 
 Plus près du pays, à l'entrée du camp, des milliers de soldats se tenaient en colonnes serrées. Plusieurs généraux et officiers scrutaient l'horizon, comme s'ils attendaient quelque chose.
 
@@ -60,7 +60,9 @@ Le vieux général fronça les sourcils et leva la main. Le silence retomba inst
 
 Après son allocution, l'expression des subordonnés devint grave et ils joignirent les mains en signe d'assentiment.
 
-À mille kilomètres de là, une luxueuse calèche d'une centaine de pieds de long progressait sur la route impériale, précédant un convoi s'étendant sur près d'un kilomètre. Des guerriers vêtus de simples habits accompagnaient les véhicules.
+« Roi Nan... » Le vieux général regardait au loin et ricana intérieurement. Il détestait ce titre de « Roi Nan »; à ses yeux, celui qui s'apprêtait à venir ne méritait pas qu'on l'appelle ainsi.
+
+À cinquante kilomètres de là, une luxueuse calèche d'une centaine de pieds de long progressait sur la route impériale, précédant un convoi s'étendant sur près d'un kilomètre. Des guerriers vêtus de simples habits accompagnaient les véhicules.
 
 Des sons de musique s'échappaient de la grande calèche, mêlés aux rires des femmes. L'intérieur semblait particulièrement animé.
 
@@ -96,9 +98,9 @@ Sous la pression invisible de ce cri, tous les regards des soldats se fixèrent 
 
 Le vieil homme, dégageant une pression solennelle sans pour autant être en colère, se tint près de la calèche et déclara: « Ce vieux Général Si Nan salue le Roi Nan! »
 
-Après un silence pesant, un rideau fut écarté et un homme d'âge mûr en sortit. Ses yeux étaient sombres, presque vitreux. Il se dressa sur la calèche pour contempler le vieux général. Un éclair de mélancolie traversa son visage lorsqu'il esquissa soudain un sourire.
+Après un silence pesant, un rideau fut écarté et un homme d'âge mûr en sortit. Ses orbites étaient légèrement cernées et il paraissait vidé par l'alcool et la luxure. Il se dressa sur la calèche pour fixer le vieux général. Une lueur sombre traversa son regard, puis il esquissa soudain un sourire.
 
-« Digne de mon Grand Général Si Nan de Wu Xuan! Avec vous pour protéger la frontière, notre pays n'a rien à craindre. Ce roi est venu récompenser son général! »
+« Digne de mon Grand Général Si Nan de Wu Xuan! Avec vous pour protéger la frontière, notre pays n'a rien à craindre. Ce roi est venu, sur décret impérial, récompenser les soldats de la frontière! »
 
 « Oh? Dans ce cas, je vous prie d'entrer dans le camp! » Le vieux général regarda le Roi Nan avec une indifférence glaciale. Son regard exerçait une pression immense sur l'homme. De plus, l'intention meurtrière et les regards de glace de toute l'assemblée firent perler la sueur sur le front du souverain.
 

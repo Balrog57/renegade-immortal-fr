@@ -64,7 +64,7 @@ En voyant son image aux cheveux blancs et à la robe blanche, son corps trembla.
 
 « Pourquoi mon propre Maître, Xuan Luo, n'a-t-il rien vu lorsqu'il s'est rendu dans le monde de la grotte? Peut-être l'avait-il décelée sans pour autant parler? »
 
-« Si c'est réellement le cas, j'ai également rencontré le Grand Empyréen Dao Yi. Pourquoi n'a-t-il rien dit et n'a-t-il pas tenté de la voler... Je suis désormais convaincu qu'ils ne l'ont pas vue! »
+« Si c'est réellement le cas, j'ai également rencontré le Grand Empyréen Dao Yi. Pourquoi n'a-t-il rien dit et n'a-t-il pas tenté de la voler... Je crois plutôt qu'ils ne l'ont pas vue! »
 
 « Que représente exactement la Perle Défiante du Ciel? Qui a créé la boussole qui lui est destinée, et quelle est sa fonction... Pourquoi certains dans le monde de la grotte peuvent-ils voir que je la possède, alors que personne sur le Continent Astral Immortel n'en est capable... »
 
@@ -82,7 +82,7 @@ Prenant une profonde inspiration, Wang Lin s'assit près du bassin. Il ne fixa p
 
 Liu Jinbiao, qui se tenait aux côtés de Wang Lin, se retourna soudainement. Wang Lin avait disparu de ses sens, mais lorsqu'il regarda à nouveau, il pouvait le voir. Pourtant, il ressentait comme si Wang Lin n'était pas à sa place, comme si ce monde rejetait sa présence.
 
-« Que mon corps fusionne avec ce monde... Que mon Sens Divin s'assimile au vide... Avec mon âme, je créerai un monde; avec mon rêve, je rêverai du changement dans le temps... » La fusion du Tao des Rêves de Wang Lin et du Temps Fluide créa une puissance mystérieuse lui permettant de retourner dans le passé, tout comme dans le monde de la grotte!
+« Que mon corps fusionne avec ce monde... Que mon Sens Divin s'assimile au vide... Que mon âme se répande sur la voûte céleste; avec mon rêve, je rêverai du changement dans le temps... » La fusion du Tao des Rêves de Wang Lin et du Temps Fluide créa une puissance mystérieuse lui permettant de retourner dans le passé, tout comme dans le monde de la grotte!
 
 Wang Lin ignorait si d'autres pouvaient accomplir un tel prodige, mais parmi tous ceux qu'il avait rencontrés, lui seul en était capable, et il devait emprunter la puissance de la Voile Fantôme de la Secte de la Grande Âme!
 
@@ -92,7 +92,7 @@ Un rêve de milliers d'années...
 
 Dans le rêve de Wang Lin, le temps recula d'un millénaire, puis d'un autre, encore un autre... jusqu'à ce qu'il oublie lui-même le temps écoulé. La Secte Dong Lin était redevenu la Secte Dong Lin...
 
-La montagne était la même et l'eau restait limpide. D'innombrables disciples de la Secte Dong Lin cultivaient sous la lumière du matin, enveloppant tout la secte d'une brume légère.
+La montagne était la même et l'eau restait limpide. D'innombrables disciples de la Secte Dong Lin cultivaient sous la lumière du matin, enveloppant toute la secte d'une brume légère.
 
 Tout était calme, tout était paisible. On entendait les échos des conférences de Dao provenant de la grande salle où de nombreux disciples écoutaient avec attention.
 

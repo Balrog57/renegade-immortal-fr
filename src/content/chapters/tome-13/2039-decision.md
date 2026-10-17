@@ -6,13 +6,13 @@ bookTitle: Light of the coming end
 en: Chapter 2039 - Decision
 slug: decision
 ---
-La voix de l'Ancien Maître Impérial du Dao était féroce lorsqu'il rugit: « Si cette formation est détruite, vous ne connaîtrez jamais la vérité sur le monde des cavernes et le Continent Astral Immortel! »
+La voix de l'Ancien Maître Impérial du Dao était féroce lorsqu'il rugit: « Si cette formation est détruite, à moins que vous ne commettiez de nouveau d'infinis massacres, vous ne connaîtrez jamais la vérité sur le monde des cavernes, sur le Continent Astral Immortel, sur tout ce qui concerne le ciel et la terre! »
 
 « Vous devrez toujours regarder l'âme de Li Muwan mourir et retourner dans le cycle de la réincarnation. Vous ne pourrez toujours pas l'accompagner pour l'éternité! »
 
 Les yeux de l'avatar de massacre aux cheveux noirs s'illuminèrent et sa main droite s'immobilisa. Le gaz noir continuait de circuler le long de sa main, offrant un spectacle terrifiant.
 
-« Vous possédez le sang de l'âme du Clan Céleste, qui détient le pouvoir de la création, mais même si vous intégrez cette goutte entière dans le corps de Li Muwan, cela ne lui permettra pas d'entrer en toute sécurité dans le Royaume Divin Immémorial. »
+« Vous possédez le sang de l'âme de l'Ancêtre Ancien, qui détient le pouvoir de la création, mais même si vous intégrez cette goutte entière dans le corps de Li Muwan, cela ne lui permettra pas d'entrer en toute sécurité dans le Royaume Divin Immémorial. »
 
 « Le Royaume Divin Immémorial est la terre sainte suprême du Continent Astral Immortel. Les cultivateurs ordinaires ne peuvent y pénétrer; ils ont besoin soit d'une culture puissante, soit d'un corps surpuissant. »
 
@@ -32,7 +32,7 @@ Normalement, c'était un lieu propice à la culture pour le peuple de Ji Antique
 
 Cependant, une vague gigantesque surgit alors de sa Mer de la Mort. Cette vague se propagea dans toutes les directions tandis qu'un hurlement retentissait. La mer s'affaissa et un pilier colossal jaillit vers le ciel avant de disparaître. Le niveau de la Mer de la Mort chuta, comme si la moitié de ses eaux s'était volatilisée.
 
-Alors que ce pilier s'élevait dans les cieux, un autre pilier immense jaillit également de la mer, à la frontière entre l'Ancien Dao et l'Ancien Shi. Des ondulations massives se propagèrent dans toutes les directions, attirant l'attention de tous ceux qui purent le voir. Pourtant, hormis quelques rares individus, nul ne savait ce qui se tramait.
+Alors que ce pilier s'élevait dans les cieux, un autre pilier immense jaillit également vers le ciel, à la frontière entre l'Ancien Dao et l'Ancien Shi. Des ondulations massives se propagèrent dans toutes les directions, attirant l'attention de tous ceux qui purent le voir. Pourtant, hormis quelques rares individus, nul ne savait ce qui se tramait.
 
 « Toutes les réponses que vous cherchez se trouvent dans le Royaume Divin Immémorial. Une fois sur place, vous saurez! » À l'intérieur de la formation, l'Ancien Maître Impérial du Dao essuya le sang au coin de sa bouche.
 
@@ -54,7 +54,7 @@ L'Ancien Maître Impérial du Dao serra les dents et demanda soudain: « Posséd
 
 Voyant l'avatar de massacre s'agiter, il pressa: « Une fois entré dans le Royaume Divin Immémorial, avec ces cheveux pour guide et ce crâne pour éclairer votre voie, vous découvrirez la vérité! Si vous détruisez cette formation, mon plan échouera, mais vous ne connaîtrez jamais la vérité. Un jour, vous finirez par le regretter! »
 
-Les événements du jour dépassaient ses espérances. Il avait pensé que Wang Lin ne pourrait jamais pénétrer dans cet espace. Il n'avait jamais imaginé que Wang Lin posséderait la puissance nécessaire pour briser les frontières de la réalité!
+Les événements du jour dépassaient ses prévisions. Il avait pensé que Wang Lin ne pourrait jamais pénétrer dans cet espace. Il n'avait jamais imaginé que Wang Lin posséderait la puissance nécessaire pour briser les frontières de la réalité!
 
 Face à la véritable essence du massacre, le vieil homme ressentit une peur indicible au plus profond de son cœur et de son âme.
 

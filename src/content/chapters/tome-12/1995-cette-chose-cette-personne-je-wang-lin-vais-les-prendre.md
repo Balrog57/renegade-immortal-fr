@@ -20,13 +20,13 @@ Une lumière dorée infinie s'échappa de la brèche, et le visage de l'Empereur
 
 Cependant, alors que l'Empereur Céleste laissait paraître sa souffrance, Jiu Di poussa soudain un rugissement et chargea à une vitesse prodigieuse. Peu après, les visages de Dao Yi et Wu Feng changèrent, et ils s'élancèrent à sa suite.
 
-Lorsque la main droite de l'Empereur Céleste s'abattit sur la tête, des fissures se formèrent, mais à cet instant précis, sa main passa de la forme d'une lame à celle d'une paume. Il ne chercha plus à trancher, mais plutôt à écraser. Refusant tout compromis, il fendit complètement la tête, injectant ainsi son propre lignage d'Ancêtre Céleste en son sein!
+Lorsque la main droite de l'Empereur Céleste s'abattit sur la tête, des fissures se formèrent, mais à cet instant précis, sa main passa de la forme d'une lame à celle d'une paume. Il ne chercha plus à trancher, mais plutôt à écraser. Il n'avait pas choisi le compromis et ne voulait pas fendre complètement la tête de son ancêtre: il la frappa d'une paume, et la puissance de son lignage jaillit en rugissant, se déversant dans le sang de l'Ancêtre Céleste!
 
 « Vous avez tous sous-estimé ma détermination! Que craint-on donc la mort? Si je dois vivre comme un chien, quel est l'intérêt d'être un Grand Empyréen?! Autant se battre pour une chance! » L'Empereur Céleste éclata de rire tandis que les trois Grands Empyréens convergeaient vers lui. La tête absorba la puissance du lignage, puis ses yeux s'ouvrirent brusquement. Sa bouche s'entrouvrit également, laissant échapper une fumée dorée par tous ses orifices!
 
-Alors que cette brume dorée se répandait, l'Empereur Céleste ouvrit grand la bouche et commença à l'inhaler frénétiquement.
+Alors que cette brume dorée se répandait, l'Empereur Céleste pressa ses deux mains sur la tête, ouvrit grand la bouche et commença à l'inhaler frénétiquement.
 
-S'il parvenait à absorber toute cette fumée, il pourrait hériter de la culture de l'Ancêtre Céleste. Il pourrait même inverser les dommages causés par la malédiction ancestrale lors de la fracture de la tête!
+S'il parvenait à absorber toute cette fumée, il pourrait hériter de la culture de l'Ancêtre Céleste. Il pourrait même inverser le contrecoup que son sang subissait à cause de la fissure, ainsi que la malédiction ancestrale laissée par l'Ancêtre Céleste avant sa mort!
 
 Son coup n'avait pas seulement fissuré la tête, il avait également brisé le sceau de Hai Zi. Bien que la structure soit endommagée, l'Empereur Céleste pouvait désormais s'emparer de l'héritage par la force!
 
@@ -38,7 +38,7 @@ Simultanément, Wu Feng lança son attaque sous la forme d'un coup de poing puis
 
 Tandis que Jiu Di approchait, un loup blanc se matérialisa autour de lui, prêt à dévorer l'Empereur Céleste!
 
-À peine leurs sorts furent-ils déployés que l'Empereur Céleste redressa la tête. Du sang doré s'écoulait de ses yeux et de ses orifices. La couleur de son attaque vira brusquement au rouge vif: c'était le signe que son lignage se dissipait!
+À peine leurs sorts furent-ils déployés que l'Empereur Céleste redressa la tête. Du sang doré s'écoulait de ses yeux et de ses orifices. La couleur de ce sang vira brusquement au rouge vif: c'était le signe que son lignage se dissipait!
 
 Ses yeux, baignés de sang, ne reflétaient plus que la folie.
 
@@ -48,7 +48,7 @@ L'Empereur Céleste laissa échapper un rire hystérique et son corps gonfla vis
 
 L'autodestruction d'un Grand Empyréen, bien qu'elle ne concerne que son corps physique, pouvait ébranler le monde entier. Même s'il parvenait à posséder un nouveau corps, il ne serait plus un Grand Empyréen!
 
-L'explosion résonna jusque dans le palais interdit, le pulvérisant en un éclair. La force se propagea au ciel effondré, désintégrant instantanément tous les piliers du palais supérieur.
+L'explosion résonna jusque dans le palais interdit, le pulvérisant en un éclair. La force se propagea, le ciel s'effondra et elle s'engouffra dans le palais souterrain situé au-dessus, désintégrant instantanément l'autel et tous les piliers.
 
 Alors que le palais souterrain se dissipait, l'espace superposé avec le palais impérial créa une faille de connexion. Cette onde de choc déferla sur la place du palais impérial.
 

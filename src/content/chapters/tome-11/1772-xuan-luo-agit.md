@@ -6,7 +6,7 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1772 - Xuan Luo Acts!"
 slug: xuan-luo-agit
 ---
-Divers sorts convergèrent tandis que le Souverain s'avançait. Il se montrait extrêmement prudent. Bien qu'il ne connaisse pas grand-chose de la Tombe Antique, il avait appris certains de ses secrets lorsqu'il avait chargé le Daoïste aux Sept Couleurs de sauver Miao Yin et sa compagnie.
+Divers sorts convergèrent tandis que le Souverain s'avançait. Il se montrait extrêmement prudent. Bien qu'il ne connaisse pas grand-chose de la Tombe Antique, il avait appris certains de ses secrets lorsqu'il avait emprunté la puissance du Daoïste aux Sept Couleurs pour sauver Miao Yin et sa compagnie.
 
 C'est ce qui lui avait permis d'arriver si rapidement. Il avait été témoin de la féroce bataille dans la deuxième fleur et avait vu Wang Lin utiliser l'arc à trois reprises. Fort de sa compréhension de Wang Lin et de ses propres analyses, il était certain que ce dernier n'avait plus la force de bander l'arc une fois de plus!
 
@@ -16,11 +16,11 @@ Dans son esprit, sans une certitude absolue, Wang Lin ne mettrait jamais en plac
 
 Ayant tiré cette conclusion, le Souverain pensait que c'était une opportunité inestimable; ayant confirmé que Wang Lin était gravement blessé, c'était le moment idéal pour l'assassiner, se venger et s'emparer de sa troisième âme!
 
-C’est pourquoi il s’était précipité à pleine vitesse pour poursuivre Wang Lin dans la quatrième fleur, pendant que le Vieux Fantôme Zhan traquait le Daoïste aux Sept Couleurs. Il avait mis à profit ses connaissances de la Tombe Antique, acquises auprès de Miao Yin et sa compagnie, pour atteindre l'avant-dernier étage avant tout le monde.
+C’est pourquoi il s’était précipité à pleine vitesse pour poursuivre Wang Lin dans la quatrième fleur, pendant que le Vieux Fantôme Zhan traquait le Daoïste aux Sept Couleurs pour l'absorber. Il avait mis à profit ses connaissances de la Tombe Antique, acquises auprès de Miao Yin et sa compagnie, pour atteindre l'avant-dernier étage avant tout le monde.
 
 Il s'attendait à ce que, mis à part Wang Lin, la troisième concubine arrive avant lui. Il n'avait pas prévu que Yun Yifeng soit plus rapide. De toute évidence, Yun Yifeng possédait ses propres méthodes et sa propre chance.
 
-À cet instant, dès qu'il apparut, il fit face à un sort qui entra en collision avec son Sort d'Origine. La puissance de l'attaque fut déviée et le Souverain recula de trois pas. Lorsqu'il regarda autour de lui, son expression devint sombre.
+À cet instant, dès qu'il apparut, il fit face à un sort qui entra en collision avec la puissance du soleil naissant qu'il avait invoqué. La puissance de l'attaque fut déviée et le Souverain recula de trois pas. Lorsqu'il regarda autour de lui, son expression devint sombre.
 
 Yun Yifeng s'avança et les huit lames tailladèrent vers le Souverain. Ayant perdu face à Wang Lin, il ne reviendrait pas sur sa parole: tant qu'ils se trouveraient au cœur du monde caverneux, il obéirait aux ordres de Wang Lin.
 
@@ -32,9 +32,9 @@ Tous deux attaquèrent le Souverain simultanément!
 
 La combinaison des « Huit Lames qui Coupent l'Âme » avec la culture de Yun Yifeng dégageait une puissance phénoménale. Le Souverain agita sa manche et une lumière aux sept couleurs vola vers Yun Yifeng.
 
-Des grondements tonitruants résonnèrent. Yun Yifeng, déjà blessé par Wang Lin, vit les sept portes dorées s'effondrer. Il cracha du sang et, les dents serrées, poussa un rugissement en tranchant l'air. Sept des lames se brisèrent lors de la collision avec la lumière aux sept couleurs, mais la huitième était sur le point de percer cette lumière pour atteindre le Souverain.
+Des grondements tonitruants résonnèrent. Yun Yifeng, déjà blessé par Wang Lin, vit les sept portes dorées s'effondrer. Il cracha du sang et, les dents serrées, poussa un rugissement en tranchant l'air. Sept des lames se brisèrent lors de la collision avec la lumière aux sept couleurs, mais la huitième perça cette lumière et s'abattit devant le Souverain.
 
-Le corps du Souverain trembla sous des échos de tonnerre tandis qu'il reculait de trois pas. Il leva soudain les yeux vers les neuf épées volantes dorées, imprégnées d'un puissant lignage céleste, qui convergeaient vers lui.
+Le corps du Souverain trembla sous des échos de tonnerre tandis qu'il reculait de trois pas. Il leva soudain les yeux vers les neuf épées volantes dorées, imprégnées d'un puissant souffle immortel de lignage, qui convergeaient vers lui.
 
 Elles étaient extrêmement rapides; à l'instant même où le Souverain recula, elles furent sur lui. Le Souverain leva la main et joignit son pouce et son index pour former un cercle face à Tang Shan.
 
@@ -42,7 +42,7 @@ Une lumière dorée émana du cercle formé par sa main. Cette lumière sembla e
 
 Les perles dorées au poignet de Tang Shan brillèrent et sept portes dorées apparurent pour résister à la lumière aux sept couleurs. Des grondements tonitruants retentirent alors que du sang s'écoulait du coin de sa bouche, et elle battit en retraite rapidement.
 
-« Même blessé, tu oses m'attaquer par surprise?! » Le Souverain s'avança, mais à cet instant, la main de Wang Lin saisit le vide. Il utilisa le Déchirure du Ciel, et la faille reliant le ciel et la terre réapparut. Elle chargea vers le Souverain!
+« Des soldats défaits et des faibles osent m'attaquer par surprise devant moi?! » Le Souverain s'avança, mais à cet instant, la main de Wang Lin saisit le vide. Il utilisa le Déchirure du Ciel, et la faille reliant le ciel et la terre réapparut. Elle chargea vers le Souverain!
 
 Tout cela se produisit en un éclair. Au moment même où le Souverain tentait de contrer les attaques de Tang Shan et de Yun Yifeng, la faille se rapprocha.
 
@@ -50,7 +50,7 @@ Le Souverain pouvait ignorer Yun Yifeng blessé et la troisième concubine, mais
 
 « Trois Dao Souverains Destructeurs! Premier Dao de Destruction de l'Esprit! » Le cercle doré devant le Souverain brilla et percuta le Déchirure du Ciel.
 
-« Deuxième Dao de Destruction du Fantôme! » La robe du Souverain s'étendit et un soleil apparut devant lui. La loi d'origine se propagea depuis son corps, lui donnant l'apparence d'un dieu céleste!
+« Deuxième Dao de Destruction du Fantôme! » La robe du Souverain s'étendit et un soleil apparut derrière lui. La loi d'origine se propagea depuis son corps, lui donnant l'apparence d'un dieu céleste!
 
 « Troisième Dao de Destruction du Dieu! » Le Souverain mordit le bout de sa langue et cracha du sang. Ce dernier devint une empreinte dorée géante qui s'abattit vers la faille créée par Wang Lin!
 
@@ -72,7 +72,7 @@ Il vit qu'aucune trace de panique ne brillait dans les yeux de Wang Lin. Alors q
 
 Après le deuxième pas, il se trouvait à moins de 300 pieds de lui.
 
-Au troisième pas, Wang Lin apparut aux côtés de Xuan Luo. Il n'était pas devant lui, mais derrière lui. Après ces trois pas, Wang Lin s'assit. Si l'on pouvait voir la scène, elle paraîtrait extrêmement étrange.
+Au troisième pas, Wang Lin apparut aux côtés de Xuan Luo. Il n'était pas devant lui, mais derrière lui. Après ces trois pas, Wang Lin s'assit. Si Wang Lin avait pu voir Xuan Luo, la scène lui aurait paru extrêmement étrange.
 
 Xuan Luo se retourna pour contempler Wang Lin. Au même moment, une fois assis, Wang Lin fixa le vide devant lui.
 
@@ -102,8 +102,8 @@ Si les deux étaient simplement surpris, le Souverain, lui, était pétrifié, s
 
 Il n'avait jamais ressenti une telle peur. Quelle que soit la panique qu'il avait éprouvée auparavant, rien ne pouvait être comparé à cet instant. Il ne comprenait pas, ne pouvait imaginer, ou plus exactement, il n'osait même pas l'envisager.
 
-« C'est un prodige que seul le frère aîné de Maître... l'un des Neuf Soleils du Continent Astral Immortel pourrait accomplir... » Le cœur du Souverain vacilla. Il était totalement terrifié.
+« C'est un prodige que seul le frère aîné de Maître... les Neuf Soleils du Continent Astral Immortel, les neuf grands Maîtres Célestes, pourraient accomplir... » Le cœur du Souverain vacilla. Il était totalement terrifié.
 
 Au loin, Yun Yifeng vit l'expression du Souverain et observa l'empreinte dorée flottant devant Wang Lin. Ses yeux se remplirent de terreur, comme s'il venait de concevoir une idée terrifiante, et il baissa soudainement la tête.
 
-Cependant, son expression fut clairement perçue par Wang Lin, qui restait extrêmement attentif.
+Cependant, son expression fut parfaitement vue par Wang Lin, qui l'observait délibérément.

@@ -10,7 +10,7 @@ Dans la partie nord-est du continent des Hautes Montagnes se trouvait une chaîn
 
 Le village n'était pas très peuplé, comptant seulement quelques centaines d'habitants. La plupart étaient des chasseurs qui tiraient leur subsistance de la forêt dense et grouillante de bêtes sauvages. À l'origine, ce n'était pas un village, mais simplement une terre désolée où les chasseurs prenaient leurs repos.
 
-On ignorait depuis combien de temps, mais la famille d'un fonctionnaire était venue s'installer ici pour fuir la ville. Au fil des ans, le village s'était ainsi formé.
+On ignorait depuis combien de temps, mais un groupe de fonctionnaires venus se réfugier loin de la capitale s'était installé ici avec leurs familles. Au fil des ans, le village s'était ainsi formé.
 
 À l'extrémité ouest du village se trouvait une maison entourée de clôtures. Une jeune fille, vêtue de vêtements en lin rapiécés, nourrissait la volaille.
 
@@ -22,13 +22,13 @@ Tout en nourrissant les oiseaux, la jeune fille riait et lançait des paroles ve
 
 « Est-ce parce que mon père est le chasseur le plus puissant du village? J'ai entendu dire que beaucoup de femmes voulaient sortir avec lui à l'époque », sourit la jeune fille. Elle était très mignonne; si son apparence n'était pas d'une beauté exceptionnelle, elle dégageait un tempérament pur et adorable.
 
-« Qui t'a raconté cela? » Une femme sortit de la maison. Ses vêtements étaient simples, mais cela ne pouvait masquer sa beauté. Ses yeux s'écarquillèrent tandis qu'elle feignait la colère, un pot de légumes à la main.
+« Qui t'a raconté cela? » Une femme sortit de la maison. Ses vêtements étaient simples, mais cela ne pouvait masquer sa beauté. Ses yeux s'écarquillèrent tandis qu'elle feignait la colère, une spatule de cuisine à la main.
 
 La jeune fille allait répondre lorsqu'un rire chaleureux retentit près du portail.
 
 « C'est moi qui l'ai dit. » Le portail fut poussé et un homme d'âge mûr, à l'allure robuste, entra. Il portait un arc et des flèches, ainsi qu'une petite bête. Cependant, du sang séché maculait sa jambe; on ignorait s'il appartenait à la proie ou à lui-même.
 
-« Papa! » Surprise, la jeune fille lâcha immédiatement son seau pour courir vers lui.
+« Papa! » Surprise, la jeune fille lâcha immédiatement son panier pour courir vers lui.
 
 « Oh, c'est un léopard! Sa peau est magnifique. C'est génial! » Les yeux de la jeune fille s'illuminèrent et elle sauta de joie.
 
@@ -64,11 +64,11 @@ Pourtant, la famille ne remarqua rien d'anormal dans le comportement du chien. L
 
 « Je ne veux pas devenir une divinité céleste. J'ai l'impression d'avoir passé une vie entière dans cet état, mais je n'étais pas du tout heureuse. Maintenant, c'est bien mieux. Ce n'était qu'un rêve, je ne veux plus être une divinité céleste. Je resterai avec Papa et Maman pour le reste de ma vie. » Les paroles de la jeune fille étaient d'une grande gravité.
 
-Ces mots surprisrent Wang Lin, qui afficha une expression complexe. Il observa le sourire radieux de la fillette, puis le calme du village de montagne. Après un long silence, Wang Lin lança un dernier regard profond avant de disparaître dans les cieux.
+Ces mots surprirent Wang Lin, qui afficha une expression complexe. Il observa le sourire radieux de la fillette, puis le calme du village de montagne. Après un long silence, Wang Lin lança un dernier regard profond avant de disparaître dans les cieux.
 
 « Peut-être est-ce là la vie qu'elle souhaitait... »
 
-Cette nuit-là, elle fit un nouveau rêve. Dans ce rêve, elle portait un autre nom: Zhou Ru. Elle était accompagnée d'une silhouette noire nommée Petit Blanc. Elle passait son temps à taquiner cette silhouette et à lui faire faire des équilibres sur les mains...
+Cette nuit-là, elle fit un nouveau rêve. Dans ce rêve, elle portait un autre nom: Zhou Ru. Elle était accompagnée d'un tigre noir nommé Petit Blanc. Elle passait son temps à taquiner ce tigre et à lui faire faire le poirier...
 
 Elle avait aussi un oncle, qui était son parent le plus proche.
 
@@ -88,7 +88,7 @@ Une silhouette solitaire émergea des ténèbres et contempla le palais en contr
 
 Ce n'est que lorsque la personne posa le pied sur l'esplanade du palais que les lumières retrouvèrent leur éclat normal.
 
-Wang Lin contemplait les lieux. Autrefois, il avait failli y mourir et n'avait pu s'échapper avec le fou. Il n'avait pu que regarder ce dernier sombrer dans un sommeil éternel pour devenir une montagne destinée à réprimer les 72 continents.
+Wang Lin contemplait les lieux. Autrefois, il avait failli y mourir et n'avait pu s'échapper avec le fou. Il n'avait pu que regarder ce dernier sombrer dans un sommeil éternel pour devenir une montagne destinée à réprimer les esprits venus d'au-delà du ciel des 72 continents.
 
 « Quand je suis parti, j'ai juré que si je revenais, je réveillerais le fou! Plus personne ne pourra m'arrêter! » murmura Wang Lin en frappant le sol de son pied.
 

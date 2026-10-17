@@ -14,7 +14,7 @@ Les silhouettes de Wang Lin et de ses compagnons apparurent à la surface. C'ét
 
 Par conséquent, Wang Lin fut contraint au combat!
 
-Toutefois, Wang Lin disposait d'un avantage de taille. Yun Yifeng, Tang Shan et Tuo Sen l'avaient aidé à blesser gravement le Souverain. Conjugué aux déductions précédentes de Wang Lin, il était en mesure de porter un coup dévastateur à l'esprit du Souverain.
+Toutefois, Wang Lin disposait d'un avantage de taille. Yun Yifeng, Tang Shan et Tuo Sen l'avaient aidé à blesser le Souverain. Conjugué aux déductions et aux tests précédents de Wang Lin, ainsi qu'à l'obtention du sceau d'or, il était en mesure de porter un coup dévastateur à l'esprit du Souverain.
 
 Selon diverses conditions, la situation parfaite pour éliminer le Souverain venait de se présenter. Le plus crucial était cette troisième personne que Wang Lin avait perçue après Tuo Sen et le Souverain!
 
@@ -36,7 +36,7 @@ La lumière bleue pénétra dans le gouffre et s'élança dans les airs d'un ges
 
 « Je peux tenir trois respirations! » Tandis que le Maître du Dao Rêve Bleu parlait, il s'avança dans la lumière bleue. À cet instant précis, l'aura environnante fondit sur le Souverain.
 
-Trois rayons de lumière bleue jaillirent vers Yun Yifeng et Tang Shan, les aspirant dans le flux azur. Le dernier rayon enveloppa Tuo Sen et l'entraîna également à l'intérieur.
+Trois rayons de lumière bleue se détachèrent; les deux premiers s'enroulèrent autour de Yun Yifeng et de Tang Shan, les aspirant dans le flux azur. Le dernier rayon enveloppa Tuo Sen et l'entraîna également à l'intérieur.
 
 Les quatre fusionnèrent avec la lumière bleue. Au moment même où ils disparurent dans cet éclat, ils se transformèrent en quatre runes qui volèrent vers le Souverain.
 
@@ -46,11 +46,11 @@ Guidées par lui et soutenues par les trois autres, ces quatre runes franchirent
 
 Dès l'impact, le Souverain chancela, prisonnier d'une lumière bleue qui scellait tout son être! Bien que ses mouvements fussent entravés, il conservait une puissance immense. Tandis que la lumière bleue l'encerclait, un éclat doré recouvrit son corps. De loin, le Souverain paraissait entièrement de métal précieux!
 
-Ce bouclier doré pourrait le protéger de blessures mortelles pendant les quelques respirations de son scellement!
+Ce bouclier doré pourrait le protéger de blessures graves pendant les quelques respirations de son scellement!
 
 La première respiration des trois!
 
-Wang Lin n'hésita pas. Dès que le Souverain fut immobilisé par la lumière bleue, il s'avança et apparut devant lui. Il leva la main droite et la Voile Fantôme se manifesta. Le doigt de Wang Lin transperça la lumière bleue pour venir se poser entre les sourcils du Souverain.
+Wang Lin n'hésita pas. Dès que le Souverain fut immobilisé par la lumière bleue, il s'avança et apparut devant lui. Il leva la main droite et un visage spectral illusoire se manifesta sur son index. Le doigt de Wang Lin transperça la lumière bleue pour venir se poser entre les sourcils du Souverain.
 
 « Dao du Rêve! »
 
@@ -60,11 +60,11 @@ Le Dao du Rêve et le visage spectral fusionnèrent pour s'engouffrer dans le So
 
 Empruntant le Dao du Rêve, Wang Lin pénétra dans les souvenirs du Souverain et établit une connexion. Il ne chercha pas à altérer la mémoire du Souverain, mais pointa la montagne entourée de brume noire.
 
-« Je sacrifie cette âme à Yi Si! » Wang Lin savait qu'il n'était pas de taille face au Souverain, mais il pouvait utiliser un couteau pour tuer, et ce couteau était Yi Si!
+« Je sacrifie cette âme, qu'elle fusionne avec le corps de Yi Si! » Wang Lin savait qu'il n'était pas de taille face au Souverain, mais il pouvait utiliser un couteau pour tuer, et ce couteau était Yi Si!
 
 Tandis que ses paroles s'élevaient, la troisième respiration survint. La brume autour de la montagne tourbillonna dans un rugissement fracassant qui fit trembler les cieux.
 
-Simultanément, l'âme du Souverain commença à se dissiper rapidement de son corps, comme si elle était dévorée. Les yeux du Souverain se révulsèrent et il poussa un cri violent alors que son corps tressaillait. Les trois respirations s'écoulèrent et les quatre sceaux sur son corps se dissipèrent instantanément.
+Simultanément, l'âme du Souverain commença à se dissiper rapidement de son corps, comme si elle était dévorée. Les yeux du Souverain exprimèrent la lutte et il poussa un cri violent alors que son corps tressaillait. Les trois respirations s'écoulèrent et les quatre sceaux sur son corps se dissipèrent instantanément.
 
 Une fois les sceaux levés, le Maître du Dao Rêve Bleu, Yun Yifeng, Tang Shan et Tuo Sen émergèrent de la lumière bleue environnante.
 
@@ -92,11 +92,11 @@ Rêve Bleu et ses compagnons observèrent attentivement la brume noire entourant
 
 Mais la brume continuait de s'accumuler, non pas sur Wang Lin, mais à sa droite. Une ombre y était accroupie. Lorsque la condensation fut totale, l'ombre devint limpide pour tous.
 
-Le visage de Tang Shan pâlit instantanément et elle recula brusquement de plusieurs pas. Même Yun Yifeng eut un haut-le-cœur, les yeux écarquillés par la peur.
+Le visage de Tang Shan pâlit instantanément et elle recula brusquement de plusieurs pas. Même Yun Yifeng inspira brusquement, les yeux emplis d'effroi.
 
 Le Maître du Dao Rêve Bleu et Tuo Sen étaient plus stoïques, mais leurs cœurs tremblèrent à la vue de cette silhouette.
 
-C'était un nain à la peau pourpre. Il se tenait nu, accroupi là. Son crâne était chauve et son corps d'une maigreur extrême.
+C'était un nain à la peau d'un pourpre noirâtre. Il se tenait nu, accroupi là. Son crâne était chauve et son corps d'une maigreur extrême.
 
 Sa langue, longue de sept pieds, pendait et oscillait lamentablement. Ses yeux étaient si sombres qu'ils semblaient absorber la lumière environnante, déformant légèrement sa silhouette.
 
@@ -110,7 +110,7 @@ Wang Lin paraissait calme, mais son cœur était tout aussi bouleversé. À trav
 
 Il lui fallut un long moment pour réprimer le tremblement de son âme. Il savait que le lien qu'il entretenait avec la marionnette était ténu et difficile à maîtriser. Pour obtenir un contrôle total, il devrait continuer à sacrifier des âmes.
 
-« Cette chose est différente du souvenir de la troisième âme... Selon les souvenirs, une fois apparue, elle devrait posséder la puissance d'un cultivateur au sommet de la phase initiale de la Tribulation du Vide ayant traversé les neuf Tribulations Arcanes. »
+« Cette chose ne correspond pas tout à fait à la description de la troisième âme du Souverain Céleste aux Sept Couleurs... Selon les souvenirs du Souverain Céleste aux Sept Couleurs, une fois apparue, elle devrait posséder la puissance d'un cultivateur au sommet de la phase initiale de la Tribulation du Vide ayant traversé les neuf Tribulations Arcanes. »
 
 « Pourtant, bien que la marionnette soit extrêmement puissante, elle n'atteint pas encore le niveau d'un véritable cultivateur de la Tribulation du Vide. Elle équivaut à quelqu'un ayant traversé seulement quelques Tribulations Arcanes... » Bien que des doutes l'assaillent, Wang Lin ne trouvait aucune réponse.
 

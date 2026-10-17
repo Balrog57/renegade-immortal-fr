@@ -6,7 +6,7 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: Chapter 1933 - Change
 slug: changement
 ---
-La majeure partie de la surface de la Mer Montagne était scellée par une encre noire et épaisse. Cette encre était extrêmement puissante; elle résultait de la formation d'Exalté Empyréen Hai Zi et ne pouvait être brisée facilement.
+La majeure partie de la surface de la Mer Montagneuse était scellée par une encre noire et épaisse. Cette encre était extrêmement puissante; elle résultait de la formation d'Exalté Empyréen Hai Zi et ne pouvait être brisée facilement.
 
 Au cœur des eaux, Wang Lin et Exalté Empyréen Hai Zi étaient engagés dans un combat acharné!
 
@@ -16,11 +16,11 @@ Bien que Wang Lin fût stupéfait, il résista en utilisant la charge du Taureau
 
 Lors de l'impact, des grondements tonitruants résonnèrent à travers les eaux, comme si la mer elle-même allait se déchirer.
 
-Le visage d'Exalté Empyréen Hai Zi devint pâle et elle fut projetée en arrière. Il s'agissait d'un sort que son maître lui avait enseigné, d'une puissance extrême. Bien qu'elle ne maîtrisât pas encore le second style, cela faisait en sorte que très peu de personnes sous le rang d'Ascendant ne puissent rivaliser avec elle!
+Le visage d'Exalté Empyréen Hai Zi devint pâle et elle fut projetée en arrière. Il s'agissait d'un sort que son maître lui avait enseigné, d'une puissance extrême. Bien qu'elle ne maîtrisât pas encore le second style, cela faisait en sorte que très peu de personnes sous le rang d'Ascendant pouvaient rivaliser avec elle!
 
 Cependant, elle venait de tomber sur Wang Lin!!
 
-Wang Lin recula également, la respiration rauque. Alors que l'ombre du Taureau Céleste s'effondrait, l'armure spirituelle qui couvrait son corps montrait des signes de dissipation.
+Wang Lin recula également, la respiration rauque. Alors que l'ombre du Taureau Céleste s'effondrait, l'armure d'âme qui couvrait son corps montrait des signes de dissipation.
 
 Au moment même où il reculait, les yeux de Wang Lin s'illuminèrent. Il leva la main droite et quatre-vingt-dix-sept images rémanentes apparurent. Il pointa férocement du doigt l'Exalté Empyréen Hai Zi en pleine retraite!!
 
@@ -66,9 +66,9 @@ Les ondulations dans la mer étaient en réalité une paume brisée qui s'était
 
 « Durant toute ma vie, je n'ai été ni un vilain, ni un gentleman. J'ai toujours simplement cherché à savoir si je pouvais vivre avec mes décisions. Il n'y a aucune haine entre Exalté Empyréen Hai Zi et moi. C'est son antre, et il est normal qu'elle le garde! » Wang Lin était d'une rapidité fulgurante et parcourut instantanément 10 000 pieds.
 
-« Le sceau de la Mer Montagne est apparu à cause de moi, et en cet instant, c'est moi qui l'ai immobilisée. Si je fuis maintenant en l'abandonnant, je prendrai une décision indigne de mon cœur! »
+« Le sceau de l'Arbre de la Mer Montagneuse est apparu à cause de moi, et en cet instant, c'est moi qui l'ai immobilisée. Si je fuis maintenant en l'abandonnant, je prendrai une décision indigne de mon cœur! »
 
-« Si je ne peux pas rester fidèle à mes principes, quel droit ai-je de défier les cieux et de ressusciter Wang Er? Quelle foi aurais-je pour atteindre le sommet?! Peut-être que d'autres y parviendront, mais moi, Wang Lin, je ne le peux pas! » Les yeux de Wang Lin brillaient d'une détermination farouche. Il chargea vers Exalté Empyréen Hai Zi!!
+« Si je ne peux pas rester fidèle à mes principes, quel droit ai-je de défier les cieux et de ressusciter Wan Er? Quelle foi aurais-je pour atteindre le sommet?! Peut-être que d'autres y parviendront, mais moi, Wang Lin, je ne le peux pas! » Les yeux de Wang Lin brillaient d'une détermination farouche. Il chargea vers Exalté Empyréen Hai Zi!!
 
 Son action fut perçue par Exalté Empyréen Hai Zi, qui était plongée dans le désespoir et la stupeur.
 
@@ -78,7 +78,7 @@ La paume brisée charriait une férocité, une soif de sang et une folie indicib
 
 Wang Lin pouvait utiliser le sort « Arrête », mais il ne pourrait pas le dissiper à moins que le niveau de culture de la cible ne soit bien inférieur au sien. Exalté Empyréen Hai Zi étant une Exalté Empyréen, son niveau de culture était en réalité bien supérieur à celui de Wang Lin. Il ne pouvait donc pas briser l'effet en peu de temps.
 
-La Mer Montagne ayant été scellée par elle, la téléportation était impossible. La paume brisée était sur le point de dévorer Exalté Empyréen Hai Zi. Le désespoir emplissait ses yeux quand Wang Lin laissa échapper un rugissement et que les cinq Veines Magiques de son corps entrèrent en éruption. Elles tournèrent à une vitesse folle, propulsant Wang Lin plus vite qu'il ne l'avait jamais été auparavant!!
+La Mer Montagneuse ayant été scellée par elle, la téléportation était impossible. La paume brisée était sur le point de dévorer Exalté Empyréen Hai Zi. Le désespoir emplissait ses yeux quand Wang Lin laissa échapper un rugissement et que les cinq Veines Magiques de son corps entrèrent en éruption. Elles tournèrent à une vitesse folle, propulsant Wang Lin plus vite qu'il ne l'avait jamais été auparavant!!
 
 Cette vélocité provenait de l'Art Magique Rapide utilisé à pleine puissance. Tandis que Wang Lin avançait, 97 images rémanentes apparurent, suivies d'une 98e!!
 

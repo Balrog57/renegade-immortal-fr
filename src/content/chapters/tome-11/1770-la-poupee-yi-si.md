@@ -14,11 +14,11 @@ C'était précisément dans cette avant-dernière couche que Wang Lin avait ress
 
 La Poupée Yi Si!
 
-Une fois qu'il serait entré au cœur de la grotte, il les sacrifierait en suivant la méthode laissée par le Souverain Céleste aux Sept Couleurs. Après chaque sacrifice, il sentirait son lien avec elle se renforcer.
+Depuis son entrée au cœur de la grotte, chaque fois qu'il tuait quelqu'un, il sacrifiait aussitôt son âme en suivant la méthode laissée dans la troisième âme du Souverain Céleste aux Sept Couleurs. Après chaque sacrifice, un lien de plus apparaissait entre lui et la Poupée Yi Si.
 
 Il avait tué beaucoup de gens à ce stade et, grâce à cette connexion mystérieuse, Wang Lin était sûr à 80 % que cette aura terrifiante appartenait à Yi Si!
 
-« Le but de la Tombe Antique est probablement de nourrir la poupée. Après avoir tué Ye Mo, le Souverain Céleste aux Sept Couleurs s'est servi de lui pour achever cette poupée. » Les yeux de Wang Lin brillèrent. Grâce aux souvenirs de la troisième âme, il avait deviné la majeure partie de la vérité.
+« Le but de la Tombe Antique est probablement de nourrir la poupée. Cet objet est le fruit de toute une vie de raffinement du Souverain Céleste aux Sept Couleurs, et c'est après avoir tué Ye Mo que la poupée a atteint son plein accomplissement. » Les yeux de Wang Lin brillèrent. Grâce aux souvenirs de la troisième âme, il avait deviné la majeure partie de la vérité.
 
 À mesure qu'il avançait, le brouillard s'éclaircissait progressivement. Il se dirigeait vers l'entrée de la couche suivante. En approchant, la brume devint si fine qu'elle ne pouvait plus obstruer sa vue, révélant une terre noire sous ses pieds.
 
@@ -82,11 +82,11 @@ Dès que le rugissement retentit, les mains de Wang Lin formèrent un sceau qu'i
 
 « C'est elle... » Le corps de Wang Lin vacilla et disparut alors qu'il se dissimulait.
 
-Peu après, une lumière dorée jaillit et une gigantesque porte dorée flotta dans les airs. Derrière la porte se tenait la troisième concubine. Son visage était pâle et du sang coulait du coin de sa bouche.
+Peu après, une lumière dorée jaillit et une gigantesque porte dorée flotta dans les airs. Derrière la porte, la troisième concubine était assise en tailleur. Son visage était pâle et du sang coulait du coin de sa bouche.
 
 Elle regardait la montagne avec effroi. Elle ne s'attendait pas à ce que cette couche de la Tombe Antique abrite une chose aussi terrifiante.
 
-Elle serra les dents. Profitant d'un moment de silence de la montagne, elle envoya un message:
+Elle serra les dents et se leva. Profitant d'un moment de silence de la montagne, elle envoya un message:
 
 « Wang Lin, je sais que vous êtes là! Je n'ai aucune intention malveillante. Je pense que mes pouvoirs et mes sorts pourraient vous être utiles. Veuillez apparaître! »
 

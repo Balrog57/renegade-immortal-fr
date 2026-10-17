@@ -20,7 +20,7 @@ Wang Lin hocha la tête et réfléchit. Un instant plus tard, il regarda Du Qing
 
 Wang Lin posa quelques questions supplémentaires, puis afficha un air de lassitude. Du Qing était aussi rusé qu'un démon, comment ne pas deviner l'intention de Wang Lin? Il se leva rapidement pour partir et, avant de s'en aller, prononça un serment:
 
-« Cher Cultivateur, soyez assuré. Ce vieil homme mobilisera l'ensemble de la secte pour trouver la veine de feu terrestre. Si elle peut être extraite, je ferai en sorte que les disciples vous l'apportent. »
+« Cher Cultivateur, soyez assuré. Ce vieil homme mobilisera l'ensemble de la secte pour trouver les veines de feu terrestre, secondaires et enfantines. Si leur âme peut être extraite, je ferai en sorte que les disciples vous l'apportent. »
 
 Après le départ de Du Qing, il émit immédiatement plusieurs décrets, conformément à sa promesse envers Wang Lin. Les trois anciens dirigèrent chacun un groupe de disciples de la Secte du Dragon Bleu dans trois directions différentes.
 
@@ -30,19 +30,19 @@ Wang Lin était assis seul à l'intérieur de la grotte plutôt luxueuse, la lum
 
 Il réfléchissait encore, et les paroles de Du Qing résonnaient dans son esprit.
 
-« Je dois aussi former un corps d'essence véritable pour mon essence de tonnerre... Je ne peux pas placer tous mes espoirs dans le bassin de Dong Lin... Après tout, les souvenirs de Su Dao comportent peut-être une part d'exagération...
+« Je dois aussi former un corps véritable d'essence pour mon essence de tonnerre... Je ne peux pas placer tous mes espoirs dans le bassin de Dong Lin... Après tout, les souvenirs de Su Dao comportent peut-être une part d'exagération...
 
-« Si je veux former mon corps d'essence véritable de tonnerre, j'aurai besoin d'une immense quantité de tonnerre... Puisque le Continent Astral Immortel possède l'essence de feu terrestre, il doit nécessairement exister une essence de tonnerre...
+« Si je veux former mon corps véritable d'essence de tonnerre, j'aurai besoin d'une immense quantité de tonnerre... Puisque le Continent Astral Immortel possède des veines de feu terrestre, il doit nécessairement exister des veines de tonnerre...
 
-« Cependant, pour l'instant, la priorité est de former mon corps d'essence véritable de feu... Je devrai peut-être me rendre personnellement à la Secte de la Grande Âme... » Wang Lin fronça les sourcils. Pour lui, la Secte de la Grande Âme était un colosse difficile à ébranler.
+« Cependant, pour l'instant, la priorité est de former mon corps véritable d'essence de feu... Je devrai peut-être me rendre personnellement à la Secte de la Grande Âme... » Wang Lin fronça les sourcils. Pour lui, la Secte de la Grande Âme était un colosse difficile à ébranler.
 
-« Du Qing a dit que la culture de l'ancêtre de la Secte de la Grande Âme est insondable et qu'il a également formé un corps d'essence véritable... » Wang Lin se frotta les tempes et soupira.
+« Du Qing a dit que la culture de l'ancêtre de la Secte de la Grande Âme est insondable et qu'il a également formé un corps véritable d'essence... » Wang Lin se frotta les tempes et soupira.
 
 « Mon niveau de culture n'est pas assez élevé... Cependant, ce n'est pas que je manque de méthodes... » Les yeux de Wang Lin s'illuminèrent et il pensa à la Secte Gui Yi. Après tout, ce vieil homme nommé Ma connaissait son lien avec Xuan Luo.
 
 Bientôt, Wang Lin abandonna l'idée de solliciter la Secte Gui Yi. Il y avait trop d'inconnues, et il n'aimait pas utiliser le nom d'autrui pour manipuler les autres.
 
-« Je dois compter sur moi-même. Bien que ce soit difficile, si je parviens à utiliser la Déformation Spatiale sur le Continent Astral Immortel, alors cela ne devrait pas être impossible... » Wang Lin ferma les yeux et cessa de songer à son corps d'essence véritable. Il commença lentement à chercher des moyens de fusionner avec le monde.
+« Je dois compter sur moi-même. Bien que ce soit difficile, si je parviens à utiliser la Déformation Spatiale sur le Continent Astral Immortel, alors cela ne devrait pas être impossible... » Wang Lin ferma les yeux et cessa de songer à son corps véritable d'essence. Il commença lentement à chercher des moyens de fusionner avec le monde.
 
 Ce sort était crucial pour ses actions futures. Une fois qu'il l'aurait maîtrisé à nouveau, ses chances augmenteraient considérablement.
 
@@ -114,7 +114,7 @@ Toutefois, Wang Lin sentait que son avatar dormait et qu'il ne pourrait être é
 
 Le dernier jour du septième mois, l'Âme Originelle de Wang Lin s'étiolait faute d'avoir pu récupérer pendant si longtemps. C'est à cet instant précis que ses yeux projetèrent une lumière éclatante.
 
-Quelque part dans le vide séparant la grotte du Continent Astral Immortel, une immense coquille de pierre flottait. À l'intérieur siégeait l'avatar endormi de Wang Lin, et soudain, celui-ci ouvrit les yeux.
+Quelque part dans le vide séparant le monde des grottes du Continent Astral Immortel, une immense coquille de pierre flottait. À l'intérieur siégeait l'avatar endormi de Wang Lin, et soudain, celui-ci ouvrit les yeux.
 
 Au moment où l'avatar ouvrit les yeux, Du Qing attendait avec mépris de voir Wang Lin se ridiculiser, mais son expression changea brusquement. Il afficha la même horreur qu'il avait montrée sept mois auparavant!
 

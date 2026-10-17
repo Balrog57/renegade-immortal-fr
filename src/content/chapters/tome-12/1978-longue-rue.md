@@ -10,7 +10,7 @@ Le vent et la neige gémissaient comme les pleurs d'une femme. La lune était oc
 
 À l'instant même où Wang Lin et l'Exalté Empyréen Hai Zi s'arrêtèrent, la neige devant lui tomba avec une intensité accrue. Sous l'effet d'une force invisible, 9 999 flocons semblèrent converger devant Wang Lin pour former un motif carré!
 
-Dès que le carré apparut, il fonça vers Wang Lin et Hai Zi. Encore plus de neige s'accumula, et sa taille s'étendit à des milliers de pieds en un clin d'œil.
+Dès que le carré apparut, il fonça vers Wang Lin et Hai Zi. Encore plus de neige s'accumula, et sa taille s'étendit à près de 1 000 pieds en un clin d'œil.
 
 Simultanément, un motif triangulaire se forma derrière Wang Lin et l'Exalté Empyréen Hai Zi. Empli d'une intention meurtrière, il chargea après avoir absorbé une immense quantité de flocons de neige.
 
@@ -26,19 +26,19 @@ Si le plan de l'adversaire réussissait, cette affaire ébranlerait tout le clan
 
 Elle savait qu'il n'était pas temps de s'expliquer; les mots étaient inutiles face à l'action. En entendant la confiance de Wang Lin, elle ressentit une pointe de chaleur dans son cœur, mais son visage resta marqué par une intention meurtrière dirigée vers l'auteur de ce piège!
 
-Sans la moindre hésitation, l'Exalté Empyréen Hai Zi fit volte-face, lui confiant ses arrières. Elle chargea vers le motif déformé à trois côtés!
+Sans la moindre hésitation, l'Exalté Empyréen Hai Zi fit volte-face, lui confiant ses arrières. Elle chargea vers le motif triangulaire!
 
-Wang Lin fit trois pas vers le carré devant lui. À cet instant, le tatouage du Taureau Céleste apparut autour de son corps. Face à cette situation, il utilisa toute sa puissance sans retenue!
+Wang Lin fit trois pas vers le carré devant lui. À cet instant, le totem de l'âme du Taureau Céleste, sur son visage, se répandit sur tout son corps. Face à cette situation, il utilisa toute sa puissance sans retenue!
 
 D'un seul coup de poing, 98 images rémanentes surgirent. C'était un spectacle saisissant dans cette rue déserte. Ces 98 images lancèrent toutes des coups! Une fois fusionnées au corps de Wang Lin, elles équivalaient à la fusion de 99 sorts!
 
-Ce coup de poing contenait 23 sorts! Avec une telle concentration, il ne pouvait déployer la totalité de la puissance de 99 fois le multiplicateur; une partie de la force serait inévitablement perdue.
+Ce coup de poing contenait 23 sorts! Avec seulement 23 sorts pour en animer 99 au total, la force se dispersait et ne pouvait atteindre sa pleine puissance.
 
 Mais le coup de poing de Wang Lin marqua trois pauses! Après la première, son corps véritable des cinq éléments se superposa à sa forme physique, et le nombre de sorts dans son coup augmenta, passant de 23 à 46!
 
 Une deuxième pause survint, portant le nombre de sorts à 69!
 
-Au moment de l'impact avec le motif carré, le poing de Wang Lin marqua une troisième fois sa pause, atteignant la limite de 92 sorts avant qu'il n'utilise son avatar dans le vide!
+Au moment de l'impact avec le motif carré, le poing de Wang Lin marqua une troisième fois sa pause, atteignant 92 sorts, son maximum sans recourir à son avatar du vide!
 
 Grâce à l'armure de l'âme, les 92 sorts de chaque coup fusionnèrent avec les 99 coups de poing pour ne former qu'un seul assaut dévastateur contre le motif carré!
 
@@ -76,17 +76,17 @@ Les trois ombres derrière lui crachèrent du sang, victimes du contrecoup de la
 
 C'étaient trois vieillards que Wang Lin n'avait jamais vus auparavant.
 
-Les trois reculèrent avec horreur. Tandis qu'ils fuyaient, Wang Lin passa à leur travers. Sa main jaillit et saisit sans pitié la tête de deux des vieillards. Une intention meurtrière monstrueuse brilla dans ses yeux alors qu'il pressait ses doigts.
+Les trois reculèrent avec horreur. Tandis qu'ils fuyaient, Wang Lin passa à travers eux. Sa main jaillit et saisit sans pitié la tête de deux des vieillards. Une intention meurtrière monstrueuse brilla dans ses yeux alors qu'il pressait ses doigts.
 
 En un instant, chair et sang éclatèrent; ces deux êtres furent instantanément exécutés par Wang Lin. Il inhala leurs âmes originelles dans son propre corps. Quant au dernier, le corps de Wang Lin s'écrasa contre lui, le pulvérisant totalement.
 
 Sur les 15 assaillants, trois étaient morts sur-le-champ, mais les 12 restants ne s'arrêtèrent pas. Ils chargèrent Wang Lin à une vitesse fulgurante. Les trois de devant crachèrent du sang pour décupler leur célérité et se retrouvèrent à moins de cinq pieds de lui en un éclair!
 
-Wang Lin leva sa main gauche d'un geste vif, utilisant son bras pour bloquer leurs trois paumes!
+Wang Lin leva sa main droite d'un geste vif, utilisant son bras pour bloquer leurs trois paumes!
 
 Les trois assaillants tremblèrent tandis que le vent révélait leurs visages. Les six individus sur les flancs de Wang Lin pointèrent tous vers ses côtés!
 
-Six doigts touchèrent le corps de Wang Lin et son visage pâlit instantanément. La puissance de la restriction dans son organisme augmenta drastiquement, affaiblissant sa culture. Au même moment, trois épées fendirent le ciel vers lui. Wang Lin rugit et leva la main gauche pour frapper les trois assaillants. Deux épées se brisèrent et leurs propriétaires éclatèrent en morceaux. Cependant, l'un d'eux parvint à s'approcher et planta son épée de trois pouces dans le front de Wang Lin!
+Six doigts touchèrent le corps de Wang Lin et son visage pâlit instantanément. La puissance de la restriction dans son organisme augmenta drastiquement, affaiblissant sa culture. Au même moment, trois épées fendirent le ciel vers lui. Wang Lin rugit et leva la main gauche pour frapper les trois assaillants. Deux épées se brisèrent et leurs propriétaires, le corps en lambeaux sanglants, crachèrent du sang et furent repoussés. Cependant, l'un d'eux parvint à s'approcher et enfonça son épée de trois pouces dans le crâne de Wang Lin!
 
 Une douleur fulgurante envahit son corps et le sang coula dans ses yeux, teintant le monde devant lui d'une teinte écarlate.
 
@@ -96,7 +96,7 @@ Le vent et la neige redoublèrent d'intensité.
 
 À cet instant précis, un grondement sourd monta de la terre sous les pieds de Wang Lin alors que trois ombres jaillissaient du sol. Ces silhouettes étaient totalement noires, contrastant violemment avec la blancheur de la neige. Les trois formèrent des sceaux et les pointèrent vers eux-mêmes. Dans un bruit de craquement, ils se transformèrent en âmes originelles pour foncer sur Wang Lin.
 
-Neuf autres ombres apparurent plus loin dans la rue. Elles chargèrent sans hésitation. Leurs mains tracèrent des sceaux et utilisèrent un sort spécial pour fusionner en un dragon de glace céleste. Le dragon poussa un rugissement et fondit sur Wang Lin!
+Neuf autres ombres apparurent plus loin dans la rue. Elles chargèrent sans hésitation. Leurs mains tracèrent des sceaux et utilisèrent un sort spécial pour fusionner en un dragon de glace. Le dragon poussa un rugissement et fondit sur Wang Lin!
 
 « Wang Lin!! » La voix déchirante de l'Exalté Empyréen Hai Zi retentit derrière lui. Avec sa force actuelle, elle ne pouvait tenir longtemps, mais les neuf assaillants ne cherchaient pas à la tuer — ils voulaient simplement la maintenir captive.
 

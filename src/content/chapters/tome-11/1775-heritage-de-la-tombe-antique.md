@@ -6,13 +6,13 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1775 - Ancient Tomb Inheritance!"
 slug: heritage-de-la-tombe-antique
 ---
-Wang Lin ne ressentit aucune joie en prenant l'âme du Souverain. Au contraire, il éprouva une certaine tristesse. Wang Lin avait déjà entendu le nom du Souverain lorsqu'il n'était qu'au deuxième niveau et, une fois arrivé dans le Système Stellaire Antique, ils s'étaient croisés de nombreuses fois.
+Wang Lin ne ressentit aucune joie en prenant la moitié de l'âme du Souverain. Au contraire, il éprouva une certaine tristesse. Wang Lin avait déjà entendu le nom du Souverain lorsqu'il n'était qu'au deuxième niveau et, une fois arrivé dans le Système Stellaire Antique, ils s'étaient croisés de nombreuses fois.
 
 Cet homme pouvait être considéré comme un leader d'une génération, mais sa vie n'avait été que mélancolie. Il n'était qu'un esclave du fou. Puis, après la disparition de ce dernier, il avait été contraint de vénérer le Daoïste aux Sept Couleurs comme son maître et de se soumettre à ses ordres.
 
 Désormais, Wang Lin lui avait pris la moitié de son âme, le laissant dans un tel état.
 
-Tout cela rappelait étrangement la manière dont le Souverain avait rassemblé les cultivateurs du troisième niveau du Royaume Extérieur pour attaquer le Seigneur du Domaine Scellé, jusqu'à ce que ce dernier ne soit plus qu'un fragment d'âme à l'intérieur de la Perle Défiant le Ciel. C'était comme un cycle de réincarnation.
+Tout cela rappelait étrangement la manière dont le Souverain avait rassemblé les grands puissants du Royaume Extérieur pour encercler et tuer le Seigneur du Domaine Scellé, jusqu'à ce que ce dernier ne soit plus qu'un fragment d'âme à l'intérieur de la Perle Défiant le Ciel. C'était comme un cycle de réincarnation.
 
 Le tueur avait été tué!
 
@@ -70,7 +70,7 @@ Dans la dernière couche de la Tombe Antique, Wang Lin apparut. À l'instant mê
 
 Ce son pénétra son esprit sans pour autant synchroniser ses propres battements. Au contraire, cela plongea son cœur dans le chaos, comme si deux rythmes distincts résonnaient dans ses oreilles. Les yeux de Wang Lin s'illuminèrent alors qu'il inspectait les lieux. Cette dernière couche ne possédait ni terre ni ciel.
 
-Il n'y avait que des structures semblables à des vaisseaux sanguins, larges de milliers de pieds. À chaque battement de cœur, ces vaisseaux s'animaient violemment.
+Il n'y avait que des structures semblables à des vaisseaux sanguins, épais de mille pieds. À chaque battement de cœur, ces vaisseaux s'animaient violemment.
 
 Grâce à son Sens Divin, Wang Lin vit clairement un cœur gigantesque vers lequel convergeaient tous les vaisseaux. À chaque pulsation, il ressentait une douleur fulgurante dans la poitrine, comme si son propre cœur était sur le point de se rompre.
 
@@ -78,7 +78,7 @@ Tout ici différait de ce qu'il avait perçu lors de sa première approche de l'
 
 Wang Lin savait que le temps pressait. Il ignorait combien de temps Rêve Bleu et les autres pourraient contenir le Vieux Fantôme Zhan. Chaque seconde perdue pouvait permettre à ce dernier de les rattraper.
 
-Il ne pouvait se permettre d'observer l'arrière-plan; il devait avancer. Il se déplaça à sa vitesse maximale, naviguant entre les vaisseaux sanguins.
+Il ne pouvait se permettre d'observer prudemment avant d'avancer lentement. Il se déplaça à sa vitesse maximale, naviguant entre les vaisseaux sanguins.
 
 Heureusement, aucune créature ne rôdait ici. Wang Lin ne rencontra aucun obstacle malgré les distances infinies qu'il parcourait. Cependant, le cœur semblait avoir détecté sa présence et battait de plus en plus vite. Le rythme cardiaque du monstre était en totale désynchronisation avec celui de Wang Lin, ce qui lui fit pâlir et provoqua une douleur insupportable dans sa poitrine.
 
@@ -98,7 +98,7 @@ Ce n'était ni un sort, ni une capacité, ni un pouvoir du Dao; c'était simplem
 
 Le visage de Wang Lin était d'une pâleur cadavérique et sa main droite pressait sa poitrine. Il sentait l'irrégularité de ses battements, et les vibrations faisaient trembler sa main!
 
-Titubant, les dents serrées, Wang Lin poussa un rugissement. Après avoir craché du sang, il parvint à se poster aux côtés du cœur immense. Son corps oscillait au rythme des pulsations.
+Titubant, les dents serrées, Wang Lin poussa un rugissement. Après avoir craché du sang, il apparut directement sur le cœur immense. Son corps oscillait au rythme des pulsations.
 
 Luttant contre la douleur, Wang Lin s'assit sur le cœur. Il ferma les yeux et concentra toute sa volonté sur son propre rythme cardiaque.
 

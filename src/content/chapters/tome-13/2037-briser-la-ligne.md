@@ -50,7 +50,7 @@ Il poussa un rugissement et son corps s'étendit encore davantage, atteignant de
 
 Une telle stature fit changer les couleurs du monde. La formation en dessous lui paraissait désormais minuscule, comme une fourmi. Les yeux de Wang Lin brillèrent d'une lumière argentée infinie alors qu'il décochait un nouveau coup de poing vers la formation.
 
-Alors que ce coup s'abattait, toute la puissance du monde dans un rayon de 5 km, 50 km, 500 km, 50 000 km, et même sur des centaines de milliers de kilomètres fut aspirée. C'était comme si le poing de Wang Lin s'était transformé en un trou noir dévorant toute l'énergie pour la projeter contre le monde.
+Alors que ce coup s'abattait, toute la puissance du monde dans un rayon de 5 km, 50 km, 500 km, 5 000 km, et même sur plus de 50 000 km fut aspirée. C'était comme si le poing de Wang Lin s'était transformé en un trou noir dévorant toute l'énergie pour la projeter contre le monde.
 
 L'homme à l'intérieur de la formation leva les yeux vers cette attaque avec une expression étrange, sans montrer la moindre panique. Lorsque le coup percuta la lumière de la formation qui éclata violemment, le poing atteignit le vieil homme.
 
@@ -78,7 +78,7 @@ Wang Lin resta silencieux un moment avant de secouer la tête. Il fit un pas en 
 
 Bien qu'il ait franchi la limite, il semblait évoluer dans un espace différent de celui de la formation.
 
-Le vieil homme regarda Wang Lin, qui n'était plus qu'à quelques centaines de pieds, avec une expression pitoyable. Mais l'instant d'après, ses pupilles se rétractèrent violemment.
+Le vieil homme regarda Wang Lin, qui n'était plus qu'à quelques centaines de pieds, avec une expression de regret. Mais l'instant d'après, ses pupilles se rétractèrent violemment.
 
 Tandis que Wang Lin se tenait là, son niveau de culture ne cessait de grimper. Le soleil de Grand Empyréen derrière lui brilla d'un éclat intense et grandit de plus de dix fois sa taille en un clin d'œil!
 
@@ -90,7 +90,7 @@ Cependant, lorsqu'elle fut à quelques dizaines de pieds de lui, elle ne put s'a
 
 Des grondements tonitruants retentirent alors que la mouche, ivre de rage, se fracassait contre cette barrière invisible. La main droite de Wang Lin plongea dans le vide devant lui et une âme apparut: c'était l'âme de l'Empereur Céleste!
 
-Tenant cette âme, Wang Lin ferma les yeux et son niveau de culture continua de s'élever. Alors que sa culture atteignait le stade de la Tribulation du Vide, elle continua de progresser! Il injecta toute sa puissance dans l'âme, forçant les yeux de l'Empereur Céleste à s'ouvrir pour libérer une lumière dorée éblouissante. Toutefois, ces yeux étaient dépourvus de conscience et n'exprimaient que la confusion. Wang Lin agita la main et projeta l'âme dans le soleil de Grand Empyréen derrière lui.
+Tenant cette âme, Wang Lin ferma les yeux et son niveau de culture continua de s'élever. Alors que sa culture atteignait la Grande Perfection de la Tribulation du Vide, elle continua de progresser! Il injecta toute sa puissance dans l'âme, forçant les yeux de l'Empereur Céleste à s'ouvrir pour libérer une lumière dorée éblouissante. Toutefois, ces yeux étaient dépourvus de conscience et n'exprimaient que la confusion. Wang Lin agita la main et projeta l'âme dans le soleil de Grand Empyréen derrière lui.
 
 Une tête floue était dissimulée à l'intérieur de ce soleil gigantesque: c'était la tête de l'Ancêtre Céleste, que Wang Lin avait récupérée au Palais Dao Antique pour l'intégrer au soleil.
 

@@ -28,7 +28,7 @@ C'était le sortilège que Wang Lin avait créé pour Li Muwan! Bien que ce sort
 
 Il songea un instant à sa Wan Er au sein du soleil.
 
-Combattre les hommes, combattre les bêtes, combattre la terre, combattre les cieux, combattre l'espace, combattre toutes choses, combattre le Continent Astral Immortel... Tout cela n'était que la nuit noire, et tout ce que Wang Lin avait accompli visait un seul but!
+Combattre les hommes, combattre les bêtes, combattre la terre, combattre les cieux, combattre le ciel étoilé, combattre toutes choses, combattre le Continent Astral Immortel... Tout cela n'était que la nuit noire, et tout ce que Wang Lin avait accompli visait un seul but!
 
 Déchirer les voiles d'obscurité qui masquaient ses yeux pour chercher la lumière par-delà les ténèbres de la nuit!
 
@@ -84,9 +84,9 @@ Nuit Brisée était un sort créé par Wang Lin, contenant toute une vie passée
 
 La raison pour laquelle les Grands Empyréens pouvaient matérialiser leurs sorts résidait dans leur foi puissante, capable de créer quelque chose à partir du néant!
 
-Créer le néant à partir de rien était la racine même de tous les sortilèges des Grands Empyréens!
+Créer quelque chose à partir de rien était la racine même de tous les sortilèges des Grands Empyréens!
 
-Wang Lin avait les yeux clos sous terre, mais il percevait tout ce qui se passait à l'extérieur. À cet instant, c'était comme s'il s'était réincarné dans le soleil. Il contemplait la mer en contrebas et voyait les regards terrifiés de chacun.
+Wang Lin avait les yeux clos sous terre, mais il percevait tout ce qui se passait à l'extérieur. À cet instant, c'était comme s'il se trouvait dans le soleil, devenu cette aura même. Il contemplait la mer en contrebas et voyait les regards terrifiés de chacun.
 
 « Je crois que vous faites tous partie de cette nuit noire... »
 
@@ -102,9 +102,9 @@ Wang Lin avait les yeux clos sous terre, mais il percevait tout ce qui se passai
 
 « Mes yeux ne sont plus noirs. Ils contenaient le feu et le tonnerre, ainsi que des restrictions dignes de lois... La nuit a noirci mes yeux, mais le feu brûlera la nuit, le tonnerre illuminera l'obscurité, et les restrictions briseront les règles. J'utiliserai mes yeux pour contempler la lumière! »
 
-La voix de Wang Lin résonna sur la mer engendrée par Nuit Brisée. Ces paroles s'engouffrèrent dans les oreilles des messagers du Démon Vert, de Zhang Daozong, du vieil homme nommé Zhao et des deux cultivatrices au début de la Tribulation du Vide. Ses mots résonnaient comme d'anciennes écritures taoïstes, mais ils étaient désormais imprégnés de la foi de Wang Lin!
+La voix de Wang Lin résonna sur la mer engendrée par Nuit Brisée. Ces paroles s'engouffrèrent dans les oreilles des messagers du Démon Vert, de Zhang Daozong, du vieil homme nommé Zhao et des deux cultivatrices au début de la Tribulation du Vide. Ses mots résonnaient comme d'anciennes écritures daoïstes, mais ils étaient désormais imprégnés de la foi de Wang Lin!
 
-Wang Lin ouvrit les yeux. À l'instant même, le soleil à l'horizon libéra une lumière éblouissante. Cette clarté se propagea sans fin, chargée de la foi de Wang Lin. Elle chassa les ténèbres pour traquer la foi de la lumière!
+Wang Lin ouvrit les yeux. À l'instant même, le soleil à l'horizon libéra une lumière éblouissante. Cette clarté se propagea sans fin, chargée de la foi de Wang Lin. Elle chassa les ténèbres pour chercher la lumière!
 
 C'était une foi capable de défier les cieux et de déchirer la nuit pour ressusciter Li Muwan. C'était sa vie entière, celle d'une âme indomptable!
 

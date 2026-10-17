@@ -22,7 +22,7 @@ Simultanément, des dizaines de rayons de lumière jaillirent de la Secte du Dao
 
 Parmi eux se trouvaient des hommes et des femmes, tous l'expression grave. Une fois apparus, ils pénétrèrent dans le brouillard pour diriger la formation et empêcher toute intrusion étrangère.
 
-Peu après, un rayon de lumière dorée jaillit de la partie sud de la Secte du Dao Démoniaque. La lumière se mua en un vieil homme qui vint se placer aux côtés de l'homme en robe rouge. Il contemplait le ciel d'un air sombre, son regard exhalant une froideur glaciale!
+Peu après, un rayon de lumière dorée jaillit de la partie ouest de la Secte du Dao Démoniaque. La lumière se mua en un vieil homme qui vint se placer aux côtés de l'homme en robe rouge. Il contemplait le ciel d'un air sombre, son regard exhalant une froideur glaciale!
 
 « Tu oses forcer la formation de protection de ma Secte du Dao Démoniaque? Ce vieil homme veut voir qui ose faire preuve d'une telle audace! » Sur ces mots, il chargea dans le brouillard céleste.
 
@@ -46,7 +46,7 @@ Dans un tumulte de tonnerre, les deux moitiés du brouillard furent écartées p
 
 Cette scène fut contemplée par les quelque 30 000 cultivateurs de la Secte du Dao Démoniaque. Tous fixaient l'horizon, stupéfaits. Leurs cœurs tremblaient et une terreur pure les saisissait.
 
-Depuis la création de la formation, elle n'avait jamais été attaquée sans défense. Elle avait été endommagée plusieurs fois par le passé, mais jamais détruite d'une manière aussi terrifiante, au point de leur donner des frissons dans la moelle!
+Depuis la création de la formation, des intrus s'y étaient déjà attaqués. Elle avait été endommagée plusieurs fois par le passé, mais jamais détruite d'une manière aussi terrifiante, au point de leur donner des frissons dans la moelle!
 
 Au moment où la formation de brouillard fut déchirée, des cris de détresse s'élevèrent des deux pans du nuage.
 
@@ -72,13 +72,13 @@ Les quelque 30 000 cultivateurs de la Secte du Dao Démoniaque semblaient en avo
 
 Après avoir parlé, il agita sa main droite et écarta la robe qui couvrait son visage, révélant ses cheveux blancs et son visage impassible. Il plongea son regard vers la multitude.
 
-« Cela ne fait que cent ans. Vous devriez tous vous souvenir du massacre près du Continent de la Terre Meng. Me reconnaissez-vous enfin?! »
+« Cela ne fait qu'un peu plus de cent ans. Vous devriez tous vous souvenir du massacre près du Continent de la Terre Meng. Me reconnaissez-vous enfin?! »
 
 Dès que Wang Lin souleva sa capuche, les yeux du vieil homme à la robe dorée se remplirent d'incrédulité.
 
 « Wang Lin!!! » Il le reconnut instantanément. Il ne pouvait oublier le massacre effroyable aux frontières du Continent de la Terre Meng. La Secte du Dao Démoniaque avait envoyé une armée de cultivateurs, et la plupart d'entre eux avaient été massacrés par lui. Si le Maître de Secte n'était pas intervenu à la fin, il aurait été extrêmement difficile de capturer cet homme!
 
-« C'est lui!! » haleta l'homme en robe rouge, qui reconnut également Wang Lin! Il avait participé à cette bataille autrefois. Il avait vu la puissance dévastatrice de Wang Lin lorsqu'il sombrait dans la folie. Il avait vu Wang Lin massacrer ses propres compagnons de secte et avait perçu l'intention meurtrière monstrueuse qui brûlait dans ses yeux.
+« C'est lui!! » haleta l'homme en robe rouge, qui reconnut également Wang Lin! Il avait participé à cette bataille autrefois. Il avait vu la puissance dévastatrice de Wang Lin lorsqu'il sombrait dans la folie. Il avait vu mourir ses compagnons de secte, un à un, et avait perçu l'intention meurtrière monstrueuse qui brûlait dans ses yeux.
 
 « Wang Lin!! C'est bien lui!! »
 

@@ -74,9 +74,9 @@ Le monde trembla. La puissance de cette épée semblait éclipser toute autre lu
 
 Une lueur de froideur traversa le regard de Wang Lin et le tatouage sur le côté droit de son visage s'illumina. Il se transforma en d'innombrables fils noirs qui enveloppèrent Wang Lin pour former une armure, ne laissant exposés que ses cheveux blancs et ses yeux glacials.
 
-Une fois l'armure d'âme revêtue, l'aura de Wang Lin explosa, le propulsant instantanément au stade initial de la Tribulation du Vide. Il fit un pas en avant et réduisit aussitôt la distance avec le premier Messager du Démon Vert.
+Une fois l'armure d'âme revêtue, l'aura de Wang Lin explosa, le propulsant instantanément au sommet du stade initial de la Tribulation du Vide. Il fit un pas en avant et réduisit aussitôt la distance avec le premier Messager du Démon Vert.
 
-Alors qu'ils allaient entrer en contact, avant même que Wang Lin ne puisse attaquer, le visage froid du messager trahit une trace de folie. Sans même utiliser de sortilège, dès l'instant où Wang Lin fut à sa portée, ses mains formèrent un sceau et il pointa l'espace entre ses sourcils.
+Alors qu'ils allaient entrer en contact, avant même que Wang Lin ne puisse attaquer, le visage froid du messager trahit une trace de folie. Sans même utiliser de sortilège, dès l'instant où Wang Lin fut à sa portée, ses mains formèrent un sceau et il les pressa ensemble contre l'espace entre ses sourcils.
 
 Soudain, une aura terrifiante émana de son corps. Ce Messager du Démon Vert était au stade intermédiaire de la Tribulation du Vide, et il avait choisi de s'autodétruire à cet instant précis!
 
@@ -90,7 +90,7 @@ L'autodestruction simultanée de deux cultivateurs au stade intermédiaire de la
 
 Lorsque les deux messagers explosèrent, les yeux de Wang Lin s'illuminèrent et un profond sentiment de crise le submergea. Le danger ne venait pas de la puissance de l'explosion, mais de la raison pour laquelle ils avaient choisi de mourir ainsi!
 
-Le combat n'avait même pas commencé qu'ils avaient déjà opté pour l'autodestruction. C'était d'une étrangeté absolue. De plus, derrière lui se trouvait Yun Kong, qui contrôlait la puissante énergie d'épée. À trois, ils avaient largement de quoi combattre Wang Lin; l'autodestruction n'était absolument pas nécessaire!
+Le combat n'avait même pas commencé qu'ils avaient déjà opté pour l'autodestruction. C'était d'une étrangeté absolue. De plus, derrière eux se trouvait Yun Kong, qui avait déchaîné la puissante énergie d'épée. À trois, ils avaient largement de quoi combattre Wang Lin; l'autodestruction n'était absolument pas nécessaire!
 
 C'était une anomalie extrême!
 

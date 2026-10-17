@@ -10,15 +10,15 @@ L'Âme aux Sept Couleurs du Vieux Fantôme Zhan s'élança. La cape l'enveloppa 
 
 Des grondements tonitruants résonnèrent. Le Vieux Fantôme Zhan était extrêmement puissant; même sans l'Âme aux Sept Couleurs, il était un cultivateur proche du sommet de la Tribulation Arcane, ayant déjà atteint le seuil de la Tribulation du Vide.
 
-De plus, son âme avait été choisie pour fusionner avec l'Âme aux Sept Couleurs. Par conséquent, son niveau de culture était infiniment proche de celui du Souverain Céleste aux Sept Couleurs!
+De plus, il avait été choisi par l'Âme aux Sept Couleurs pour qu'elle s'installe en lui et fusionne avec lui. Par conséquent, son niveau de culture était infiniment proche de celui du Souverain Céleste aux Sept Couleurs!
 
 À cet instant, son corps et son âme se séparèrent. L'Âme aux Sept Couleurs agita le bras, et le membre doré tombant du ciel s'effondra! Simultanément, le bras noir surgissant de la terre trembla et se désintégra.
 
-Même le sceau de zither du Maître du Dao Rêve Bleu disparut sans laisser de trace sous son impact.
+Même le sceau de cithare du Maître du Dao Rêve Bleu disparut sans laisser de trace sous son impact.
 
-Le Maître du Dao Rêve Bleu cracha du sang. La zither vibra et il fut gravement blessé. Cependant, il n'hésita pas à la jouer de nouveau, projetant les deux forces vers le Vieux Fantôme Zhan.
+Le Maître du Dao Rêve Bleu cracha du sang. La cithare vibra et il fut gravement blessé. Cependant, il n'hésita pas à la jouer de nouveau, projetant les deux forces vers l'Âme aux Sept Couleurs et le Vieux Fantôme Zhan.
 
-Même le vieil homme nommé Ma subit un violent contrecoup lorsque l'Âme aux Sept Couleurs brisa son sort. Du sang s'échappa du coin de sa bouche et il fut repoussé de plus de mille pieds. Pourtant, il serra les dents et se retourna pour charger une fois de plus.
+Même le vieil homme nommé Ma subit un violent contrecoup lorsque l'Âme aux Sept Couleurs brisa son sort. Du sang s'échappa du coin de sa bouche et il fut repoussé de plusieurs milliers de pieds. Pourtant, il serra les dents et se retourna pour charger une fois de plus.
 
 Au moment même où l'Âme aux Sept Couleurs et le Vieux Fantôme Zhan se séparaient, ce dernier fonça vers les deux hommes d'âge moyen de la Planète des Cinq Éléments, qui combattaient les Généraux Tortue Noire et Oiseau Vermillon.
 
@@ -36,7 +36,7 @@ La tyrannie de la bataille!
 
 Aussitôt qu'il eut fini de parler, il se retourna face au vieil homme nommé Ma. Les deux se dévisagèrent, et des grondements tonitruants semblèrent résonner entre eux alors que le combat éclatait.
 
-Comparé au vieil homme Ma, le Maître du Dao Rêve Bleu était plus anxieux, mais toute son attention restait focalisée sur la zither afin de sceller l'Âme aux Sept Couleurs. Il ne pouvait consacrer aucun effort à empêcher la Tortue Noire et l'Oiseau Vermillon de perturber Wang Lin.
+Comparé au vieil homme Ma, le Maître du Dao Rêve Bleu était plus anxieux, mais toute son attention restait focalisée sur la cithare afin de sceller l'Âme aux Sept Couleurs. Il ne pouvait consacrer aucun effort à empêcher la Tortue Noire et l'Oiseau Vermillon de perturber Wang Lin.
 
 Tang Shan n'avait pas perdu connaissance. Elle serra les dents et bondit dans les airs pour intercepter la Tortue Noire et l'Oiseau Vermillon.
 
@@ -70,13 +70,13 @@ Alors que tous les regards convergeaient, la silhouette de Wang Lin apparut lent
 
 Il portait toujours ses vêtements blancs, mais les taches de sang frais étaient frappantes. Ses cheveux étaient toujours blancs, mais en désordre, une partie retombant sur son épaule.
 
-Si sa chevelure et ses vêtements n'avaient pas changé, la peau sous ses habits était couverte de runes stupéfiantes. Ces runes scintillaient sur sa peau, dégageant une aura antique.
+Si sa chevelure et ses vêtements n'avaient pas changé, la peau qui dépassait de ses habits était couverte de runes stupéfiantes. Ces runes scintillaient sur sa peau, dégageant une aura antique.
 
 Son visage était marqué par des runes à l'aspect brut, et ses yeux émettaient un éclat argenté. L'aura qu'il exhalait donnait l'impression d'un mépris souverain pour le monde entier.
 
 Ses yeux d'argent révélaient une froideur et une cruauté sans nom. Une intention meurtrière émanait de ce regard, glaçant le sang de ceux qui le croisaient.
 
-Ce qui choqua le plus Tuo Sen fut la présence de neuf étoiles tournoyant entre les sourcils de Wang Lin! Dans son œil droit se trouvaient également neuf anciennes étoiles démoniaques. Seul son œil gauche n'en comptait que huit!
+Ce qui choqua le plus Tuo Sen fut la présence de neuf étoiles tournoyant entre les sourcils de Wang Lin! Dans son œil droit se trouvaient également neuf étoiles de Diable Ancien. Seul son œil gauche n'en comptait que huit!
 
 Du sang s'écoulait de son œil gauche, coulant le long de sa joue pour maculer sa chemise blanche.
 
@@ -84,11 +84,11 @@ Du sang s'écoulait de son œil gauche, coulant le long de sa joue pour maculer 
 
 Non seulement lui, mais tous ceux qui contemplèrent les yeux argentés de Wang Lin furent saisis d'effroi. Le Maître du Dao Rêve Bleu s'en sortit mieux que les autres, étant l'aîné de Wang Lin; pourtant, le vieil homme Ma sentit son cœur vaciller devant ce regard argenté.
 
-« Les yeux d'argent! La rumeur dit que lorsque l'Ancêtre Céleste descend, il y aura neuf chants et trois signes. Le ciel doré est l'un des signes! On raconte aussi que les neuf chants et les trois signes sont les présages de la descente de l'Ancien Ancêtre. Les neuf chants sont pour les Anciens, et les trois signes pour les Célestes! »
+« Les yeux d'argent! La rumeur dit que lorsque l'Ancêtre Céleste descend, il y aura neuf chants et trois signes. Le ciel doré et la terre noire forment l'un des signes! On raconte aussi que les neuf chants et les trois signes sont les présages de la descente de l'Ancien Ancêtre. Les neuf chants sont pour les Anciens, et les trois signes pour les Célestes! »
 
 « J'ai entendu dire que deux des neuf chants étaient les yeux d'argent et le corps doré! Cela... Wang Lin n'a obtenu que l'héritage de Ye Mo, comment peut-il avoir des yeux d'argent?! Même Ye Mo ne les possédait pas! »
 
-Tandis que la stupeur régnait, Xuan Luo observait Wang Lin depuis l'entrée de la dernière couche avec une excitation manifeste. Lorsqu'il avait vu ces yeux argentés pour la première fois dans cette couche, un immense tumulte s'était emparé de son cœur.
+Tandis que la stupeur régnait, Xuan Luo observait Wang Lin sortir de l'entrée de la dernière couche avec une excitation manifeste. Lorsqu'il avait vu ces yeux argentés pour la première fois dans cette couche, un immense tumulte s'était emparé de son cœur.
 
 En les revoyant maintenant, le même sentiment l'envahissait.
 

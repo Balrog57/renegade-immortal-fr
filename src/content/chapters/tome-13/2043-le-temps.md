@@ -8,11 +8,11 @@ slug: le-temps
 ---
 Contemplant Li Muwan à l'intérieur du cercueil, il observa ses cils tremblants et ses larmes cristallines. Wang Lin essuya doucement ses pleurs. Les gouttelettes de larmes restèrent accrochées à son doigt.
 
-Il porta ces larmes à sa bouche et les lécha. C'était d'une amertume profonde, mais qui laissait ensuite une pointe de douceur sèche.
+Il porta ces larmes à sa bouche et les lécha. C'était très amer et âpre, mais, une fois fondue dans son cœur, la larme y laissait une vague pointe de douceur.
 
 C'était un sentiment indescriptible. Wang Lin regarda Li Muwan pendant un temps infini. Il ne se souciait guère du passage du temps et continua de contempler le visage de Li Muwan...
 
-Cela dura une journée entière, jusqu'à ce que le cœur de Wang Lin s'apaise progressivement. Il ferma les yeux, et lorsqu'il les rouvrit, ils étaient empreints de détermination et de résolution.
+Cela dura jusqu'à ce qu'un jour, le cœur de Wang Lin s'apaise progressivement. Il ferma les yeux, et lorsqu'il les rouvrit, ils étaient empreints de détermination et de résolution.
 
 Wang Lin se pencha et son visage effleura les lèvres pâles de Li Muwan. Il murmura à son oreille des paroles que lui seul pouvait entendre.
 
@@ -26,21 +26,21 @@ La main gauche de Wang Lin s'élança vers le vide et un rayon de lumière doré
 
 Face à cette âme, Wang Lin hésita un instant, puis serra les dents et cracha une bouffée de feu vert. Ce feu était son propre feu d'âme, et il commença à consumer l'âme de l'Empereur Céleste.
 
-« Que cette âme me soit utile ou non dépendra de ma capacité à expulser la malédiction ancestrale. Ce processus sera très lent... »
+« Que cette âme me soit utile ou non dépendra de ma capacité à expulser la puissance de malédiction qu'elle contient. Ce processus sera très lent... »
 
 Wang Lin observa l'âme de l'Empereur Céleste entourée par son feu d'âme. Après un long moment, il détourna le regard et ferma les yeux. Sa respiration était ténue et il demeura immobile.
 
 Le temps passa, et en un clin d'œil, trois années s'écoulèrent.
 
-Durant ces trois ans, nul ne vint perturber Wang Lin. Il n'avait pas bougé d'un pouce dans la chambre secrète. En son corps, le pouvoir ancestral et la culture céleste circulaient harmonieusement. Cependant, la fusion du pouvoir ancestral et céleste qu'il avait obtenue au Mont Gu Dao n'avait pas encore achevé un cycle complet; elle n'avait progressé que d'une courte distance.
+Durant ces trois ans, nul ne vint perturber Wang Lin. Il n'avait pas bougé d'un pouce dans la chambre secrète. En son corps, sa culture et le pouvoir ancestral circulaient harmonieusement. Cependant, la fusion du pouvoir ancestral et céleste qu'il avait obtenue au Mont Gu Dao n'avait pas encore achevé un cycle complet; elle n'avait progressé que d'une courte distance.
 
-L'âme de l'Empereur Céleste, en cours de raffinage par le feu d'âme, n'avait guère changé. Toutefois, la décomposition interne avait considérablement ralenti.
+L'âme de l'Empereur Céleste, en cours de raffinage par le feu d'âme, n'avait guère changé. Toutefois, la décomposition interne avait légèrement ralenti.
 
 Wang Lin ne se souciait de rien de ce qui se passait à l'extérieur. Sa chambre secrète était gardée par de nombreux hommes, et nul n'était autorisé à y pénétrer.
 
-Pendant ces trois années, le Prince Ji Du ne quitta pas les lieux et coordonna les affaires du domaine. Parfois, des émissaires venaient de l'extérieur pour s'entretenir secrètement avec lui; ils repartaient alors, transportés par l'excitation.
+Pendant ces trois années, le Prince Ji Du ne quitta pas les lieux et fit ses préparatifs dans ce palais. Parfois, des émissaires venaient de l'extérieur pour s'entretenir secrètement avec lui; ils repartaient alors, transportés par l'excitation.
 
-Durant cette période, le Prince Ji Du était comme le vent et la pluie. Peu importait l'urgence des événements, il se tenait personnellement devant la chambre secrète de Wang Lin, le visage empreint de révérence, pendant une demi-heure avant de s'éclipser respectueusement.
+Durant cette période, le Prince Ji Du était comme le vent et la pluie. Peu importait l'urgence des événements, il se tenait chaque matin personnellement devant la chambre secrète de Wang Lin, le regard empreint de ferveur, pendant une demi-heure avant de s'éclipser respectueusement.
 
 Ce jour-là, après trois ans, Wang Lin ouvrit les yeux pour la première fois. À l'instant même où ses paupières se levèrent, deux rayons de lumière cristalline jaillirent.
 
@@ -48,7 +48,7 @@ Des ombres superposées apparurent sur son corps, et son véritable corps des ci
 
 Les cinq éléments au sein du véritable corps des cinq éléments avaient tous formé leurs propres corps d'essence pour ne former qu'un seul être. Ce véritable corps complet des cinq éléments était l'entité la plus aboutie de ses essences.
 
-C'était presque la limite, à moins qu'il ne franchisse une étape supplémentaire pour que son véritable corps des cinq éléments se transmue en une véritable âme!
+C'était presque la limite, à moins qu'il ne franchisse une étape supplémentaire pour que son véritable corps des cinq éléments se transmue en un véritable dieu!
 
 Une fois assis, le véritable corps des cinq éléments ferma les yeux. Il cultiva aux côtés du corps originel de Wang Lin, et trois autres années passèrent.
 
@@ -56,7 +56,7 @@ C'était la sixième année depuis le début de la méditation de Wang Lin. Une 
 
 À cet instant, la scène dans la chambre secrète était proprement étrange: trois silhouettes identiques à Wang Lin étaient assises en triangle, plongées dans la culture.
 
-Quant à l'âme de l'Empereur Céleste, après six ans de combustion, la décomposition interne avait ralenti. Peut-être qu'un jour, une fois la corruption totalement éliminée, Wang Lin parviendrait à la raffiner lentement.
+Quant à l'âme de l'Empereur Céleste, après six ans de combustion, la décomposition interne avait ralenti. Peut-être qu'un jour, une fois que la décomposition aurait totalement cessé de se propager, Wang Lin parviendrait à la raffiner lentement.
 
 Le temps ne laissait aucune trace et trois autres années s'écoulèrent. Lors de la neuvième année de sa retraite, une autre ombre se superposa à son corps. Cette masse n'était pas encore capable de se condenser en une forme humaine. Une fois apparue, cette masse de lumière diffuse flotta au-dessus du corps de Wang Lin et s'arrêta à dix pieds derrière lui.
 
@@ -80,7 +80,7 @@ Après un long moment, Wang Lin rompit sa contemplation. Il avait décidé de ne
 
 Ce n'est qu'alors qu'il aurait l'assurance de pousser le Grand Empyréen Song Tian à choisir Ji Du et à l'introduire dans le temple ancestral.
 
-Plus important encore, il lui fallait la puissance nécessaire pour pénétrer dans le Royaume Divin Immémorial, afin de dissiper les brumes sur son chemin et de découvrir le but secret du Maître Impérial de l'Ancien Dao.
+Plus important encore, il lui fallait la puissance nécessaire pour pénétrer dans le Royaume Divin Immémorial, afin de dissiper les brumes sur son chemin et de découvrir le but secret de l'Ancien Maître Impérial du Dao.
 
 « L'attitude du Grand Empyréen Gu Dao est très étrange... Il n'est pas venu me voir à cause des affaires de l'Ancien Dao, mais je dois toujours compter sur ma propre force pour résoudre mes problèmes. Je ne peux laisser ma vie être décidée par la volonté d'un autre. » Wang Lin fixa son véritable corps d'essence de tonnerre de massacre, les yeux étincelants.
 
@@ -90,7 +90,7 @@ Son chemin de culture était radicalement différent de celui des autres. C'éta
 
 « Massacre, fin absolue, début absolu, restriction... » murmura Wang Lin en désignant le véritable corps d'essence de tonnerre de massacre. L'entité trembla et se scinda lentement devant lui.
 
-Le corps était enveloppé d'éclairs et quatre nuages de brume distincts apparurent. Dès l'apparition du premier, la pièce devint glaciale et une intention meurtrière tranchante emplit l'espace.
+Le corps était enveloppé d'éclairs et quatre nuages de brume distincts apparurent. Dès l'apparition du premier, la pièce devint glaciale et une intention meurtrière frénétique emplit l'espace.
 
 C'était l'essence du massacre.
 
@@ -110,4 +110,4 @@ Il y avait un azur infini, des nuages blancs et un ciel limpide s'étendant sur 
 
 Sans hésiter, Wang Lin saisit l'essence du début absolu et la projeta dans ce plafond céleste. Elle brilla alors avec l'éclat d'un astre!
 
-Wang Lin leva les yeux vers cette voûte devenue ciel, et sous son regard, le firmament sembla changer. Bientôt, une journée entière s'écoula, et l'essence du début absolu, métamorphosée en soleil, commença lentement à décliner à l'horizon.
+Wang Lin leva les yeux vers cette voûte devenue ciel, et sous son regard, le firmament sembla changer. Bientôt, comme si une journée entière s'était écoulée, l'essence du début absolu, métamorphosée en soleil, commença lentement à décliner à l'horizon.

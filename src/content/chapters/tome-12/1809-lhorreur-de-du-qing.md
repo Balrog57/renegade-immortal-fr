@@ -10,7 +10,7 @@ slug: lhorreur-de-du-qing
 
 Wang Lin ne voulait laisser aucun indice aux poursuivants, surtout pas le fait qu'il maîtrisait les restrictions. Dans ce continent étrange, une couche de mystère supplémentaire constituait une protection supplémentaire.
 
-Les restrictions disparurent sans laisser de trace. Même si quelqu'un remarquait quelque chose, il lui serait difficile de déterminer si elles avaient été créées par une personne ou par un trésor. D'un revers de manche, Wang Lin brûla les parois de la grotte sur plus d'un pied afin qu'aucun vestige ne subsiste.
+Les restrictions disparurent sans laisser de trace. Même si quelqu'un remarquait quelque chose, il lui serait difficile de déterminer si elles avaient été créées par une personne ou par un trésor. D'un revers de manche, Wang Lin brûla les parois de la grotte sur plus de dix pieds afin qu'aucun vestige ne subsiste.
 
 Une fois cela accompli, Wang Lin sortit de la grotte et se tint dans les airs. Le ciel était limpide, sans le moindre nuage, d'une beauté saisissante.
 
@@ -38,13 +38,13 @@ Tandis que Wang Lin survolait les cieux, son Sens Divin se déploya pour couvrir
 
 « Ce Continent du Taureau Céleste possède de nombreuses ramifications de veines de feu terrestre, au moins des milliers. Si je les absorbe toutes, et même la veine principale... parviendrai-je à former un Corps Véritable d'Essence comme dans le Bassin Dong Lin? » Cette pensée rendit la respiration de Wang Lin saccadée.
 
-Il devina vaguement que personne n'avait jamais tenté d'absorber le feu du Continent du Taureau Céleste. Les autres s'étaient contentés d'obtenir la reconnaissance du feu pour en comprendre l'essence et devenir des cultivateurs du troisième niveau.
+Il devina vaguement que personne n'avait jamais tenté d'absorber le feu du Continent du Taureau Céleste. Les autres s'étaient contentés d'obtenir la reconnaissance du feu pour en comprendre l'essence et devenir de grands puissants.
 
 S'ils atteignaient un certain niveau de culture et que leur essence était assez puissante, ils pourraient peut-être devenir des rois du feu. Mais en fin de compte, cela différait radicalement de ce que Wang Lin entreprenait.
 
 Wang Lin n'était pas originaire du Continent Astral Immortel et ne comprenait pas le feu de cette terre. Faute d'avoir obtenu la reconnaissance du feu local, il subirait naturellement un rejet.
 
-C'était comme suivre la volonté des cieux tout en les défiant. Mais c'était précisément pour cela que Wang Lin s'apprêtait à dévorer une âme de feu terrestre afin d'augmenter prodigieusement son essence!
+C'était comme suivre la volonté des cieux tout en les défiant. Mais c'était précisément pour cela qu'après avoir dévoré l'âme d'une ramification de la veine de feu terrestre, l'essence de feu de Wang Lin avait prodigieusement augmenté!
 
 « Xuan Luo disait qu'aucun habitant des mondes caverneux n'avait jamais réussi à s'en extraire par sa propre force. Je ne suis pas réincarné dans le Continent Astral Immortel, je n'ai pas grandi ici! »
 
@@ -64,7 +64,7 @@ Les yeux de Wang Lin pétillèrent et il laissa échapper un reniflement froid.
 
 « Extraction de l'âme du feu terrestre! »
 
-Lorsqu'il releva la main, la montagne trembla et une mer de feu jaillit des entrailles de la terre. Le sol sous Wang Lin s'effondra dans un fracas de gravats, et la tête d'un dragon de feu surgit de l'abîme.
+Lorsqu'il releva la main, la montagne trembla et une mer de feu jaillit des entrailles de la terre. Le sol sous Wang Lin s'effondra dans un fracas de gravats, et la tête d'un dragon de feu, haute de dix mille pieds, surgit de l'abîme.
 
 Dès son apparition, le ciel bleu vira au rouge écarlate, comme s'il s'embrasait. Des craquements sourds résonnèrent alors que la terre se déchirait, libérant des torrents de lave.
 
@@ -114,6 +114,6 @@ Il se posa sur une montagne et déploya son Sens Divin. Il scruta attentivement 
 
 Cela le fit suffoquer, et son expression changea radicalement!
 
-« La veine de feu terrestre s'est desséchée et le feu s'est dissipé. Elle est morte! Il absorbe le feu terrestre, ce qui... est impossible... Même un cultivateur possédant une essence de feu n'oserait jamais absorber de force le feu terrestre. Une fois l'acte accompli, il risquerait un rejet interne et serait attaqué par le feu du Continent du Taureau Céleste... Comment... Comment a-t-il fait? Que compte-t-il faire? » Les yeux de Du Qing étaient empreints d'horreur.
+« La veine de feu terrestre s'est desséchée et le feu s'est dissipé. Elle est morte! Il absorbe le feu terrestre, ce qui... est impossible... Même un cultivateur possédant une essence de feu n'oserait jamais absorber de force le feu terrestre. Une fois l'acte accompli, il risquerait un rejet interne et serait rejeté par le feu du ciel et de la terre du Continent du Taureau Céleste... Comment... Comment a-t-il fait? Que compte-t-il faire? » Les yeux de Du Qing étaient empreints d'horreur.
 
 Il n'avait jamais entendu parler de quiconque capable d'absorber et de dévorer une veine de feu terrestre. Les cultivateurs dotés d'une essence de feu offraient toujours des sacrifices au feu pour obtenir sa reconnaissance. Personne n'avait jamais osé dévorer le feu, et personne n'en avait jamais été capable!

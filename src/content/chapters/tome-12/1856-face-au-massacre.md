@@ -12,7 +12,7 @@ Wang Lin s'en souciait peu. Il observa les alentours et partit silencieusement c
 
 Lu Wenran ricana intérieurement, son regard balayant le dos de Wang Lin.
 
-« Pour le bien de la Secte de la Grande Âme, je suis resté dans la Mer des Pilules et j'ai pris l'apparence d'un cultivateur renegat afin d'attirer l'attention du Continent du Démon Vert. Je suis resté là pendant plus de mille ans... »
+« Pour le bien de la Secte de la Grande Âme, je suis resté dans la Mer des Pilules et j'ai pris l'apparence d'un cultivateur errant afin d'attirer l'attention du Continent du Démon Vert. Je suis resté là pendant plus de mille ans... »
 
 « Tout cela pour que le Continent du Démon Vert ne soupçonne rien et envahisse le Continent du Taureau Céleste, comme l'avait prévu l'Ancien Ancêtre... J'ai tout sacrifié, et pourtant l'Ancien Ancêtre ne m'a pas transmis le sortilège d'illusion multicouche complet. Quelles qualifications a-t-il pour le détenir?! »
 
@@ -22,7 +22,7 @@ L'expression de Lu Wenran resta imperturbable. Il esquissa un sourire poli et ad
 
 Wang Lin le fixa d'un regard profond. Puis, il se détourna et choisit une grotte avant de disparaître.
 
-Parmi le groupe de Lu Wenran, Yan Lu était celle qui comprenait le mieux Wang Lin. Elle ne pouvait oublier à quel point il était terrifiant. Tout au long du voyage, elle avait remarqué la tension latente entre eux.
+Parmi le groupe de Lu Wenran, Yan Luan était celle qui comprenait le mieux Wang Lin. Elle ne pouvait oublier à quel point il était terrifiant. Tout au long du voyage, elle avait remarqué la tension latente entre eux. Elle resta impassible et n'en avertit pas Lu Wenran, feignant de n'avoir rien vu.
 
 Une fois les discussions terminées, les trois vieillards invitèrent Lu Wenran et sa compagnie dans la grande salle, mais ils ne mentionnèrent nullement Wang Lin. De toute évidence, à leurs yeux, il n'était pas digne de comparaison avec le groupe de Lu Wenran.
 
@@ -30,7 +30,7 @@ Les six membres s'avancèrent vers les palais au loin en souriant. Lu Wenran agi
 
 Une fois les six disparus, les membres des autres sectes se dispersèrent. Dès l'arrivée des partisans de la Secte de la Grande Âme, la formation entourant la Prairie du Ciel Extrême s'activa pleinement.
 
-À l'activation de la formation, un grondement de tonnerre retentit. Une barrière d'énergie large de plusieurs centaines de kilomètres s'étendit à travers la Prairie du Ciel Extrême, s'étirant bien au-delà.
+À l'activation de la formation, un grondement de tonnerre retentit. Une barrière d'énergie large de 10 000 kilomètres s'étendit à travers la Prairie du Ciel Extrême, s'étirant bien au-delà.
 
 Simultanément, les cultivateurs de la Secte de la Grande Âme et de la Secte Gui Yi arrivèrent aux six autres méridiens du Taureau Céleste restants. Leur arrivée déclencha également les formations entourant ces méridiens.
 
@@ -38,15 +38,15 @@ Ainsi, lorsque les sept méridiens furent activés, la barrière géante se dép
 
 Au total, sept barrières apparurent, se connectant pour former un rempart titanesque protégeant le Continent du Taureau Céleste de la Mer des Pilules!
 
-Cette barrière, érigée par plus de 100 000 cultivateurs, possédait une épaisseur de plus de 100 000 kilomètres. Ce n'était pas un obstacle qu'un cultivateur ordinaire pourrait franchir; même un être comme l'Ancien Ancêtre du Taureau Vert aurait des difficultés à la traverser!
+Cette barrière, érigée par plus de 100 000 cultivateurs, possédait une épaisseur de 10 000 kilomètres. Ce n'était pas un obstacle qu'un cultivateur ordinaire pourrait franchir; même un être comme l'Ancien Ancêtre du Taureau Vert aurait des difficultés à la traverser!
 
 On pourrait dire que c'était presque impossible! Car au-delà de la puissance intrinsèque de la formation, elle puisait également dans la force même du Taureau Céleste!
 
 Ces sept méridiens étaient activés à pleine puissance pour la première fois depuis leur création; ils joueraient un rôle vital.
 
-Outre ces sept méridiens, soixante-douze veines terrestres étaient gardées par les membres de la Secte de la Grande Âme et de petites sectes. Ces veines rassemblaient une énergie céleste infinie pour soutenir les sept méridiens du Taureau Céleste!
+Outre ces sept méridiens, soixante-douze veines terrestres étaient gardées par les membres de la Secte de la Grande Âme, de la Secte Gui Yi et de petites sectes. Ces veines rassemblaient une énergie céleste infinie pour soutenir les sept méridiens du Taureau Céleste!
 
-Tout cela visait la défense, mais comment la Secte de la Grande Âme aurait-il pu se préparer durant tant d'années uniquement pour défendre? Un autre groupe de cultivateurs était chargé de l'offensive!
+Tout cela visait la défense, mais comment la Secte de la Grande Âme aurait-elle pu se préparer durant tant d'années uniquement pour défendre? Un autre groupe de cultivateurs était chargé de l'offensive!
 
 D'innombrables grottes entouraient les palais souterrains où résidaient les cultivateurs rassemblés. Un sentiment oppressant pesait sur le cœur de chacun: ils savaient qu'une guerre monumentale allait éclater.
 
@@ -54,9 +54,9 @@ Si les cultivateurs du Continent du Démon Vert voulaient briser la barrière, i
 
 Bientôt, le ciel serein de la Prairie du Ciel Extrême serait obscurci par les cultivateurs du Continent du Démon Vert.
 
-Yan Lu choisit également d'entrer en culture fermée afin de maintenir son niveau à son apogée. Xu Dongde et Lu Wenran firent de même, mais ils optèrent pour un palais plutôt qu'une grotte. Après tout, leur statut élevé faisait d'eux la force principale de la défense.
+Yan Luan choisit également d'entrer en culture fermée afin de maintenir son niveau à son apogée. Xu Dongde et Lu Wenran firent de même, mais ils optèrent pour un palais plutôt qu'une grotte. Après tout, leur statut élevé faisait d'eux la force principale de la défense.
 
-En réalité, quatre autres personnes parmi les 10 000 cultivateurs se trouvaient au stade initial de la Tribulation du Vide. Bien qu'issus de petites sectes ou étant des cultivateurs renegats, leur importance était capitale; ils furent invités dans les palais en tant que forces décisives de cette bataille!
+En réalité, quatre autres personnes parmi les 10 000 cultivateurs se trouvaient au stade initial de la Tribulation du Vide. Bien qu'issus de petites sectes ou étant des cultivateurs errants, leur importance était capitale; ils furent invités dans les palais en tant que forces décisives de cette bataille!
 
 Le temps passa tandis que Wang Lin restait assis calmement dans sa petite grotte. De nombreuses grottes l'entouraient, dont une occupée par un vieil homme qui ne reconnut pas Wang Lin après sa guérison, bien que ce dernier l'ait identifié.
 
@@ -64,7 +64,7 @@ Ce vieil homme était celui qui avait discuté avec Wang Lin dans la Prairie du 
 
 En vérité, compte tenu de son identité, Wang Lin aurait pu choisir un palais s'il l'avait souhaité, mais cela ne l'intéressait pas. Il préférait la tranquillité de cet endroit plutôt que de subir les murmures et les regards indiscrets s'il avait occupé un palais.
 
-Assis là, il cultivait lentement, laissant son Sens Divin se propager avec parcimonie. Profitant de ce temps, il affina le parapluie bleu et l'Origine du Fantôme de l'Âme à un niveau plus profond.
+Assis là, il cultivait lentement, laissant son Sens Divin se propager avec parcimonie. Profitant de ce temps, il affina le parapluie bleu et l'Origine de la Fantaisie de l'Âme à un niveau plus profond.
 
 Il sortit également la restriction du compas et la déploya sur la prairie. Cet objet était d'un mystère extrême; même en le dispersant, nul ne s'en aperçut, pas même Lu Wenran, qui possédait le niveau de culture le plus élevé ici.
 
@@ -82,13 +82,13 @@ Alors que Wang Lin percevait l'arrivée des cultivateurs du Continent du Démon 
 
 L'aura de méditation se dissipa et tous les cultivateurs présents ouvrirent les yeux.
 
-Les quelques experts de la Tribulation du Vide, tels que Yan Lu et Xu Dongde, perçurent l'approche de l'ennemi, et une intention meurtrière envahit l'air.
+Les quelques experts de la Tribulation du Vide, tels que Yan Luan et Xu Dongde, perçurent l'approche de l'ennemi, et une intention meurtrière envahit l'air.
 
 Un hurlement terrifiant déchira le ciel de la Prairie du Ciel Extrême. Plus de 10 000 cultivateurs survolaient la plaine, occultant le ciel autrefois radieux!
 
 Parmi cette légion, six individus étaient les plus rapides.
 
-Ces six guerriers comprenaient quatre hommes et deux femmes. Vêtus de façon extravagante, leur niveau de culture représentait le sommet du Continent du Démon Vert! Les deux vieillards dégageant une aura de Tribulation du Vide au stade intermédiaire étaient les deux plus puissants de cette armée de 10 000 hommes.
+Ces six guerriers comprenaient quatre hommes et deux femmes. Somptueusement vêtus, leur niveau de culture représentait le sommet du Continent du Démon Vert! Les deux vieillards dégageant une aura de Tribulation du Vide au stade intermédiaire étaient les deux plus puissants de cette armée de 10 000 hommes.
 
 Les quatre autres se situaient au stade initial de la Tribulation du Vide.
 
@@ -116,7 +116,7 @@ Simultanément, dans les profondeurs de la terre, Lu Wenran, l'expression grave,
 
 « Tous les cultivateurs de la Tribulation du Vide, suivez-moi et frayez un chemin par le massacre! Dans cette formation de brume, notre énergie est illimitée et nous pouvons puiser librement dans sa puissance! »
 
-Sur cet ordre, sept rayons de lumière jaillirent aux côtés de Lu Wenran pour mener l'assaut. Ils disparurent dans la brume.
+Sur cet ordre, sept rayons de lumière jaillirent, Lu Wenran à leur tête. Ils disparurent dans la brume.
 
 En surface, le brouillard enveloppa totalement les cultivateurs du Continent du Démon Vert. Aussitôt, les près de 10 000 combattants restés sous terre s'élancèrent à leur tour.
 

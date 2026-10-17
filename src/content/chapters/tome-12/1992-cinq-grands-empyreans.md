@@ -14,7 +14,7 @@ L'expression du Grand Empyréen Jiu Di était grave tandis qu'il fixait l'Empere
 
 « La tête de l'Ancêtre Céleste... Autrefois, ce vieil homme suivait l'Ancêtre Céleste, et voilà maintenant d'innombrables années qui ont passé... Lian Daozhen, ce vieil homme a connu plusieurs générations d'Empereurs Célestes, mais tu peux être considéré comme le plus grandiose!
 
-« En utilisant le désir de l'Instructeur Impérial, tu as obtenu le contrôle de la tête de l'Ancêtre Céleste. Si tu avais eu assez de temps pour absorber pleinement la tête de l'Ancêtre Céleste dans ton corps, tu serais bel et bien le premier Grand Empyréen de notre clan céleste!
+« En utilisant le désir de l'Enseignant Impérial, tu as obtenu le contrôle de la tête de l'Ancêtre Céleste. Si tu avais eu assez de temps pour absorber pleinement la tête de l'Ancêtre Céleste dans ton corps, tu serais bel et bien le premier Grand Empyréen de notre clan céleste!
 
 « Mais désormais, tu n'en auras plus la chance! » La voix de Jiu Di résonna avec une antiquité profonde alors qu'il faisait un pas en avant. À cet instant, la femme issue de la fusion du Grand Empyréen Gémeaux fut soudainement enveloppée d'une lumière pourpre et elle avança elle aussi vers l'Empereur Céleste!
 
@@ -42,7 +42,7 @@ Ce à quoi ils venaient de faire face n'était pas l'Empereur Céleste, mais l'A
 
 Les yeux de Jiu Di s'illuminèrent et il déclara: « Ce n'est pas la puissance complète de l'Ancêtre Céleste, seulement environ 10 %! » Des craquements résonnèrent dans son corps et son visage vieillissant changea rapidement. Il passa de l'apparence d'un vieillard à celle d'un homme d'âge moyen!
 
-Il était d'une grande beauté et dégageait l'aura impérieuse d'un empereur! Jiu Di conservait habituellement l'aspect d'un vieil homme, et ce n'est que lorsque sa culture éclatait pleinement que son apparence se métamorphosait ainsi.
+Il avait une allure martiale et dégageait l'aura impérieuse d'un empereur! Jiu Di conservait habituellement l'aspect d'un vieil homme, et ce n'est que lorsque sa culture éclatait pleinement que son apparence se métamorphosait ainsi.
 
 « À vrai dire, c'est la première fois que je te vois sous cette forme, Jiu Di, mais même ainsi, tu ne fais pas le poids face à moi! » L'Empereur Céleste sourit et s'assit simplement sur la tête de l'Ancêtre Céleste, pressant ses deux mains contre elle.
 
@@ -54,7 +54,7 @@ La tête était réelle, le corps n'était qu'une illusion. À ce moment, ses ye
 
 L'épée de l'Ancêtre Céleste!
 
-Dès que l'épée se manifesta, Wang Lin entendit une voix l'appeler.
+Dès que l'épée se manifesta, Wang Lin ressentit un profond appel.
 
 « Autrefois, d'un seul coup d'épée, de nombreuses âmes étrangères furent fauchées. Seuls ceux qui en étaient dignes furent scellés dans des continents. Aujourd'hui, vous deux avez offensé la puissance de l'Ancêtre Céleste — refusez-vous encore de reculer face à cette épée?! » La voix de l'Empereur Céleste tonna alors qu'il levait l'épée dorée et l'abattait vers le Grand Empyréen Jiu Di et Gémeaux!
 
@@ -68,13 +68,13 @@ Le monde à la gauche de l'Empereur Céleste devint immobile; plus rien ne bouge
 
 Son Dao était celui où tout redevient Un. D'un simple doigt, il libéra le sommet de sa puissance!
 
-Sur le côté droit de l'Empereur Céleste, les vents faisaient rage et les nuages s'éparpillaient. Des grondements tonitruants retentirent alors que le Grand Empyréen Wu Feng sortait à son tour. Sans hésiter, il lança un coup de poing vers l'Empereur Céleste!
+Sur le côté droit de l'Empereur Céleste, les vents faisaient rage et les nuages s'éparpillaient. Des grondements tonitruants retentirent alors que le Grand Empyréen Wu Feng, au crâne rasé, sortait à son tour. Sans hésiter, il lança un coup de poing vers l'Empereur Céleste!
 
-Le Grand Empyréen Wu Feng était celui qui avait franchi le 16e palais lors de l'Épreuve Empyréenne. Il était un adepte des arts martiaux dont le Dao s'était accompli à travers eux. Ce coup de poing contenait l'apogée de sa foi en sa propre force!
+Le Grand Empyréen Wu Feng était celui qui avait franchi le 19e palais lors de l'Épreuve Empyréenne. Il était un adepte des arts martiaux dont le Dao s'était accompli à travers eux. Ce coup de poing contenait l'apogée de sa foi en sa propre force!
 
 Quatre Grands Empyréens attaquèrent de concert!
 
-Wang Lin vit tout cela avec clarté depuis l'œil droit de l'Ancêtre Céleste. Son esprit trembla. Il ne s'attendait pas à une telle déferlante lors de ce voyage au palais impérial. Même Dao Yi et Wu Feng étaient apparus!
+Wang Lin vit tout cela avec clarté depuis l'œil droit de l'Ancêtre Céleste. Son esprit trembla. Il ne s'attendait pas à une telle déferlante lors de ce voyage au palais souterrain. Même Dao Yi et Wu Feng étaient apparus!
 
 À leur apparition, Wang Lin comprit que tout ici n'était qu'une partie d'échecs, et qu'il n'était qu'un pion dans ce jeu. Même ces Grands Empyréens n'étaient que des pièces. C'était une partie dont l'Empereur Céleste était l'un des joueurs, mais qui était l'autre?
 
@@ -90,11 +90,11 @@ Au même instant, l'ombre de l'Ancêtre Céleste disparut, ne laissant que la t�
 
 Jiu Di regarda l'Empereur Céleste et dit froidement: « Si ce vieil homme ne suffit pas, l'Empereur Céleste pense-t-il que l'ajout de Dao Yi et de Wu Feng sera suffisant?! »
 
-L'expression de l'Empereur Céleste était sombre lorsqu'il répondit lentement: « Que voulez-vous exactement que nous fassions?! »
+L'expression de l'Empereur Céleste était sombre lorsqu'il répondit lentement: « Que voulez-vous exactement que je fasse?! »
 
 L'objectif du Grand Empyréen Gémeaux était limpide. Elle fixa l'Empereur Céleste et dit calmement: « Libère Wang Lin! Et je partirai! »
 
-Jiu Di regarda la tête de l'Ancêtre Céleste et déclara lentement: « Ce vieil homme espère que l'Empereur Céleste resellera le crâne qui opprime les 72 âmes du clan céleste. Ce crâne est crucial pour notre clan, et ce n'est pas un objet qu'un Empereur Céleste devrait détenir! »
+Jiu Di regarda la tête de l'Ancêtre Céleste et déclara lentement: « Ce vieil homme espère que l'Empereur Céleste resellera le crâne qui opprime les esprits des 72 continents du clan céleste. Ce crâne est crucial pour notre clan, et ce n'est pas un objet qu'un Empereur Céleste devrait détenir! »
 
 « Mes pensées rejoignent celles de Jiu Di! Empereur Céleste, maintenir l'équilibre des pouvoirs que nous partagions entre nous cinq est la meilleure chose à faire; il n'y a aucune raison de le changer! » dit Dao Yi d'un ton lugubre. Il contemplait la tête de l'Ancêtre Céleste sous l'Empereur avec effroi.
 
@@ -108,8 +108,8 @@ Tandis qu'ils battaient en retraite, l'Empereur Céleste afficha un regard féro
 
 Sous l'éclat de la lumière dorée, l'Empereur Céleste plaqua ses mains sur la tête pour absorber l'énergie. Cependant, il ne put rien absorber; c'était comme si une couche de sceaux entourait la tête, l'empêchant de puiser dans sa puissance.
 
-« Ceci est le sceau du clan Dao Wang. Ce maudit Instructeur Impérial... lorsqu'il a fait parler l'Ancêtre Céleste, il a utilisé son âme et y a laissé une trace du sceau du clan Dao Wang!
+« Ceci est le sceau du clan Dao Wang. Ce maudit Enseignant Impérial... lorsqu'il a fait parler l'Ancêtre Céleste, il a utilisé son âme et y a laissé une trace du sceau du clan Dao Wang!
 
 « Mais ce sceau ne pourra pas m'arrêter! Je suis l'Empereur Céleste. Normalement, je ne pourrais peut-être pas le briser, mais avec le contrôle de la tête de l'Ancêtre Céleste, j'en suis capable!
 
-« Même si je lève le sceau sur la Secte Dao Wang, peu importe. L'Instructeur Impérial est mort et ne pourra plus provoquer de remous! » L'esprit de l'Empereur Céleste tournait à toute vitesse. La situation était critique et il n'avait pas le temps de trop réfléchir!
+« Même si je lève les sceaux de tous les âges du clan Dao Wang, peu importe. L'Enseignant Impérial est sur le point de mourir et ne pourra plus provoquer de remous! » L'esprit de l'Empereur Céleste tournait à toute vitesse. La situation était critique et il n'avait pas le temps de trop réfléchir!

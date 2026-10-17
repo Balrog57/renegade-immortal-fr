@@ -12,7 +12,7 @@ Wang Lin ne croyait pas au feng shui. Il était un puissant cultivateur capable 
 
 Mais à cet instant, il pouvait tout de même utiliser le feng shui pour interpréter la scène qui avait bouleversé tout le Continent Astral Immortel!
 
-Être enterré dans une grotte signifiait que ses descendants récolteraient plus de richesses et subiraient moins de catastrophes! Une fois enterrés dans la grotte maîtresse, nombre de leurs futurs généraux connaîtraient la prospérité! Une fois enterrés dans une veine de dragon, leurs descendants jouiraient d'une grande fortune. De même, une fois enterrés dans la veine de dragon principale, leurs descendants pourraient régner sur un pays!
+Être enterré dans un site faste signifiait que ses descendants récolteraient richesses et subiraient peu de catastrophes! Une fois enterrés dans le site faste principal, leurs descendants connaîtraient la prospérité durant plusieurs générations! Une fois enterrés dans une veine de dragon, leurs descendants jouiraient d'une grande fortune. De même, une fois enterrés dans la veine de dragon principale, leurs descendants pourraient régner sur un pays!
 
 L'avatar de Wang Lin se trouvait au lieu de naissance des Ancêtres Célestes et Anciens. Bien qu'il ne s'agisse pas de la même plateforme, celle-ci faisait partie de la plateforme originelle!
 
@@ -40,7 +40,7 @@ Si l'un d'eux possédait un talent suffisant, il serait admis dans la secte en t
 
 Ailleurs sur ce continent, quelque part au loin, un jeune garçon portait une robe de Dao trouvée par hasard, ressemblant à un enfant céleste. Il se trouvait dans la demeure d'une grande famille. Un sourire flottait sur son visage tandis que plusieurs personnes s'inclinaient respectueusement devant lui.
 
-« Ce vieil homme a cultivé pendant trois mille ans et est aujourd'hui revenu à l'état d'enfant. Je dois traverser neuf réincarnations pour recouvrer ma culture. Puisque vous m'avez invité depuis la campagne, je vais rester un moment pour tisser un lien avec le Dao. » L'aura antique de l'enfant était perceptible même par les mortels. On aurait dit que la personne assise devant eux n'était pas un enfant, mais un vieillard ayant vécu des millénaires.
+« Ce vieil homme a cultivé pendant trois mille ans et est aujourd'hui revenu à l'état d'enfant. Je dois traverser neuf réincarnations pour recouvrer ma culture. Puisque vous m'avez invité depuis le comté voisin, je vais rester un moment pour tisser un lien avec le Dao. » L'aura antique de l'enfant était perceptible même par les mortels. On aurait dit que la personne assise devant eux n'était pas un enfant, mais un vieillard ayant vécu des millénaires.
 
 En particulier, l'esprit qui brillait dans ses yeux semblait percer les mystères de la vie, au point qu'on se sentait obligé de le croire.
 
@@ -50,7 +50,7 @@ Observant le mortel tremblant, frappé par cette aura de déclin, l'enfant parai
 
 « Hmph, hmph, l'art de la tromperie de ce petit seigneur est une chose que j'ai maîtrisée sans maître. Ces paroles semblaient vraies même pour moi, comme si je m'étais réellement réincarné! Si je suis vraiment réincarné, alors j'ai dû être un menteur capable de faire trembler le ciel! »
 
-« Je vais rester ici un certain temps pour ne pas gaspiller les quelques mois passés avec les corps du cimetière... Il y a aussi les frais du voyage depuis le pays voisin. Je dois tout récupérer au centuple... »
+« Je vais rester ici un certain temps pour ne pas gaspiller les quelques mois passés avec les corps du cimetière... Il y a aussi les frais du voyage dans le comté voisin. Je dois tout récupérer au centuple... »
 
 Dans le vide, le corps de Wang Lin était entouré de brouillard. Ce brouillard était le roi des moustiques, qui portait Wang Lin en volant vers l'avant.
 
@@ -76,7 +76,7 @@ Il avait déjà perdu la notion du temps. Il ignorait depuis combien de temps il
 
 « D'un autre côté, je dois rapidement augmenter mon niveau de culture sur le Continent Astral Immortel... Il y a aussi la Secte Dong Lin que je dois visiter. Si je peux entrer dans le Bassin Dong Lin... » À cette pensée, le cœur de Wang Lin s'emballa. On pouvait dire qu'il brûlait d'envie d'entrer dans le Bassin Dong Lin!
 
-Il aspirait à faire de l'illusion du cinquième lotus une réalité. Il désirait posséder des corps véritables pour pouvoir combattre les cultivateurs de la Tribulation Arcane!
+Il aspirait à faire de l'illusion de la cinquième fleur une réalité. Il désirait posséder des corps véritables pour pouvoir combattre les cultivateurs de la Tribulation du Vide!
 
 « Il y a encore de vieux amis sur le Continent Astral Immortel... J'ignore qui a réussi sa réincarnation... Hehe, je me demande si Situ Nan est devenu un roi. Je ne sais pas si Liu Jinbiao poursuivra son chemin de tromperie. Et il y a ce démon, Xu Liguo. Je me demande quel destin l'attend sur le Continent Astral Immortel. »
 

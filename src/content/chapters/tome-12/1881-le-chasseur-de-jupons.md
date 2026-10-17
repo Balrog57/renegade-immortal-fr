@@ -14,7 +14,7 @@ L'expression de Wang Lin était calme. Après avoir appris que le premier, le de
 
 « Ce jade contient l'emplacement exact du réseau de transfert et peut activer la formation trois fois. J'espère que tu seras rapide, Compagnon Cultivateur. J'ai encore une autre tâche à accomplir, je dois donc te faire mes adieux! » Ouyang Zhen semblait anxieux. Après avoir joint les mains en signe de salut devant Wang Lin, il partit.
 
-Ouyang Zhen était venu et repartit aussi vite qu'il était apparu, mais Wang Lin percevait la tension qui habitait les cultivateurs de la Secte du Taureau Céleste en cette guerre. Après un moment de réflexion, Wang Lin baissa les yeux vers le jade.
+Ouyang Zhen était venu et repartit aussi vite qu'il était apparu, mais Wang Lin percevait la tension qui habitait les cultivateurs du Continent du Taureau Céleste en cette guerre. Après un moment de réflexion, Wang Lin baissa les yeux vers le jade.
 
 Au sol, plusieurs rayons de lumière jaillirent, révélant Yan Lu et les autres cultivateurs de la Tribulation du Vide. Ils restaient silencieux.
 
@@ -26,7 +26,7 @@ Après un long moment, Wang Lin rangea le jade et regarda Yan Lu et sa compagnie
 
 Wang Lin était parti avec une grande décontraction. Il n'appartenait pas au Continent du Taureau Céleste; son arrivée ou son départ n'avait donc que peu d'importance. Tel le vent, il ne laisserait peut-être aucune trace après son passage.
 
-Yan Lu et ses compagnons fixèrent l'endroit où Wang Lin avait disparu, les traits empreints de complexité, pendant la durée d'un bâton d'encens. Ces mois de coexistence avaient été tumultueux et difficiles à oublier; c'était une expérience qu'ils garderaient en mémoire pour le reste de leur vie.
+Yan Lu et ses compagnons fixèrent l'endroit où Wang Lin avait disparu, les traits empreints de complexité, pendant la durée d'un demi-bâton d'encens. Ces mois de coexistence avaient été tumultueux et difficiles à oublier; c'était une expérience qu'ils garderaient en mémoire pour le reste de leur vie.
 
 Le lendemain du départ de Wang Lin, tous les cultivateurs accompagnant Yan Lu quittèrent la Prairie de l'Extrême Ciel, abandonnant les lieux pour se diriger vers l'endroit indiqué par Ouyang Zhen.
 
@@ -84,9 +84,9 @@ Wang Lin se frotta le nez en volant vers la secte, sous le regard étrange de l'
 
 Bientôt, tout le monde atteignit la Secte Gui Yi et pénétra dans la formation, guidé par l'homme d'âge moyen. Une lumière violette clignota; il semblait que ce n'était pas la première fois que Tang Jia se rendait à la Secte Gui Yi, car elle se dirigea directement vers le grand hall.
 
-Une demi-heure plus tard, Wang Lin aperçut une immense place où un cadran colossal était suspendu à l'envers dans le ciel, dégageant des vagues de pression.
+Une demi-heure plus tard, Wang Lin aperçut une immense place où une cloche colossale était retournée, dégageant des vagues de pression.
 
-Deux cultivateurs étaient assis sous ce cadran. L'un était un vieil homme au visage sombre qui semblait ignorer tout ce qui l'entourait. Sur le côté droit de son visage, le tatouage du Taureau Céleste brillait, émanant l'aura de l'âme du Taureau.
+Deux cultivateurs étaient assis sous cette cloche. L'un était un vieil homme aux cheveux blancs et au visage sombre qui semblait ignorer tout ce qui l'entourait. Sur le côté droit de son visage, le tatouage du Taureau Céleste brillait, émanant l'aura de l'âme du Taureau.
 
 L'autre était un jeune homme à l'expression nonchalante, mais si l'on regardait de près, on pouvait percevoir une étincelle dans ses yeux. Malgré son air paresseux, il devenait une personne tout autre dès que son expression se faisait sérieuse. Un tatouage du Taureau Céleste brillait également sur le côté droit de son visage.
 

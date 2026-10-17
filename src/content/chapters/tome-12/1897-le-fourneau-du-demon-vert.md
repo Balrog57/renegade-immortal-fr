@@ -12,13 +12,13 @@ Mais les deux Messagers du Démon Vert qui se tenaient derrière lui ne posséda
 
 Le visage livide, ils poussèrent des rugissements tout en battant en retraite, activant la totalité de leur culture pour espérer résister à ce froid mortel.
 
-Cela s'expliquait par le fait que la Lame Yin n'avait point de maître. Si l'âme originelle de Wang Lin avait marqué l'arme et qu'il avait puisé dans le regain de culture de cette armure d'âme, la Lame Yin aurait été assez puissante pour ébranler le monde et faire pleurer les dieux et les fantômes!
+Et ce, alors que la Lame Yin n'avait pour l'instant point de maître. Si l'âme originelle de Wang Lin avait marqué l'arme et qu'il avait puisé dans le regain de culture de cette armure d'âme, la Lame Yin aurait été assez puissante pour ébranler le monde et faire pleurer les dieux et les fantômes!
 
 Elle pourrait même invoquer les âmes des vingt-neuf continents pour former une suppression terrifiante; c’était pourquoi il était si difficile pour les deux Messagers du Démon Vert de braver ce froid!
 
 Cette lame pouvait même affronter des cultivateurs au stade avancé de la Tribulation du Vide sans subir le moindre revers!
 
-« Seul un être tel que le Seigneur Démon Vert est digne de cette Lame Yin! » Le visage caché de l'homme aux vêtements verts était étrangement rubicond. Ses yeux brillaient d'excitation alors qu'il regardait la lame, entre les mains de Wang Lin, réintégrer la chair. Une fois l'arme disparue sans laisser de trace, il ne put s'empêcher de rire.
+« Seul un être tel que le Seigneur Démon Vert est digne de cette Lame Yin! » Le visage caché de l'homme aux vêtements verts était étrangement rubicond. Ses yeux brillaient d'excitation alors qu'il regardait la lame, sortie de la main droite de Wang Lin, réintégrer la chair. Une fois l'arme disparue sans laisser de trace, il ne put s'empêcher de rire.
 
 Mais dans son rire, il se mit à tousser violemment, crachant même du sang. Il était bien trop vieux; son heure approchait.
 
@@ -66,13 +66,13 @@ Wang Lin avait déjà remporté une partie de cette bataille contre le temps. Po
 
 La plupart des innombrables trésors amassés par la famille du vieil homme avaient été consumés pour Wang Lin. Il n'en restait que quatre ou cinq, émettant chacun une lueur douce.
 
-Malgré cela, le visage sévère de l'homme rayonnait d'excitation. Il semblait avoir oublié qu'il lui restait moins de quinze ans à vivre, oublié le prix exorbitant payé et sa propre épuisement. Son unique pensée était de contempler l'avènement du Seigneur Démon Vert et la résurrection du Scorpion du Démon Vert!
+Malgré cela, le visage sévère de l'homme rayonnait d'excitation. Il semblait avoir oublié qu'il lui restait moins de quinze ans à vivre, oublié le prix exorbitant payé et son épuisement. Son unique pensée était de contempler l'avènement du Seigneur Démon Vert et la résurrection du Scorpion du Démon Vert!
 
 « Ce corps est désormais parfait, le Seigneur Démon Vert l'adorera. Maintenant, nous devons le tempérer pour l'ultime préparation. Transformons-le en un corps de scorpion digne du Seigneur Démon Vert! » L'homme agita sa manche et les derniers matériaux volèrent vers Wang Lin, se brisant en fragments qui l'encerclèrent.
 
 L'espace vert se mit à trembler et les innombrables scorpions s'effondrèrent, se muant en lumières verdoyantes qui foncèrent sur Wang Lin. L'espace lui-même commença à se contracter autour de lui jusqu'à former un fourneau géant et émeraude!
 
-Ce fourneau de dix mille pieds de haut ressemblait à une vasque céleste. Entièrement vert, il était imprégné de l'aura des scorpions. Il contenait les derniers objets rares du vieil homme et s'apprêtait à métamorphoser le corps de Wang Lin!
+Ce fourneau de dix mille pieds de haut ressemblait à une forge du ciel et de la terre. Entièrement vert, il était imprégné de l'aura des scorpions. Il contenait les derniers objets rares du vieil homme et s'apprêtait à métamorphoser le corps de Wang Lin!
 
 « Messagers du Démon Vert, transformez votre culture en feu pour alimenter le fourneau! » Toussa l'homme, sa voix rauque trahissant son exaltation.
 

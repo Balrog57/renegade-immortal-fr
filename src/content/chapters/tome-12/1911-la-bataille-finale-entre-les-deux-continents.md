@@ -27,7 +27,7 @@ Outre lui, Tang Jia et Bord-des-Nuages s'étaient également illustrés grâce �
 
 Le Continent du Démon Vert comptait également des cultivateurs de cette trempe, tel que Yun Kong, que Wang Lin avait tué à deux reprises. Son corps originel se trouvait toujours sur le Continent du Taureau Céleste, car Wang Lin n'avait tué que ses avatars. La culture à l'épée de Yun Kong était extraordinaire et avait captivé l'attention de tous. Sous les ordres de Yun Kong se trouvaient plusieurs autres individus; avec les talents émergents du Continent du Taureau Céleste, ces moins de vingt personnes étaient désormais les chefs de cette guerre!
 
-C'était comme si le but de ce combat était de magnifier la gloire de ces vingt guerriers! La guerre se poursuivait entre la Secte de la Grande Âme et la Secte Gui Yi. Les seize cultivateurs des deux camps déployaient toute leur puissance, comme si le champ de bataille n'était qu'une scène destinée à leurs performances!
+C'était comme si le but de ce combat était de magnifier la gloire de ces moins de vingt guerriers! La guerre se poursuivait entre la Secte de la Grande Âme et la Secte Gui Yi. Les seize cultivateurs des deux camps déployaient toute leur puissance, comme si le champ de bataille n'était qu'une scène destinée à leurs performances!
 
 Wang Lin était toujours à l'intérieur de la Secte du Dao Démoniaque! Il ne souhaitait pas se montrer, il ne voulait que sa vengeance, mais ce faisant, il révélait sa propre lumière. Quiconque prêtait attention à la guerre entre les deux continents ne pourrait certainement pas ignorer Wang Lin! Ce que faisait Wang Lin n'avait aucune comparaison avec ces seize génies; il les surpassait totalement!
 
@@ -53,7 +53,7 @@ La peur et l'horreur dans ses yeux furent balayées par une Lame Yin tonitruante
 
 Un Exalté de la Tribulation du Vide venait de périr ainsi!
 
-Tout cela se produisit avec une rapidité telle que les trente mille membres de la Secte du Dao Démoniaque ne purent réagir. L'Ancien qu'ils respectaient, doté d'un pouvoir capable de percer les cieux, avait eu la tête tranchée et le corps transformé en une brume de sang!
+Tout cela se produisit avec une rapidité telle que les trente mille membres de la Secte du Dao Démoniaque ne purent réagir. L'Ancien qu'ils respectaient, doté d'un pouvoir capable de percer les cieux, avait eu la tête tranchée et son cadavre, dans une brume de sang, chutait vers le sol!
 
 À l'instant même où le vieil homme mourut, l'homme en robe rouge s'élança. Son visage était livide et ses pupilles se rétractèrent. Terrifié, il prit la fuite frénétiquement sans la moindre hésitation. À cet instant, il n'avait plus cure de la Secte du Dao Démoniaque; rien n'était plus important que sa propre vie!
 

@@ -16,7 +16,7 @@ Dès l'apparition de cette goutte, une énergie céleste dense se manifesta. Cet
 
 « La Mer des Pilules a été formée par une Pilule Céleste. Beaucoup le savent. Beaucoup ont tenté de la raffiner pour la restaurer sous sa forme originelle, mais nul n'y est parvenu, faute d'un catalyseur! »
 
-« Et ce catalyseur, c'est cette goutte de liquide doré! » Yun Kong esquissa un sourire. Cette substance était d'une valeur inestimable; une relique que le Continent du Démon Vert avait mis des années d'errance à débusquer.
+« Et ce catalyseur, c'est cette goutte de liquide doré! » Yun Kong esquissa un sourire. Cette substance était d'une valeur inestimable; une relique que le Continent du Démon Vert avait mis d'innombrables années à trouver.
 
 Elle appartenait autrefois à la Pilule Céleste qui avait engendré la Mer des Pilules! Sans elle, toute tentative de reformation serait vaine; les 100 000 pieds constitueraient une limite infranchissable.
 
@@ -36,11 +36,11 @@ Le processus ne s'arrêtait pas; la masse convergeait rapidement vers le seuil d
 
 À mesure qu'elle rétrécissait, le vortex devenait indistinct. En un instant, une demi-Pilule Céleste commença à prendre forme en son sein! Cependant, à ce stade, la moindre perturbation était fatale, car c'était l'étape ultime de la condensation. La pilule était d'une instabilité extrême; si elle était perturbée, elle exploserait prématurément, avec des conséquences inimaginables!
 
-C'est pour cette raison que le Continent du Démon Vert avait vidé toute la Mer des Pilules, afin de garantir qu'aucun incident ne vienne entraver l'œuvre de Yun Kong. Pourtant, grâce à la restriction en place, personne n'avait soupçonné l'existence de Wang Lin!
+C'est pour cette raison que le Continent du Démon Vert avait purgé toute la Mer des Pilules, afin de garantir qu'aucun incident ne vienne entraver l'œuvre de Yun Kong. Pourtant, grâce à la restriction en place, personne n'avait soupçonné l'existence de Wang Lin!
 
 Cette restriction appartenait désormais à Wang Lin. S'il choisissait de se dissimuler, nul ne pourrait le détecter au sein de la formation.
 
-Yun Kong touchait au but quand, soudain, une aura émana des algues sous ses pieds. Cette aura était celle de Wang Lin qui, dès son apparition, fit un pas en avant.
+Yun Kong touchait au but quand, soudain, à dix mille kilomètres de lui, une aura émana d'algues desséchées au fond de la mer. Cette aura était celle de Wang Lin qui, dès son apparition, fit un pas en avant.
 
 Il disparut instantanément pour réapparaître hors du périmètre des 1 000 pieds d'eau que Yun Kong s'apprêtait à raffiner!
 
@@ -90,7 +90,7 @@ Mais précisément à cet instant, les 1 000 pieds d'eau libérèrent un grondem
 
 Yun Kong tituba, le regard empreint de désespoir!
 
-« Je ne laisserai pas faire ça! » rugit-il, tandis que l'eau des 1 000 pieds explosait soudainement. Le ciel se distordit, la terre trembla et une force de destruction indescriptible se propagea.
+« Je ne te le pardonnerai pas! » rugit-il, tandis que l'eau des 1 000 pieds explosait soudainement. Le ciel se distordit, la terre trembla et une force de destruction indescriptible se propagea.
 
 La Pilule Céleste avait explosé prématurément!
 
@@ -102,11 +102,11 @@ Yun Kong était bien trop proche. Malgré sa fuite effrénée, il se trouvait en
 
 Wang Lin, fusionné avec le monde, s'apprêtait à partir quand l'onde de choc balaya les lieux telle une gueule béante prête à dévorer toute vie. Alors que la destruction approchait, le corps de Wang Lin disparut par anticipation.
 
-Partout où passait la force destructrice, la terre s'effondrait, révélant le vide abyssal en dessous!
+Partout où passait la force destructrice, la terre s'effondrait, révélant en dessous un vide abyssal, noir comme le ciel étoilé!
 
 Cette onde balaya instantanément toute la Mer des Pilules, jusqu'à ce qu'elle disparaisse totalement. Puis, elle frappa de plein fouet les continents du Taureau Céleste et du Démon Vert.
 
-Rumble, rumble, rumble, rumble!!
+Boum, boum, boum, boum!!
 
 Le Continent du Taureau Céleste tout entier trembla. Un bruit de miroir se brisant retentit, puis la barrière entourant le continent s'effondra! Le Continent du Démon Vert subit le même sort; un fracas tonitruant résonna tandis que la terre se fendait et que les montagnes s'écroulaient!
 

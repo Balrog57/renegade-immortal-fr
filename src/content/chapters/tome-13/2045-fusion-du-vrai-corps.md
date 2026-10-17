@@ -32,7 +32,7 @@ C'était comme si sa vie même dépendait du bon vouloir de cette pression.
 
 Les rumeurs concernant cet homme datant de cent ans surgirent dans l'esprit du jeune homme. Le mépris qu'il éprouvait disparut instantanément. Un être capable d'émettre une telle pression pouvait seulement être comparé au Grand Empyréen Song Tian!
 
-Tandis que la pression et la brume enveloppaient le pays, loin de là, dans la cité impériale des Anciens Shi, une montagne se dressait avec un immense temple à son sommet.
+Tandis que la pression et la brume enveloppaient le pays, loin de là, à l'extérieur de la cité impériale des Anciens Shi, une montagne se dressait avec un immense temple à son sommet.
 
 Cette montagne s'appelait la Montagne de l'Origine; son pic, en forme de corne, donnait l'impression qu'elle allait déchirer les cieux.
 
@@ -48,7 +48,7 @@ Avec son niveau de culture, il n'aurait normalement pas remarqué une telle pres
 
 « Maître... Ceci... C'est... » Le jeune homme haleta. Voyant l'expression lugubre de son mentor, il s'interrompit aussitôt, ravalant ses paroles.
 
-« À part Wang Lin, qui a forcé le palais de l'Ancien Dao, tué l'Empereur de l'Ancien Dao, est venu chez les Anciens Shi et a choisi de servir ton frère, qui d'autre pourrait bien être? » Un éclair de froideur traversa les yeux de l'homme d'âge moyen.
+« À part Wang Lin, qui a semé le chaos dans le palais de l'Ancien Dao il y a plus de cent ans, tué l'Empereur de l'Ancien Dao, est venu chez les Anciens Shi, a été honoré par ton frère et ne sort plus de sa culture fermée, qui d'autre pourrait bien être? » Un éclair de froideur traversa les yeux de l'homme d'âge moyen.
 
 En entendant le nom de « Wang Lin », le jeune homme au visage rude eut un haut-le-cœur et, après une courte réflexion, demanda soudain:
 
@@ -74,7 +74,7 @@ Un éclat glacial brilla dans ses yeux et il leva sa main droite. Formant un sce
 
 « Libère le sceau! » murmura-t-il, tandis qu'une lueur spectrale jaillissait de sa main.
 
-Simultanément, au centre du clan ancestral, sur le Mont Gu Dao, une silhouette enveloppée de brume siégeait au sommet d'une tour. Elle ouvrit les yeux et scruta la direction des Anciens Shi.
+Simultanément, au centre du clan ancestral, sur le Mont Gu Dao aux presque mille marches, une silhouette enveloppée de brume siégeait au sommet d'une tour. Elle ouvrit les yeux et scruta la direction des Anciens Shi.
 
 Après un long silence, la silhouette murmura pour elle-même: « Fusion des corps d'essence? » Ses paroles étaient calmes, dénuées de toute émotion.
 
@@ -112,9 +112,9 @@ Le jeune homme en robe violette pâlit. En entendant ce nom, il se remémora une
 
 Peu de gens étaient au courant, mais durant les cent dernières années, pour une raison inconnue, la rumeur avait recommencé à circuler parmi les Anciens Shi.
 
-On racontait que si le prince Ji Du avait fait construire son palais dans le pays de Luo Hou, c'était parce que la bête féroce scellée sous cette terre était Luo Hou elle-même!
+On racontait que si le prince Ji Du avait fait construire son palais dans le pays de Luo Hou, c'était parce que la bête féroce scellée sous cette terre, jadis vaincue par l'Ancêtre Ancien, était Luo Hou elle-même!
 
-Quant à la présence de Ji Du ici, il jouait un rôle dans la suppression de Luo Hou tout en se nourrissant de l'aura de la bête. C'était un plan orchestré par l'instructeur impérial avant sa mort.
+Quant à la présence de Ji Du ici, il jouait un rôle dans la suppression de Luo Hou tout en nourrissant sa propre fortune. C'était un plan orchestré par l'instructeur impérial avant sa mort.
 
 Le rugissement devint plus intense encore. Peu après, une ombre gigantesque apparut au loin. C'était une masse charnue et ronde dotée d'un œil unique et immense. Elle dégageait une férocité et une folie sans nom, son corps semblant illusoire. À cet instant, elle fixa le corps de vérité des cinq éléments de Wang Lin surplombant le palais, un éclair d'avidité brillant dans son regard.
 

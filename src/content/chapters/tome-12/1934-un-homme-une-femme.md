@@ -16,13 +16,13 @@ Le membre brisé croît de façon fulgurante et, en un instant, il mesurait 100 
 
 Une fois que la paume brisée eut atteint une taille telle qu'elle engloutissait le rideau, ce dernier trembla violemment. Des ondulations se propagèrent et le rideau devint totalement obscur, sans la moindre trace de lumière.
 
-Malgré cela, tant que Wang Lin et l'Exalté Empyréen Hai Zi concentraient leur culture dans leurs yeux, ils pouvaient tout voir distinctement. Wang Lin réfléchissait silencieusement et remarqua que ses cheveux flottaient légèrement sous l'effet du vent.
+Malgré cela, tant que Wang Lin et l'Exalté Empyréen Hai Zi concentraient leur culture dans leurs yeux, ils pouvaient tout voir distinctement. Wang Lin réfléchissait silencieusement et remarqua que ses cheveux flottaient légèrement vers le haut, sans le moindre vent.
 
-Les yeux de l'Exalté Empyréen Hai Zi s'illuminèrent et elle déclara lentement: « Elle a dévoré mon rideau de lumière protecteur et se déplace rapidement! »
+Les yeux de l'Exalté Empyréen Hai Zi s'illuminèrent et elle déclara lentement: « Elle a dévoré le rideau de lumière protecteur de ma tablette de jade et se déplace rapidement! »
 
-« Que se cache-t-il donc derrière cela? » demanda l'Exalté Empyréen Hai Zi en regardant Wang Lin.
+« Qu'est-ce donc que cela? » demanda l'Exalté Empyréen Hai Zi en regardant Wang Lin.
 
-Wang Lin, situé à 1 000 pieds de là, fixait sa main gauche nouvellement formée. Après une courte réflexion, il prit la parole:
+Wang Lin, situé à 1 000 pieds de là, fixait sa main droite nouvellement formée. Après une courte réflexion, il prit la parole:
 
 « Le sceau de l'Arbre de la Mer et de la Montagne! »
 
@@ -70,7 +70,7 @@ Le temps passa ainsi, silencieusement. Dix jours, vingt jours, un mois, deux moi
 
 En un clin d'œil, quatre mois s'écoulèrent.
 
-Pendant ces quatre mois, Wang Lin n'avait pas prononcé un mot, concentré sur l'absorption de l'Esprit de l'Arbre de la Mer et de la Montagne.
+Pendant ces quatre mois, Wang Lin n'avait pas prononcé un mot, concentré sur l'absorption de l'Esprit de l'Arbre de la Mer et de la Montagne. Sa peau se teintait peu à peu d'une nuance de vert.
 
 Le dragon de mer, lui, était engagé dans ce duel de regards depuis quatre mois. Il ne semblait nullement fatigué et restait plein d'énergie face au poulpe. À l'inverse, le poulpe paraissait quelque peu épuisé, mais refusait de céder.
 
@@ -84,7 +84,7 @@ Wang Lin répondit calmement: « Il y a trois possibilités. Premièrement: la p
 
 « Impossible! Si Maître savait que j'étais en danger, il serait venu à l'instant même! Quant à votre première possibilité, elle est tout aussi invraisemblable. Avec le niveau de culture de Maître, il ne devrait exister aucun endroit au sein du clan céleste qu'il ne puisse diviner! » s'exclama l'Exalté Empyréen Hai Zi. Puis, elle regarda Wang Lin et hésita un instant avant de poursuivre: « Vous l'avez sans doute deviné... mon Maître est le Grand Empyréen Jiu Di! »
 
-L'expression de Wang Lin resta imperturbable; il n'était pas surpris. Lorsqu'elle avait montré ce flacon marqué du nom « Di », il avait déjà eu ses soupçons. Prendre un Exalté Empyréen pour disciple et en faire sa confidente signifiait que son Maître devait posséder une puissance phénoménale.
+L'expression de Wang Lin resta imperturbable; il n'était pas surpris. Lorsqu'elle avait montré ce flacon de pilules marqué du caractère « Di », il avait déjà eu ses soupçons. Prendre un Exalté Empyréen pour disciple et en faire sa confidente signifiait que son Maître devait posséder une puissance phénoménale.
 
 En recoupant ces faits, il était fort probable que son Maître fût un Grand Empyréen. Et avec le nom « Di », hormis l'Empereur Céleste, la seule autre possibilité était le Grand Empyréen Jiu Di, qui se trouvait également dans le Continent Central.
 
@@ -118,4 +118,4 @@ Wang Lin s'en sortait mieux, étant habitué à la solitude. Il profita de ce te
 
 Cependant, après huit mois de silence, l'Exalté Empyréen Hai Zi ouvrit ses beaux yeux pour regarder Wang Lin. L'homme devant elle lui inspirait de la haine, mais éveillait aussi en elle un sentiment complexe.
 
-L'Exalté Empyréen Hai Zi dit doucement: « Depuis que j'ai commencé ma culture, je n'ai jamais vécu un an entière avec un étranger. Vous... Je ne connais que votre nom, Wang Lin, car c'est ce que vous m'avez dit. De quelle secte venez-vous? »
+L'Exalté Empyréen Hai Zi dit doucement: « Depuis que j'ai commencé ma culture, je n'ai jamais vécu un an entier avec un étranger, à moins de 1 000 pieds de lui. Vous... Je ne connais que votre nom, Wang Lin, car c'est ce que vous m'avez dit. De quelle secte venez-vous? »

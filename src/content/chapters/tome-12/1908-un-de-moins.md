@@ -14,7 +14,7 @@ Wang Lin se tenait à nouveau devant la porte. En contemplant l'entrée et le br
 
 « Avant que l'âme du scorpion ne meure, il a dit... Perle Blanche... Qu'est-ce que cela signifie... » Wang Lin réfléchit longuement. Ses yeux s'illuminèrent, puis il marcha lentement vers la porte.
 
-Alors qu'il se rapprochait, le bras vert bougea soudainement et chargea Wang Lin avec une pression écrasante. L'expression de Wang Lin resta imperturbable et il ne ralentit pas d'un pas. Il agita sa main droite vers le bras géant qui fondait sur lui.
+Alors qu'il se rapprochait, le bras vert bougea soudainement et chargea Wang Lin avec une pression écrasante, ses cinq doigts déployés lacérant le vide de cinq entailles. L'expression de Wang Lin resta imperturbable et il ne ralentit pas d'un pas. Il agita sa main droite vers le bras géant qui fondait sur lui.
 
 Le monde trembla et le bras vert fut projeté à des centaines de pieds dans les airs par la force de Wang Lin. Le bras qui, autrefois, avait suscité la crainte chez lui ne pouvait plus l'arrêter depuis qu'il avait atteint le stade de la Tribulation du Vide. Wang Lin avança calmement vers la porte.
 
@@ -34,7 +34,7 @@ Cette fois, ce qui apparut devant lui était un monde qu'il n'avait jamais conte
 
 Cet endroit ne ressemblait en rien à ce qu'il avait vu lorsqu'il était le Seigneur du Domaine Scellé. Ce monde était radicalement différent de la dernière fois. C'était comme si tout ce qu'il avait perçu auparavant n'était qu'un brouillard, et que celui-ci venait de se dissiper, permettant à Wang Lin de s'approcher infiniment du véritable secret de la Perle Défiant le Ciel!
 
-Observant la mystérieuse tour au loin, Wang Lin marcha lentement. La chaîne de montagnes finit par devenir une illusion et se dispersa, lui permettant d'arriver rapidement devant l'édifice. Cette tour était carrée et très fine. Quatre squelettes étaient assis aux quatre coins. Ces quatre ossements existaient depuis un temps indéterminé. Deux d'entre eux portaient des robes noires, tandis que les deux autres étaient vêtus de blanc. Ils restaient là, immobiles, dégageant des ondes d'une aura de mort.
+Observant la mystérieuse tour au loin, Wang Lin marcha lentement. La chaîne de montagnes finit par devenir une illusion et se dispersa, lui permettant d'arriver rapidement devant l'édifice. Cette tour était carrée et s'affinait vers le haut. Quatre squelettes étaient assis aux quatre coins. Ces quatre ossements existaient depuis un temps indéterminé. Deux d'entre eux portaient des robes noires, tandis que les deux autres étaient vêtus de blanc. Ils restaient là, immobiles, dégageant des ondes d'une aura de mort.
 
 Le regard de Wang Lin balaya les quatre squelettes, puis il fixa la tour avec confusion. Quelle était donc la Perle Défiant le Ciel? Cette question l'obsédait depuis plus de 2 000 ans, bientôt 3 000 ans maintenant. Il avait franchi la Porte Défiant le Ciel à plusieurs reprises, mais ce n'était que maintenant qu'il voyait cette tour et les quatre squelettes qui l'entouraient.
 
@@ -60,19 +60,19 @@ Le corps de Wang Lin trembla; il eut l'impression de perdre la raison. Il était
 
 Sous l'effet de cette douleur soudaine, Wang Lin lutta pour reprendre ses esprits. À l'instant où il retrouva la lucidité, il sembla percevoir une voix émergeant du chaos sonore, claire pendant un bref instant:
 
-«... Un de moins... »
+«... Il en manque un... »
 
 En entendant cela, Wang Lin recula de plus de mille pieds. Durant ces dix courtes respirations, il avait traversé une véritable crise de vie ou de mort. Sans le cri du bébé la première fois et sans sa préparation lors de la seconde tentative, il se serait perdu à jamais dans ce tumulte!
 
 Fixant la tour, Wang Lin ressentit un sentiment d'effroi rare. Même maintenant, il ne comprenait toujours pas la nature de cette tour apparue à l'intérieur de la Perle Défiant le Ciel! Et qu'en était-il de cette voix entendue au moment où il reprit ses esprits...
 
-« Un de moins... Qu'est-ce que cela signifie? » Wang Lin médita en silence. Un instant plus tard, il jeta un regard à la tour avant de repartir.
+« Il en manque un... Qu'est-ce que cela signifie? » Wang Lin médita en silence. Un instant plus tard, il jeta un regard à la tour avant de repartir.
 
-Sur le Continent du Démon, là où se trouvait le temple du scorpion, la zone était désormais balayée par une tempête. Un jeune homme aux cheveux blancs s'y tenait debout, et ses yeux clos s'ouvrirent brusquement. À l'instant même où il les ouvrit, une profonde appréhension y transparaissait encore!
+Sur le Continent du Démon Vert, là où se trouvait le temple du scorpion, la zone était désormais balayée par une tempête. Un jeune homme aux cheveux blancs s'y tenait debout, et ses yeux clos s'ouvrirent brusquement. À l'instant même où il les ouvrit, une profonde appréhension y transparaissait encore!
 
 Wang Lin prit une grande inspiration et observa la Perle Défiant le Ciel qui fusionnait dans sa paume. Son expression était complexe.
 
-« Toi... Que es-tu exactement... » Alors qu'il murmurait, la Perle Défiant le Ciel disparut dans son corps, restant invisible au sein de son âme.
+« Toi... Qu'es-tu exactement... » Alors qu'il murmurait, la Perle Défiant le Ciel disparut dans son corps, restant invisible au sein de son âme.
 
 « Mon Sens Divin n'est pas encore assez puissant... Loin de là. Un jour, je serai capable de dompter ce bruit et d'entendre les mots cachés pour découvrir le secret le plus profond de la Perle Défiant le Ciel! » Les yeux de Wang Lin s'illuminèrent et il réprima sa confusion. Il possédait cette perle depuis près de 3 000 ans, et il avait la patience nécessaire pour attendre que toutes les réponses lui soient révélées!
 

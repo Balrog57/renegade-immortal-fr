@@ -8,11 +8,11 @@ slug: cette-phrase
 ---
 Le Taureau Céleste chargea vers le soleil avec une fureur déchaînée. Le niveau de culture de Bord-des-Nuages était très élevé grâce à l'armure de l'âme, mais après que le Taureau Céleste se fut précipité vers le soleil, son propre niveau de culture chuta considérablement. Il retomba du stade avancé de la Tribulation du Vide au stade intermédiaire.
 
-Il avait utilisé ce sort en sacrifiant le peu de temps qu'il lui restait pour porter l'armure afin de briser Nuit Brisée!
+Ce sort consistait en réalité à abandonner brièvement l'armure qu'il portait : il l'avait jetée, la transformant en une véritable âme de Taureau Céleste, pour briser la nuit résiduelle de Nuit Brisée!
 
 Tout cela se produisit en un éclair. Le Taureau Céleste percuta violemment le soleil dans un fracas de tonnerre. Wang Lin cracha du sang; lorsque Nuit Brisée s'effondra, il fut projeté en arrière sur des milliers de pieds.
 
-Quant à Bord-des-Nuages, il semblait avoir vieilli de milliers d'années et du sang coulait de sa bouche alors qu'il reculait. Cependant, comment Wang Lin pouvait-il le laisser s'échapper? Ignorant ses blessures, il se précipita vers Bord-des-Nuages. Il comptait profiter de la dissipation de l'armure de l'âme pour l'exterminer.
+Quant à Bord-des-Nuages, il semblait avoir vieilli de mille ans et du sang coulait de sa bouche alors qu'il reculait. Cependant, comment Wang Lin pouvait-il le laisser s'échapper? Ignorant ses blessures, il se précipita vers Bord-des-Nuages. Il comptait profiter de la dissipation de l'armure de l'âme pour l'exterminer.
 
 Tang Jia resta silencieuse, son attaque cessant net. Elle n'avait agi que pour le compte de sa sœur. À cet instant, elle lança à Wang Lin un regard complexe avant de disparaître au loin.
 
@@ -28,7 +28,7 @@ L'expression de Wang Lin s'assombrit et il renonça à poursuivre Bord-des-Nuage
 
 La main noire géante se referma et emporta Bord-des-Nuages vers la Secte Gui Yi.
 
-Cette bataille fut très brève. Ce ne fut qu'après le départ de Wang Lin que les quatre étoiles du ciel chutèrent sur terre. Des grondements tonitruants résonnèrent sur un rayon de mille kilomètres, et une épaisse poussière recouvrit toute la région. Il fallut longtemps pour que la poussière se dissipe, ne laissant derrière elle que d'innombrables fragments de pierres noires fumantes.
+Cette bataille fut très brève. Ce ne fut qu'après le départ de Wang Lin que les quatre étoiles du ciel chutèrent sur terre. Des grondements tonitruants résonnèrent sur un rayon de mille kilomètres, et une épaisse poussière recouvrit toute la région. Il fallut longtemps pour que la poussière se dissipe, laissant le sol profondément affaissé et couvert d'innombrables fragments de pierres noires fumantes.
 
 Des ondulations résonnèrent au-dessus d'une montagne située à deux mois de vol. Wang Lin en émergea, le visage pâle. Il resta là, immobile, et médita longuement.
 
@@ -116,7 +116,7 @@ Wang Lin fronça les sourcils et apparut. Il regarda Du Qing, qu'il n'avait pas 
 
 « Qui vous a dit de venir ici? »
 
-« Ancien Wang, c'est l'Ancêtre Taureau Vert de la Secte de la Grande Âme qui m'a chargé il y a quelques mois d'arriver ici il y a trois jours pour vous remettre quelque chose. » Du Qing atterrit rapidement devant Wang Lin et tendit la main droite. Une pierre noire apparut dans sa paume.
+« Ancien Wang, c'est l'Ancêtre Taureau Vert de la Secte de la Grande Âme qui m'a trouvé et m'a fait partir plusieurs mois à l'avance pour arriver ici il y a trois jours et vous remettre quelque chose. » Du Qing atterrit rapidement devant Wang Lin et tendit la main droite. Une pierre noire apparut dans sa paume.
 
 Cette pierre semblait tout à fait ordinaire. Du Qing avait passé tout son voyage à chercher des indices, sans rien trouver. Pourtant, se souvenant du sérieux de l'expression de l'Ancêtre Taureau Vert, il était convaincu qu'il s'agissait d'un trésor.
 

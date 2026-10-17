@@ -6,17 +6,17 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1907 - Heaven Defying Gate!"
 slug: la-porte-defiant-le-ciel
 ---
-Les cultivateurs du Continent du Démon Vert s'inclinèrent avec un immense respect vers le temple de scorpion effondré, maintenant que la pression de l'Arcane Tribulation avait disparu.
+Les cultivateurs du Continent du Démon Vert s'inclinèrent avec un immense respect vers le temple de scorpion effondré, maintenant que la pression de la Tribulation Arcanique avait disparu.
 
 L'aura de la Tribulation du Vide faisait rage au cœur de la tempête, d'une puissance extrême. À mesure que cette aura se dissipait, les couleurs du monde changeaient; c'était comme si le ciel lui-même cherchait à l'éviter.
 
-Au sein de la tempête se dessinait une silhouette imposante. Cette figure était svelte et ses longs cheveux flottaient au gré des bourrasques. Bien que son apparence fût invisible, elle dégageait une puissante aura de Tribulation du Vide.
+Au sein de la tempête se dessinait une silhouette à peine visible. Cette figure était svelte et ses longs cheveux flottaient au gré des bourrasques. Bien que son apparence fût invisible, elle dégageait une puissante aura de Tribulation du Vide.
 
 Bien qu'il ne s'agisse que de la pression d'un cultivateur au début du stade de la Tribulation du Vide, cela fit trembler le cœur de tous les cultivateurs présents. C'était comme s'ils ne faisaient pas face à un simple cultivateur du début de ce stade, mais à quelqu'un se trouvant au sommet de la Tribulation du Vide!
 
 Après un long moment, la silhouette sortit lentement de la tempête et finit par se dessiner clairement. Wang Lin regarda le ciel avec calme.
 
-Il sentait qu'après avoir détruit la neuvième Arcane Tribulation, une barrière qui réprimait sa culture avait été brisée. Cela lui avait permis de progresser jusqu'à atteindre le stade de la Tribulation du Vide!
+Il sentait qu'après avoir détruit la neuvième Tribulation Arcanique, une barrière qui réprimait sa culture avait été brisée. Cela lui avait permis de progresser jusqu'à atteindre le stade de la Tribulation du Vide!
 
 « Tribulation du Vide... » Wang Lin ferma les yeux. Dans son corps, un vortex géant tournait à toute vitesse. Ce vortex dégageait une aura terrifiante; avec une telle puissance, Wang Lin avait l'impression qu'il lui suffisait d'ouvrir la paume pour tenir le monde entier.
 
@@ -26,7 +26,7 @@ Un instant plus tard, alors que la tempête s'effaçait derrière lui, il ouvrit
 
 Alors qu'il contractait son poing, la terre sous ses pieds gronda et d'innombrables fissures se propagèrent. La pression de sa culture de la Tribulation du Vide se répandit soudainement. Les cultivateurs du Continent du Démon Vert reculèrent immédiatement, observant Wang Lin avec suspicion.
 
-Ils ne ressentaient aucune trace de l'aura du Scorpion Vert Démon émanant de lui. À cet instant, leurs expressions changèrent toutes.
+Ils ne ressentaient aucune trace de l'aura du Scorpion Démon Vert émanant de lui. À cet instant, leurs expressions changèrent toutes.
 
 « Cette sensation de Tribulation du Vide... » Wang Lin baissa la tête et regarda sa main. Alors qu'il s'apprêtait à partir, son expression changea brusquement. Depuis qu'il avait atteint le stade de la Tribulation du Vide, la Perle Défiant le Ciel dans son corps s'activait à pleine puissance. Une force d'aspiration était sur le point de se propager depuis son corps pour s'enfoncer dans le sol.
 
@@ -40,25 +40,25 @@ Alors que son poing descendait, il se transforma en une paume qui frappa le sol.
 
 Une force destructrice jaillit et pénétra dans les profondeurs. Tandis que la terre s'effondrait, un gouffre gigantesque de dizaines de milliers de pieds de large apparut, atteignant en un clin d'œil les entrailles du monde!
 
-Le fond du temple du scorpion était le lieu où le Scorpion Vert Démon était réprimé! À cet instant, Wang Lin fit s'écrouler le sol, ouvrant de force un passage vers l'endroit où l'âme du scorpion était scellée.
+Le fond du temple du scorpion était le lieu où le Scorpion Démon Vert était réprimé! À cet instant, Wang Lin fit s'écrouler le sol, ouvrant de force un passage vers l'endroit où l'âme du scorpion était scellée.
 
 Au moment où la terre fut éventrée, un rugissement qui fit trembler les cultivateurs du Continent du Démon Vert jaillit du gouffre. Ce cri était d'une férocité extrême, chargé d'un ressentiment infini.
 
 Tandis que le hurlement résonnait, d'épaisses nappes de brume verte jaillirent des profondeurs. Cette brume s'éleva comme un pilier vers les cieux avant de prendre rapidement la forme d'un scorpion vert géant dans le ciel!
 
-Le scorpion mesurait environ cent pieds de large et, dès son apparition, il projeta une ombre immense sur la terre. En voyant cela, les cultivateurs du Continent du Démon Vert furent frappés d'horreur!
+Le scorpion mesurait des centaines de milliers de pieds de large et, dès son apparition, il projeta une ombre immense sur la terre. En voyant cela, les cultivateurs du Continent du Démon Vert furent frappés d'horreur!
 
-« Seigneur Scorpion Vert! »
+« Seigneur Démon Vert! »
 
-« C'est... Que se passe-t-il? L'âme du Seigneur Scorpion Vert est apparue, alors qui est cet homme?! »
+« C'est... Que se passe-t-il? L'âme du Seigneur Démon Vert est apparue, alors qui est cet homme?! »
 
-« Se pourrait-il qu'il ne soit pas la résurrection du Seigneur Scorpion Vert?! » Les cultivateurs du Continent du Démon Vert étaient plongés dans le doute. En voyant la brume verte se transformer en ce scorpion gigantesque, une pensée incroyable leur traversa l'esprit!
+« Se pourrait-il qu'il ne soit pas la résurrection du Seigneur Démon Vert?! » Les cultivateurs du Continent du Démon Vert étaient plongés dans le doute. En voyant la brume verte se transformer en ce scorpion gigantesque, une pensée incroyable leur traversa l'esprit!
 
 « Wang Lin! C'est Wang Lin, du Continent du Taureau Céleste! » s'exclama l'un des cultivateurs de la Secte du Dao Démoniaque. Il y a plus de cent ans, alors qu'il se trouvait à la frontière entre le Continent du Démon Vert et le Continent de la Terre Meng, il avait participé à la traque de Wang Lin!
 
 L'hésitation luttait en lui, jusqu'à ce qu'un fracas retentisse dans son esprit lorsqu'il reconnut enfin Wang Lin!
 
-L'âme du Scorpion Vert surgissant du gouffre laissa échapper un sifflement violent. Son corps colossal vacillait dans le ciel tandis qu'il fixait Wang Lin. Quatre sceaux marquaient son corps — sur la tête, la queue, ainsi qu'à l'avant et à l'arrière — dégageant une force de répression.
+L'âme du Scorpion Démon Vert surgissant du gouffre laissa échapper un sifflement violent. Son corps colossal vacillait dans le ciel tandis qu'il fixait Wang Lin. Quatre sceaux marquaient son corps — sur la tête, la queue, ainsi qu'à l'avant et à l'arrière — dégageant une force de répression.
 
 Ces quatre sceaux avaient été forgés par l'Ancêtre Céleste pour emprisonner cette âme et en faire la puissance du Continent du Démon Vert!
 
@@ -68,7 +68,7 @@ Ses cheveux blancs retombaient sur ses épaules. Alors que l'âme du scorpion ru
 
 Un grondement de tonnerre éclata soudainement; le corps de l'âme du scorpion trembla et fut repoussé, comme frappé par un vent dévastateur. L'âme semblait sur le point de s'éteindre, mais à cet instant, les quatre sceaux brillèrent et compensèrent la puissance du coup de Wang Lin. Bien que repoussée de dizaines de milliers de pieds, l'entité resta intacte!
 
-Roar!
+Rugissement!
 
 Le corps de l'âme du scorpion frémit et chargea de nouveau vers Wang Lin. À cet instant, un Sens Divin sombre et sinistre résonna:
 
@@ -80,7 +80,7 @@ Dès que le Sens Divin se propagea, l'expression de la douzaine de cultivateurs 
 
 Wang Lin observait froidement l'âme du scorpion qui fonçait sur lui. La Perle Défiant le Ciel fonctionnait à plein régime et semblait avoir atteint ses limites. Le désir qu'elle émanait devint plus intense encore.
 
-Les yeux de Wang Lin s'illuminèrent et il leva la main droite. Il fit un geste vers le Scorpion Vert Démon, et une lueur blanche jaillit de sa paume. La Perle Défiant le Ciel apparaissait pour la première fois depuis son arrivée sur le Continent Astral Immortel!
+Les yeux de Wang Lin s'illuminèrent et il leva la main droite. Il fit un geste vers le Scorpion Démon Vert, et une lueur blanche jaillit de sa paume. La Perle Défiant le Ciel apparaissait pour la première fois depuis son arrivée sur le Continent Astral Immortel!
 
 Dès son apparition, la Perle libéra une lumière blanche infinie qui illumina toute la zone. Lorsque l'âme du scorpion aperçut la Perle Défiant le Ciel, elle fut stupéfaite un instant, avant que l'horreur et la terreur ne remplissent ses yeux. Elle poussa un rugissement, puis son corps gigantesque s'immobilisa et commença à reculer frénétiquement!
 

@@ -28,7 +28,7 @@ Mais Miao Yin, lui, n'avait pas la même interprétation.
 
 « Sur le Continent Astral Immortel! » Tandis que les paroles de Wang Lin résonnaient, un grondement tonitruant retentit. La paume colossale pénétra le vortex marin et empoigna Miao Yin.
 
-Le cœur de Miao Yin trembla et il abandonna amèrement toute résistance inutile. Il ferma les yeux, se laissant capturer par Wang Lin. Une fois scellé, il fut placé dans l'espace de stockage de Wang Lin et fusionné avec son avatar.
+Le cœur de Miao Yin trembla et il abandonna amèrement toute résistance inutile. Il ferma les yeux, se laissant capturer par Wang Lin. Une fois scellé, il fut placé dans l'espace de stockage de Wang Lin et fusionné avec son fragment d'âme.
 
 La mer redevint calme, comme si rien ne s'était produit. Wang Lin se détourna et s'élança vers le ciel.
 
@@ -48,7 +48,7 @@ Pour l'instant, il n'osait pas pénétrer dans le Royaume Intérieur. Une peur e
 
 À cet instant, il était assis sur un rocher, en pleine culture. Il absorbait la puissance des étoiles pour nourrir son corps tout en ressentant les changements de son environnement. Si personne ne le dérangeait, il pourrait rester ainsi pendant des millénaires.
 
-Jusqu'à ce que sa culture soit pleinement restaurée, jusqu'à ce qu'il atteigne à nouveau son apogée et qu'il puisse enfin sortir pour ébranler le monde des grottes! Il en était certain, pourvu qu'on ne vienne pas l'importuner.
+Jusqu'à ce que sa culture soit pleinement restaurée, jusqu'à ce qu'il atteigne à nouveau son apogée et qu'il puisse enfin sortir pour reprendre le contrôle des étoiles et ébranler le monde des grottes! Il en était certain, pourvu qu'on ne vienne pas l'importuner.
 
 En vérité, même si quelqu'un venait le troubler, le Maître Ciel Dieu Vide s'en moquait, tant que cette personne n'était pas Wang Lin.
 
@@ -88,7 +88,7 @@ Cet ancêtre avait choisi de fuir dès qu'il avait compris que la situation tour
 
 Le clan occupait une région comprenant près de cent planètes, mais ce jour-là, Wang Lin convergea vers le clan Cang Meng.
 
-À chacun de ses pas, un grondement assourdissant se faisait entendre, propageant de puissantes ondes de choc vers la Secte Cang Meng. Il pénétra dans l'atmosphère d'une planète et marcha calmement vers le plus haut sommet.
+À chacun de ses pas, un grondement assourdissant se faisait entendre, propageant de puissantes ondes de choc vers le clan Cang Meng. Il pénétra dans l'atmosphère d'une planète et marcha calmement vers le plus haut sommet.
 
 Au sommet de la montagne se dressait un grand temple où siégeait un homme d'âge moyen. Dès que Wang Lin arriva, l'homme ouvrit les yeux, révélant une peur panique.
 
@@ -100,7 +100,7 @@ Ce furent ses derniers mots avant que sa vision ne s'obscurcisse. Une force terr
 
 Un instant plus tard, Wang Lin quitta le clan Cang Meng. Nul ne sut qu'il était arrivé, nul ne vit son départ. En s'éloignant, Wang Lin leva la main droite et fit un geste léger vers la zone du clan Cang Meng.
 
-Plus d'une douzaine de Feuilles Anciennes apparurent pour former un vortex. Elles s'élancèrent vers le clan, scellant le système stellaire et l'intégralité du clan!
+Des dizaines de Feuilles Anciennes apparurent pour former un vortex. Elles s'élancèrent vers le clan, scellant le système stellaire et l'intégralité du clan!
 
 « Désormais, tout pouvoir de franchir les étoiles est scellé pour ce clan. Leur culture ne pourra jamais dépasser le stade de Briseur du Nirvana! Ils n'auront plus jamais le droit de fouler les étoiles! » Wang Lin agita sa manche et s'éloigna.
 
@@ -126,6 +126,6 @@ La silhouette de Wang Lin apparut et il s'inclina devant Xuan Luo.
 
 « Senior, ce junior s'en va. Nous nous reverrons sur le Continent Astral Immortel! » Wang Lin jeta un dernier regard vers les étoiles et se retourna brusquement. Il se changea en un rayon de lumière qui fonça vers la porte avant d'y disparaître.
 
-Xuan Luo se leva et fixa la porte avec une expression grave.
+Xuan Luo se leva et, l'expression grave, pénétra à son tour dans la porte.
 
-Après l'entrée de Wang Lin, la porte gronda et se referma lentement. Une demi-heure plus tard, alors qu'elle allait se clore définitivement, un éclat de lumière fantomatique jaillit des profondeurs et disparut dans la porte.
+Après son entrée, la porte gronda et se referma lentement. Une demi-heure plus tard, alors qu'elle allait se clore définitivement, un éclat de lumière fantomatique jaillit des profondeurs et disparut dans la porte.

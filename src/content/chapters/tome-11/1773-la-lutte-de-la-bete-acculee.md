@@ -10,7 +10,7 @@ Wang Lin devina vaguement les pensées de Yun Yifeng. Cet homme était très rus
 
 Cet objet venait tout juste d'être manifesté à partir du néant et n'avait aucun propriétaire. La culture de Wang Lin s'y était imprimée, faisant de lui le premier maître de ce trésor.
 
-Cette empreinte dorée dégageait une aura puissante et scellait le sort de destruction du Dao du Souverain. Ce sort avait été utilisé par le Souverain à pleine puissance; sa force était donc identique à celle du Souverain lui-même utilisant la technique.
+Cette empreinte dorée dégageait une aura puissante et scellait la technique du Dao de Destruction du Dieu du Souverain. Ce sort avait été utilisé par le Souverain à pleine puissance; sa force était donc identique à celle du Souverain lui-même utilisant la technique.
 
 Et parce qu'il avait été créé par Xuan Luo, il contenait une trace du pouvoir des Neuf Soleils. Par conséquent, ce trésor était indestructible!
 
@@ -38,7 +38,7 @@ Le Souverain se retourna brusquement. Ses mains formèrent un sceau et la lumiè
 
 Des grondements tonitruants éclatèrent. Le Souverain laissa échapper un gémissement étouffé et recula de plusieurs pas. Le corps de Tuo Sen trembla également, le faisant reculer de mille pieds. Il afficha alors un sourire féroce.
 
-« Satisfaisant! Wang Lin, ne te bats pas avec des sorts comme ces Célestes; notre clan doit combattre avec la puissance de nos corps. Brise le monde et affronte les Célestes! » Tandis que Tuo Sen parlait, des bruits de craquements résonnèrent dans son corps. Sa stature s'étendit pour atteindre des dizaines de milliers de pieds, mais il ne s'arrêta pas là; il continua de croître. Bientôt, un Dieu Ancien gigantesque de plusieurs centaines de milliers de pieds de haut apparut dans l'avant-dernière couche de la Tombe Antique!
+« Satisfaisant! Wang Lin, ne te bats pas avec des sorts comme les cultivateurs; notre clan doit combattre avec la puissance de nos corps. Brise le monde et affronte les Célestes! » Tandis que Tuo Sen parlait, des bruits de craquements résonnèrent dans son corps. Sa stature s'étendit pour atteindre des dizaines de milliers de pieds, mais il ne s'arrêta pas là; il continua de croître. Bientôt, un Dieu Ancien gigantesque de plusieurs centaines de milliers de pieds de haut apparut dans l'avant-dernière couche de la Tombe Antique!
 
 Les yeux de Wang Lin se rétrécirent et il esquissa un sourire. Des grondements sourds émanèrent de son propre corps et, pour la première fois, il déploya totalement sa stature. Le corps de Wang Lin grandit instantanément jusqu'à atteindre la même taille que celle de Tuo Sen!
 
@@ -56,29 +56,29 @@ Wang Lin et Tuo Sen formèrent chacun un poing, et leurs coups s'abattirent comm
 
 Le visage du Souverain était livide; il n'avait plus aucune volonté de combattre. Il était totalement ébranlé par ce qui était arrivé à l'empreinte dorée. Il soupçonnait que le frère aîné de son Maître se cachait dans les parages!
 
-Cette pensée le fit trembler, rendant impossible l'usage de sa pleine puissance. Son unique désir était de s'enfuir. Alors que les poings de Wang Lin et de Tuo Sen descendaient, le Souverain poussa un rugissement comme pour libérer toute sa peur. Il agita la main tel un gardien de runes pour contrer l'assaut des deux géants.
+Cette pensée le fit trembler, rendant impossible l'usage de sa pleine puissance. Son unique désir était de s'enfuir. Alors que les poings de Wang Lin et de Tuo Sen descendaient, le Souverain poussa un rugissement comme pour libérer toute sa peur. Il agita ses larges manches et, ses mains semblant saisir deux soleils, l'un devant, l'autre derrière, il affronta les poings des deux géants.
 
 Des grondements tonitruants secouèrent le monde. Le bras de Tuo Sen trembla et il recula de plusieurs pas, tout comme Wang Lin qui fut lui aussi ébranlé.
 
-Au même moment, le sort du singe de Yun Yifeng atteignit sa cible et bondit sur le Souverain. Il se mua en un gaz pourpre qui pénétra le corps de ce dernier, faisant apparaître l'ombre d'un singe entre ses sourcils.
+Au même moment, le sort du singe de Yun Yifeng atteignit sa cible et bondit sur le Souverain. Il se mua en un gaz pourpre qui pénétra le corps de ce dernier par les sept orifices, faisant apparaître l'ombre d'un singe entre ses sourcils.
 
 Le Souverain frémit. Les attaques de Wang Lin et Tuo Sen avaient déjà fait bouillir son sang. Puis, le sort de Yun Yifeng issu du Continent Astral Immortel lui donna la sensation que son corps était en train d'être déchiré. Enfin, le dragon doré de Tang Shan percuta violemment le Souverain.
 
 Le Souverain se retourna et frappa le dragon d'or de sa main droite. Tandis que le dragon s'effondrait, le Souverain cracha une bouffée de sang pour la première fois. Son expression s'assombrit et la terreur dans ses yeux s'intensifia.
 
-La puissance des Dieux Anciens de Wang Lin et Tuo Sen était ce que le Souverain redoutait le plus. Cependant, l'écart entre leurs niveaux de culture était trop vaste. Bien qu'ils fussent difficiles à affronter, ils avaient dû payer un prix lourd pour le blesser gravement!
+La puissance des Dieux Anciens de Wang Lin et Tuo Sen était ce que le Souverain redoutait le plus. Cependant, l'écart entre leurs niveaux de culture était trop vaste. Bien que ces quatre-là fussent difficiles à affronter et pussent le blesser gravement, le prix à payer pour eux serait certainement lourd!
 
 Ce qui l'effrayait par-dessus tout restait ce qui était arrivé à l'empreinte dorée. Il avait la sensation qu'une cinquième paire d'yeux l'observait, imperturbable.
 
 Cette intuition était si forte qu'elle le rendait presque fou. Il sentait également l'aura du Maître du Dao Rêve Bleu approcher. Si Rêve Bleu arrivait, il serait perdu!
 
-Les yeux injectés de sang après avoir craché son sang, le Souverain leva brusquement la tête et des ondulations se propagèrent sous ses pieds alors qu'il tentait de fuir. Cependant, à ce moment précis, la main droite de Wang Lin plongea vers le vide pour ouvrir son espace de stockage. Une douzaine de Feuilles Anciennes s'en échappèrent.
+Les yeux injectés de sang après avoir craché son sang, le Souverain leva brusquement la tête et des ondulations se propagèrent sous ses pieds alors qu'il tentait de fuir. Cependant, à ce moment précis, la main droite de Wang Lin plongea vers le vide pour ouvrir son espace de stockage. Plusieurs dizaines de Feuilles Anciennes s'en échappèrent.
 
-Dans un éclat de lumière spectrale, ces douze Feuilles Anciennes se précipitèrent vers le Souverain, scellant sa voie de retraite!
+Dans un éclat de lumière spectrale, ces dizaines de Feuilles Anciennes se précipitèrent vers le Souverain, scellant sa voie de retraite!
 
 Une lueur meurtrière traversa les yeux de Wang Lin alors qu'il avançait. Il leva la main pour déclencher son sort le plus puissant: la Déchirure du Ciel. Le monde se déchira et une faille s'élança vers le Souverain.
 
-La déchirure se referma instantanément sur lui. Le Souverain forma un sceau et frappa de sa main la faille.
+La faille fondit instantanément sur lui. Le Souverain forma un sceau et frappa de sa main la faille.
 
 Au même instant, le corps de Tuo Sen bougea et une ombre superposée apparut. En un éclair, son aura arrogante disparut, remplacée par un calme et une stabilité absolus.
 
@@ -88,13 +88,13 @@ Pour être plus précis, l'homme qui apparaissait était Tu Si. Il leva la main 
 
 Yun Yifeng et Tang Shan lancèrent une nouvelle attaque, utilisant tous leurs sorts les plus puissants.
 
-Des grondements éclatèrent. Yun Yifeng cracha du sang et fut projeté au sol. Du sang commença à couler du coin de la bouche de Tang Shan; elle recula de plus de 10 000 pieds, paraissant extrêmement affaiblie.
+Des grondements éclatèrent. Yun Yifeng cracha du sang et fut projeté au sol. Du sang commença à couler du coin de la bouche de Tang Shan; elle recula de 10 000 pieds, paraissant extrêmement affaiblie.
 
 Le Souverain intercepta la lance de Tu Si. Son expression était féroce alors qu'il abattait sa paume droite sur Tu Si.
 
 Le corps de Tu Si trembla et il recula de mille pieds, mais il n'était pas blessé!
 
-Après avoir repoussé Tu Si, le Souverain se retourna. À cet instant, la déchirure de la Déchirure du Ciel ne se trouvait plus qu'à moins de dix pieds de lui. Les cheveux du Souverain étaient en bataille et, sans hésiter, il mordit sa langue pour recracher une partie de son sang essentiel. Ce sang était doré et pénétra la faille en direction de Wang Lin.
+Après avoir repoussé Tu Si, le Souverain se retourna. À cet instant, la déchirure de la Déchirure du Ciel ne se trouvait plus qu'à moins de cinq pieds de lui. Les cheveux du Souverain étaient en bataille et, sans hésiter, il mordit sa langue pour recracher le sang de son âme originelle. Ce sang était doré et pénétra la faille en direction de Wang Lin.
 
 Si ce sang touchait Wang Lin, il serait en grand danger!
 

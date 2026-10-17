@@ -12,7 +12,7 @@ Il s'agissait de Wang Lin et Li Muwan.
 
 Ils restaient là, contemplant le pont qui se trouvait non loin, et se parlaient à voix basse.
 
-Le regard de Wang Lin était empreint de tendresse alors qu'il observait Li Muwan. Il avait attendu ce moment pendant une éternité, et voilà que, des milliers d'années plus tard, cela arrivait enfin.
+Le regard de Wang Lin était empreint de tendresse alors qu'il observait Li Muwan. Il avait attendu ce moment très, très longtemps, et voilà que, des milliers d'années plus tard, cela arrivait enfin.
 
 La neige aux sept couleurs qui tombait ne portait plus aucune trace de mélancolie. Le spectacle était radicalement différent de la scène que Wang Lin avait vue dans le temple ancestral.
 
@@ -78,13 +78,13 @@ Wang Lin dit lentement: « Ling Tianhou. »
 
 « Je suis, et je ne suis pas. » Le serviteur secoua la tête sans parler. C'était l'homme en robe grise qui avait pris la parole. Il se retourna et sourit à Wang Lin.
 
-L'homme en robe grise regarda Wang Lin avec un sourire et dit: « Voici certainement Madame Wang; une alliée de taille pour le Compagnon de Culture Wang. »
+L'homme en robe grise regarda Wang Lin avec un sourire et dit: « Voici certainement Madame Wang; elle est vraiment bien assortie au Compagnon de Culture Wang. »
 
 Li Muwan resta calme et silencieuse. Elle se tint aux côtés de Wang Lin, observant l'homme en gris avec sérénité.
 
 Wang Lin fixa l'homme en robe grise et sourit soudainement. Il tira Li Muwan vers le côté opposé du vieil homme et agita sa manche. Une ombre superposée apparut sur la dernière chaise de pierre restante, la doublant. Il s'assit alors avec Li Muwan.
 
-Sur la table entre lui et l'homme en gris se trouvait un plateau de jeu. Les pièces noires et blanches y étaient éparpillées — la situation était manifestement désastreuse.
+Sur la table entre lui et l'homme en gris se trouvait un plateau de jeu. Les pièces noires et blanches y étaient éparpillées — c'était manifestement une partie inachevée.
 
 « Votre avatar est parti après avoir joué la moitié de la partie. J'ai attendu si longtemps, et vous voilà enfin arrivé. Continuons. » L'homme en robe grise sourit en saisissant une pièce noire pour la poser sur le plateau.
 
@@ -96,9 +96,9 @@ L'homme en robe grise leva les yeux et sourit: « Je le suis, tout comme vous. �
 
 « Tout comme le Royaume aux Sept Couleurs fut originellement créé par votre avatar, puis découvert et utilisé par l'esprit du trésor. J'étais très curieux, mais je vois maintenant que la réincarnation est une chose si simple pour vous.
 
-« Ces imitations de Perles Défiant les Cieux dans le Royaume aux Sept Couleurs furent créées par votre avatar de massacre lorsqu'il tentait de découvrir ce qui manquait. Ces écritures taoïstes n'étaient rien d'autre que vos propres expériences de vie.
+« Ces imitations de Perles Défiant les Cieux dans le Royaume aux Sept Couleurs furent créées par votre avatar de massacre lorsqu'il tentait de découvrir ce qui manquait. Ces écritures daoïstes n'étaient rien d'autre que vos propres expériences de vie.
 
-« Suivre le chemin du vrai Tao... Le "vrai" dans cette phrase désigne le véritable soi au sein de la réincarnation. Cela signifie que toutes les formes de vie doivent chercher leur essence pour pouvoir s'extraire du cycle des réincarnations. » L'homme en robe grise laissa transparaître son admiration en parlant.
+« Suivre le chemin du vrai Dao... Le "vrai" dans cette phrase désigne le véritable soi au sein de la réincarnation. Cela signifie que toutes les formes de vie doivent chercher leur essence pour pouvoir s'extraire du cycle des réincarnations. » L'homme en robe grise laissa transparaître son admiration en parlant.
 
 « Je n'ai pas de nom. Si je suis le premier du Royaume de la Terre Défiante à avoir atteint le Piétinement des Cieux, alors vous êtes le second. Hormis vous et moi, aucune autre forme de vie ne pourrait piétiner les cieux pour parvenir jusqu'ici.
 
@@ -110,7 +110,7 @@ Wang Lin réfléchit silencieusement. Sans jamais lâcher la main de Li Muwan, i
 
 « Jouons, c'est à votre tour... » murmura l'homme en robe grise.
 
-Wang Lin réfléchit un instant puis sourit. Il leva sa main droite; une perle blanche se trouvait déjà dans sa paume. Il saisit la pièce et la posa sur le plateau.
+Wang Lin réfléchit un instant puis sourit. Il leva sa main gauche; une perle blanche se trouvait déjà dans sa paume. Il saisit la pièce et la posa sur le plateau.
 
 À l'instant où la pièce blanche toucha le bois, le plateau changea soudainement. Les pièces noires et blanches se mirent à bouger comme si elles tentaient de pratiquer une divination. Lorsque Li Muwan regarda, toutes les pièces s'étaient fusionnées pour n'en former plus que deux.
 
@@ -152,7 +152,7 @@ Dès que cette mèche blanche apparut, Wang Lin leva sa propre main droite, et u
 
 L'homme en noir regarda Li Muwan une dernière fois. Il ferma les yeux, se changea en une brume noire et effaça sa propre conscience pour fusionner avec le corps de Wang Lin.
 
-Wang Lin absorba toute la brume noire, et l'avatar de massacre réapparut en lui. Il regarda Li Muwan et comprit soudain pourquoi son avatar avait choisi de dissiper sa conscience pour fusionner avec lui après avoir acquis son indépendance.
+Wang Lin absorba toute la brume noire, et l'avatar de massacre réapparut en lui. Il regarda Li Muwan et comprit soudain pourquoi son avatar avait choisi de dissiper sa conscience pour fusionner avec lui après avoir acquis une conscience propre.
 
 « Pour moi, cela a duré 500 ans... pour lui, ce furent d'innombrables réincarnations... »
 
@@ -162,13 +162,13 @@ Wang Lin demanda soudain: « L'as-tu vu? »
 
 « Qui? » Li Muwan fut surprise; elle n'avait rien vu.
 
-« Rien. Allons-nous partir. Ne veux-tu pas voir Wang Ping et sa femme? Allons dans un endroit où personne ne nous connaît, pour commencer une vie ordinaire... » Wang Lin se leva en souriant.
+« Rien. Partons. Ne veux-tu pas voir Wang Ping et sa femme? Allons dans un endroit où personne ne nous connaît, pour commencer une vie ordinaire... » Wang Lin se leva en souriant.
 
 « Tu ne vas pas cultiver? » Li Muwan cligna des yeux et se leva à ses côtés.
 
 « La culture est dans le cœur. Après avoir trouvé mon véritable moi, chaque lieu est identique. » Wang Lin sourit en tenant Li Muwan. Tous deux se transformèrent en un rayon de lumière et disparurent dans la pénombre du crépuscule.
 
-« Wang Lin, après la fin de la partie, tu as dit "comprends-tu"... Je ne comprends pas vraiment... Qu'y a-t-il à comprendre? » La voix douce de Li Muwan résonna.
+« Wang Lin, après la fin de la partie, tu as dit "comprends-tu"... Je ne comprends pas vraiment... Qu'avez-vous donc compris? » La voix douce de Li Muwan résonna.
 
 Leurs silhouettes s'éloignèrent peu à peu jusqu'à se fondre à l'horizon.
 
@@ -178,4 +178,4 @@ Ils ne virent pas qu'à cet instant, dans un recoin de la ville de Pierre Noire,
 
 « Dans la vie passée, nous étions un oiseau et un poisson, mais dans cette vie, nous ne le sommes plus... » Une voix douce surgit soudain derrière elle.
 
-Le corps délicat de la femme tressaillit brusquement. Elle se retourna d'un coup et vit une silhouette lui sourire...
+Le corps délicat de la femme tressaillit brusquement. Elle se retourna d'un coup et vit, là où les lumières déclinaient, une silhouette qui lui souriait...

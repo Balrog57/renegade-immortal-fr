@@ -18,7 +18,7 @@ Au-dessus de la porte, un cadre vert sur fond rouge arborait deux grands caract�
 
 « Manoir Li »
 
-Une aura d'arc fulgurante émanait de ces deux mots, donnant l'impression que les flocons de neige qui tombaient étaient imprégnés d'une intention meurtrière.
+Une aura de flèche fulgurante émanait de ces deux mots, donnant l'impression que les flocons de neige qui tombaient étaient imprégnés d'une intention meurtrière.
 
 À l'intérieur du manoir s'étendait une longue salle. Pourtant, malgré la chute de la neige, aucun bruit ne se faisait entendre et aucune silhouette n'était visible.
 
@@ -32,11 +32,11 @@ Si l'on y avait placé un arc, il serait parfait!
 
 À cet instant, le bourdonnement émana de ce présentoir en bois violet. L'ombre diffuse d'un arc apparut, accompagnée de ce bourdonnement continu.
 
-Le vieil homme ouvrit soudain les yeux, lesquels semblaient empreints d'une aura de tir fulgurante. Il fixa l'étagère de bois violet.
+Le vieil homme ouvrit soudain les yeux, lesquels semblaient empreints d'une aura de flèche fulgurante. Il fixa l'étagère de bois violet.
 
 « L'étagère à arc de l'ancêtre a émis un son... Ceci... Cela n'arrive que lorsque l'arc de l'ancêtre est à proximité. Se pourrait-il que... l'arc de l'ancêtre soit tout près?! » Le vieil homme prit une profonde inspiration et fit un geste vers l'étagère. Un rayon de lumière violette jaillit, se transformant en une flèche qui s'élança hors de la chambre de pierre. Elle ne volait pas vite, comme si elle cherchait quelque chose, avant de disparaître au loin.
 
-Les yeux du vieil homme s'illuminèrent et il cria immédiatement: « Li Yun, Li Shan, suivez cette flèche et voyez si vous pouvez trouver l'aura de l'ancien arc de l'ancêtre! »
+Les yeux du vieil homme s'illuminèrent et il cria immédiatement: « Li Yun, Li Shan, suivez cette flèche et voyez si vous pouvez trouver l'aura de l'arc de l'ancêtre! »
 
 Alors que sa voix résonnait, deux silhouettes apparurent comme de la fumée sortant du pavillon silencieux. Elles disparurent aussitôt après la flèche violette.
 
@@ -72,7 +72,7 @@ Une fois Liu Jinbiao parti, Wang Lin resta seul. Il sortit une cruche de vin et 
 
 « Lian Daofei... Te souviens-tu de ce qui s'est passé dans le monde des grottes... » La lumière lunaire devint plus intense et la chute de neige s'accentua. La cruche de vin dans sa main était vide.
 
-Dans un soupir, Wang Lin posa la cruche, se leva et sortit. Il enfila un manteau et marcha vers le cœur de la ville orientale sous la nuit encore peu sombre.
+Dans un soupir, Wang Lin posa la cruche, se leva et sortit. Il enfila un manteau de paille, coiffa son chapeau de bambou et marcha vers le cœur de la ville orientale sous la nuit encore peu sombre.
 
 La musique et les voix résonnaient dans la nuit de la cité orientale, mais Wang Lin se sentait seul alors qu'il traversait silencieusement les rues. Le nombre de passants diminua progressivement jusqu'à ce que Wang Lin soit le seul à errer dans la neige.
 
@@ -86,7 +86,7 @@ Dès son apparition, l'individu forma des sceaux avec ses mains et un arc surgit
 
 Cette flèche vola vers Wang Lin, suivant la trajectoire de la précédente.
 
-« La famille Li? » Wang Lin portait un manteau à capuche, l'autre partie ne pouvant ainsi distinguer ses traits. Il se retourna et pointa du doigt de sa main droite.
+« La famille Li? » Wang Lin portait un manteau de paille et un chapeau de bambou, l'autre ne pouvant ainsi distinguer ses traits. Il se retourna sans lever la tête et pointa du doigt de sa main droite.
 
 Sur ce geste, la flèche violette qui arrivait s'effondra, et même la suivante trembla avant de se dissiper.
 
@@ -108,11 +108,11 @@ Cependant, ses paroles résonnèrent comme le tonnerre aux oreilles de l'ombre r
 
 « Lui... Quel est son niveau de culture?! Quel est son niveau de culture?! Cette affaire doit être immédiatement rapportée à l'ancêtre. Cet homme doit être un Exalté Empyréen, et non un ordinaire! Malheur, Li Shan et moi nous sommes séparés. Je suis venu surveiller cet individu tandis que Li Shan est allé capturer son compagnon... » L'expression de la silhouette rouge changea brusquement; il sentit que les actions de la famille Li allaient provoquer une catastrophe majeure.
 
-Wang Lin, toujours coiffé de son manteau à capuche, continuait sa route. Il n'avait pas de destination précise, voulant simplement marcher tranquillement. En avançant, il aperçut des lumières et entendit de la musique provenant de devant lui.
+Wang Lin, toujours vêtu de son manteau de paille et coiffé de son chapeau de bambou, continuait sa route. Il n'avait pas de destination précise, voulant simplement marcher tranquillement. En avançant, il aperçut des lumières et entendit de la musique provenant de devant lui.
 
 Il leva les yeux vers une structure semblable à un palais, baignée de lumière. Il allait passer son chemin lorsqu'il leva à nouveau le regard, ses yeux brillant d'une lueur étrange en contemplant ce palais éclatant.
 
-Son regard semblait capable de transpercer toute existence; il vit alors un homme au visage fier, vêtu de rouge. Wang Lin lui était familier, tant par son apparence que par son aura.
+Son regard semblait capable de transpercer toute existence; il vit alors, au troisième étage, un homme au visage fier, vêtu de rouge. Wang Lin lui était familier, tant par son apparence que par son aura.
 
 Derrière l'homme en rouge se trouvaient plusieurs cultivateurs faisant office de gardes. C'étaient tous des cultivateurs du troisième niveau qui semblaient regarder l'homme en rouge avec respect.
 
@@ -122,6 +122,6 @@ Derrière l'homme en rouge se trouvaient plusieurs cultivateurs faisant office d
 
 « Le Manoir Li... cela va un peu trop loin! » Le corps de Wang Lin vacilla et il disparut soudainement. L'homme en rouge dans le palais devant lui jeta sa coupe de vin au sol et cria à ses subordonnés:
 
-« Quel genre de vin est-ce là?! N'essayez pas de tromper le Grand-père Xu de votre famille! Je sais que votre clan possède du vin millénaire; apportez-le sans tarder, sinon le Grand-père Xu de votre famille fera parler de cet endroit! »
+« Quel genre de vin est-ce là?! N'essayez pas de tromper le Grand-père Xu de votre famille! Je sais que votre clan possède du vin millénaire; apportez-le sans tarder, sinon le Grand-père Xu de votre famille démolira cet endroit! »
 
 L'homme en rouge affichait une expression féroce, ignorant qu'un regard pesait sur lui. Un regard qui pourrait bien semer la confusion dans son esprit.

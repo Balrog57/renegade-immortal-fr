@@ -8,19 +8,19 @@ slug: larc-en-ciel-sous-la-pluie
 ---
 « La réincarnation... Qu'est-ce que la réincarnation exactement... Je pensais que la réincarnation était le Ciel, mais en vérité, elle est bien plus que cela. » Wang Lin marchait dans les airs tandis que les visages de Zhou Ru, de Situ Nan et du Fou défilaient dans son esprit.
 
-« Le choix du Fou n'était peut-être pas celui de la réincarnation, mais Zhou Ru et Situ, eux, l'ont choisie... Ils n'ont pas choisi de vivre, car ils avaient choisi de s'intégrer à cette vie. Ils avaient trop de liens auxquels ils ne voulaient renoncer.
+« Le choix du Fou n'était peut-être pas celui de la réincarnation, mais Zhou Ru et Situ, eux, l'ont choisie... Ils n'ont pas choisi de partir, mais de s'intégrer ici, car ils avaient trop d'attaches et de liens auxquels ils ne voulaient renoncer.
 
-« Zhou Ru ne pouvait abandonner ses parents et son affection dans cette existence. Situ ne pouvait abandonner la vie des soldats qui le suivaient. Une réincarnation est une vie entière, et l'on possède tant d'attaches au cours d'une vie. Comment pourrait-on tout trancher si facilement?
+« Zhou Ru ne pouvait abandonner ses parents et son affection dans cette existence. Situ ne pouvait abandonner les soldats qui le suivaient depuis toute une vie. Comme Situ l'a dit, chaque réincarnation est une vie entière, et l'on possède tant d'attaches au cours d'une vie. Comment pourrait-on tout trancher si facilement?
 
 « C'est là le pouvoir de la réincarnation... Elle peut rendre quelqu'un incapable de se libérer, ou lui ôter toute volonté de le faire. » Une confusion régnait dans les yeux de Wang Lin, mais il semblait puiser une plus grande illumination au cœur même de ce trouble.
 
 « La réincarnation est le Ciel, et elle est aussi un miroir. Le soi dans le miroir est la réincarnation. »
 
-La confusion dans le regard de Wang Lin se dissipa progressivement pour laisser place à la clarté. Sa compréhension de la réincarnation progressait inexorablement vers la perfection après avoir observé Zhou Ru et Situ Nan. La route étroite en contrebas ressemblait à une ligne s'élançant vers les cieux.
+La confusion dans le regard de Wang Lin se dissipa progressivement pour laisser place à la clarté. Sa compréhension de la réincarnation progressait inexorablement vers la perfection après avoir observé Zhou Ru et Situ Nan.
 
 « Je me demande quels seront les choix des autres... » Wang Lin regarda au loin, poussa un soupir et poursuivit sa route.
 
-Clan Céleste, une chaîne de montagnes du Continent Nord. La forêt y était dense et extrêmement périlleuse.
+Clan Céleste, une chaîne de montagnes du Continent Nord. La forêt y était dense et extrêmement périlleuse; en contrebas, une route officielle serpentait comme un mince ruban de ciel.
 
 Une grotte se trouvait là, isolée, sans âme autour, hormis les oiseaux et les bêtes. Pourtant, depuis qu'elle était apparue des années auparavant, aucune créature n'avait osé s'en approcher.
 
@@ -50,15 +50,17 @@ Le corps de Grosse Tête trembla et la confusion se lut dans ses yeux. Divers so
 
 Cette lame, forgée par les forces de l'univers et créée grâce au sort de foi de Wang Lin, était un trésor absolu!
 
-D'un geste, la petite épée fendit le brouillard et se planta dans la paroi. Au cœur de la brume, Grosse Tête retrouvait peu à peu la mémoire. Un léger sourire apparut sur les lèvres de Wang Lin; d'un revers de manche, il rassembla l'énergie du monde pour transformer une grande quantité de pilules en une calebasse. Il la déposa au sol avant de partir.
+D'un geste, la petite épée fendit le brouillard et se planta dans la paroi. Au cœur de la brume, Grosse Tête retrouvait peu à peu la mémoire. Un léger sourire apparut sur les lèvres de Wang Lin; d'un revers de manche, il rassembla l'énergie du monde pour en faire une grande quantité de pilules qui tombèrent dans une calebasse. Il la déposa au sol avant de partir.
 
 Longtemps après, la brume se dissipa et Grosse Tête sortit, l'expression complexe et l'esprit embrumé. Il resta assis là, contemplant la grotte vide pendant un long moment, avant de lever les yeux et de murmurer:
 
 « Maître... » Il vit l'épée qui l'avait terrifié et la calebasse remplie de pilules. Des larmes coulèrent sur ses joues.
 
-Toujours dans le Continent Nord, mais sur une autre terre. Une douzaine de traînées lumineuses fendaient le ciel lorsqu'un éclat cristallin passa en trombe. Les cultivateurs furent pris au dépourvu par cette lumière qui disparut entre eux.
+Toujours dans le Continent Nord, mais sur une autre terre. Plusieurs dizaines de traînées lumineuses fendaient le ciel lorsqu'un éclat cristallin passa en trombe. Les cultivateurs furent pris au dépourvu par cette lumière qui disparut entre eux.
 
-Personne ne remarqua qu'au moment où l'éclat s'effaça, il pénétra précisément entre les yeux...
+Personne ne remarqua qu'au moment où l'éclat s'effaça, il pénétra entre les sourcils d'un garçon vêtu d'une robe rouge, au sein du groupe.
+
+Le garçon trembla de tout son corps et les souvenirs enfouis dans son esprit s'éveillèrent peu à peu.
 
 Les cultivateurs restèrent perplexes un instant, puis, après avoir débattu, ils se précipitèrent de nouveau en avant. Les yeux du garçon en rouge étaient empreints de confusion et, après quelques heures, le groupe fit halte sur le flanc d'une montagne. Le trouble dans son regard s'estompa pour laisser place à une émotion complexe.
 
@@ -66,7 +68,7 @@ Les cultivateurs restèrent perplexes un instant, puis, après avoir débattu, i
 
 Continent Est, dans le continent Nan Ni, Wang Lin passa brièvement près d'une petite secte. Elle ne comptait pas beaucoup de cultivateurs, environ mille âmes seulement. L'emplacement de la secte n'était guère propice et l'énergie spirituelle y était peu dense.
 
-Depuis que l'édit des Grands Empyréens avait annoncé l'ouverture du Royaume Divin Immémorial, des courants sous-jacents agitaient le continent. Cela signifiait que les petites sectes ne pouvaient plus vivre en paix et devaient désormais s'en remettre aux grandes puissances pour survivre.
+Depuis que les édits de plusieurs Grands Empyréens et de l'Empereur Immortel avaient ordonné à toutes les sectes du clan céleste de se préparer pleinement à la guerre, des courants sous-jacents agitaient le continent. Cela signifiait que les petites sectes ne pouvaient plus vivre en paix et devaient désormais s'en remettre aux grandes puissances pour survivre.
 
 La guerre était imminente, et une modeste secte comme celle-ci aurait du mal à subsister dans l'affrontement entre les Anciens et les Célestes.
 
@@ -76,7 +78,7 @@ Il avait déployé des efforts colossaux pour atteindre son rang de maître de s
 
 Cependant, chaque option présentait des conséquences aussi graves les unes que les autres. Les Anciens de la secte divergeaient sur cette question, et les signes de division commençaient à poindre.
 
-Tandis que Shen Bao sombrait dans l'inquiétude, un jeune homme vêtu de blanc, aux cheveux argentés, arriva devant la secte et pénétra à l'intérieur.
+Tandis que Shen Bao sombrait dans l'inquiétude, un jeune homme vêtu de blanc, aux cheveux blancs, arriva devant la secte et pénétra à l'intérieur.
 
 Wang Lin trouva Shen Bao et, quelques heures plus tard, il repartit.
 
@@ -90,7 +92,7 @@ La Secte Soleil et Lune était la plus puissante du continent Tian Fang. Elle co
 
 Le nombre de génies y était immense, mais aucun ne pouvait égaler une femme nommée Qing Hong. Son talent était si rare qu'on ne le croisait qu'une fois tous les dix mille ans!
 
-Il y a des centaines d'années, elle était devenue disciple de la Secte Soleil et Lune. En moins de mille ans, elle avait atteint la troisième étape pour atteindre le sommet du Nirvana Vide, n'étant plus qu'à un pas du Vide Spirituel.
+Il y a des centaines d'années, elle était devenue disciple de la Secte Soleil et Lune. En moins de mille ans, elle était devenue une grande puissante de la troisième étape et avait atteint le sommet du Nirvana Vide, n'étant plus qu'à un pas de devenir une cultivatrice du Vide Spirituel.
 
 Cela était dû en grande partie au fait que la Secte Soleil et Lune l'avait formée de manière optimale, mais cela témoignait aussi de son importance cruciale pour l'organisation.
 
@@ -106,7 +108,7 @@ En particulier, les enfants des Anciens et les disciples se croyant dignes ne ce
 
 Ce jour-là, Qing Hong sortit de sa retraite. Les nuages étaient sombres à l'extérieur et le tonnerre grondait comme si la pluie allait tomber. Ce fracas la rendait agitée, comme si un événement imminent se préparait.
 
-Elle resta devant sa propre grotte, observant les cieux noirs et la lueur rouge violacé du soleil. Une confusion régnait dans ses yeux.
+Elle resta devant sa propre grotte, observant les cieux noirs et les fleurs pourpres et rouges éclatantes sous la pluie, au pied de la montagne. Une confusion régnait dans ses yeux.
 
 Un magnifique papillon vola au loin, bravant les vents violents. Il flotta devant elle et attira son attention.
 

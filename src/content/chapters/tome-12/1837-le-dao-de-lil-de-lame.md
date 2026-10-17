@@ -16,11 +16,11 @@ Après avoir pesé le pour et le contre, Wang Lin renonça à l'idée de monter 
 
 Il ne pouvait choisir qu'un seul sort dans le Pavillon des Écritures de l'Âme, et cela n'était pas une chose que Wang Lin pouvait changer. Son regard balaya les neuf corps spirituels de sept pouces.
 
-Parmi les neuf corps présents, Wang Lin perçut l'Illusion Spirituelle, l'illusion multicouche, ainsi que le Dao de l'Œil de l'Âme qui lui avait fait sourire amèrement.
+Parmi les neuf corps présents, Wang Lin perçut l'Origine de la Fantaisie de l'Âme, l'illusion multicouche, ainsi que le Dao de l'Œil de l'Âme qui lui avait fait sourire amèrement.
 
 Quant aux autres sorts, bien qu'il n'ait jamais vu personne les utiliser personnellement, il les scruta tout de même.
 
-La Secte de la Grande Âme se concentrait sur le sort d'Illusion Spirituelle. La plupart des disciples de base pouvaient utiliser cette illusion multicouche, mais ils ne parvenaient pas à en manifester la véritable puissance. Une fois qu'une illusion à huit couches était créée, sa force était capable de briser les cieux.
+La Secte de la Grande Âme se concentrait sur le sort d'Illusion Spirituelle. La plupart des disciples centraux pouvaient utiliser un peu cette illusion multicouche, mais tout au plus trois ou quatre couches, sans parvenir à en manifester la véritable puissance. Une fois qu'on dépassait huit couches, sa force était capable de briser les cieux.
 
 Les yeux de Wang Lin s'arrêtèrent sur le troisième corps spirituel parmi les neuf. Ce corps contenait l'illusion multicouche.
 
@@ -28,11 +28,11 @@ Les yeux de Wang Lin s'arrêtèrent sur le troisième corps spirituel parmi les 
 
 « Il semble que la version complète se trouve au neuvième étage. » Wang Lin réfléchit et observa le septième corps spirituel. L'aura de ce dernier était aussi puissante que celle de l'illusion multicouche.
 
-Ce septième corps contenait l'Origine de l'Illusion Spirituelle qu'Yan Lu avait utilisée, et ce sort était complet au huitième étage.
+Ce septième corps contenait l'Origine de la Fantaisie de l'Âme qu'Yan Lu avait utilisée, et ce sort était complet au huitième étage.
 
 Wang Lin pesa le pour et le contre entre ces deux options.
 
-« Même si je ne vais pas au neuvième étage maintenant, j'y irai un jour. Après tout, l'illusion multicouche est une technique que je dois absolument obtenir! De cette façon, il n'est pas nécessaire de la choisir immédiatement, et avec la gourde spirituelle, l'Origine de l'Illusion Spirituelle est plus appropriée pour le moment! » Après avoir mûri sa réflexion, les yeux de Wang Lin s'illuminèrent et il prit une décision. Une fois son choix fait, il ne revenait jamais en arrière. Il se dirigea vers le septième corps spirituel et s'assit. Sa main droite forma un sceau et pointa vers l'entité.
+« Même si je ne vais pas au neuvième étage maintenant, j'y irai un jour. Après tout, l'illusion multicouche est une technique que je dois absolument obtenir! De cette façon, il n'est pas nécessaire de la choisir immédiatement, et avec la gourde spirituelle, l'Origine de la Fantaisie de l'Âme est plus appropriée pour le moment! » Après avoir mûri sa réflexion, les yeux de Wang Lin s'illuminèrent et il prit une décision. Une fois son choix fait, il ne revenait jamais en arrière. Il se dirigea vers le septième corps spirituel et s'assit. Sa main droite forma un sceau et pointa vers l'entité.
 
 Le septième corps spirituel trembla et libéra une lumière fantomatique qui enveloppa tout le huitième étage. Elle dériva lentement au-dessus de la tête de Wang Lin, donnant l'impression qu'il était en pleine méditation.
 
@@ -40,7 +40,7 @@ Des ondes semblables à des filaments spectraux s'échappèrent du septième cor
 
 L'expression de Wang Lin restait calme et, tandis que ces volutes de fumée imprégnaient son être, il entendit une voix murmurer à ses oreilles. Elle s'inscrivit lentement dans son âme jusqu'à devenir une seconde nature.
 
-Le temps passa lentement; Wang Lin resta au huitième étage pendant trois jours. Durant cette période, il ne bougea pas d'un iota, absorbant l'Origine de l'Illusion Spirituelle du corps spirituel de sept pouces.
+Le temps passa lentement; Wang Lin resta au huitième étage pendant trois jours. Durant cette période, il ne bougea pas d'un iota, absorbant l'Origine de la Fantaisie de l'Âme du corps spirituel de sept pouces.
 
 Il ignorait que sa silhouette était déjà profondément gravée dans l'esprit de chaque disciple et qu'il était presque devenu une légende.
 
@@ -56,11 +56,11 @@ Ces trois jours ne suffirent pas à apaiser les rumeurs sur Wang Lin. Au lever d
 
 Son regard semblait avoir changé; ses yeux contenaient désormais des volutes de fumée onirique. Quiconque croisait son regard s'y trouvait immergé, incapable de s'en échapper.
 
-« Origine de l'Illusion Spirituelle... C'est donc ainsi... » murmura Wang Lin avant de refermer les yeux. Après un long moment, il expira une bouffée d'air vicié, se leva et descendit les escaliers.
+« Origine de la Fantaisie de l'Âme... C'est donc ainsi... » murmura Wang Lin avant de refermer les yeux. Après un long moment, il expira une bouffée d'air vicié, se leva et descendit les escaliers.
 
 Pas à pas, il descendit du huitième étage directement au cinquième, puis au troisième, jusqu'à atteindre le premier étage.
 
-« Les sorts de la Secte de la Grande Âme, qu'il s'agisse du Dao de l'Œil de l'Âme ou de l'Origine de l'Illusion Spirituelle, nécessitent de détacher une partie de son âme. Cette portion communique avec le monde pour exécuter la série de sorts... »
+« Les sorts de la Secte de la Grande Âme, qu'il s'agisse du Dao de l'Œil de l'Âme ou de l'Origine de la Fantaisie de l'Âme, nécessitent de détacher une partie de son âme. Cette portion communique avec le monde pour exécuter la série de sorts... »
 
 « Pas étonnant que je n'aie pas pu étudier l'illusion multicouche dans le monde de la grotte et que je ne pus utiliser que la Voile Fantôme. Sans elle, j'ai perdu la capacité d'utiliser ce sort... » Les yeux de Wang Lin brillaient d'une lueur étrange alors qu'il sortait du Pavillon des Écritures de l'Âme.
 
@@ -68,7 +68,7 @@ Il s'envola depuis la faille située à l'extérieur du pavillon et, au moment o
 
 L'Ancien Taureau Vert, resté à l'intérieur du Pic Céleste Vert, regarda Wang Lin partir et poussa un soupir de soulagement. Si Wang Lin était entré au neuvième étage trois cents ans plus tôt, il n'aurait vraiment pas su comment réagir.
 
-« Le premier ancêtre avait diviné que Wang Lin entrerait au neuvième étage après trois cents ans de présence ici. Ensuite, le neuvième jour suivant son entrée dans ce neuvième étage, les trois grandes sectes du Continent du Démon Vert uniraient leurs forces pour anéantir mon Secte de la Grande Âme et la Secte Gui Yi... »
+« Le premier ancêtre avait diviné que Wang Lin entrerait au neuvième étage après trois cents ans de présence ici. Ensuite, le neuvième jour suivant son entrée dans ce neuvième étage, les trois grandes sectes du Continent du Démon Vert uniraient leurs forces pour anéantir ma Secte de la Grande Âme et la Secte Gui Yi... »
 
 « Leur but est d'obtenir l'Âme du Taureau Céleste supprimée sous le Continent du Taureau Céleste... » L'estimable Taureau Vert semblait inquiet. Bien qu'il fût au courant de tout à l'avance et qu'il eût fait ses préparatifs, l'incertitude apportée par Wang Lin le rendait mal à l'aise.
 
@@ -104,6 +104,6 @@ Wang Lin retourna dans la grotte au sommet et s'assit. D'un revers de main, il f
 
 « Je ne comprends toujours pas la situation exacte de l'endroit où se trouve mon Maître. Cependant, pour que j'apparaisse soudainement, il doit y avoir des gens mécontents ou cherchant à provoquer un conflit... Par conséquent, je dois augmenter mon niveau de culture avant de le retrouver! » Quelqu'un ayant le niveau de Wang Lin possédait un sens aigu du danger futur. Bien qu'il ne fût pas aussi clair que ceux capables de diviner les changements du monde, il percevait la situation.
 
-Il avait l'impression vague qu'une grande calamité se préparait pour lui.
+Il avait l'impression vague qu'une grande calamité se préparait pour lui au sein de la lignée du Dao Antique.
 
 « Tant que j'aurai un niveau de culture suffisamment élevé, aucune de ces calamités ne sera un problème! Maintenant, je veux voir quels genres de cadeaux la personne de la Secte de la Grande Âme qui a prédit mon apparition m'a laissés! » Les yeux de Wang Lin s'illuminèrent et se posèrent sur la première boîte.

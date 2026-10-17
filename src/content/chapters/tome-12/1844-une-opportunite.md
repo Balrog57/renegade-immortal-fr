@@ -16,7 +16,7 @@ Les ombres apparurent une à une, portées par les auras de leur puissante cultu
 
 « L'eau peut isoler toutes les auras. Elle peut empêcher le feu de brûler, elle peut étouffer la vie, elle peut rendre le monde sans couleur... » murmura Wang Lin tout en comprimant la goutte dans sa main jusqu'à ce qu'elle s'effondre. Une immense quantité d'eau semblable à de l'encre se répandit, prenant Wang Lin comme épicentre.
 
-Les mille silhouettes qui s'étaient rapprochées de Wang Lin furent piégées par le liquide noir avant même de pouvoir l'approcher.
+Les mille silhouettes qui s'étaient rapprochées de Wang Lin furent piégées par le liquide noir avant même de pouvoir user de leurs pouvoirs divins.
 
 Des cris de détresse résonnèrent dans la Mer des Pilules. Tous les cultivateurs en robes vertes touchés par l'eau noire tremblèrent tandis que leurs corps se corrodaient rapidement et que leurs âmes originelles se dissipaient.
 
@@ -34,11 +34,11 @@ Le corps de la femme tremblait et ses yeux étaient emplis de terreur. Tous les 
 
 « Qui est cette personne?! Pourquoi n'est-elle pas apparue lorsque nous avons enquêté sur les puissants cultivateurs d'ici?! » songea silencieusement la femme en serrant les dents.
 
-« Tous les Soldats Démoniaques Verts de la Mer des Pilules, écoutez mon ordre! Poursuivez cette personne et ne le laissez pas s'échapper. Il a dérobé la Corruption Liquide Raffinée Dix Mille Fois. Vous devez le tuer pour la récupérer! » ordonna la femme avant de cracher une bouchée de sang. Son sang se fusionna avec ses paroles et se transforma en un gaz qui pénétra dans la boussole.
+« Tous les Soldats du Démon Vert de la Mer des Pilules, écoutez mon ordre! Poursuivez cette personne et ne le laissez pas s'échapper. Il a dérobé la Corruption Liquide Raffinée Dix Mille Fois. Vous devez le tuer pour la récupérer! » ordonna la femme avant de cracher une bouchée de sang. Son sang se fusionna avec ses paroles et se transforma en un gaz qui pénétra dans la boussole.
 
 Une fois le sang dissipé, tous les cultivateurs en robes vertes aux côtés de la femme marchèrent rapidement vers l'avant.
 
-Au même moment, tous les cultivateurs du Continent Démoniaque Vert tremblèrent alors que la voix de la femme résonnait dans leurs esprits.
+Au même moment, tous les cultivateurs du Continent du Démon Vert présents dans la Mer des Pilules tremblèrent alors que la voix de la femme résonnait dans leurs esprits.
 
 Si sa voix pouvait se propager si loin, ce n'était pas grâce à son niveau de culture élevé, mais par le biais de la boussole qu'elle tenait. Cette boussole n'était pas un objet ordinaire; elle était le centre de la restriction qui entourait la Mer des Pilules!
 
@@ -64,7 +64,7 @@ Quant à Wang Lin, lorsqu'il approcha du Continent du Taureau Céleste, il émer
 
 S'il parvenait à absorber et raffiner une restriction puissante et ancienne, son essence de restriction augmenterait considérablement.
 
-« La restriction ici peut être raffinée et absorbée dans mon essence de restriction... » murmura Wang Lin pour lui-même. Lorsqu'il était au Pavillon des Écritures de l'Âme, il avait estimé qu'il ne serait pas opportun de raffiner la restriction là-bas en tant qu'Ancien du secteur. De plus, ces restrictions n'étaient pas si mystérieuses; elles ne contenaient que la volonté de puissants cultivateurs.
+« La restriction ici peut être raffinée et absorbée dans mon essence de restriction... » murmura Wang Lin pour lui-même. Lorsqu'il était au Pavillon des Écritures de l'Âme, il avait estimé qu'il ne serait pas opportun de raffiner la restriction là-bas en tant qu'Ancien de la Secte de la Grande Âme. De plus, ces restrictions n'étaient pas si mystérieuses; elles ne contenaient que la volonté de puissants cultivateurs.
 
 Tout en réfléchissant, Wang Lin resta très calme et agita sa main droite. Des dizaines de flammes commencèrent à brûler dans la mer, sur la droite de Wang Lin.
 
@@ -116,4 +116,4 @@ L'Oiseau Vermillon et la Tortue Noire se regardèrent et acquiescèrent d'un sig
 
 Mais alors qu'ils se rapprochaient et que le Tigre Blanc et ses compagnons s'apprêtaient à lutter jusqu'à la mort, une voix surgit comme un vent glacial.
 
-« C'est drôle... »
+« Est-ce si drôle?... »

@@ -34,7 +34,7 @@ Le visage de Jiu Di était pâle et ses yeux débordaient de choc. Il subissait 
 
 Et bien que l'adversaire n'ait condensé que le contour d'un soleil du Grand Empyréen, ce n'était qu'une esquisse. C'était comme une graine n'ayant pas encore fleuri ni porté de fruit.
 
-Pourtant, avec seulement ce contour, Wang Lin avait réussi à le repousser tout en déployant la pleine puissance de ses capacités actuelles!
+Pourtant, avec seulement ce contour, Wang Lin avait réussi à le repousser, alors qu'il frappait lui-même de toute la puissance dont il était actuellement capable!
 
 Cela défiait toute logique. La seule explication était que le soleil du Grand Empyréen condensé par Wang Lin n'était absolument pas ordinaire!
 
@@ -54,11 +54,11 @@ Dans un fracas assourdissant, le corps de Dao Yi chuta du ciel sous un cri déch
 
 « Je refuse que cela se termine ainsi! » Dao Yi était consumé par le ressentiment. Sans cette malédiction ancestrale, il n'aurait jamais fini dans un tel état devant Wang Lin! Mais il était à présent réduit à une misère absolue!
 
-Jiu Di se retourna, serra les dents et rugit: « Wang Lin, ça suffit! Tu peux emporter la tête de l'Ancêtre Céleste! Hai Zi, tu ne peux pas attaquer Wang Lin, mais tu dois sauver Dao Yi! »
+Jiu Di se retourna, serra les dents et rugit: « Wang Lin, ça suffit! Tu peux emporter la tête de l'Ancêtre Céleste! Hai Zi, tu n'as pas à t'en prendre à Wang Lin, mais tu dois sauver Dao Yi! »
 
 Hai Zi réfléchit silencieusement et leva la main droite. Elle fit un geste vers Dao Yi, qui gisait au sol.
 
-« Par le pouvoir du clan Dao Wang, rassemblez les pensées des vivants et l'existence des morts... Que ceux qui existent continuent d'exister, et que ceux qui sont sur le point de se dissiper... s'arrêtent! »
+« Par le pouvoir du clan Dao Wang, transformez les pensées des vivants et les pensées des morts... Que ceux qui existent continuent d'exister, et que ceux qui sont sur le point de se dissiper... s'arrêtent! »
 
 Hai Zi agita la main et des ondulations bleues se propagèrent autour de Dao Yi. Lorsque Wang Lin tenta de s'approcher, il eut l'impression de s'enfoncer dans des sables mouvants.
 

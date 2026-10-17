@@ -28,7 +28,7 @@ Il envisageait même d'aider Wang Lin à voir s'il était possible de pénétrer
 
 « J'ignore quelles en seront les conséquences lorsqu'un être issu d'un monde caverneux entrera sur le Continent Astral Immortel, mais j'espère que tu seras le premier à réussir!
 
-« Je ne peux pas rester éternellement dans cette terre céleste. Je t'attendrai dix ans... Si tu n'es pas sorti dans dix ans, c'est que tu seras mort... » Les paroles de Xuan Luo, empreintes d'une profonde lassitude séculaire, résonnèrent dans l'esprit de Wang Lin tandis que sa silhouette apparaissait devant lui.
+« Je ne peux pas rester éternellement dans cette terre de la race immortelle du Continent Astral Immortel. Je t'attendrai dix ans... Si tu n'es pas sorti dans dix ans, c'est que tu seras mort... » Les paroles de Xuan Luo, empreintes d'une profonde lassitude séculaire, résonnèrent dans l'esprit de Wang Lin tandis que sa silhouette apparaissait devant lui.
 
 Son regard était empreint de bienveillance, contemplant Wang Lin comme s'il regardait son propre descendant.
 
@@ -58,7 +58,7 @@ Ces rayons étaient constitués de toutes les créatures vivantes et des âmes p
 
 Xu Liguo, Liu Jinbiao, les bêtes moustiques, et tous les autres; chaque être présent dans l'espace de stockage de Wang Lin apparut. Même le Serpent aux yeux de lune, malgré sa taille démesurée, montrait des signes d'apparition.
 
-« Ces créatures suivent le Disciple depuis longtemps, je demande à l'Enseignant de les envoyer vers l'Immortel... » À peine Wang Lin eut-il prononcé ces mots que le groupe de bêtes moustiques, mené par la reine des moustiques, manifesta une folie dévorante dans ses yeux. Elles s'élancèrent désespérément vers la brèche de glace.
+« Ces créatures suivent le Disciple depuis longtemps, je demande à l'Enseignant de les envoyer vers le Continent Astral Immortel... » À peine Wang Lin eut-il prononcé ces mots que le groupe de bêtes moustiques, mené par la reine des moustiques, manifesta une folie dévorante dans ses yeux. Elles s'élancèrent désespérément vers la brèche de glace.
 
 Il semblait qu'un désir irrésistible les poussait vers l'extérieur et elles se précipitèrent comme des possédées. Ce changement soudain stupéfia Wang Lin, et même Xuan Luo fut surpris.
 
@@ -100,4 +100,4 @@ Derrière elle, neuf bêtes moustiques dorées firent leur apparition. Chacune d
 
 « La rumeur prétend que le Continent Astral Immortel n'était qu'un désert à l'origine. Puis le Royaume Divin apparut et créa la vie. Ensuite, les étoiles surgirent, mais elles se trouvaient sous le continent!
 
-« Puis la loi du Continent Astral Immortel descendit telle une mer déchaînée. Neuf bêtes distinctes apparurent simultanément avec l'Ancêtre Originel. Ceci... cette bête peut fusionner avec le chaos du Continent Astral Immortel. Se pourrait-il que... elles... » Les yeux de Xuan Luo s'écarquillèrent, pétrifiés par l'incrédulité.
+« Puis la loi du Continent Astral Immortel descendit telle l'eau de la mer. Neuf bêtes distinctes apparurent simultanément avec l'Ancêtre Antique et l'Ancêtre Céleste. Ceci... cette bête peut fusionner avec le chaos du Continent Astral Immortel. Se pourrait-il que... elles... » Les yeux de Xuan Luo s'écarquillèrent, pétrifiés par l'incrédulité.

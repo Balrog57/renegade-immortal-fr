@@ -20,9 +20,9 @@ Wang Lin n'eut pas le temps de réfléchir et agita sa manche. Il parvint à en 
 
 Le cuir chevelu de Wang Lin devint engourdi et il regarda dans la direction où le Poisson-Œil s'était volatilisé. Il n'y avait rien; seul l'écho de l'effondrement des 300 mondes détruits résonnait encore.
 
-Xuan Luo se tenait là, observant le Wang Lin prudent et surpris, affichant un sourire fier. En voyant l'expression de Wang Lin, son sourire s'élargit davantage.
+Xuan Luo se tenait là, observant le Wang Lin prudent et surpris, affichant un sourire fier; c'était lui qui avait pris le quatrième Poisson-Œil. En voyant l'expression de Wang Lin, son sourire s'élargit davantage.
 
-Les yeux de Wang Lin brillèrent d'une lueur indéchiffrable. Il connaissait un secret concernant les Poissons-Œil, une révélation que le Souverain aux Sept Couleurs avait découverte en commençant à les élever dans les 300 mondes détruits. Wang Lin l'avait appris à travers les souvenirs de la troisième âme.
+Les yeux de Wang Lin brillèrent d'une lueur indéchiffrable. Il connaissait un secret concernant les Poissons-Œil, une révélation que le Souverain Céleste aux Sept Couleurs avait découverte en commençant à les élever dans les 300 mondes détruits. Wang Lin l'avait appris à travers les souvenirs de la troisième âme.
 
 S'il y avait deux Poissons-Œil, un mâle et une femelle, un lien se tissait entre eux. Ce lien persistait même si l'un d'eux était placé dans un espace de stockage ou derrière une barrière. Ce lien durait jusqu'à la mort.
 
@@ -44,7 +44,7 @@ Cette hésitation ne dura qu'un instant avant que le Vieux Fantôme Zhan ne sort
 
 L'illusion entourant le Vieux Fantôme Zhan était floue, mais il soutint également le regard de Wang Lin sans pour autant le poursuivre. Il ne pouvait deviner combien de tirs il restait à Wang Lin. Toujours prudent, il n'était pas prêt à jouer son destin au hasard!
 
-Wang Lin avait choisi de blesser gravement le Daoïste aux Sept Couleurs plutôt que le Vieux Fantôme Zhan car, selon ses analyses, le Daoïste était plus émotif. Après tout, son âme n'avait hérité que des sorts, tandis que le Vieux Fantôme Zhan avait hérité de toute la compréhension; il était donc fort probable que ce dernier soit plus rationnel.
+Wang Lin avait choisi de blesser gravement le Daoïste aux Sept Couleurs plutôt que le Vieux Fantôme Zhan car, selon ses analyses, le Daoïste était plus enclin à l'obsession. Après tout, son âme n'avait hérité que des sorts, tandis que le Vieux Fantôme Zhan avait hérité de toute la compréhension; il était donc fort probable que ce dernier soit plus rationnel.
 
 Face au Daoïste aux Sept Couleurs, Wang Lin ne pouvait prédire avec précision sa décision, mais face au Vieux Fantôme Zhan, il en était sûr à 80 %!
 
@@ -80,7 +80,7 @@ Contemplant la deuxième fleur gelée, Wang Lin hésita, puis ses yeux s'emplire
 
 Déjà gravement blessé, il pénétra dans la deuxième fleur sans avoir guéri. L'énergie glaciale l'enveloppa. Lorsque son corps se matérialisa dans le monde gelé, il cracha une bouchée de sang.
 
-Dès que son sang jaillit, il se figea et tomba au sol. Wang Lin tituba avant de lever la tête pour observer les alentours. Ce qu'il vit le stupéfia.
+Dès que son sang jaillit, il se figea en grains de glace et tomba au sol. Wang Lin tituba avant de lever la tête pour observer les alentours. Ce qu'il vit le stupéfia.
 
 C'était un monde de glace. La terre, le ciel et même les nuages étaient pétrifiés par le gel. Les continents flottants pendaient comme d'immenses stalactites.
 
@@ -96,35 +96,35 @@ Après un moment de réflexion, Wang Lin réprima ses blessures et se dirigea ve
 
 Une femelle Ancien Dieu!!
 
-La faille spatiale à l'extérieur de la planète Dong Ling!!
+L'espace de la faille de la planète Dong Lin!!
 
 Les cils de la femme frémirent et elle ouvrit lentement les yeux. Elle fixa calmement l'horizon et aperçut Wang Lin. Leurs regards se croisèrent.
 
-« Bienvenue dans la Secte Dong Ling », dit doucement la femme. Sa voix, d'une grande beauté, résonna à travers le monde gelé.
+« Bienvenue dans la Secte Dong Lin », dit doucement la femme. Sa voix, d'une grande beauté, résonna à travers le monde gelé.
 
-À 100 000 kilomètres de là, Wang Lin réfléchissait en silence. Il comprit soudain pourquoi cette aura d'Ancien Dieu lui était si familière: c'était celle qu'il avait ressentie lorsqu'il avait tué l'ancêtre de la famille Xiang sur la planète Dong Ling.
+À 100 000 kilomètres de là, Wang Lin réfléchissait en silence. Il comprit soudain pourquoi cette aura d'Ancien Dieu lui était si familière: c'était celle qu'il avait ressentie lorsqu'il avait tué l'ancêtre de la famille Xiang sur la planète Dong Lin.
 
-« Cet endroit est-il la planète Dong Ling? » Wang Lin fit un pas, provoquant des ondulations sous ses pieds. Il parcourut les 100 000 kilomètres en une seule enjambée et se retrouva à mille pieds de la femelle Ancien Dieu.
+« Cet endroit est-il la planète Dong Lin? » Wang Lin fit un pas, provoquant des ondulations sous ses pieds. Il parcourut les 100 000 kilomètres en une seule enjambée et se retrouva à mille pieds de la femelle Ancien Dieu.
 
 La femme regarda Wang Lin, une lueur mystérieuse dissimulée derrière son calme apparent. À ses paroles, elle secoua la tête.
 
-« Cet endroit est la Secte Dong Ling, pas la planète Dong Ling. »
+« Cet endroit est la Secte Dong Lin, pas la planète Dong Lin. »
 
 « Nous nous sommes déjà rencontrés. Je m'appelle Wang Lin, et vous? » demanda-t-il en observant la femme, particulièrement les sept étoiles entre ses sourcils, avant de s'asseoir.
 
-La femme répondit d'une voix suave: « Yun Na, l'Ancien Dieu de la Secte Dong Ling, sous l'autorité du Souverain Céleste. »
+La femme répondit d'une voix suave: « Yun Na, l'Ancien Dieu de la Secte Dong Lin, sous l'autorité du Souverain Céleste. »
 
-Les yeux de Wang Lin s'illuminèrent et il demanda lentement: « Que cet endroit soit la planète Dong Ling ou la Secte Dong Ling, pourquoi se trouve-t-il dans la deuxième fleur? »
+Les yeux de Wang Lin s'illuminèrent et il demanda lentement: « Que cet endroit soit la planète Dong Lin ou la Secte Dong Lin, pourquoi se trouve-t-il dans la deuxième fleur? »
 
-« Vous êtes le premier à pénétrer dans ce monde gelé depuis l'entrée du cœur de la grotte. Je peux sentir l'âme de Maître en vous... » Les paroles de la femme étaient douces, mais elles firent bondir le cœur de Wang Lin.
+« Vous êtes le premier à entrer ici par l'entrée du cœur de la grotte depuis que ce monde a été gelé. Je peux sentir l'âme de Maître en vous... » Les paroles de la femme étaient douces, mais elles firent bondir le cœur de Wang Lin.
 
 « Maître... » Wang Lin ne dit rien, mais il fixa Yun Na, attendant la suite.
 
 « Ceci est la deuxième fleur des Cinq Fleurs et Huit Portes. Tout ici a été créé par Maître, y compris moi, car je contiens une goutte du sang du cœur de Ye Mo.
 
-« Ceci est la Secte Dong Ling, façonnée à partir des souvenirs de Maître. Elle est l'exacte réplique de la Secte Dong Ling sur le Continent Astral Immortel.
+« Ceci est la Secte Dong Lin, façonnée à partir des souvenirs de Maître. Elle est l'exacte réplique de la Secte Dong Lin sur le Continent Astral Immortel.
 
-« Mon maître est le Souverain Céleste aux Sept Couleurs. Dans sa jeunesse, il était un disciple de la Secte Dong Ling, mais il en fut expulsé pour une raison quelconque. Il a ensuite créé ce lieu pour se souvenir de son ancienne secte.
+« Mon maître est le Souverain Céleste aux Sept Couleurs. Dans sa jeunesse, il était un disciple de la Secte Dong Lin, mais il en fut expulsé pour une raison quelconque. Il a ensuite créé ce lieu pour se souvenir de son ancienne secte.
 
 « Tout ici est nourri par la force vitale de Maître. Lorsqu'il mourra, tout perdra sa vie et sera figé à jamais.
 

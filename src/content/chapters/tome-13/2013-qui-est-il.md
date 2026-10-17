@@ -24,13 +24,13 @@ La femme se tenait devant l'entrée. Bien que consumée par la peur, ses yeux br
 
 Elle serra les dents et maintint la formation avec acharnement jusqu'à épuisement de ses forces. Son corps devint flasque, mais elle sentit soudain s'appuyer contre une poitrine chaude.
 
-« Je t'emmènerai vers la mort! »
+« Je t'emmène tuer des gens! »
 
 Cette phrase sembla percer le firmament et scella ainsi le destin de ces deux amants pour l'éternité...
 
 « Qui est-elle, qui est-il... Qui suis-je... »
 
-Toujours sous ce ciel bleu, se dressait une secte aussi familière qu'inconnue. La femme était assise en silence devant un pavillon, tenant une cithare. Les mélodies mélanciques de l'instrument résonnaient. Elle allait se marier.
+Toujours sous ce ciel bleu, se dressait une secte aussi familière qu'inconnue. La femme était assise en silence devant un pavillon, tenant une cithare. Les mélodies mélancoliques de l'instrument résonnaient. Elle allait se marier.
 
 Cependant, lorsqu'elle sortit du pavillon pour affronter la réalité, un homme à la culture suprême apparut et se tint devant elle.
 
@@ -80,7 +80,7 @@ Tournant la tête vers la source de la voix, elle vit un homme aux longs cheveux
 
 Cette même silhouette était assise auprès d'elle, écoutant ses mélodies joyeuses à la cithare.
 
-Cette silhouette la portait et lui promettait de l'emmener vers la mort...
+Cette silhouette la portait et lui disait à l'oreille qu'il l'emmenait tuer des gens...
 
 La vision était floue et semblait se superposer à la robe royale; les deux images fusionnaient lentement... Mais elle ressentit un malaise, une dissonance, et après cette superposition, elles se dispersèrent.
 
@@ -92,7 +92,7 @@ Des ondulations se formèrent derrière lui lorsqu'un vieil homme apparut et s'i
 
 « Mais cela n'est pas grave. L'Impératrice doit simplement se reposer quelque temps pour récupérer, bien que sa mémoire demeure perturbée. Cependant, c'est une opportunité: Votre Majesté peut lui insuffler de nouveaux souvenirs pour combler progressivement son esprit et les transformer en ses véritables souvenirs. »
 
-« Ce corps est parfaitement adapté à l'âme et continue de la nourrir. D'ici quelques années, l'âme et le corps ne feront plus qu'un. À ce moment-là, même l'âme originelle ne pourra plus être distinguée du corps. »
+« Ce corps est parfaitement adapté à l'âme et continue de la nourrir. D'ici quelques années, l'âme et le corps ne feront plus qu'un. À ce moment-là, même le véritable corps de cette âme résiduelle ne pourra plus fusionner avec elle. »
 
 L'homme en robe impériale déclara froidement: « Tu peux partir. »
 
@@ -104,7 +104,7 @@ L'Empereur s'assit aux côtés de la femme et la contempla avec une lueur étran
 
 Tout en murmurant, il leva la main droite et caressa doucement son visage avec un léger sourire.
 
-« Bien que cette femme ne soit pas d'une beauté éclatante, elle possède son propre charme. Je me suis toujours demandé d'où l'enseignant impérial avait tiré cette âme, mais il est resté muet... Pourtant, l'âme possédait aussi sa propre beauté... Elle a sans doute eu son propre amant, et peut-être que celui-ci a ressenti une douleur extrême après sa mort... »
+« Bien que cette femme ne soit pas d'une beauté éclatante, elle possède son propre charme. Je me suis toujours demandé d'où l'enseignant impérial avait tiré cette âme, mais il est resté muet... Mais cette âme devait aussi être une beauté de son vivant... Elle a sans doute eu son propre amant, et peut-être que celui-ci a ressenti une douleur extrême après sa mort... »
 
 « Hélas, il ne saura jamais que cette femme est entre mes mains... Ce serait fort intéressant de découvrir qui était son ancien amant. »
 
@@ -118,7 +118,7 @@ Le corps de la femme tressaillit comme si elle ressentait la douleur même dans 
 
 Tandis que les larmes de la femme coulaient, loin de là, au pied du Mont Gu Dao, Wang Lin levait les yeux vers le sommet avec froideur.
 
-Le Grand Empyréen Gu Dao ne le reconnaissait manifestement pas, mais il ne reconnaissait pas non plus l'ensemble du clan Antique. La seule personne qu'il respectait était Xuan Luo!
+Le Grand Empyréen Gu Dao ne le reconnaissait manifestement pas, mais Wang Lin ne reconnaissait pas non plus le clan Antique. La seule personne qu'il respectait était Xuan Luo!
 
 Sans Xuan Luo, il ne serait jamais venu ici!
 

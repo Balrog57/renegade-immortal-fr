@@ -26,7 +26,7 @@ Le char semblait de bronze, mais il était façonné par la foudre elle-même. S
 
 Une silhouette floue se tenait debout sur ce char de tonnerre. La figure portait une cape bleue, mais il était impossible de la distinguer clairement!
 
-« Ceci... C’est le char de guerre de l'essence du tonnerre! Seul un possesseur d'une essence du tonnerre extrêmement puissante peut provoquer un tel bouleversement! Cet homme... non seulement il possède l'essence du feu, mais il détient aussi l'essence du tonnerre! » Du Qing n'était pas surpris que Wang Lin possède deux essences, mais il fut stupéfait que son essence du tonnerre puisse engendrer une telle manifestation!
+« Ceci... C’est le char de guerre de l’Empereur du Tonnerre, de l’essence du tonnerre! Seul un possesseur d'une essence du tonnerre extrêmement puissante peut provoquer un tel bouleversement! Cet homme... non seulement il possède l'essence du feu, mais il détient aussi l'essence du tonnerre! » Du Qing n'était pas surpris que Wang Lin possède deux essences, mais il fut stupéfait que son essence du tonnerre puisse engendrer une telle manifestation!
 
 « Essence de la vie et de la mort, apparais! » Le visage de Wang Lin sur la boule de feu reprit sa parole.
 
@@ -34,7 +34,7 @@ Aussitôt, un gaz blanc s'éleva du ciel tandis qu'un gaz noir jaillissait de la
 
 Les auras de la vie et de la mort émanaient du tourbillon. Wang Lin avait déjà constaté que les essences éthérées n'étaient nullement affectées par le Continent Astral Immortel. Les auras de la mort et de la vie, deux forces qui ne devraient jamais coexister, fusionnaient en parfaite harmonie.
 
-« Essence éthérée! Cet homme... cet homme est comme moi: deux essences corporelles et une éthérée! » L'expression de Du Qing devint livide. Cela dépassait déjà ses espérances; il pensait que Wang Lin ne possédait qu'une seule essence corporelle et une seule éthérée.
+« Essence éthérée! Cet homme... cet homme est comme moi: deux essences corporelles et une éthérée! » L'expression de Du Qing devint livide. C'était déjà la limite de ce qu'il avait prévu; il pensait que Wang Lin ne possédait qu'une seule essence corporelle et une seule éthérée.
 
 « Ainsi, si tu es si arrogant, c'est grâce à ces trois essences! Même si ce n'en sont que trois... » rugit Du Qing, mais avant qu'il ne puisse achever sa phrase, Wang Lin l'interrompit.
 

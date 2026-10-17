@@ -32,11 +32,11 @@ Dans ce silence pesant, l'Empereur du Dao Ancien lança soudain: « Tuez cet hom
 
 Sitôt l'ordre donné, plus d'une douzaine d'ombres semblables à de la fumée jaillirent du palais. Ces silhouettes se précipitèrent vers la brume sanglante et s'y engouffrèrent instantanément.
 
-Dès que ces dizaines d'ombres pénétrèrent dans la brume, des cris de détresse retentirent. Ces hurlements étaient d'une agonie extrême et s'éteignirent un à un.
+Dès que ces ombres pénétrèrent dans la brume, des cris de détresse retentirent. Ces hurlements étaient d'une agonie extrême et s'éteignirent un à un.
 
 Bien que les cris aient cessé, leurs échos persistaient dans le cœur des spectateurs, rendant l'expression de l'Empereur du Dao Ancien encore plus sombre.
 
-« Pourquoi n'avez-vous pas emmené l'Impératrice?! » Il se tourna vers les deux ombres derrière Song Zhi. Ces dernières tremblèrent et acquiescèrent précipitamment. Elles s'élancèrent et se transformèrent en un vortex entourant Song Zhi, fonçant alors vers le palais.
+« Pourquoi n'avez-vous pas emmené l'Impératrice?! » Il se tourna vers les deux ombres derrière Song Zhi. Ces dernières tremblèrent et acquiescèrent précipitamment. Elles s'élancèrent et se transformèrent en un vortex entourant Song Zhi, fonçant alors vers l'arrière de la salle.
 
 Mais à cet instant précis, un rugissement froid et démentiel jaillit de la brume sanglante.
 
@@ -52,7 +52,7 @@ C'était Wang Lin!!
 
 Il avait semé la mort à chaque pas, massacrant une multitude de personnes sur son chemin vers le palais. C'était la deuxième fois qu'il se présentait ici aujourd'hui. Auparavant, il était venu remettre un cadeau de félicitations de la part de son maître; désormais, il venait pour reprendre quelqu'un!
 
-« Wang Lin, que prétends-tu faire?! » L'Empereur du Dao Ancien fixa Wang Lin à travers la place, devant les près de 100 000 membres des trois clans.
+« Wang Lin, que prétends-tu faire?! » L'Empereur du Dao Ancien fixa Wang Lin à travers la place, devant les près de 10 000 membres des trois clans.
 
 Wang Lin sortit de la brume sanglante. Il ne daigna pas regarder l'Empereur du Dao Ancien, mais posa un regard doux sur Song Zhi, dont les yeux étaient emplis de confusion.
 
@@ -66,11 +66,11 @@ Il était reconnu par le Grand Empyréen Gu Dao. Nul ne pouvait décider de son 
 
 « Je t'ai traité avec bonté, et pourtant tu as tué des membres du Dao Ancien et forcé notre entrée. Et maintenant, tu prétends emporter mon impératrice devant tous les témoins!!!
 
-« Wang Lin, tu es allé trop loin! Comment comptes-tu protéger mon Dao Ancien? Tu cherches manifestement à le détruire!! Un être aussi vil doit être dénoncé au monde entier!! »
+« Wang Lin, tu es allé trop loin! Comment comptes-tu protéger mon Dao Ancien? Tu cherches manifestement à le détruire!! Un scélérat pareil mérite d'être châtié par tous!! »
 
 L'Empereur du Dao Ancien agita la main et rugit: « Venez! Tuez ce Wang Lin et apportez-moi sa tête!! » Simultanément, il jeta un regard sombre vers le Temple du Dao Ancien.
 
-Wang Lin ferma silencieusement les yeux. Afin de ne pas offenser son maître, il s'était efforcé de rester calme à son arrivée. Il avait laissé une chance à l'Empereur du Dao Ancien. Si celui-ci avait remis Song Zhi, une voie de rédemption aurait pu subsister entre lui, son maître et le Dao Ancien...
+Wang Lin ferma silencieusement les yeux. Afin de ne pas peiner son maître, il s'était efforcé de rester calme à son arrivée. Il avait laissé une chance à l'Empereur du Dao Ancien. Si celui-ci avait remis Song Zhi, une voie de rédemption aurait pu subsister entre lui, son maître et le Dao Ancien...
 
 Mais désormais...
 

@@ -42,7 +42,7 @@ Cependant, ces personnes semblaient incapables de voir Wang Lin et Liu Jinbiao. 
 
 Même dans cette vie, il restait le même.
 
-« Les Cieux et la Terre ont créé les essences, et les cultivateurs comme nous cultivent l'essence. Maître a dit qu'une fois qu'on obtient une essence, on peut atteindre la troisième étape! À mon avis, le Dao de la tromperie comporte aussi trois étapes. La première est de tromper les autres, la seconde est de se tromper soi-même, et la troisième est de retourner à la source pour se dévorer soi-même afin de tromper autrui!
+« Les Cieux et la Terre ont créé les essences, et les cultivateurs comme nous cultivent l'essence. Maître a dit qu'une fois qu'on obtient une essence, on peut atteindre la troisième étape! À mon avis, le Dao de la tromperie comporte aussi trois étapes. La première est de tromper les autres, la seconde est de se tromper soi-même, et la troisième est de retourner à la simplicité originelle, après avoir vu que la montagne n'est plus montagne et que l'eau n'est plus eau, et ne faire qu'un avec son cœur pour tromper autrui!
 
 « "L'Autre" n'était qu'un nom collectif, mais il contenait en fait le Ciel, la Terre, le Temps, la Réincarnation, tout! Tromper le monde, tromper le temps, tromper les Grands Daos du monde!!
 
@@ -54,9 +54,9 @@ Ses paroles parvinrent aux oreilles de Wang Lin et firent trembler son cœur. Il
 
 Qu'il s'agisse de lui ou de Liu Jinbiao, tous deux luttaient pour confirmer leurs Daos. Le chemin du Dao est solitaire, mais si l'on peut percevoir la lutte d'autrui, alors le chemin n'est plus solitaire et l'on peut confirmer son propre Dao!
 
-« Tu utilises la tromperie comme Dao pour tromper le monde. J'utilise ma vie comme Dao pour défier le monde et confirmer l'ombre de mon Dao... En vérité, nous cultivons tous deux nos cœurs... » Wang Lin ferma les yeux.
+« Tu utilises la tromperie comme Dao pour tromper le monde. J'utilise ma vie comme Dao pour défier le monde et remettre d'aplomb mon reflet... En vérité, nous cultivons tous deux nos cœurs... » Wang Lin ferma les yeux.
 
-« À mes yeux, le monde est mon apparence... Si je ferme les yeux, le monde n'existe plus... Si le monde ferme les yeux, moi, j'existerai toujours! Si je peux atteindre un état où, lorsque j'ouvre les yeux, le monde ferme les siens et demeure dormant tant que je vis, alors j'aurai atteint l'Ascendance. » Wang Lin prit une profonde inspiration et ouvrit les yeux.
+« À mes yeux, le monde est mon apparence... Si je ferme les yeux, le monde n'existe plus... Si le monde ferme les yeux, moi, j'existerai toujours! Si je peux atteindre un état où, lorsque j'ouvre les yeux, le monde ferme les siens et demeure dormant tant que je vis, alors je deviendrai immortel. » Wang Lin prit une profonde inspiration et ouvrit les yeux.
 
 « J'ai expérimenté la vie et la mort, j'ai traversé le karma, j'ai cherché le vrai et le faux pour moi qui ai sombré dans la mer... S'il existe une quatrième essence éthérée, c'est la réincarnation...
 
@@ -100,7 +100,7 @@ Pourtant, désormais, c'était comme si Wang Lin s'était réveillé d'un songe 
 
 « Mais après être entré ici, j'ai ressenti quelque chose de familier et j'ai obtenu l'illumination sur mon Dao. Cela est lié à mon état d'esprit, mais c'est aussi lié à ce lieu! »
 
-Debout sur la colline, Wang Lin paraissait dominer le palais. Il resta là, laissant le vent fouetter ses cheveux blancs et ses vêtements. Il contemplait le monde, s'étendant sur plus de la moitié de la Secte Dong Lin.
+Sur la place de la petite montagne, le corps de Wang Lin vacilla et il apparut au sommet d'un palais lointain. Il resta là, laissant le vent fouetter ses cheveux blancs et ses vêtements. Il contemplait le monde, s'étendant sur plus de la moitié de la Secte Dong Lin.
 
 De son point de vue, l'ensemble de la Secte Dong Lin était immense. Il vit les disciples se déplacer sous la pluie et de nombreux cultivateurs pratiquer dans leurs résidences.
 

@@ -12,13 +12,13 @@ Sa culture était mystérieuse et il n'avait pas fait mouvement depuis d'innombr
 
 La chevelure blanche de Wang Lin s'agita. Le doigt illusoire de Gu Dao contenait la puissance du vent, de la pluie et du tonnerre. Le tonnerre rugissait tandis que des éclairs parcouraient le doigt. Les nuages s'entrechoquaient, créant des grondements assourdissants et formant d'innombrables gouttes de pluie. Le doigt était imprégné de chaos.
 
-Au sein du vent, du tonnerre et de la pluie, la puissance des cinq éléments apparut. Métal, bois, eau, feu et terre; rien n'était moins puissant que les essences des cinq éléments de Wang Lin!
+Au sein du vent, du tonnerre et de la pluie, la puissance des cinq éléments apparut. Métal, bois, eau, feu et terre; ils étaient en tout point identiques aux essences des cinq éléments de Wang Lin!
 
 En conséquence, ce doigt semblait dérober la fortune des cieux et possédait une puissance suffisante pour tuer un Grand Empyréen!
 
 Les pupilles de Wang Lin se rétractèrent. Il s'était déjà préparé à la puissance de Gu Dao. Ce simple geste était capable d'assassiner un Grand Empyréen, mais il n'en fut pas surpris.
 
-« Gu Dao... » Les yeux de Wang Lin s'illuminèrent, mais il garda ses mains derrière le dos. Ses cheveux flottaient et il dégageait un tempérament indescriptible. Il ne bougea pas et, alors que le doigt descendait, il leva la main droite pour pointer soudainement le doigt illusoire.
+« Gu Dao... » Les yeux de Wang Lin s'illuminèrent, mais il garda sa main gauche derrière le dos. Ses cheveux flottaient et il dégageait un tempérament indescriptible. Il ne bougea pas et, alors que le doigt descendait, il leva la main droite pour pointer soudainement le doigt illusoire.
 
 Son mouvement semblait tout aussi nonchalant. De loin, quelque chose de singulier se dégageait de cette scène. Le doigt illusoire de Gu Dao était immense et semblait pouvoir pulvériser le corps entier de Wang Lin.
 
@@ -52,35 +52,35 @@ Une chaleur extrême se propagea soudainement de la main droite de Wang Lin.
 
 « Dao de la Terre Extrême! » Les pouvoirs du métal, du bois, de l'eau, du feu et de la terre apparurent autour de la main droite de Wang Lin, se transformant en les Huit Dao Extrêmes de l'Ancêtre Céleste!
 
-Bien que Wang Lin n'ait pas maîtrisé l'intégralité des Huit Dao Extrêmes, le fait d'être à demi-pas du stade de Piétinement du Paradis rendait son niveau de culture proche de celui de l'Ancêtre Céleste. Par conséquent, lorsqu'il utilisait les Huit Dao Extrêmes, il pouvait atteindre une puissance similaire à celle de l'Ancêtre Céleste!
+Bien que Wang Lin n'ait pas maîtrisé l'intégralité des Huit Dao Extrêmes, le fait d'être à demi-pas du stade du Piétinement des Cieux rendait son niveau de culture proche de celui de l'Ancêtre Céleste. Par conséquent, lorsqu'il utilisait les Huit Dao Extrêmes, il pouvait atteindre une puissance similaire à celle de l'Ancêtre Céleste!
 
 D'innombrables anneaux de fumée apparurent devant Wang Lin. D'un revers de la main droite, il projeta cette masse d'anneaux vers la bête de brouillard à neuf têtes.
 
-Avec seulement cinq Dao Extrêmes, cela ne pouvait être considéré comme un sort capable de briser le ciel. Lorsque Wang Lin s'était rendu aux Ponts de Piétinement du Paradis pour la seconde fois, bien qu'il semblât avoir traversé le cinquième pont très rapidement, cela lui avait paru durer des années éternelles, et il avait ainsi compris sa propre version des trois derniers Dao Extrêmes.
+Avec seulement cinq Dao Extrêmes, cela ne pouvait être considéré comme un sort capable de briser le ciel. Lorsque Wang Lin s'était rendu aux Ponts du Piétinement des Cieux pour la seconde fois, bien qu'il semblât avoir traversé le cinquième pont très rapidement, cela lui avait paru durer des années éternelles, et il avait ainsi compris sa propre version des trois derniers Dao Extrêmes.
 
-« Dao de la Terre Extrême! » Tandis que Wang Lin marchait vers la bête de brouillard, il restait aussi calme qu'un grand maître de sa génération. Sa main droite lança un coup de poing vers le sol et le bassin sous-marin trembla soudainement. Une aura terrestre jaillit alors, impure et saturée d'une immense quantité de mort. Elle était formée par toutes les créatures ayant péri dans cette vaste mer.
+« Dao du Sol Extrême! » Tandis que Wang Lin marchait vers la bête de brouillard, il restait aussi calme qu'un grand maître de sa génération. Sa main droite lança un coup de poing vers le sol et le bassin sous-marin trembla soudainement. Une aura terrestre jaillit alors, impure et saturée d'une immense quantité de mort. Elle était formée par toutes les créatures ayant péri dans cette vaste mer.
 
 Cette aura terrestre envahit le monde et forma un gigantesque halo gris. Ce halo unique, en s'élançant, se contracta tout en dégageant une puissance phénoménale!
 
 À l'intérieur du brouillard, les pupilles de Gu Dao se rétractèrent. Il était clair que la force actuelle de Wang Lin et sa démonstration de sorts obligeaient même ce dernier à devenir sérieux.
 
-« Combien de Ponts de Piétinement du Paradis a-t-il franchis... » Les yeux de Gu Dao s'illuminèrent et, sans hésiter, ses mains formèrent un sceau. La bête de brouillard à neuf têtes poussa soudain un rugissement vers le ciel. D'innombrables ondulations se propagèrent et neuf lumières distinctes jaillirent de ses neuf têtes.
+« Combien de Ponts du Piétinement des Cieux a-t-il franchis... » Les yeux de Gu Dao s'illuminèrent et, sans hésiter, ses mains formèrent un sceau. La bête de brouillard à neuf têtes poussa soudain un rugissement vers le ciel. D'innombrables ondulations se propagèrent et neuf lumières distinctes jaillirent de ses neuf têtes.
 
 « Dao du Ciel Extrême! » lança calmement Wang Lin en avançant, la main droite pointée vers les cieux.
 
 Le ciel sombre sembla sur le point de s'effondrer, puis une lumière éclatante jaillit. Le geste de Wang Lin se mua en une paume; il tendit la main vers l'éther comme pour saisir toute la lumière du firmament. Le ciel s'obscurcit et toute la clarté se condensa en un halo semblable à un soleil, avant de descendre impétueusement sur la bête de brouillard à neuf têtes.
 
-Les Huit Dao Extrêmes de Wang Lin étaient désormais complets, à l'exception du tout dernier. Le métal, le bois, l'eau, le feu et la terre, ainsi que le ciel et la terre, convergèrent rapidement vers la bête.
+Les Huit Dao Extrêmes de Wang Lin étaient désormais complets, à l'exception du tout dernier. Le métal, le bois, l'eau, le feu et la terre, ainsi que le ciel et le sol, convergèrent rapidement vers la bête.
 
 La bête de brouillard à neuf têtes rugit et une lumière multicolore jaillit, formant un arc-en-ciel de neuf couleurs autour d'elle. Cet arc-en-ciel se dispersa pour résister au sort des Huit Dao Extrêmes de Wang Lin.
 
 Peu après, au cœur du brouillard, les bras de Gu Dao s'ouvrirent et des centaines de sphères de brume s'échappèrent des neuf têtes de la bête. Chaque sphère contenait assez de puissance pour tuer un Ascendant Empyréen; même des Grands Empyréens auraient été alarmés face à une telle multitude.
 
-Lorsque ces centaines de sphères apparurent, elles se divisèrent soudainement en des centaines de milliers. Elles flottèrent aux côtés de la bête de brouillard et, avec l'arc-en-ciel de neuf couleurs, firent barrage aux Huit Dao Extrêmes de Wang Lin!
+Lorsque ces centaines de sphères apparurent, elles se divisèrent soudainement en plusieurs milliers, voire près de dix mille. Elles flottèrent aux côtés de la bête de brouillard et, avec l'arc-en-ciel de neuf couleurs, firent barrage aux Huit Dao Extrêmes de Wang Lin!
 
-Les grondements qui s'ensuivirent furent apocalyptiques. Les cinq Dao Extrêmes des éléments se brisèrent un à un, mais les Dao du Ciel et de la Terre parvinrent à pénétrer et à frapper le corps de la bête.
+Les grondements qui s'ensuivirent furent apocalyptiques. Les cinq Dao Extrêmes des éléments se brisèrent un à un, mais les Dao du Ciel et du Sol parvinrent à pénétrer et à frapper le corps de la bête.
 
-La bête poussa un rugissement féroce et, tandis que son corps gigantesque tremblait, Wang Lin apparut à ses côtés. Après avoir déployé les Huit Dao Extrêmes, il n'hésita pas à activer son Art Magique Rapide. Sa vitesse atteignit instantanément un paroxysme et il disparut en un seul pas.
+La bête poussa un rugissement féroce et, tandis que son corps gigantesque tremblait, Wang Lin apparut à ses côtés. Après avoir déployé les Huit Dao Extrêmes, il n'hésita pas à faire circuler à pleine puissance la veine de l'Art Magique Rapide en lui. Sa vitesse atteignit instantanément un paroxysme et il disparut en un seul pas.
 
 À cet instant, il réapparut sans bruit et porta un coup de poing de la main droite. Le monde gronda lorsqu'un poing géant s'abattit sur le corps de la bête. Wang Lin ne prit même pas le temps de constater le résultat avant de disparaître à nouveau. Cette fois, il réapparut dans le brouillard, derrière Gu Dao, et frappa.
 
@@ -92,7 +92,7 @@ Ce poing semblait fusionner avec celui porté à la bête depuis l'extérieur. L
 
 Cependant, Gu Dao demeurait le plus puissant du Continent Astral Immortel. Dès qu'il eut agité sa manche, les innombrables sphères de brume entourant la bête se précipitèrent toutes vers Wang Lin. Incapable d'esquiver, il fut percuté de plein fouet par la multitude de sphères.
 
-Une seule sphère pouvait tuer un Ascendant Empyréen, et des centaines de milliers suffisaient à anéantir le monde. Alors qu'elles convergeaient vers lui, Wang Lin ferma les yeux et pointa l'espace entre ses sourcils.
+Une seule sphère pouvait tuer un Ascendant Empyréen, et près de dix mille explosant ensemble suffisaient à anéantir le monde. Alors qu'elles convergeaient vers lui, Wang Lin ferma les yeux et pointa l'espace entre ses sourcils.
 
 « Dao de la Vie Extrême! » Les yeux de Wang Lin s'ouvrirent soudainement, révélant deux étranges rayons de lumière. Cette clarté se propagea autour de lui telle une aura sombre, formant une barrière protectrice.
 

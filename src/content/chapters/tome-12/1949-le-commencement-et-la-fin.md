@@ -18,7 +18,7 @@ Certains seraient comme Wang Lin, qui n'obtiendrait rien d'autre qu'un léger re
 
 Mais d'autres pourraient acquérir la majeure partie de la compréhension de l'essence de l'absolu commencement en seulement deux tentatives. Ils ne repartiraient pas avec une simple graine, mais avec une graine déjà germée.
 
-Wang Lin ignorait si quelqu'un avait jamais réussi à s'approprier l'essence complète de l'absolu commencement. À cet instant, il était plongé dans un état étrange, semblant avoir tout oublié de ce qui l'entourait. La vision de son œil gauche était floue, et pourtant, cet œil contenait toutes les étapes de cette essence spéciale de l'absolu commencement.
+Wang Lin ignorait si quelqu'un avait jamais réussi à s'approprier l'essence complète de l'absolu commencement. À cet instant, il était plongé dans un état étrange, semblant avoir tout oublié de ce qui l'entourait. La vision de son œil droit était floue, et pourtant, son œil gauche contenait toutes les étapes de cette essence spéciale de l'absolu commencement.
 
 Wang Lin avait perdu la notion du temps. Lorsqu'il fut contraint de s'éveiller par la force interne du Bassin Dong Lin, la lumière dans son œil gauche ne dura qu'un souffle avant de disparaître.
 
@@ -50,13 +50,13 @@ Dans l'œil gauche de Wang Lin, sous l'éclat de la lumière, les contours d'un 
 
 « Je ne suis pas étranger à l'absolu commencement... Dans le monde des grottes, lorsque j'ai créé Nuit Brisée, elle contenait déjà le pouvoir de l'absolu commencement... Depuis lors, ma compréhension n'a cessé de croître. Puis, en arrivant sur le Continent Astral Immortel, mon Nuit Brisée intégrait la foi... »
 
-« Je ne m'attendais pas à ce que cet absolu commencement produise également une essence... Une essence est une chose que l'on comprend si profondément qu'on peut la traverser et l'utiliser d'un simple geste de la main... » murmura Wang Lin alors qu'il s'immergeait pour la sixième fois dans le Bassin Dong Lin.
+« Je ne m'attendais pas à ce que cet absolu commencement produise également une essence... Une essence est une chose que l'on comprend si profondément qu'on perce à jour tous ses changements et qu'on peut même l'utiliser d'un simple geste de la main... » murmura Wang Lin alors qu'il s'immergeait pour la sixième fois dans le Bassin Dong Lin.
 
 Le temps passa. Wang Lin restait immergé dans le Bassin Dong Lin, et à mesure que les jours défilaient, la durée de ses immersions augmentait considérablement.
 
 Le deuxième jour, juste avant l'aube, alors que le ciel était encore plongé dans l'obscurité, Wang Lin ouvrit les yeux au fond du bassin. Son œil gauche libéra une lumière infinie et un soleil apparut en son sein!
 
-Le ciel était normalement sombre et le soleil n'était pas encore venu; il aurait fallu attendre encore un peu. Pourtant, dès que les yeux de Wang Lin s'ouvrirent, la lumière de son œil gauche jaillit. C'était comme si Wang Lin avait supplanté le soleil, dissipant l'obscurité du monde avec une demi-heure d'avance.
+Le ciel était normalement sombre et le soleil n'était pas encore venu; il aurait fallu attendre encore environ le temps d'un bâton d'encens. Pourtant, dès que les yeux de Wang Lin s'ouvrirent, la lumière de son œil gauche jaillit. C'était comme si Wang Lin avait supplanté le soleil, dissipant l'obscurité du monde avec une demi-heure d'avance.
 
 « Comprendre l'essence de l'absolu commencement permet de contrôler le lever du soleil et d'inverser la nuit et le jour! Nuit Brisée n'était qu'un sort auparavant, mais désormais, après avoir compris l'absolu commencement, elle peut remplacer le soleil! » grommela Wang Lin alors que la lumière de son œil gauche enveloppait tout son corps.
 
@@ -90,15 +90,15 @@ La vision de son œil droit n'était plus floue, elle devint progressivement som
 
 Dans ce contraste, l'esprit de Wang Lin semblait scindé en deux. L'un représentait la lumière du soleil levant, et l'autre l'obscurité après le coucher de l'astre.
 
-« J'ai traversé le vide et j'ai vu l'obscurité après le coucher du soleil. Après l'absolu commencement vient l'absolu achèvement... L'essence de l'absolu achèvement représente toutes les ténèbres... »
+« J'ai traversé le vide et j'ai vu l'obscurité après le coucher du soleil. Après l'absolu commencement vient la Fin Absolue... L'essence de la Fin Absolue représente toutes les ténèbres... »
 
 La voix grave résonna à nouveau dans l'esprit de Wang Lin et s'y attarda.
 
 Le temps passa. Wang Lin resta dans le Bassin Dong Lin pendant trois mois. Durant ces trois mois, chaque fois que le soleil se levait, il s'élevait vers le ciel pour devenir le soleil dissipant les ténèbres. Et quand le soleil se couchait, il restait assis silencieusement dans le bassin, regardant la nuit dévorer la lumière.
 
-Trois mois, des centaines de levers et de couchers de soleil. Grâce à la sensation étrange émanant du Bassin Dong Lin, Wang Lin acquit peu à peu une compréhension profonde de l'essence de l'absolu achèvement.
+Trois mois, une centaine de levers et de couchers de soleil. Grâce à la sensation étrange émanant du Bassin Dong Lin, Wang Lin acquit peu à peu une compréhension profonde de l'essence de la Fin Absolue.
 
-Cependant, contrairement à l'absolu commencement, trois mois étaient loin de suffire pour qu'il maîtrise l'essence de l'absolu achèvement. S'il avait acquis une maîtrise initiale de l'essence de l'absolu commencement, et que sa compréhension s'était approfondie après ces trois mois, il devait encore ressentir et saisir l'essence de l'absolu achèvement.
+Cependant, contrairement à l'absolu commencement, trois mois étaient loin de suffire pour qu'il maîtrise pleinement l'essence de la Fin Absolue. Comme il comprenait et utilisait depuis longtemps la force de l'absolu commencement, il en avait acquis une maîtrise initiale, de plus en plus profonde, mais l'essence de la Fin Absolue restait encore à ressentir et à saisir.
 
 Wang Lin n'était pas pressé de partir. Il décida de demeurer ici pour observer les cycles du jour et de la nuit. Parfois, il s'immergeait dans le Bassin Dong Lin pour méditer.
 

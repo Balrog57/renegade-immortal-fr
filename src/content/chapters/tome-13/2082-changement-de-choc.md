@@ -14,11 +14,11 @@ Nul ne savait si cette guerre allait éclater ou non. Tout dépendait de l'ident
 
 C'étaient là les conditions déterminantes pour le déclenchement d'un conflit!
 
-Si l'équilibre pouvait être maintenu, tout irait bien. Mais si cet équilibre se rompait, la guerre serait inévitable, car le clan céleste avait déjà pressenti que le Grand Empyréen Gu Dao ne pourrait pas quitter le clan Ancien.
+Si l'équilibre pouvait être maintenu, tout irait bien. Mais si cet équilibre se rompait, la guerre serait inévitable, car le clan céleste avait déjà pressenti que le Grand Empyréen Gu Dao ne pourrait pas s'éloigner beaucoup du clan Ancien.
 
 À moins que le clan Ancien ne battât en retraite, n'osant plus combattre hors de la portée de Gu Dao!
 
-Nul ne savait quand le Royaume Divin Immémorial était apparu; il semblait être encore plus ancien que le Continent Astral Immortel. Même l'Ancêtre Céleste et l'Ancêtre Ancien, nés du vide, ne savaient que peu de chose sur ce Royaume Divin Immémorial.
+Nul ne savait quand le Royaume Divin Immémorial était apparu; il semblait être encore plus ancien que le Continent Astral Immortel. Même l'Ancêtre Céleste et l'Ancêtre Ancien, nés du vide, ne connaissaient pas tout de ce Royaume Divin Immémorial.
 
 Wang Lin était assis au bord de la tempête marine, contemplant la porte formée par d'immenses piliers. La porte était fermée hermétiquement et allait bientôt s'ouvrir.
 
@@ -62,7 +62,7 @@ Grâce au respect dont Wang Lin fit preuve envers Xuan Luo durant les jours suiv
 
 Le simple fait que Wang Lin, l'être le plus puissant du Continent Astral Immortel ayant vaincu Gu Dao, l'appelle « Maître », suffisait à tout changer.
 
-Quinze jours avant l'ouverture du Royaume Divin Immémorial, un changement radical survint dans la tempête marine. Celle-ci s'étendit de plusieurs fois sa taille et le grondement tonitruant devint assourdissant. Le fracas était tel qu'il pouvait tuer les mortels, et même certains cultivateurs plus faibles ne pouvaient l'endurer. Ceux qui en subissaient les effets légers finissaient avec des blessures au cœur et au corps, tandis que les cas les plus graves voyaient leur organisme exploser.
+Quinze jours avant l'ouverture du Royaume Divin Immémorial, un changement radical survint dans la tempête marine. Son grondement tonitruant fut multiplié en un instant et devint assourdissant. Le fracas était tel qu'il pouvait tuer les mortels, et même certains cultivateurs plus faibles ne pouvaient l'endurer. Ceux qui en subissaient les effets légers finissaient avec des blessures au cœur et au corps, tandis que les cas les plus graves voyaient leur organisme exploser.
 
 À chaque ouverture du Royaume Divin Immémorial, aucun cultivateur de faible niveau n'osait s'aventurer à l'intérieur. C'était principalement dû à ces grondements de tonnerre.
 
@@ -108,7 +108,7 @@ La tentation du Royaume Divin Immémorial n'avait que peu d'effet sur elle. Apr�
 
 Quant à Lian Daofei, devenu l'Empereur Céleste, il avait également choisi de ne pas venir.
 
-Dès l'arrivée de Ji Du et de son groupe, ils remarquèrent immédiatement que les rugissements d'aujourd'hui différaient de ceux du passé. Après une courte réflexion, leurs visages se muèrent en grimaces sombres. Tout comme Xuan Luo et les siens, ils sentaient que quelque chose clochait.
+Dès l'arrivée de Jiu Di et de son groupe, ils remarquèrent immédiatement que les rugissements d'aujourd'hui différaient de ceux du passé. Après une courte réflexion, leurs visages se muèrent en grimaces sombres. Tout comme Xuan Luo et les siens, ils sentaient que quelque chose clochait.
 
 Les trois se regardèrent, puis leurs yeux se tournèrent vers la tempête marine pour apercevoir Xuan Luo et son groupe, ainsi que le serein Wang Lin.
 
@@ -116,7 +116,7 @@ Les trois se regardèrent, puis leurs yeux se tournèrent vers la tempête marin
 
 « Salutations, Seigneur Wang. » L'expression de Wu Feng était calme. Il semblait que trois cents années de temps l'avaient aidé à accepter la réalité.
 
-Ji Du hésita un instant avant de pousser un soupir et de joindre également les mains devant Wang Lin, sans toutefois dire un mot.
+Jiu Di hésita un instant avant de pousser un soupir et de joindre également les mains devant Wang Lin, sans toutefois dire un mot.
 
 Wang Lin hocha la tête et sourit à Wu Feng.
 

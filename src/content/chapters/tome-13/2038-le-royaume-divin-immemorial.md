@@ -6,9 +6,9 @@ bookTitle: Light of the coming end
 en: "Chapter 2038 - Immemorial God Realm!"
 slug: le-royaume-divin-immemorial
 ---
-Les yeux de Wang Lin s'illuminèrent, mais il ne dit mot et poursuivit ses actions frénétiques. Il avait fait fusionner l'âme de l'Empereur Céleste avec la tête de l'Ancêtre Céleste afin d'accélérer le processus. Il les avait combinées à son soleil d'Empyrée pour en extraire une force puissante.
+Les yeux de Wang Lin s'illuminèrent, mais il ne dit mot et poursuivit ses actions frénétiques. Il avait fait fusionner l'âme de l'Empereur Céleste avec la tête de l'Ancêtre Céleste pour un court instant. Il les avait combinées à son soleil d'Empyrée pour en extraire une force puissante.
 
-À cet instant, alors que le soleil d'Empyrée brûlait, l'astre gigantesque se rétracta rapidement. En un clin d'œil, il passa de sa taille immense à une dimension minuscule jusqu'à disparaître. Simultanément, cette force colossale pénétra le corps de Wang Lin par un chemin étrange; alors, il frappa le sol de son pied droit.
+À cet instant, alors que le soleil d'Empyrée brûlait, l'astre gigantesque se rétracta rapidement. En un clin d'œil, il passa de sa taille immense à une dimension minuscule jusqu'à disparaître. Simultanément, cette force colossale pénétra le corps de Wang Lin par un chemin étrange; alors, il leva le pied droit et avança d'un pas.
 
 Lorsqu'il l'abattit, Wang Lin laissa échapper un rugissement et un fracas tonitruant résonna tout autour de lui!
 
@@ -34,7 +34,7 @@ Devant lui, le gigantesque insecte semblait avoir perdu la raison et continuait 
 
 Après avoir renforcé le filet, l'Ancien Maître Impérial Dao mordit le bout de sa langue et cracha une gorgée de sang. Cependant, son sang ne tomba pas sur le filet, mais traversa la formation pour se perdre dans l'inconnu.
 
-Mais à ce moment précis, l'activation de la formation décupla. Un murmure s'intensifia, comme si d'innombrables personnes parlaient simultanément, sans qu'on puisse distinguer un seul mot.
+Mais à ce moment précis, l'activation de la formation s'accéléra de plusieurs fois. Un murmure s'intensifia, comme si d'innombrables personnes parlaient simultanément, sans qu'on puisse distinguer un seul mot.
 
 « Que mon sang guide l'âme des cieux, activez! » rugit le vieil homme. D'innombrables âmes apparurent alors à l'intérieur de la formation. En les voyant, Wang Lin fut parcouru d'un frisson.
 
@@ -42,9 +42,9 @@ Ces âmes appartenaient aux êtres qui étaient morts sous les coups de Wang Lin
 
 Ces âmes se transformèrent en un gaz noir et jaillirent de la formation. Elles s'élancèrent vers le ciel pour former un vortex gigantesque, au sein duquel une illusion apparut!
 
-L'illusion ressemblait à une image reflétant le clan céleste!
+L'illusion ressemblait à une image reflétant les terres du clan céleste!
 
-Sur le Continent Astral Immortel, sur le Continent Mer et Montagne, quelques cultivateurs éparpillés contemplaient la mer avec stupeur. Le niveau de l'océan sembla chuter, puis un immense pilier noir jaillit soudainement des profondeurs. Il s'élança vers le ciel avant de disparaître.
+Sur les terres du clan céleste, sur le Continent Mer et Montagne, quelques cultivateurs éparpillés contemplaient la mer avec stupeur. Le niveau de l'océan sembla chuter, puis un immense pilier noir jaillit soudainement des profondeurs. Il s'élança vers le ciel avant de disparaître.
 
 Wang Lin vit la scène à l'intérieur du vortex. Il ne comprit pas sa signification, mais il sentit ses cheveux se hérisser, comme si une chose capable de bouleverser tout le Continent Astral Immortel venait d'apparaître!
 

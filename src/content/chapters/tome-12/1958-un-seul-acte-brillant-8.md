@@ -18,7 +18,7 @@ Leurs regards se croisèrent et semblèrent se figer dans l'air.
 
 Ce spectacle fut observé par tous les cultivateurs présents. Les Exaltés Empyréens affichaient des expressions étranges. Hormis l'Ascendant Empyréen Ming Dao, c'était la deuxième fois qu'ils voyaient des Grands Empyréens se disputer pour quelqu'un!
 
-Le Grand Empyréen Wu Feng laissa poindre un éclair de froideur et déclara lentement: « Dao Yi, j'ai des vues sur son enfant. Ne te bats pas contre moi! »
+Le Grand Empyréen Wu Feng laissa poindre un éclair de froideur et déclara lentement: « Dao Yi, j'ai des vues sur cet enfant. Ne te bats pas contre moi! »
 
 Le Grand Empyréen Dao Yi sourit et envoya un message par transmission de sens divin: « Wu Feng, même nous ne pouvons forcer les Ascendants Empyréens. Tout dépend de leur propre choix. Ce n'est pas parce que tu lorgnes sur lui qu'il te suivra! »
 
@@ -80,9 +80,9 @@ Bien que sa culture fût limitée, lorsque le Grand Empyréen Gémeaux avait sub
 
 Tandis que des rires résonnaient dans la Secte Ziyang, sur le Mont de l'Empereur, dans le Continent Central, le Grand Empyréen Jiu Di, autrefois si nonchalant, fixait intensément une feuille d'automne devant lui.
 
-« Tenter le douzième palais après avoir franchi le onzième... Ce type... Il est à peine digne d'être considéré comme un être humain. Je pourrais lui faire une offre par pure complaisance... Mais avec Hai Zi là, si j'y vais, cela ne correspondrait pas tout à fait à ce que j'ai affirmé auparavant... » Bien qu'il marmonnât ces paroles, le vieil homme ne cillait pas, les yeux rivés sur la feuille.
+« Tenter le douzième palais après avoir franchi le onzième... Ce type... Il peut tout juste passer pour quelqu'un d'important. Je pourrais lui faire une offre par pure complaisance... Mais avec Hai Zi là, si j'y vais, cela ne correspondrait pas tout à fait à ce que j'ai affirmé auparavant... » Bien qu'il marmonnât ces paroles, le vieil homme ne cillait pas, les yeux rivés sur la feuille.
 
-« Peu importe, ce n'est que le douzième palais. Cet enfant est bien loin de l'Ascendant Empyréen Ming Dao. » Le vieil homme tourna la tête et ferma les yeux, mais un instant plus tard, il les rouvrit pour fixer à nouveau la feuille d'automne.
+« Peu importe, ce n'est que le onzième palais. Cet enfant est bien loin de l'Ascendant Empyréen Ming Dao. » Le vieil homme tourna la tête et ferma les yeux, mais un instant plus tard, il les rouvrit pour fixer à nouveau la feuille d'automne.
 
 « Va-t-il réussir ou non... »
 
@@ -116,7 +116,7 @@ Au même moment, sur le Mont de l'Empereur, le vieil homme se leva, les yeux bri
 
 « Je l'ai déjà vu une fois, et cet enfant possède l'armure d'âme de Taureau Céleste... Franchir le douzième palais grâce à la puissance de l'armure signifie qu'il ne peut toujours pas égaler l'Ascendant Empyréen Ming Dao... À moins qu'il ne puisse franchir le treizième palais avec cette armure... alors il ne sera qu'un simple Ascendant Empyréen. » Le vieil homme réfléchit en se rasseyant et en fermant les yeux.
 
-« Ah, quelle fatigue... vraiment épuisant... Dois-je le recruter ou non... Il ne devrait pas pouvoir briser le treizième palais et devrait abandonner... Hein! » Le vieil homme ouvrit brusquement les yeux. Il vit Wang Lin devant le douzième palais, entouré d'une couche invisible de vapeur d'eau. La pression générée par les ondulations pouvait être ressentie jusqu'à sa feuille d'automne.
+« Ah, un os de poulet... vraiment un os de poulet... Dois-je le recruter ou non... Il ne devrait pas pouvoir briser le treizième palais et devrait abandonner... Hein! » Le vieil homme ouvrit brusquement les yeux. Il vit Wang Lin devant le douzième palais, entouré d'une couche invisible de vapeur d'eau. La pression générée par les ondulations pouvait être ressentie jusqu'à sa feuille d'automne.
 
 « Dao de l'Eau Extrême! »
 

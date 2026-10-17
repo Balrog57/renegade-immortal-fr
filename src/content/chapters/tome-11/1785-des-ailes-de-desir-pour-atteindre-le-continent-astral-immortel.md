@@ -42,11 +42,11 @@ Sa vitesse était fulgurante et il atteignit instantanément un rayon de mille p
 
 Peu après, l'âme à la cape ouvrit les bras. Le manteau de son corps s'étendit telle une vague et vola vers Wang Lin.
 
-L'expression de Wang Lin demeurait calme alors que les deux sceaux dans sa main continuaient d'absorber l'aura du Continent Astral Immortel. Alors qu'Vieux Fantôme Zhan et les deux âmes aux Sept Couleurs approchaient, il leva la main gauche et poussa vers l'avant.
+L'expression de Wang Lin demeurait calme alors que les deux sceaux dans sa main continuaient d'absorber l'aura du Continent Astral Immortel. Alors que Vieux Fantôme Zhan et les deux âmes aux Sept Couleurs approchaient, il leva la main gauche et poussa vers l'avant.
 
 À cet instant, les huit corps véritables de son Essence apparurent tous et projetèrent leurs mains en avant.
 
-Des grondements tonitruants résonnèrent, et la cinquième fleur en plein effondrement se dissipa, révélant rapidement le Maître du Dao Rêve Bleu, le vieil homme nommé Ma de la Planète des Cinq Éléments, Tang Shan et d'autres.
+Des grondements tonitruants résonnèrent, et la cinquième fleur en plein effondrement se dissipa largement, révélant le ciel étoilé ainsi que le Maître du Dao Rêve Bleu, le vieil homme nommé Ma de la Planète des Cinq Éléments, Yun Yifeng, Tang Shan et d'autres.
 
 Se trouvaient également le Général Tortue Noire et le Général Oiseau Vermillon, tous deux gravement blessés.
 
@@ -54,7 +54,7 @@ Dès que les corps véritables de l'Essence se manifestèrent, l'expression de V
 
 « Des corps véritables de l'Essence!!! Ceci... c'est un corps véritable de l'Essence. Il est déjà extrêmement rare qu'un individu possède ne serait-ce qu'un seul corps véritable, mais lui... il en possède huit!!! »
 
-« La rumeur prétend qu'en dehors du Royaume du Dieu Primordial, il existe une autre méthode pour obtenir un corps véritable de l'Essence! Bien que sa méthode n'ait jamais été prouvée, cela démontre sa rareté absolue! »
+« La rumeur prétend qu'en dehors de l'ouverture du Royaume du Dieu Primordial, il existe une autre possibilité de devenir Grand Empyréen, liée aux corps véritables de l'Essence! Bien que cette possibilité n'ait jamais été prouvée, cela démontre leur rareté absolue! »
 
 Des fracas de tonnerre éclatèrent. Wang Lin et ses huit corps véritables attaquèrent de concert. Vieux Fantôme Zhan, l'âme aux Sept Couleurs et l'âme à la cape tremblèrent tous et furent contraints de reculer!
 
@@ -80,7 +80,7 @@ Ces sceaux étaient comme le destin; quelle que soit la vitesse de Vieux Fantôm
 
 Les deux sceaux convergèrent instantanément vers lui. Sous le regard terrifié de Vieux Fantôme Zhan, le premier sceau fonça sur son front.
 
-Vieux Fantôme Zhan poussa un rugissement et ses mains formèrent un sceau de protection. Tandis qu'un sortilège apparaissait, l'âme à la cape manifesta une peur indicible dans ses yeux. Il agita la main et une lumière jaillit vers le sceau.
+Vieux Fantôme Zhan poussa un rugissement et ses mains formèrent des sceaux de main. Tandis qu'un sortilège apparaissait, l'âme à la cape manifesta une peur indicible dans ses yeux. Il agita la main et une lumière jaillit vers le sceau.
 
 Cependant, ni les sorts ni la lumière ne purent arrêter ce sceau. C'était comme si rien n'existait sur son passage. Le sceau traversa tout et vint se poser délicatement entre les sourcils de l'ombre à la cape entourant Vieux Fantôme Zhan.
 
@@ -108,4 +108,4 @@ Pourtant, le reste de son corps se transforma en un rayon de lumière rouge. Ses
 
 Même en mourant, il devait voir ce Continent Astral Immortel qu'il avait tant désiré toute sa vie...
 
-Wang Lin ne l'arrêta pas. Il regarda la moitié du corps de Vieux Fantôme Zhan se précipiter vers l'ouverture et le disparaître derrière la porte.
+Wang Lin ne l'arrêta pas. Il regarda la moitié du corps de Vieux Fantôme Zhan se précipiter vers l'ouverture et s'évanouir en fumée au-delà de la porte.

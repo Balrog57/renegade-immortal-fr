@@ -38,13 +38,13 @@ L'essence du feu dans l'œil gauche de Wang Lin se transforma en une mer de flam
 
 Ce corps était le portrait craché de Wang Lin, mais entièrement fait de flammes; il était la manifestation pure de l'essence du feu! À ce stade, l'essence du feu de Wang Lin avait surpassé son état antérieur pour devenir complète!
 
-Le corps de feu portait des vêtements de flammes et une aura puissante en jaillissait. D'innombrables arcs de foudre s'agitaient dans le bassin. Un instant plus tard, dans un grondement tonitruant, un dragon de tonnerre jaillit du bassin avant de prendre une forme humaine!
+Le corps de feu portait des vêtements de flammes et une aura puissante en jaillissait.
 
-Simultanément, la foudre jaillit de l'œil droit de Wang Lin et se transforma en un dragon de tonnerre qui plongea dans le bassin.
+Simultanément, la foudre jaillit de l'œil droit de Wang Lin et se transforma en un dragon de tonnerre qui plongea dans le bassin. D'innombrables arcs de foudre s'agitèrent dans le bassin. Un instant plus tard, dans un grondement tonitruant, le dragon de tonnerre jaillit du bassin avant de prendre une forme humaine!
 
 Tout comme le corps de feu, ce corps de tonnerre ressemblait à Wang Lin. Il avait l'apparence d'un céleste du tonnerre!
 
-Peu après, les essences de la vie et de la mort, du vrai et du faux, ainsi que du karma apparurent silencieusement. Le bassin Dong Lin perdit soudainement plus de la moitié de son eau pour condenser ces trois essences éthérées. L'essence de la vie et de la mort forma un corps devant Wang Lin!
+Peu après, du front de Wang Lin, les essences de la vie et de la mort, du vrai et du faux, ainsi que du karma apparurent silencieusement. Le bassin Dong Lin perdit soudainement plus de la moitié de son eau pour condenser ces trois essences éthérées. L'essence de la vie et de la mort forma un corps devant Wang Lin!
 
 Ce corps ouvrit les bras. Sa main gauche contrôlait la vie et sa main droite contrôlait la mort. Il ressemblait à une divinité régissant le destin des êtres. Sa robe grise et ses longs cheveux flottants offraient un spectacle saisissant.
 
@@ -58,7 +58,7 @@ Alors que les cinq essences avaient formé des corps véritables, ce n'était pa
 
 Ce corps, entièrement rouge, était constitué d'intention meurtrière. Dès son apparition, il dégagea une soif de sang capable de détruire le monde!
 
-Après les six essences vint l'essence de la restriction, formée par les lignées sanguines dans les yeux de Wang Lin! Ces lignées s'envolèrent devant lui pour former une paire d'yeux.
+Après les six essences vint l'essence de la restriction, formée par les filaments de sang dans les yeux de Wang Lin! Ces filaments s'envolèrent devant lui et formèrent une paire de pupilles.
 
 L'eau du bassin diminua encore jusqu'à ce qu'il n'en reste que 20 %. L'essence de la restriction fut alors complète et forma un corps véritable. Elle flottait devant lui, devenant sa septième essence véritable!
 

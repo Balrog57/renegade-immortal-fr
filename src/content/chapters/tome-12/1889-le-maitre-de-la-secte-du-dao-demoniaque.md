@@ -24,11 +24,11 @@ Il y avait aussi les cent personnes qui traversaient le réseau de transfert. Av
 
 Après Nuit Brisée, le monde changea de couleur. Hormis Wang Lin, il n'y avait plus aucune âme vivante. Son visage était d'une pâleur mortelle et son armure d'âme était sur le point de se dissiper. Sans hésiter, il chargea vers le Continent Terre-Meng, situé à 1 000 kilomètres de là!
 
-Ce n'était pas qu'il n'avait pas envisagé de détruire les sept réseaux de transfert, mais ces derniers étaient anormaux. Ils étaient restés intacts après Nuit Brisée, ce qui signifiait qu'il pouvait désormais les détruire rapidement!
+Ce n'était pas qu'il n'avait pas envisagé de détruire les sept réseaux de transfert, mais ces derniers étaient anormaux. Ils étaient restés intacts après Nuit Brisée, ce qui prouvait leur caractère extraordinaire : il ne pourrait jamais les détruire en peu de temps!
 
 En un éclair, Wang Lin parcourut la moitié de la distance, mais à cet instant précis, les sept réseaux de transfert s'illuminèrent. Des fluctuations encore plus puissantes émanèrent des réseaux et une troisième vague de cent cultivateurs se mit à sa poursuite.
 
-Parmi ces cent personnes figuraient quatre experts du stade intermédiaire de la Tribulation du Vide et quatre du stade avancé. La Secte du Dao Démoniaque déployait presque toute sa puissance pour traquer Wang Lin!
+Parmi ces cent personnes figuraient quatre experts du stade intermédiaire de la Tribulation du Vide et un du stade avancé. La Secte du Dao Démoniaque déployait presque toute sa puissance pour traquer Wang Lin!
 
 Ils utilisaient la force d'une secte entière pour tuer un seul homme! Un tel massacre pouvait sembler lié à des rancunes personnelles, mais ce n'en était pas la seule raison. Aucun maître de secte ou ancêtre des neuf sectes et treize factions ne serait aussi aveugle!
 
@@ -48,7 +48,7 @@ C'était la formation d'armée! La puissance du Tremblement Divin résonna comme
 
 Le poing de Wang Lin s'ouvrit en une paume et une fumée s'échappa de la tête des cultivateurs. Cette fumée se condensa pour former une montagne au-dessus d'eux. Cette montagne de fumée s'abattit lourdement sur eux!
 
-La paume se transforma ensuite en un point focal. La vie et la mort basculèrent tandis que les cultivateurs poussaient des cris déchirants. La plupart d'entre eux s'effondrèrent, mais le seul vieux monstre du stade avancé de la Tribulation du Vide qui n'était pas entravé se jeta sur Wang Lin. À cet instant, la puissance totale de l'Ancien Dao Sans Céleste de Wang Lin éclata!
+La paume se transforma ensuite en un doigt pointé. La vie et la mort basculèrent tandis que les cultivateurs poussaient des cris déchirants. La plupart d'entre eux s'effondrèrent, mais le seul vieux monstre du stade avancé de la Tribulation du Vide qui n'était pas entravé se jeta sur Wang Lin. À cet instant, la puissance totale de l'Ancien Dao Sans Céleste de Wang Lin éclata!
 
 « Dieu, Démon, Diable, Ancien Dao Sans Céleste! »
 
@@ -96,7 +96,7 @@ Les yeux de Wang Lin étaient injectés de sang. Seule une infime partie de son 
 
 Son véritable corps d'essence de feu apparut et s'étendit soudainement, enveloppant instantanément la zone.
 
-« Feu Éthéré, brûle!! » rugit Wang Lin d'une voix rauque. Les cent cultivateurs présents étaient habités par des émotions intenses, ce qui en faisait le combustible idéal pour le Feu Éthéré!
+« Feu Éthéré, brûle!! » rugit Wang Lin d'une voix rauque. Les cent cultivateurs présents étaient habités par d'innombrables pensées, ce qui en faisait le combustible idéal pour le Feu Éthéré!
 
 Le Feu Éthéré commença à consumer les cultivateurs. Des jaillissements de flammes illuminèrent la zone tandis que des cris misérables résonnaient.
 
@@ -112,11 +112,11 @@ Ce prix pourrait être la destruction d'une secte entière! Un coût si lourd qu
 
 Au moment où Wang Lin posa le pied sur le Continent Terre-Meng, le reste de son armure d'âme retourna sous la forme du Tatouage du Taureau Céleste sur le côté droit de son visage. Une immense faiblesse l'envahit, mais il la réprima de toutes ses forces.
 
-Il lui restait encore l'armure élémentaire terrestre en forme humaine. Bien qu'elle fût partiellement brisée, elle lui offrait toujours une protection puissante.
+Il lui restait encore l'armure élémentaire terrestre en forme humaine de la Secte Gui Yi. Bien qu'elle fût partiellement brisée, elle lui offrait toujours une protection puissante.
 
 Debout sur le Continent Terre-Meng, il chancela alors que du sang coulait du coin de sa bouche, puis il s'enfonça dans la course. Il comprenait qu'en tant que cultivateur indépendant, il pouvait traverser deux continents; cependant, l'arrivée massive de disciples de la Secte du Dao Démoniaque était une tout autre affaire.
 
-La Secte du Dao Démoniaque devait en avoir tenu compte; autrement, ils n'auraient pas ordonné aux deux Messagers du Démon Vert de s'autodétruire, ni à Yun Kong de le retarder pour s'assurer qu'il reste sur le Continent du Démon Vert. S'ils ne s'en souciaient guère, ils auraient simplement ouvert la voie par le massacre jusqu'au Continent Terre-Meng pour le poursuivre.
+La Secte du Dao Démoniaque devait en avoir tenu compte; autrement, ils n'auraient pas ordonné aux deux Messagers du Démon Vert de s'autodétruire, ni à Yun Kong de le retarder pour s'assurer qu'il reste sur le Continent du Démon Vert. Sans ces scrupules, ils n'auraient eu aucune raison de se presser : ils auraient simplement ouvert la voie par le massacre jusqu'au Continent Terre-Meng pour le poursuivre.
 
 Comme Wang Lin l'avait pressenti, les cultivateurs de la Secte du Dao Démoniaque s'arrêtèrent aux portes du Continent Terre-Meng. Ils hésitèrent, ne poursuivant pas leur traque.
 

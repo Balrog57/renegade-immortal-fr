@@ -14,7 +14,7 @@ Wang Lin rangea l'empreinte et dit lentement: « Je ne te saluerai pas! »
 
 Lorsque l'empreinte disparut, Du Qing ressentit secrètement un soulagement. Il recula de quelques pas, prêt à partir. Durant la poursuite, Wang Lin l'avait choqué à maintes reprises. Finalement, cette empreinte dorée dégageant une aura de Grand Empyréen l'avait poussé à abandonner toute idée de combat. Il ne voulait que partir le plus vite possible.
 
-« Vicieux! Simplement trop vicieux! » Du Qing était profondément déprimé et recula de cent pieds. Il s'arrêta soudainement et regarda Wang Lin, toujours entouré par la boule de feu.
+« Vicieux! Simplement trop vicieux! » Du Qing était profondément déprimé et recula de mille pieds. Il s'arrêta soudainement et regarda Wang Lin, toujours entouré par la boule de feu.
 
 « Cette personne possède un passé extrêmement puissant, et elle a reçu un trésor d'un Grand Empyréen. Rencontrer quelqu'un de cette trempe est une chance inouïe! Comment pourrais-je perdre mes moyens et partir ainsi? Si je peux obtenir les conseils d'un Grand Empyréen, mon niveau de culture augmentera sans aucun doute! »
 
@@ -26,13 +26,13 @@ Lorsque l'empreinte disparut, Du Qing ressentit secrètement un soulagement. Il 
 
 « Haha, une chance céleste, c'est une véritable bénédiction du ciel! » Les yeux de Du Qing brillèrent alors qu'il fixait la boule de feu où se trouvait Wang Lin. Il prit une profonde inspiration et força un sourire.
 
-« Un malentendu, tout n'est que malentendu. Camarade Cultivateur, c'est un malentendu. J'avais pensé que la Secte du Dragon Bleu était trop déclinante et que vous vouliez le reconstruire. Vous êtes arrivé juste à temps pour aider. En réalité, je courais pour vous remercier, Camarade Cultivateur! » Du Qing ne cilla même pas en parlant.
+« Un malentendu, tout n'est que malentendu. Camarade Cultivateur, c'est un malentendu. Je trouvais depuis longtemps que la porte de montagne de la Secte du Dragon Bleu était trop délabrée et je voulais la détruire pour la reconstruire. Vous êtes intervenu juste à temps pour m'aider et je vous en suis infiniment reconnaissant. En réalité, je vous ai rattrapé pour vous remercier, Camarade Cultivateur! » Du Qing ne cilla même pas en parlant.
 
 « Oh? » Wang Lin regarda Du Qing avec un sourire qui n'en était pas un. C'était comme s'il avait percé à jour les pensées de Du Qing.
 
 « Puisque le Camarade Cultivateur dévore le feu, cette affaire est cruciale; comment pourrais-je partir? Soyez assuré que je vous protégerai et que je ne laisserai personne approcher! » Du Qing ne fut pas intimidé par le regard de Wang Lin. Craignant qu'il ne le croie pas, il pointa le ciel du doigt et reprit:
 
-« Par la loi du Continent Astral Immortel qui surplombe ce monde, j'affirme aujourd'hui que je garderai la garde du Camarade Cultivateur sans la moindre intention malveillante. Sinon, que le tonnerre céleste détruise mon Dao et mon âme! » Sur ces mots, un rayon de lumière rouge jaillit, portant le serment de Du Qing, avant de s'élancer au loin.
+« Par la loi du Continent Astral Immortel qui surplombe ce monde, j'affirme aujourd'hui que je monterai la garde auprès du Camarade Cultivateur sans la moindre intention malveillante. Sinon, que le tonnerre céleste détruise mon Dao et mon âme! » Sur ces mots, un rayon de lumière rouge jaillit, portant le serment de Du Qing, avant de s'élancer au loin.
 
 C'était le symbole d'un serment sacré sur le Continent Astral Immortel. Peu de gens osaient rompre un tel engagement, car la loi même du Continent Astral Immortel en était le témoin!
 
@@ -42,11 +42,11 @@ Wang Lin observa Du Qing d'un regard chargé de sens et dit lentement: « Peu im
 
 Entendant l'accord de Wang Lin, Du Qing retrouva toute sa vigueur. Son expression devint solennelle et il hocha la tête vers Wang Lin.
 
-« Le Camarade Cultivateur Wang peut être serein, ce vieil homme risquera sa vie pour assurer votre sécurité! » Tout en parlant, il fit un pas en avant, s'éleva à mille pieds dans les airs et prit place. Son Sens Divin se déploya pour envelopper la zone, tout en épargnant délibérément l'espace immédiat entourant Wang Lin, afin de ne pas le troubler.
+« Le Camarade Cultivateur Wang peut être serein, ce vieil homme risquera sa vie pour assurer votre sécurité! » Tout en parlant, il recula de plusieurs pas, apparut à plusieurs milliers de pieds de là et s'assit en tailleur dans les airs. Son Sens Divin se déploya pour envelopper la zone, tout en épargnant délibérément l'espace immédiat entourant Wang Lin, afin de ne pas le troubler.
 
 L'expression de Wang Lin resta neutre. Du Qing ne cachait pas ses intentions, et cela était parfaitement limpide pour lui. Tout cela était dû à l'empreinte dorée. Du Qing cherchait manifestement à se rapprocher du Grand Empyréen qui avait doté Wang Lin de ce trésor.
 
-« C'est une bonne chose aussi. Comme c'est ma première fois sur le Continent Astral Immortel, il y a beaucoup de choses que j'ignore. Il y a des secrets qu'une recherche d'âme ne peut révéler, j'ai donc besoin d'un homme comme lui à mes côtés... Et c'est lui qui m'a sollicité plutôt que moi de chercher son aide; je garde ainsi l'initiative! » Wang Lin ricana intérieurement et ferma les yeux, se dissimulant lentement au cœur de la boule de feu.
+« C'est une bonne chose aussi. Comme c'est ma première fois sur le Continent Astral Immortel, il y a beaucoup de choses que j'ignore. Il y a des secrets qu'une recherche d'âme ne peut révéler, j'ai donc besoin d'un homme comme lui à mes côtés... Et c'est lui qui est venu se coller à moi, sans que je le demande; ainsi, c'est lui qui a un besoin, et je garde l'initiative! » Wang Lin ricana intérieurement et ferma les yeux, se dissimulant lentement au cœur de la boule de feu.
 
 Du Qing respecta strictement son serment et surveilla attentivement les environs. Il était déterminé à faire une démonstration irréprochable pour compenser le malaise précédent.
 
@@ -54,7 +54,7 @@ Le temps passa lentement. En un clin d'œil, trois jours s'écoulèrent.
 
 Durant ces trois jours, Wang Lin maintenait un fragment de Sens Divin à l'extérieur pour se prémunir de Du Qing. Simultanément, son corps, niché dans la boule de feu, absorbait frénétiquement l'essence de feu.
 
-Cette boule de feu avait été formée par une veine enfantée. Ce n'était pas une branche, l'absorption était donc lente. Elle contenait néanmoins une quantité massive d'essence de feu et abritait même des lois cachées.
+Cette boule de feu avait été formée par une veine enfantine. Ce n'était pas une veine secondaire, l'absorption était donc lente. Elle contenait néanmoins une quantité massive d'essence de feu et abritait même des lois cachées.
 
 Cette loi était la Volonté du Feu. Non seulement Wang Lin devait dévorer l'essence, mais il devait aussi absorber cette volonté.
 
@@ -94,9 +94,9 @@ Les yeux de Du Qing brillèrent d'une lueur singulière. Il fixa la boule et une
 
 « Les essences se divisent également en strates: de la formation initiale de l'essence à la condensation d'un trésor d'essence, jusqu'à l'aboutissement final. Chaque étape doit être franchie l'une après l'autre. Cependant, la légende raconte que parmi les génies, certains peuvent aller plus loin après avoir parachevé leur essence: former un Corps Véritable d'Essence! »
 
-« Un Corps Véritable d'Essence est extrêmement rare, et lorsqu'il apparaît, sa puissance dépasse l'entendement! Dans toute ma vie, je n'ai vu que l'Ancien Suprême de la Secte de la Grande Âme posséder un Corps Véritable d'Âme, et personne d'autre... Ceci... Ce Camarade Cultivateur Wang essaie vraiment de former un Corps Véritable d'Essence! » Du Qing regardait Wang Lin avec une incrédulité totale.
+« Un Corps Véritable d'Essence est extrêmement rare, et lorsqu'il apparaît, sa puissance dépasse l'entendement! Dans toute ma vie, je n'ai vu que l'Ancien Suprême de la Secte de la Grande Âme posséder un Corps Véritable d'Essence d'Âme, et personne d'autre... Ceci... Ce Camarade Cultivateur Wang essaie vraiment de former un Corps Véritable d'Essence! » Du Qing regardait Wang Lin avec une incrédulité totale.
 
-Sur le Continent Astral Immortel, les pays antiques étaient divisés en 35 États. Le Pays du Dao Ancien occupait 12 États. L'État du Ciel abritait la capitale royale.
+Sur le Continent Astral Immortel, les pays antiques étaient divisés en 36 États. Le Pays du Dao Ancien occupait 12 États. L'État du Ciel abritait la capitale royale.
 
 Il existait un lieu parsemé de montagnes verdoyantes et d'une rivière impétueuse. Les feuilles tombaient tandis que le courant rugissait. Au plus profond de la montagne se dressait un imposant autel bleu.
 

@@ -12,13 +12,13 @@ Wang Lin était sur le point de quitter le corps de l'homme lorsqu'une pensée l
 
 Peut-être parce qu'un sens divin venait d'être déployé, les trois ne furent pas détectés par d'autres sens divins. Ils réussirent ainsi à approcher la montagne rouge.
 
-« Nous devons nous dépêcher. Une fois que nous aurons terminé avec l'Ancêtre Yan Lu, nous devrons encore nous rendre sur les autres pics principaux; nous ne pouvons pas nous permettre de retard. Song Ying, nous vous attendrons en tête. Rattrapez-nous une fois que vous aurez livré les fruits », dit la femme qui avait parlé précédemment, ce à quoi l'autre femme acquiesça d'un signe de tête.
+« Nous devons nous dépêcher. Une fois que nous aurons terminé avec l'Ancêtre Yan Luan, nous devrons encore nous rendre sur les autres pics principaux; nous ne pouvons pas nous permettre de retard. Song Ying, nous vous attendrons en tête. Rattrapez-nous une fois que vous aurez livré les fruits », dit la femme qui avait parlé précédemment, ce à quoi l'autre femme acquiesça d'un signe de tête.
 
 Les trois se séparèrent. La femme nommée Song Ying chargea vers la montagne rouge. L'autre femme et l'homme dans lequel Wang Lin se trouvait changèrent de direction, contournant la montagne rouge pour s'enfoncer au loin.
 
 Wang Lin n'hésita pas à se transformer en fumée pour quitter l'homme. Il encercla la femme nommée Song Ying et vola vers la montagne rouge à ses côtés.
 
-La disciple nommée Song Ying ne paraissait pas vieille et était d'une grande beauté; son corps dégageait le parfum d'une vierge. Elle se changea en un rayon de lumière rouge et s'élança vers le sommet de la montagne.
+La disciple nommée Song Ying ne paraissait pas vieille et était d'une grande beauté; son corps dégageait le parfum d'une vierge. Elle se changea en un rayon de lumière et s'élança vers le sommet de la montagne.
 
 Elle s'arrêta dans les airs, devant la montagne, protégée par un flou rideau de lumière. Elle sortit un jade rouge, s'apprêtant à le presser contre la barrière. À cet instant, Wang Lin projeta une partie de son sens divin vers le jade rouge et utilisa toute sa puissance pour l'analyser.
 
@@ -74,7 +74,7 @@ Il s'agissait d'un réflexe inconscient de Fan Shanlu. Wang Lin analysa ces dét
 
 En voyant Wang Lin, Fan Shanlu resta stupéfaite un long moment avant d'esquisser un sourire à son tour.
 
-« Cela fait si longtemps... Je ne pensais pas que tu viendrais ici... Cette brume est utilisée lorsque les disciples centraux de la Secte de la Grande Âme entrent en culture isolée. Une fois la brume déployée, le sens divin de l'Enseignant ne balaiera pas la zone; nous sommes en sécurité ici. »
+« Cela fait si longtemps... Je ne pensais pas que tu viendrais ici... Cette brume est utilisée lorsque les disciples centraux de la Secte de la Grande Âme entrent en culture isolée. Une fois la brume déployée, le sens divin du Maître ne balaiera pas la zone; nous sommes en sécurité ici. »
 
 Le sourire de Fan Shanlu était empreint de joie. Elle ne s'attendait pas à croiser Wang Lin ici. Pourtant, sa gratitude envers lui n'avait rien perdu de son intensité avec le temps.
 
@@ -94,17 +94,17 @@ En vérité, Fan Shanlu ressentait la même chose. Après tout, elle avait pass�
 
 Wang Lin percevait cette joie, ce qui réchauffait son cœur. Il sourit silencieusement un instant avant de prendre la parole.
 
-« J'ai besoin du principal filon de feu terrestre pour ma culture... Cela pourrait affecter le filon principal ici présent. »
+« J'ai besoin du principal filon de feu terrestre pour cultiver une technique divine... Cela pourrait affecter le filon principal ici présent. »
 
 Fan Shanlu réfléchit et, après un long silence, elle hocha la tête.
 
-« Aucun problème. Je peux t'emmener dans le lieu de culture isolée dédié au filon de feu terrestre. L'Enseignant sera facile à éviter; elle est la plupart du temps en culture isolée et ne déploie son sens divin que de façon occasionnelle. Elle ne vérifie pas trop souvent les disciples pour ne pas perturber leur pratique. Le principal problème est ma sœur aînée... Elle se trouve aussi sur cette montagne de flammes. Cependant, elle a attiré l'attention de l'Enseignant, donc elle ne sortira pas facilement. Voici ce que je propose: je t'accompagnerai jusqu'à la salle de feu. Si d'autres posent des questions, je dirai que je suis en culture isolée. Mais cela ne doit pas durer trop longtemps, sinon les soupçons grandiront. » Fan Shanlu se montra décisive et trouva rapidement une solution.
+« Aucun problème. Je peux t'emmener dans le lieu de culture isolée dédié au filon de feu terrestre. Le Maître sera facile à éviter; elle est la plupart du temps en culture isolée et ne déploie son sens divin que de façon occasionnelle. Elle ne vérifie pas trop souvent les disciples pour ne pas perturber leur pratique. Le principal problème est ma sœur aînée... Elle se trouve aussi sur cette montagne de flammes. Cependant, elle est actuellement tenue en haute estime par le Maître, donc elle ne sortira pas facilement. Voici ce que je propose: je t'accompagnerai jusqu'à la salle de feu. Si d'autres posent des questions, je dirai que je suis en culture isolée. Mais cela ne doit pas durer trop longtemps, sinon les soupçons grandiront. » Fan Shanlu se montra décisive et trouva rapidement une solution.
 
 Wang Lin réfléchit et dit lentement: « Ce ne serait pas sans risque pour toi... »
 
 En entendant cela, l'expression de Fan Shanlu s'adoucit et elle secoua la tête avec un sourire.
 
-« Ne t'inquiète pas. L'Enseignant protège les siens, je connais mes limites. »
+« Ne t'inquiète pas. Le Maître protège les siens, je connais mes limites. »
 
 L'expression de Wang Lin resta sérieuse. Il se leva et joignit les mains en signe de gratitude envers Fan Shanlu. « Merci infiniment! »
 

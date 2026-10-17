@@ -8,7 +8,7 @@ slug: zhang-daozong
 ---
 Ce massacre ne rassemblait pas autant de cultivateurs que la première fois; l'étendue des combats n'était donc pas trop vaste — seulement quelques centaines de kilomètres.
 
-À environ 100 000 kilomètres du champ de bataille, tout était encore enveloppé de brouillard. Une pierre gisait dans la boue et l'herbe. À cet instant, une explosion de lumière jaillit et la silhouette de Wang Lin apparut.
+À environ 100 000 kilomètres du champ de bataille, tout était encore enveloppé de brouillard. Une pierre gisait dans la boue et l'herbe. À cet instant, une lueur diffuse jaillit et la silhouette de Wang Lin apparut.
 
 Le ciel était sombre, drapé de brume. La pluie des jours précédents ne s'était pas arrêtée, mais elle s'était considérablement affaiblie, se mêlant au brouillard pour rendre l'atmosphère très humide.
 
@@ -20,7 +20,7 @@ Le corps de Wang Lin vacilla sous l'effet de rides spatiales et il disparut.
 
 Lorsqu'il réapparut, il se trouvait à la lisière du champ de bataille. Là, il pouvait percevoir les fluctuations des sorts et humer le parfum ténu de la mort.
 
-Tant qu'il y aurait de grandes batailles, il y aurait d'innombrables morts de chaque côté. Wang Lin s'était lassé de ce genre de combats et ne souhaitait guère y participer. Il n'éprouvait aucune nostalgie qui le pousserait à rugir: « Les cultivateurs comme nous ne reculent jamais devant un combat! »
+Tant qu'il y aurait de grandes batailles, il y aurait d'innombrables morts de chaque côté. Wang Lin s'était lassé de ce genre de combats et ne souhaitait guère y participer. Il n'éprouvait aucun sentiment d'appartenance, ni la ferveur qui le pousserait à rugir: « Les cultivateurs comme nous ne reculent jamais devant un combat! »
 
 Il n'était présent que pour remplir les trois conditions fixées par l'Ancien Taureau Vert afin de rembourser la Secte de la Grande Âme pour ces trois cadeaux! C'était là le caractère de Wang Lin; il rendait toujours la pareille!
 
@@ -28,9 +28,9 @@ Il n'était présent que pour remplir les trois conditions fixées par l'Ancien 
 
 À mesure qu'il approchait, les fluctuations des sorts devenaient plus puissantes et l'aura de mort plus intense. Il percevait même le choc lointain des trésors et des techniques qui s'entrechoquaient.
 
-« Ce champ de bataille est un lieu idéal pour capturer des âmes originelles afin de les sceller dans mon corps pour l'Art du Sort Rapide! » Wang Lin s'enfonça de plus en plus dans la mêlée. Peu après, il surgit au cœur des combats. Des grondements tonitruants et des fluctuations magiques émanaient de toutes parts, accompagnés d'éclairs multicolores.
+« Ce champ de bataille est un lieu idéal pour capturer des âmes originelles afin de les sceller dans mon corps pour l'Art Magique Rapide! » Wang Lin s'enfonça de plus en plus dans la mêlée. Peu après, il surgit au cœur des combats. Des grondements tonitruants et des fluctuations magiques émanaient de toutes parts, accompagnés d'éclairs multicolores.
 
-Il y avait initialement six ou sept mille cultivateurs de chaque côté, mais il en restait désormais moins de 4 000. Leurs yeux étaient injectés de sang alors qu'ils s'engageaient dans une lutte brutale. Wang Lin vit des cultivateurs du Continent du Démon Vert périr, et des cultivateurs du Continent du Taureau Céleste mourir aussi, mais il n'intervint pas.
+Il y avait initialement six ou sept mille cultivateurs au total pour les deux camps, mais il en restait désormais moins de 4 000. Leurs yeux étaient injectés de sang alors qu'ils s'engageaient dans une lutte brutale. Wang Lin vit des cultivateurs du Continent du Démon Vert périr, et des cultivateurs du Continent du Taureau Céleste mourir aussi, mais il n'intervint pas.
 
 Il ne voulait pas prendre part à ce carnage. À ses yeux, le Continent du Taureau Céleste et le Continent du Démon Vert se valaient; l'un n'était pas meilleur que l'autre.
 
@@ -64,11 +64,11 @@ Au bas mot, cet individu était un cultivateur de la Tribulation du Vide!
 
 Une multitude de pensées traversèrent son esprit et le cultivateur du Continent du Démon Vert sentit son cuir chevelu s'engourdir. Il recula sans hésiter, s'apprêtant à fuir les lieux.
 
-Wang Lin laissa échapper un ricanement froid et fit un pas. Il apparut instantanément à quelques milliers de pieds de là, juste devant le cultivateur du Continent du Démon Vert. Sa paume descendit comme le Mont Tai; le cultivateur n'eut aucune chance de résister alors que la main de Wang Lin s'écrasait sur sa tête.
+Wang Lin laissa échapper un ricanement froid et fit un pas. Il apparut instantanément à quelques dizaines de milliers de pieds de là, juste devant le cultivateur du Continent du Démon Vert. Sa paume descendit comme le Mont Tai; le cultivateur n'eut aucune chance de résister alors que la main de Wang Lin s'écrasait sur sa tête.
 
 Le cultivateur s'effondra et se brisa en morceaux. Son âme originelle fut enveloppée par une force et extraite du corps déchiqueté. Wang Lin apposa rapidement des sceaux sur l'âme originelle, puis la pressa contre sa propre poitrine.
 
-L'âme originelle disparut, mais un vortex apparut dans le corps de Wang Lin. Ce vortex était l'amorce d'une veine de sorts que Wang Lin avait ouverte conformément à l'Art du Sort Rapide.
+L'âme originelle disparut, mais un vortex apparut dans le corps de Wang Lin. Ce vortex était l'amorce d'une veine de sorts que Wang Lin avait ouverte conformément à l'Art Magique Rapide.
 
 Tout cela se produisit en un éclair. Le vieil homme regardait avec stupéfaction la disparition de Wang Lin. Après un long moment, il prit une profonde inspiration.
 
@@ -76,13 +76,13 @@ Tout cela se produisit en un éclair. Le vieil homme regardait avec stupéfactio
 
 Wang Lin fendit le brouillard pour continuer sa progression vers les cultivateurs de la Tribulation du Vide qui combattaient. Tout cultivateur du Vide Arcanique qu'il croisait était immédiatement exécuté. Il scellait leurs âmes originelles dans son corps afin de renforcer sa première veine de sorts.
 
-Wang Lin comprenait vaguement le principe de l'Art du Sort Rapide. Il devait constamment sceller les âmes originelles des cultivateurs pour qu'elles forment un vortex. La rotation de ce vortex atteindrait alors une vitesse extrême!
+Wang Lin comprenait vaguement le principe de l'Art Magique Rapide. Il devait constamment sceller les âmes originelles des cultivateurs pour qu'elles forment un vortex. La rotation de ce vortex atteindrait alors une vitesse extrême!
 
 Plus il y aurait de cultivateurs et plus leur niveau de culture serait élevé, plus le vortex serait rapide. Par conséquent, lorsque Wang Lin l'utiliserait, la vitesse de ses sorts augmenterait proportionnellement.
 
 Cependant, il y avait une limite. En chemin, Wang Lin avait scellé un total de neuf âmes originelles lorsqu'il approcha du cœur des combats de la Tribulation du Vide. Il ne pouvait plus en sceller davantage et ne parvenait pas à former une seconde veine de sorts.
 
-Cela était explicité dans l'Art du Sort Rapide, et après l'avoir expérimenté lui-même, Wang Lin en avait acquis une compréhension profonde. S'il voulait former une seconde veine, il aurait besoin de l'âme originelle d'un cultivateur encore plus puissant.
+Cela était explicité dans l'Art Magique Rapide, et après l'avoir expérimenté lui-même, Wang Lin en avait acquis une compréhension profonde. S'il voulait former une seconde veine, il aurait besoin de l'âme originelle d'un cultivateur encore plus puissant.
 
 À moins qu'il ne puisse faire comme Xu Decai et commencer le scellement dès le stade du Vide du Nirvana, la puissance serait bien moindre. Le vortex que Wang Lin avait formé était déjà plus puissant que quatre des vortex de Xu Decai.
 
@@ -108,6 +108,6 @@ Des ondulations résonnèrent sous ses pieds alors qu'il s'apprêtait à fusionn
 
 Derrière Wang Lin, le vieil homme nommé Zhang, qui combattait Lu Wenran et ses compagnons, fixa l'endroit où Wang Lin s'était échappé. Une intention meurtrière brilla dans ses yeux et il abandonna le combat pour poursuivre Wang Lin, faisant fi de la bataille en cours.
 
-« Ce vieux Zhang Daozhong t'attendait depuis plusieurs jours, et te voilà enfin sorti, petite renarde! Tu as tué Liu Zhiyuan, je dois donc apaiser la colère du Maître de Secte! »
+« Ce vieux Zhang Daozong t'attendait depuis plusieurs jours, et te voilà enfin sorti, petit renard! Tu as tué Liu Zhiyuan, je dois donc apaiser la colère du Maître de Secte! »
 
-Wang Lin ne dit mot et s'envola à plus de 100 000 pieds avec le Roi Moustique. Cependant, Zhang Daozhong était bien plus rapide; en un instant, la distance entre eux fut réduite à moins de 1 000 pieds!
+Wang Lin ne dit mot et s'envola à plus de 100 000 pieds avec le Roi Moustique. Cependant, Zhang Daozong était bien plus rapide; en un instant, la distance entre eux fut réduite à moins de 1 000 pieds!

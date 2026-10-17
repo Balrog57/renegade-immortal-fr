@@ -20,11 +20,11 @@ Les mains de l'Exalté Empyréen Hai Zi formèrent un sceau qu'elle pointa vers 
 
 Aussitôt, le rideau de lumière gronda. D'innombrables fissures se propagèrent avant que tout ne s'effondre. Tandis que les fragments volaient en éclats, la force résiduelle les propulsa tous deux vers l'extérieur.
 
-Profitant de cet élan, Wang Lin et l'Exalté Empyréen Hai Zi jaillirent alors que le rideau de lumière se désagrégeait. L'Exalté Empyréen Hai Zi suivit l'ordre précédent de Wang Lin: ses mains tracèrent des sceaux et le sceau ovale contenant quatre-vingt-dix sorts apparut, émettant une lumière d'une intensité extrême.
+Profitant de cet élan, Wang Lin et l'Exalté Empyréen Hai Zi jaillirent alors que le rideau de lumière se désagrégeait. L'Exalté Empyréen Hai Zi suivit l'ordre précédent de Wang Lin: ses mains tracèrent des sceaux et le sceau ovale contenant plus de quatre-vingt-dix sorts apparut, émettant une lumière d'une intensité extrême.
 
-Le sceau ovale percuta d'abord l'ombre de la paume brisée dans un fracas tonitruant. Le grondement fut si violent qu'il sembla déchirer le vide lui-même. L'ombre fut repoussée.
+Le sceau ovale percuta d'abord l'ombre de la paume brisée dans un fracas tonitruant. Le grondement fut si violent qu'il sembla déchirer le vide lui-même. L'ombre fut repoussée et son corps se désagrégea en une nuée de points sombres, mais en un clin d'œil elle se condensa de nouveau et se reforma!
 
-À cet instant, trois silhouettes flottaient au-dessus de la Mer des Montagnes, contemplant la scène d'en haut. Bien que présents, aucun cultivateur de passage ne pourrait les détecter; ils restaient totalement invisibles aux yeux du monde!
+À cet instant, trois silhouettes flottaient au-dessus de la Mer et la Montagne, contemplant la scène d'en haut. Bien que présents, aucun cultivateur de passage ne pourrait les détecter; ils restaient totalement invisibles aux yeux du monde!
 
 Parmi ces trois figures, l'une était un jeune homme vêtu d'une robe de Dao. Aux cheveux noirs et aux sourcils semblables à des lames d'épée, il paraissait n'avoir qu'une vingtaine d'années. Ses yeux étaient tels des étoiles, dans lesquelles on risquait de se perdre éternellement.
 
@@ -32,7 +32,7 @@ Malgré sa jeunesse, il était enveloppé d'une aura antique. Il dégageait un c
 
 Il s'agissait du Grand Empyréen Dao Yi!
 
-À quelques pieds de lui se tenait la seconde figure: un homme d'âge moyen à la silhouette élancée, plus grand que l'Exalté Empyréen Dao Yi. Il portait de simples vêtements de lin et gardait les mains derrière le dos.
+À quelques dizaines de pieds de lui se tenait la seconde figure: un homme d'âge moyen à la silhouette élancée, plus grand que le Grand Empyréen Dao Yi. Il portait de simples vêtements de lin et gardait les mains derrière le dos.
 
 Bien qu'il n'eût pas de cheveux, il ne paraissait pas pour autant chauve. Son expression était rude et ses traits peu gracieux, mais il dégageait l'allure d'une tempête imminente. Ses yeux révélaient une aura terrifiante qui faisait trembler le monde sous ses pieds.
 
@@ -48,7 +48,7 @@ La dernière figure était un vieil homme en robe bleue, debout, imperturbable. 
 
 Son visage était sillonné de rides et ses yeux manquaient d'éclat. Il paraissait chétif et mélancolique, pourtant il demeurait indemne face à l'aura de Dao Yi qui gelait tout sur son passage, et c'était comme si l'aura unique de Wu Feng n'existait même pas à ses yeux.
 
-« Jiu Di, votre disciple est en difficulté », sourit Dao Yi en regardant le vieil homme en vert. Bien que ce dernier paraisse banal, Dao Yi savait que Jiu Di était le plus ancien des cinq Grands Empyréens actuels. La rumeur disait qu'il était un cultivateur de l'époque où l'Ancêtre Céleste régnait encore.
+« Jiu Di, votre disciple s'est libérée », sourit Dao Yi en regardant le vieil homme en vert. Bien que ce dernier paraisse banal, Dao Yi savait que Jiu Di était le plus ancien des cinq Grands Empyréens actuels. La rumeur disait qu'il était un cultivateur de l'époque où l'Ancêtre Céleste régnait encore.
 
 Son nom d'origine était Jiu (Neuf) Di, et il était autrefois d'une beauté exceptionnelle. Cependant, après d'innombrables années et neuf réincarnations, le Jiu était devenu Jiu (Long)!
 
@@ -58,11 +58,11 @@ Le vieil homme à la robe verte déclara lentement: « Sans vous deux, mon disci
 
 « J'ai également une bonne impression de cet homme, mais son origine doit encore être mise à l'épreuve ici! » intervint Wu Feng.
 
-« Autrefois, Xuan Luo est venu au Clan Céleste. Tant qu'il n'a aucun lien avec lui, tout ira bien », ajouta Dao Yi en observant la Mer des Montagnes en contrebas.
+« Autrefois, Xuan Luo est venu au Clan Céleste. Tant qu'il n'a aucun lien avec lui, tout ira bien », ajouta Dao Yi en observant la Mer et la Montagne en contrebas.
 
 Soudain, Dao Yi laissa échapper un léger cri de surprise. Non seulement lui, mais Wu Feng tourna également un regard grave vers le bas, tandis que le vieil homme manifestait sa propre stupéfaction.
 
-La Mer des Montagnes était désormais recouverte d'une couche d'encre noire. Sous cette encre s'étendait une mer infinie, et au fond se trouvait un trou noir abritant l'Arbre de la Mer des Montagnes. Des grondements violents émanaient des couches de sceaux qui l'entouraient.
+La Mer et la Montagne étaient désormais recouvertes d'une couche d'encre noire. Sous cette encre s'étendait une mer infinie, et au fond se trouvait un trou noir abritant l'Arbre de la Mer et de la Montagne. Des grondements violents émanaient des couches de sceaux qui l'entouraient.
 
 C'était l'attaque de l'Exalté Empyréen Hai Zi. Le sceau ovale avait percuté l'ombre de la paume brisée, mais après son effondrement, celle-ci s'était reformée. Wang Lin leva la main, le tatouage du Taureau Céleste sur son visage fulgurant d'éclat. Une armure d'âme recouvrit tout son corps alors qu'il déployait son sort le plus puissant!
 
@@ -90,7 +90,7 @@ Alors que Wang Lin murmurait ces paroles, la lumière solaire déchira la nuit e
 
 Toutefois, malgré sa teinte terne, l'ombre de la paume brisée ne put échapper indemne au sort le plus puissant de Wang Lin.
 
-La lumière solaire infinie continua de se répandre. Elle ne se contenta pas de percer la nuit, elle pénétra aussi l'Arbre de la Mer des Montagnes, comme si un soleil brûlait à l'intérieur même de l'arbre!
+La lumière solaire infinie continua de se répandre. Elle ne se contenta pas de percer la nuit, elle pénétra aussi l'Arbre de la Mer et de la Montagne, comme si un soleil brûlait à l'intérieur même de l'arbre!
 
 Les rayons traversèrent le tronc et les sceaux, ignorant le trou noir pour briller directement depuis les profondeurs de la mer. L'obscurité abyssale s'estompa sous cette clarté.
 
@@ -100,7 +100,7 @@ La lumière franchit la couche d'encre à la surface et frappa de plein fouet le
 
 « C'est un cultivateur de rang Exalté Empyréen, mais il possède une telle puissance de foi! » nota le Grand Empyréen Wu Feng, son regard trahissant une immense puissance.
 
-Seul le petit vieil homme fronça les sourcils. Il leva la main droite et pointa l'eau en contrebas d'un geste simple, presque mortel.
+Seul le vieil homme en robe bleue fronça les sourcils. Il leva la main droite et pointa l'eau en contrebas d'un geste très ordinaire, sans la moindre illusion, comme un mortel qui pointerait au hasard.
 
 Alors que la mer était transpercée par cette lumière infinie, des grondements de tonnerre éclatèrent. L'océan semblait bouillir dans un tourbillon frénétique, tandis qu'un doigt gigantesque semblait s'abattre vers les profondeurs!
 
@@ -116,7 +116,7 @@ Le choc fut titanesque, faisant marquer un temps d'arrêt à la paume brisée. L
 
 La paume brisée fut repoussée par le doigt, mais un rugissement féroce retentit. L'ombre se mua en une entité rugissante tournant son regard vers le ciel. Ses yeux étaient empreints d'une folie pure; elle avait distingué les trois Grands Empyréens là-haut. Ignorant Hai Zi, elle chargea contre eux.
 
-C'était comme si rien ne pouvait entraver sa puissance!
+C'était comme si sa majesté ne souffrait pas d'être bafouée d'un simple doigt!
 
 Les yeux du vieil homme en robe bleue brillèrent et il fit un pas en avant. Il se posta entre l'Exalté Empyréen Hai Zi et la paume brisée, tout en levant la main droite!
 

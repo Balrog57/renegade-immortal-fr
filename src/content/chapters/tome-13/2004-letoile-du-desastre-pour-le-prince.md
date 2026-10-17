@@ -30,7 +30,7 @@ Non seulement lui, mais les deux personnes derrière lui tournèrent la tête au
 
 Cependant, l'homme en armure dorée les ignora. Il observa Wang Lin avec confusion.
 
-« Ce membre du clan m'est très inconnu. Je suis le seigneur de la ville de la Pierre Noire. Je me demande si ce membre du clan a besoin d'aide? » L'homme à l'armure dorée joignit les mains en signe de salut vers Wang Lin.
+« Ce membre du clan m'est très inconnu. Je suis Liang Yun, le seigneur de la ville de la Pierre Noire. Je me demande si ce membre du clan a besoin d'aide? » L'homme à l'armure dorée joignit les mains en signe de salut vers Wang Lin.
 
 « Je suis Kong Shi », sourit l'homme d'âge mûr aux yeux démoniaques en joignant également les mains.
 
@@ -98,7 +98,7 @@ Derrière lui se tenait une femme en bleu. Elle paraissait assez jeune et, lorsq
 
 Le jeune homme royal vit également Wang Lin, l'unique personne debout. Le ciel gronda une fois de plus. Le jeune homme leva la tête et détourna son regard de Wang Lin pour contempler à nouveau le firmament.
 
-Une autre ombre gigantesque émergea de la faille béante. Cette silhouette était légèrement plus petite; en sortant, elle révéla deux cornes sur sa tête et un corps noir. C'était un démon ancien!
+Une autre ombre gigantesque émergea de la faille béante. Cette silhouette était légèrement plus petite; en sortant, elle révéla deux cornes sur sa tête et un corps noir. C'était un diable ancien!
 
 Les yeux de ce démon étaient également rouges, habités par la folie et la violence, comme s'il était sur le point de perdre tout contrôle. Il poussa un hurlement. Sept personnes se tenaient debout sur sa tête.
 
@@ -112,6 +112,6 @@ Parmi elles figuraient cinq hommes et deux femmes. Ils saluèrent le jeune homme
 
 « Point n'est besoin! » trancha froidement le prince. Ses yeux s'illuminèrent et se fixèrent sur Wang Lin.
 
-« Tuo Luo, tue-le! » Dès que le prince eut parlé, le démon ancien de centaines de pieds de haut poussa un rugissement. Il leva sa griffe droite et tendit la main vers Wang Lin.
+« Tuo Luo, tue-le! » Dès que le prince eut parlé, le démon ancien de centaines de milliers de pieds de haut poussa un rugissement. Il leva sa griffe droite et tendit la main vers Wang Lin.
 
 Il semblait vouloir saisir Wang Lin pour l'écraser! Ses griffes acérées paraissaient capables de fendre le ciel même. Chargées d'une aura démoniaque monstrueuse, elles foncèrent sur Wang Lin.

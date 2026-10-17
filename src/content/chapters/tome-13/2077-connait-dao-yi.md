@@ -6,7 +6,7 @@ bookTitle: Light of the coming end
 en: "Chapter 2077 - Knows Dao Yi!"
 slug: connait-dao-yi
 ---
-Maître Âme Écarlate venait du Continent Astral Immortel; il connaissait donc des cultivateurs dont le niveau surpassait de loin celui d'un monde de caverne. Les Exaltés Dorés, les Exaltés Empyréens, les Ascendants Empyréens et les neuf existences au sommet du Continent Astral Immortel: les Grands Empyréens.
+Maître Âme Écarlate venait du Continent Astral Immortel; il connaissait donc des cultivateurs dont le niveau surpassait de loin celui d'un monde des grottes. Les Exaltés Dorés, les Exaltés Empyréens, les Ascendants Empyréens et les neuf existences au sommet du Continent Astral Immortel: les Grands Empyréens.
 
 Sur le Continent Astral Immortel, avec son niveau de culture, il aurait dû témoigner d'un immense respect s'il avait rencontré un Exalté Doré. Après tout, les Exaltés Dorés étaient extrêmement puissants et occupaient des rangs d'Anciens Grands au sein même des sectes les plus prestigieuses. On pouvait dire que les Exaltés Dorés déterminaient la puissance d'une secte.
 
@@ -18,7 +18,7 @@ La pression exercée par le dragon marin était suffisante pour faire trembler l
 
 « Un Exalté Doré... C'est un Exalté Doré... » Les yeux de Maître Âme Écarlate étaient vitreux. Il n'osait croire ce qu'il voyait.
 
-Une existence rare, un Exalté Doré. Mais il s'agissait d'une bête de rang Exalté Doré, ce qui était encore plus exceptionnel, et une telle créature venait de surgir devant lui dans ce monde de caverne. Ce sentiment d'absurdité manqua de rendre Maître Âme Écarlate fou.
+Une existence rare, un Exalté Doré. Mais il s'agissait d'une bête de rang Exalté Doré, ce qui était encore plus exceptionnel, et une telle créature venait de surgir devant lui dans ce monde des grottes. Ce sentiment d'absurdité manqua de rendre Maître Âme Écarlate fou.
 
 Le dragon marin Exalté Doré s'anima et son regard devint féroce. Il fixa Maître Âme Écarlate et poussa un rugissement.
 
@@ -56,9 +56,9 @@ Xu Liguo resta interdit un instant avant d'éclater de rire. Liu Jinbiao afficha
 
 « Mon oncle-maître est Xun Shanqing, un Exalté Empyréen sous les ordres du Grand Empyréen Dao Yi! Si vous laissez ce dragon marin me tuer, mon oncle-maître le saura certainement. Je ne pense pas que votre maître soit disposé à se mettre à dos un autre Exalté Empyréen! » Le visage de Maître Âme Écarlate était livide, trahissant sa peur viscérale de la mort.
 
-« De plus, le Grand Empyréen Dao Yi est très partial. Si mon oncle-maître demande assistance, vous en paierez tous le prix! Wang Lin, c'est un prix que vous ne pourrez supporter: le monde de la caverne tout entier sera anéanti!
+« De plus, le Grand Empyréen Dao Yi est très partial. Si mon oncle-maître demande assistance, vous en paierez tous le prix! Wang Lin, c'est un prix que vous ne pourrez supporter: le monde des grottes tout entier sera anéanti!
 
-« Vous avez séjourné sur le Continent Astral Immortel, vous connaissez donc les Grands Empyréens. Si vous me laissez partir, je jure de n'avoir plus jamais aucune intention envers le Royaume Céleste et de quitter immédiatement ce monde de caverne. »
+« Vous avez séjourné sur le Continent Astral Immortel, vous connaissez donc les Grands Empyréens. Si vous me laissez partir, je jure de n'avoir plus jamais aucune intention envers le Royaume Céleste et de quitter immédiatement ce monde des grottes. »
 
 Maître Âme Écarlate s'emballa. Il était convaincu que Wang Lin connaissait la puissance des Grands Empyréens et espérait que ses paroles serviraient de moyen de dissuasion.
 
@@ -92,15 +92,15 @@ Pourtant, une hésitation le taraudait. Le ton nonchalant de Wang Lin en parlant
 
 « Dao Yi, cet homme prétend qu'un de vos subordonnés est son oncle-maître. Dis-moi si c'est vrai! » Wang Lin agita la main droite et un grondement de tonnerre retentit. Le dragon marin se retira promptement tandis qu'un vortex gigantesque s'ouvrait au-dessus du Royaume Céleste. Ce vortex perça le passage, brisant les lois entourant le Continent Astral Immortel pour établir une connexion directe.
 
-Sur le Continent Astral Immortel, Dao Yi venait de revenir de la vaste dépression, et l'image terrifiante qu'il y avait vue hantait encore son esprit. Il refusait d'y croire, mais il savait que tout était vrai.
+Sur le Continent Astral Immortel, Dao Yi venait de revenir du vaste bassin, et l'image terrifiante qu'il y avait vue hantait encore son esprit. Il refusait d'y croire, mais il savait que tout était vrai.
 
-L'être le plus puissant du Continent Astral Immortel n'était plus Guo Dao, mais celui dont il tremblait de peur: Wang Lin!
+L'être le plus puissant du Continent Astral Immortel n'était plus Gu Dao, mais celui dont il tremblait de peur: Wang Lin!
 
-À cet instant précis, le ciel au-dessus de la Secte Dao Yi changea et les couleurs du monde se transformèrent. Un vortex apparut et la voix de Wang Lin résonna à travers l'univers. Dao Yi fut stupéfait de constater que son corps était paralysé et qu'une force étrange émanant du vortex l'aspirait vers lui.
+À cet instant précis, le ciel au-dessus de la Secte Dao Yi changea et les couleurs du monde se transformèrent. Un vortex apparut et la voix de Wang Lin résonna à travers l'univers. Dao Yi fut stupéfait de constater que son corps était paralysé et que son sens divin, enveloppé par une force étrange émanant du vortex, était arraché de son corps et aspiré vers lui.
 
 À travers le vortex, il aperçut un continent étranger, vit Wang Lin et entendit sa voix. Il eut la sensation d'être sur le fil du rasoir, entre la vie et la mort, avec Wang Lin comme seul maître de son destin. C'était comme si une simple pensée de Wang Lin suffisait à l'anéantir.
 
-Dans le Royaume Céleste du monde de caverne, Maître Âme Écarlate contemplait le vortex apparu au firmament. Une aura terrifiante s'en dégageait, le faisant trembler de tous ses membres. Il avait déjà ressenti cette aura de loin: c'était celle du Grand Empyréen Dao Yi!
+Dans le Royaume Céleste du monde des grottes, Maître Âme Écarlate contemplait le vortex apparu au firmament. Une aura terrifiante s'en dégageait, le faisant trembler de tous ses membres. Il avait déjà ressenti cette aura de loin: c'était celle du Grand Empyréen Dao Yi!
 
 « C'est impossible... Impossible... »
 

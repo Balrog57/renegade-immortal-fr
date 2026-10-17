@@ -60,13 +60,13 @@ C'était précisément le but de l'Empereur Céleste: il ne laisserait pas Wang 
 
 « Quelle déception! »
 
-Face au mépris et aux critiques de la foule, le Grand Empyréen Dao Yi s'apprêta à parler, mais il ne put que laisser échapper un soupir intérieur. Il savait que le cultivateur nommé Wang Lin était tristement célèbre au sein du clan céleste.
+Face au mépris et aux critiques de la foule, le Grand Empyréen Dao Yi s'apprêta à parler, mais il ne put que laisser échapper un soupir intérieur. Il savait que le cultivateur nommé Wang Lin serait désormais tristement célèbre au sein du clan céleste.
 
-« Le fait que l'Empereur Céleste parle ainsi en ce moment signifie qu'il entretient une certaine relation avec cet enfant. Cet individu... il n'est pas seulement infâme, il est... Il vaut mieux ne pas le recruter. Bien que la compréhension de son enfant soit singulière, tout cela est désormais perdu. » Dao Yi soupira et resta muet. Il avait renoncé à Wang Lin.
+« Le fait que l'Empereur Céleste parle ainsi en ce moment signifie qu'il entretient une certaine relation avec cet enfant. Dans ces conditions... sa réputation est désormais exécrable, cet homme... Il vaut mieux ne pas le recruter. Bien que sa compréhension diffère de celle des autres, il est désormais fini. » Dao Yi soupira et resta muet. Il avait renoncé à Wang Lin.
 
 Soudain, la voix indignée d'une femme jaillit de la foule. Cette voix, chargée de toute sa puissance de culture, résonna dans toute l'Épreuve Empyrée.
 
-« Taisez-vous tous! Vous n'y connaissez rien. Il y a plus d'une décennie, Wang Lin pouvait combattre à mes côtés sans armure de l'âme. Comment pourrait-il être ce que vous prétendez?! »
+« Taisez-vous tous! Vous n'y connaissez rien. Il y a des dizaines d'années, Wang Lin pouvait m'affronter au combat sans armure de l'âme. Comment pourrait-il être ce que vous prétendez?! »
 
 « Même avec l'armure de l'âme, et alors? Cela signifie simplement qu'il a obtenu la reconnaissance des âmes étrangères pour obtenir leur puissance. Cela fait partie intégrante de sa propre culture! »
 
@@ -76,7 +76,7 @@ Après ses paroles, un silence soudain s'abattit sur les environs.
 
 Wang Lin restait silencieux, pensif, debout devant le réseau de transfert, le visage pâle. Sous les regards dubitatifs de l'assemblée, il leva les yeux vers l'Exalté Empyréen Hai Zi, visiblement exaltée et en colère, au loin.
 
-L'Empereur Céleste secoua la tête: « Petite Hai Zi, ne dis pas de bêtises. Que vous soyez des Exaltés Empyréens ou des Ascendants, l'essentiel est de se concentrer sur sa propre culture. S'appuyer sur une puissance extérieure a ses limites! La limite de ce Wang Lin est le 13e palais. Je crains que pour les centaines de milliers d'années à venir, il lui soit difficile de faire un seul pas de plus. Quel intérêt y a-t-il à atteindre temporairement un tel niveau? »
+L'Empereur Céleste secoua la tête: « Petite Hai Zi, ne dis pas de bêtises. Que vous soyez des Exaltés Empyréens ou des Ascendants, l'essentiel est de se concentrer sur sa propre culture. S'appuyer sur une puissance extérieure a ses limites! La limite de ce Wang Lin est le 13e palais. Je crains que pour les centaines, voire les milliers d'années à venir, il lui soit difficile de faire un seul pas de plus. Quel intérêt y a-t-il à atteindre temporairement un tel niveau? »
 
 « C'est une vérité que tous les cultivateurs doivent graver dans leur esprit: s'appuyer sur des forces extérieures ne fait que retarder votre propre progression. Wang Lin est un exemple pour vous tous! »
 
@@ -92,7 +92,7 @@ L'Empereur Céleste fixa Wu Feng, son expression devenant progressivement glacia
 
 « Comment peut-on comparer le titre de Grand Empyréen à une armure de l'âme? Wu Feng, je suis surpris que vous accordiez encore de l'importance à un tel individu. Même avec l'armure, le 13e palais était sa limite. Mais s'il obtenait le titre de Grand Empyréen, il franchirait aisément le 19e palais. Croyez-vous vraiment que ces deux choses soient comparables? »
 
-« Oublions le 19e palais. S'il parvient à franchir le 15e palais, je l'aiderai aujourd'hui même. Je publierai un édit sacré proclamant au monde qu'il est l'homme numéro un du clan céleste sous les Grands Empyréens! »
+« Oublions le 19e palais. S'il parvient à franchir le 15e palais, moi, Lian Daozhen, je rétablirai aujourd'hui même sa réputation. Je publierai un édit sacré proclamant au monde qu'il est l'homme numéro un du clan céleste sous les Grands Empyréens! »
 
 « À condition bien sûr qu'il y parvienne! »
 
@@ -110,7 +110,7 @@ Mais à cet instant précis, Wang Lin laissa échapper un soupir. Il leva les ye
 
 « Le 15e palais? Empereur Céleste, regardez bien! » L'expression de Wang Lin était calme, mais au plus profond de son corps, une force colossale s'accumulait. Soudain, elle explosa et il s'élança vers les cieux.
 
-Son action fit brusquement hésiter Dao Yi et fit froncer les sourcils à l'Empereur Céleste. Son corps en pleine dissipation se solidifia de nouveau pour fixer Wang Lin.
+Son action arrêta net Dao Yi et fit froncer les sourcils à l'Empereur Céleste. Son corps en pleine dissipation se solidifia de nouveau pour fixer Wang Lin.
 
 Les yeux de Wu Feng s'illuminèrent alors qu'il observait Wang Lin, qui s'élançait dans le ciel tel un dragon.
 

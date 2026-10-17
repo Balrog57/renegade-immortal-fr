@@ -20,7 +20,7 @@ Au centre de cette multitude, trois individus ne portaient pas de vert, mais du 
 
 La femme était d'une grande beauté; la tête baissée, elle consultait une boussole de la taille d'une paume.
 
-Parmi les trois, un jeune homme au visage de jade blanc rompit le silence après une courte réflexion: « Senior Frère Qian, Junior Sister Zhao, le massacre dans la Mer des Pilules dure déjà depuis sept jours. Si nous n'accélérons pas la cadence, je crains que nous ne puissions accomplir l'ordre des Ancêtres. »
+Parmi les trois, un jeune homme au visage de jade blanc rompit le silence après une courte réflexion: « Senior Frère Qian, Junior Sœur Zhao, le massacre dans la Mer des Pilules dure déjà depuis sept jours. Si nous n'accélérons pas la cadence, je crains que nous ne puissions accomplir l'ordre des Ancêtres. »
 
 L'autre jeune homme avait une apparence ordinaire, mais son regard pouvait soudainement se faire venimeux. Après avoir entendu les paroles du jeune homme au visage de jade, il répondit lentement: « Au plus tard dans quatre jours, ce massacre prendra fin et tous les cultivateurs du Taureau Céleste dans la Mer des Pilules seront morts! »
 
@@ -42,9 +42,9 @@ En dehors de ces trois lumières éclatantes, moins de dix points, bien que plus
 
 La femme sourit et leva sa main gauche. D'un geste gracieux de sa main semblable à du jade, elle fit apparaître une goutte de liquide noir dans sa paume. Ce liquide était cristallin et émettait une étrange lueur, dégageant une riche aura d'essence d'eau.
 
-« Avec ce trésor de la Secte du Démon Poison, le Liquide de Corruption aux Mille Raffinages, pensez-vous que les cultivateurs de la Mer des Pilules aient la moindre chance, mes frères? » demanda-t-elle en levant les yeux vers les deux jeunes gens.
+« Avec ce trésor de la Secte du Démon Poison, le Liquide de Corruption des Dix Mille Raffinements, pensez-vous que les cultivateurs de la Mer des Pilules aient la moindre chance, mes frères? » demanda-t-elle en levant les yeux vers les deux jeunes gens.
 
-Le jeune homme au visage de jade blanc sourit et répondit posément: « Nous ne devons pas être négligents. Puisque nos trois sectes ont uni leurs forces, aucun incident ne doit survenir et nous ne pouvons rien laisser paraître au Continent du Taureau Céleste. Les trois Ancêtres ont déjà commencé à utiliser des sorts pour empêcher quiconque de diviner l'avenir. Nous devons massacrer les cultivateurs du Taureau Céleste dans la Mer des Pilules et raffiner leur essence pour en faire une demi-pilule céleste. C'est cette pilule qui nous permettra de briser la barrière invisible entourant le Continent du Taureau Céleste! »
+Le jeune homme au visage de jade blanc sourit et répondit posément: « Nous ne devons pas être négligents. Puisque nos trois sectes ont uni leurs forces, aucun incident ne doit survenir et nous ne pouvons rien laisser paraître au Continent du Taureau Céleste. Les trois Ancêtres ont déjà commencé à utiliser des sorts pour empêcher quiconque de diviner l'avenir. Nous devons massacrer les cultivateurs du Taureau Céleste dans la Mer des Pilules et raffiner la Mer des Pilules pour la ramener à l'état de demi-pilule céleste. C'est cette demi-pilule qui nous permettra de faire exploser la barrière invisible entourant le Continent du Taureau Céleste! »
 
 Aucun des trois ne remarqua que sur la carte de la boussole, près du Continent du Taureau Céleste, se trouvait un point blanc tout à fait ordinaire.
 
@@ -56,7 +56,7 @@ Toutefois, condenser de l'essence d'eau à partir de l'eau de mer était une tâ
 
 Son Sens Divin fusionnant avec l'océan, il percevait le massacre qui se déroulait dans la Mer des Pilules. La zone entière était plongée dans le sang et le carnage.
 
-Le temps s'écoulait lentement. En un éclair, une journée passa. Durant cette période, plus d'une douzaine de groupes de cultivateurs en robes vertes survolèrent Wang Lin, mais aucun ne le détecta parmi les algues sous leurs pieds.
+Le temps s'écoulait lentement. En un éclair, une journée passa. Durant cette période, plusieurs dizaines de groupes de cultivateurs en robes vertes survolèrent Wang Lin, mais aucun ne le détecta parmi les algues sous leurs pieds.
 
 Après cette journée, la gigantesque Mer des Pilules avait baissé de 100 pieds, comme si l'eau s'était évaporée dans le néant. Cela commença à attirer l'attention des cultivateurs, mais en plein milieu du massacre, personne n'y prêta véritablement attention.
 
@@ -84,7 +84,7 @@ Une fois les deux partis, la femme, entourée de milliers de cultivateurs, fron�
 
 « Étrange... pourquoi le niveau de l'eau de la Mer des Pilules a-t-il autant chuté en une seule journée... » Son regard balaya tous les points blancs, y compris celui représentant Wang Lin.
 
-Cependant, le point blanc de Wang Lin était si banal qu'il n'attira pas son attention. Elle réfléchit un instant avant de laisser passer cette pensée. Elle reprit le déploiement de ses troupes pour collaborer avec les cultivateurs de la Secte du Démon Vert afin d'annihiler les derniers cultivateurs marginaux du Continent du Taureau Céleste.
+Cependant, le point blanc de Wang Lin était si banal qu'il n'attira pas son attention. Elle réfléchit un instant avant de laisser passer cette pensée. Elle reprit le déploiement de ses troupes pour collaborer avec les cultivateurs du Continent du Démon Vert afin d'annihiler les derniers cultivateurs marginaux du Continent du Taureau Céleste.
 
 Le massacre était incessant, mais Wang Lin ignorait tout cela, concentrant tous ses efforts sur l'absorption de l'eau de mer. Il était tel un gouffre sans fond, aspirant l'océan pour tenter d'en extraire l'essence.
 

@@ -24,7 +24,7 @@ Mais Wang Lin était différent. Sa force de combat réelle était infiniment su
 
 En conséquence, avec sa culture actuelle d'Exalté Doré empruntée, la puissance de combat qu'il pouvait déployer était encore plus immense.
 
-C'était aussi pour cette raison que Wang Lin pouvait combattre des êtres dépassant son niveau de culture après avoir fusionné ses pouvoirs anciens et célestes! Une autre raison pour laquelle Wang Lin était devenu si puissant ici, alors qu'il ne l'était pas autant dans le monde des grottes, était la présence de son avatar le plus puissant dans le vide!
+C'était aussi pour cette raison que Wang Lin pouvait combattre des êtres dépassant son niveau de culture après avoir fusionné le Dao Antique de son corps et sa culture! Une autre raison pour laquelle Wang Lin était devenu si puissant ici, alors qu'il ne l'était pas autant dans le monde des grottes, était la présence de son avatar le plus puissant dans le vide!
 
 La fusion de ces trois puissances était la raison pour laquelle Wang Lin possédait une telle force de combat!
 
@@ -36,13 +36,13 @@ Toutes ces fortunes pouvaient sembler insignifiantes prise individuellement, mai
 
 Alors que le trou noir se refermait, les 98 Wang Lin apparurent. Ces 98 clones n'utilisèrent pas 98 sorts différents; ils utilisèrent tous le même!
 
-Il exécuta la Charge du Taureau Céleste qu'il avait obtenue d'un fragment de mémoire, après avoir activé l'armure d'âme du Taureau Céleste 98 fois!
+Il exécuta 98 fois de suite la Charge du Taureau Céleste, un sort issu d'un fragment de la mémoire du Taureau Céleste obtenu après avoir revêtu l'armure d'âme du Taureau Céleste et porté sa culture à son sommet grâce à la force de l'âme empruntée!
 
 Cette Charge du Taureau Céleste pouvait parfaitement manifester la puissance empruntée.
 
 Les 98 corps levèrent tous les mains, formant des cornes sur leurs têtes. Dans un rugissement continu qui résonna, ils chargèrent en avant!
 
-La terre trembla et le ciel se mua en vide. Le soleil s'effondra dans les cieux, et les seules choses subsistant au monde étaient l'ancêtre de la Secte du Dao Démoniaque, son trou noir et les 98 Wang Lin!
+La terre trembla et le ciel se mua en vide. La lumière du soleil de l'après-midi s'effondra et se dissipa, et les seules choses subsistant au monde étaient l'ancêtre de la Secte du Dao Démoniaque, son trou noir et les 98 Wang Lin!
 
 Les 98 clones se dissipèrent jusqu'à ce qu'un seul corps ne subsiste. Celui-ci laissa échapper un rugissement fracassant après avoir déclenché 98 Charges du Taureau Céleste consécutives!
 
@@ -56,7 +56,7 @@ De loin, l'ombre gigantesque du Taureau Céleste enveloppa Wang Lin et percuta l
 
 Si cette scène était une peinture, elle deviendrait un trésor inestimable à travers tout le Continent Astral Immortel.
 
-*Rumble, rumble, rumble, rumble!!*
+*Boum, boum, boum, boum!!*
 
 Les 27 sorts à l'intérieur du trou noir furent pulvérisés. Le trou noir lui-même trembla et se désintégra sous l'impact!
 

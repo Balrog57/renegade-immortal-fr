@@ -8,19 +8,19 @@ slug: qualification-pour-lentree
 ---
 La tempête marine continuait de gronder, s'intensifiant de manière exponentielle. Elle provoquait l'apparition de nombreuses failles spatiales dans les environs. Tel un cri fantomatique, elle hurlait en déchaînant une force tranchante et terrifiante capable de briser le corps, se propageant dans toutes les directions depuis le centre du tumulte.
 
-Les centaines de membres du clan Antique venaient d'arriver et contemplaient la tempête devant eux. Ils ressentaient clairement l'aura destructrice qui émanait de celle-ci, capable de les anéantir sans effort.
+Les centaines de membres du clan Ancien venaient d'arriver et contemplaient la tempête devant eux. Ils ressentaient clairement l'aura destructrice qui émanait de celle-ci, capable de les anéantir sans effort.
 
-Cette force était suffisante pour faire trembler toute créature vivante de peur. Cependant, cela n'incluait pas Wang Lin ni les six Grands Empyréens Célestes. À leurs niveaux de culture, ils possédaient tous divers degrés de résistance à ces grondements... Cela ne représentait aucun problème pour eux.
+Cette force était suffisante pour faire trembler toute créature vivante de peur. Cependant, cela n'incluait pas Wang Lin ni les six Grands Empyréens. À leurs niveaux de culture, ils possédaient tous divers degrés de résistance à ces grondements... Cela ne représentait aucun problème pour eux.
 
 Wang Lin ignorait les rugissements. Lorsque ce son atteignait ses oreilles, il ne faisait pas trembler son cœur le moins du monde. C'était comme si ce bruit n'était pas digne de faire vibrer son âme, fût-il des milliers de fois plus puissant.
 
 Ayant atteint un tel niveau de culture, oubliez le Continent Astral Immortel; même dans l'immensité de l'espace extérieur, très peu de choses pouvaient encore l'ébranler.
 
-Cependant, les six Grands Empyréens Célestes n'étaient pas dans la même situation. Bien qu'ils ne fussent pas autant affectés par ces grondements, ils savaient que beaucoup de personnes derrière eux ne pourraient pas les supporter.
+Cependant, les six Grands Empyréens n'étaient pas dans la même situation. Bien qu'ils ne fussent pas autant affectés par ces grondements, ils savaient que beaucoup de personnes derrière eux ne pourraient pas les supporter.
 
-Song Tian n'hésita pas. Dès que les rugissements s'intensifièrent, il se plaça devant les membres du clan Antique. D'un revers de manche, un soleil géant apparut derrière lui; il utilisait son pouvoir de Grand Empyréen Céleste pour aider ceux qui le suivaient à résister au tumulte.
+Song Tian n'hésita pas. Dès que les rugissements s'intensifièrent, il se plaça devant les membres du clan Ancien. D'un revers de manche, un soleil géant apparut derrière lui; il utilisait son pouvoir de Grand Empyréen pour aider ceux qui le suivaient à résister au tumulte.
 
-Xuan Luo et le Grand Empyréen Ancien Ji firent de même. Grâce à l'effort conjugué de ces trois-là, ils purent s'assurer que les centaines de membres paniqués du clan Antique ne soient ni blessés, ni repoussés.
+Xuan Luo et le Grand Empyréen Ancien Ji firent de même. Grâce à l'effort conjugué de ces trois-là, ils purent s'assurer que les centaines de membres paniqués du clan Ancien ne soient ni blessés, ni repoussés.
 
 Le clan céleste procédait de la même manière. Jiu Di et ses compagnons agirent simultanément pour protéger les centaines de cultivateurs célestes contre les grondements.
 
@@ -36,13 +36,13 @@ Wang Lin savait déjà ce qui se passerait dans douze jours. Il jeta un regard a
 
 « Le Royaume Divin Immémorial est étrange, il est très différent de ce que nous connaissons! »
 
-Les six Grands Empyréens Célestes des deux côtés de la tempête se regardèrent, l'expression sombre.
+Les six Grands Empyréens des deux côtés de la tempête se regardèrent, l'expression sombre.
 
 Alors qu'ils continuaient à résister, le temps s'écoulait. Chaque jour, le rugissement de la tempête devenait plus violent. Lorsqu'il ne restait plus que neuf jours avant l'ouverture du Royaume Divin Immémorial, les grondements se propagèrent dans toute la vaste cuvette. Même les bordures reliées aux clans Antique et céleste pouvaient entendre le tumulte.
 
 Au crépuscule, neuf jours avant l'ouverture, les rugissements atteignirent un degré indescriptible.
 
-Même les six Grands Empyréens Célestes, déployant leur pleine puissance, sentaient qu'ils ne pourraient plus résister.
+Même les six Grands Empyréens, déployant leur pleine puissance, sentaient qu'ils ne pourraient plus résister.
 
 Les grondements étaient tels qu'ils brisaient le ciel et faisaient apparaître des fissures sur la terre. Les centaines de personnes protégées par les six Grands Empyréens commençaient à saigner de leurs orifices.
 
@@ -54,17 +54,17 @@ Jiu Di serra les dents et envoya un message divin:
 
 « Tous les cultivateurs en dessous du rang d'Exalté Doré, retirez-vous immédiatement et quittez la vaste cuvette! »
 
-À l'annonce de ses paroles, du côté du clan Antique, Song Tian et ses compagnons prirent également une décision. Parmi les centaines de personnes qu'ils protégeaient, ceux qui n'avaient pas réussi à passer les trois épreuves et les sept calamités quittèrent rapidement le centre du tumulte.
+À l'annonce de ses paroles, du côté du clan Ancien, Song Tian et ses compagnons prirent également une décision. Parmi les centaines de personnes qu'ils protégeaient, ceux qui n'avaient pas réussi à passer les trois épreuves et les sept calamités quittèrent rapidement le centre du tumulte.
 
-Un instant plus tard, il ne restait que moins de cent personnes de chaque côté de la tempête. Grâce à ce nombre réduit, la pression sur les six Grands Empyréens Célestes diminua considérablement.
+Un instant plus tard, il ne restait que moins de cent personnes de chaque côté de la tempête. Grâce à ce nombre réduit, la pression sur les six Grands Empyréens diminua considérablement.
 
 Wang Lin observait tout cela. Il restait silencieux et pensif, sans agir. En regardant la tempête marine, il vit que l'interstice dans la porte formé par les neuf piliers s'agrandissait légèrement.
 
-En un éclair, trois jours passèrent. Il ne restait plus que six jours avant l'ouverture du Royaume Divin Immémorial. Le grondement provenant de la porte devint encore plus intense qu'auparavant. Un tel phénomène n'était jamais arrivé lors des ouvertures précédentes du Royaume Divin Immémorial, ce qui plongea les six Grands Empyréens Célestes dans une grande anxiété.
+En un éclair, trois jours passèrent. Il ne restait plus que six jours avant l'ouverture du Royaume Divin Immémorial. Le grondement provenant de la porte devint encore plus intense qu'auparavant. Un tel phénomène n'était jamais arrivé lors des ouvertures précédentes du Royaume Divin Immémorial, ce qui plongea les six Grands Empyréens dans une grande anxiété.
 
 Ils ne pouvaient plus endurer cela. Ils devaient réduire le nombre de personnes, sinon ils finiraient par être affectés eux aussi.
 
-« Wang Lin! » Xuan Luo interpella Wang Lin. C'était la première fois qu'il lui adressait la parole depuis le début des grondements. En vérité, Song Tian et le Grand Empyréen Céleste Ji Antique avaient depuis longtemps placé leurs espoirs en Wang Lin; ils ne comprenaient simplement pas pourquoi Gu Dao ne s'était toujours pas manifesté.
+« Wang Lin! » Xuan Luo interpella Wang Lin. C'était la première fois qu'il lui adressait la parole depuis le début des grondements. En vérité, Song Tian et le Grand Empyréen Ancien Ji avaient depuis longtemps placé leurs espoirs en Wang Lin; ils ne comprenaient simplement pas pourquoi Gu Dao ne s'était toujours pas manifesté.
 
 Cependant, ce n'était pas le moment de se poser de telles questions. À l'appel de Xuan Luo, tous les regards se tournèrent vers Wang Lin.
 
@@ -78,7 +78,7 @@ D'un simple mouvement de sa main, Xuan Luo et ses alliés sentirent soudainement
 
 Xuan Luo et ses compagnons restèrent silencieux. Ils ressentaient également l'étrangeté de cette ouverture du Royaume Divin Immémorial. Il restait encore six jours, et il leur était difficile d'imaginer l'intensité des grondements à venir. Il était fort probable qu'ils dussent eux-mêmes se retirer.
 
-Le clan Antique bénéficiait de la protection de Wang Lin, mais du côté du clan céleste, sous la garde de Jiu Di et ses compagnons, ils furent contraints de réduire leur nombre.
+Le clan Ancien bénéficiait de la protection de Wang Lin, mais du côté du clan céleste, sous la garde de Jiu Di et ses compagnons, ils furent contraints de réduire leur nombre.
 
 « Cultivateurs d'Exalté Doré... Cultivateurs d'Exalté Empyréen, reculez et évacuez immédiatement! » Alors que la voix de Jiu Di résonnait, la majorité des cent cultivateurs restants réfléchirent en silence. Ils regardèrent la tempête marine avec regret avant de partir un à un, ne laissant que onze personnes.
 
@@ -86,7 +86,7 @@ Tous les Ascendant Empyréen n'étaient pas venus; ces onze individus étaient c
 
 Il ne restait plus que six jours.
 
-Durant ces six jours, l'endurance fut une agonie pour tous, excepté pour Wang Lin. Bien que le clan Antique fût nombreux, les paroles de Wang Lin les rendaient hésitants.
+Durant ces six jours, l'endurance fut une agonie pour tous, excepté pour Wang Lin. Bien que le clan Ancien fût nombreux, les paroles de Wang Lin les rendaient hésitants.
 
 Lorsque trois jours supplémentaires passèrent et qu'il n'en resta que trois, les grondements devinrent plusieurs fois plus puissants que lors des ouvertures passées du Royaume Divin Immémorial. Du côté du clan céleste, les onze Ascendant Empyréen partirent à contrecœur pour évacuer la vaste cuvette.
 
@@ -98,13 +98,13 @@ Les trois derniers jours furent les plus éprouvants. Un jour passa sans qu'ils 
 
 Cela provoqua l'effondrement du monde en d'innombrables fragments, transformant la réalité en un vide absolu. Jiu Di et ses compagnons pâlirent et n'hésitèrent pas à lier leurs sens divins pour tenter de résister par leur puissance combinée.
 
-Le clan Antique demeurait aussi calme que par le passé. Xuan Luo et les autres avaient l'impression que rien ne se passait. Cependant, en regardant l'autre camp, ils comprirent une fois de plus la puissance phénoménale de Wang Lin.
+Le clan Ancien demeurait aussi calme que par le passé. Xuan Luo et les autres avaient l'impression que rien ne se passait. Cependant, en regardant l'autre camp, ils comprirent une fois de plus la puissance phénoménale de Wang Lin.
 
 Lorsqu'il ne resta plus que deux jours avant l'ouverture du Royaume Divin Immémorial, Gu Dao arriva.
 
 Son arrivée fut silencieuse, comme s'il avait toujours été là. Il émergea du vide et s'assit aux côtés de Wang Lin. Il observa la tempête marine et poussa un soupir.
 
-« Xuan Luo, vous trois restez, et les autres, partez. » Après avoir parlé, il agita sa main droite vers les près de cent membres du clan Antique, qui disparurent lentement.
+« Xuan Luo, vous trois restez, et les autres, partez. » Après avoir parlé, il agita sa main droite vers les près de cent membres du clan Ancien, qui disparurent lentement.
 
 Wang Lin regarda Gu Dao sans dire un mot. Il continua de fixer la tempête marine. L'ouverture dans la porte de pierre était désormais bien plus vaste, et une lueur d'anticipation brillait dans ses yeux.
 

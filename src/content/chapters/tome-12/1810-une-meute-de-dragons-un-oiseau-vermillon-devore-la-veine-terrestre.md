@@ -106,7 +106,7 @@ Au moment où il prit cette forme, le feu se propagea de son corps pour l'envelo
 
 Du Qing possédait lui aussi une essence de feu!
 
-Si cette essence s'était manifestée spontanément, c'était parce que ce rugissement représentait le feu de la Secte du Taureau Céleste! Et Du Qing était un cultivateur d'essence de feu reconnu par le Continent du Taureau Céleste!
+Si cette essence s'était manifestée spontanément, c'était parce que ce rugissement représentait le feu du Continent du Taureau Céleste! Et Du Qing était un cultivateur d'essence de feu reconnu par le Continent du Taureau Céleste!
 
 S'il s'était agi d'une veine ordinaire, elle n'aurait pas eu le pouvoir d'affecter l'essence de feu de Du Qing. Cependant, cette branche enfantée ne différant pas de la veine principale, elle put produire un tel effet.
 

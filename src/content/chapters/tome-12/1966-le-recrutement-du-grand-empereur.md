@@ -38,7 +38,7 @@ Cette scène fit jaillir une lueur dorée dans les yeux du Grand Empyréen Dao Y
 
 Il faut dire qu'il était présent avec son corps véritable. Ce n'était ni un sens divin ni un avatar, mais son corps originel!
 
-« En effet digne d'être l'Ascendant Empyréen numéro un ayant franchi le 17e palais! Être capable de se rétablir sous ma pression est suffisant pour que tu sois qualifié de plus fort parmi les Grands Empyréens! »
+« En effet digne d'être l'Ascendant Empyréen numéro un ayant franchi le 17e palais! Être capable de se rétablir sous ma pression est suffisant pour que tu sois qualifié de plus fort sous les Grands Empyréens! »
 
 « Wang Lin, suis ce seigneur. Ce seigneur t'a promis jadis que si je ne mourrais pas, tu ne mourrais pas! » Le Grand Empyréen Dao Yi sourit. Il semblait avoir oublié qu'il avait renoncé à recruter Wang Lin lors de l'Épreuve Empyrée.
 

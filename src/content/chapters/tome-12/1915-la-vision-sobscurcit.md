@@ -38,7 +38,7 @@ Un fracas assourdissant retentit et toutes les sphères de foudre se désintégr
 
 Sa culture ne faisait pas le poids face à celle de Wang Lin!
 
-« Tu oses commettre un meurtre avant même la proclamation de l'édit? Quelle arrogance! Je suis le messager impérial chargé d'annoncer cet édit. Ne pas reculer, c'est défier l'autorité impériale! » La silhouette dorée vit Wang Lin et rugit immédiatement avant de se précipiter vers lui!
+« Tu oses tuer devant l'édit impérial? Quelle arrogance! Je suis le messager impérial chargé d'annoncer l'édit de l'Empereur Céleste. Ne pas reculer, c'est défier l'édit! » La silhouette dorée vit Wang Lin et rugit immédiatement avant de se précipiter vers lui!
 
 Dans sa charge, une lumière dorée jaillit de la silhouette, se transformant en un rideau d'or qui fonça sur Wang Lin. Une énergie céleste dense émanait de ce rideau, accompagnée d'un sentiment de majesté absolue.
 
@@ -46,11 +46,11 @@ En voyant cela, le maître de la Secte du Dao Démoniaque, dans sa folie, crut d
 
 « Dégage! » Un éclat de froideur brilla dans les yeux de Wang Lin alors qu'il rugissait vers le messager impérial qui arrivait. Il fit un geste de la main vers lui.
 
-Soudain, le monde changea de couleur et une empreinte de paume gigantesque apparut. Emportant avec elle la puissance du monde, elle vola vers le messager impérial.
+Soudain, le monde gronda et une empreinte de paume gigantesque apparut. Emportant avec elle la puissance du monde, elle vola vers le messager impérial.
 
 Dans un fracas de tonnerre, l'empreinte géante entra en collision avec le rideau de lumière dorée. Ce dernier s'effondra instantanément sous l'impact de la paume qui atteignit le messager.
 
-Alors que les grondements assourdissants étouffaient tous les autres sons du monde, le messager impérial recracha du sang et fut repoussé de mille pieds. Il parvint à peine à s'arrêter, crachant à nouveau du sang, le regard chargé d'incrédulité face à Wang Lin.
+Alors que les grondements assourdissants étouffaient tous les autres sons du monde, le messager impérial recracha du sang et fut repoussé de plusieurs milliers de pieds. Il parvint à peine à s'arrêter, crachant à nouveau du sang, le regard chargé d'incrédulité face à Wang Lin.
 
 « Empyréen... Une culture d'Exalté Empyréen!! »
 
@@ -60,11 +60,11 @@ Wang Lin fit un pas en avant et se retrouva instantanément aux côtés du maît
 
 Un grondement sourd retentit, son expression s'assombrit et l'aura de la mort envahit son corps. Repoussé, il fut suivi par Wang Lin tel une flèche qui lança un autre coup!
 
-Plus de cent ans plus tard, la scène à l'extérieur du Continent Terre-Meng — les têtes humaines volant dans les airs et Wang Lin tentant désespérément d'échapper au destin — surgit dans son esprit! Cette fois, il ne frappa pas, mais ouvrit la bouche et aspira!
+Plus de cent ans auparavant, la scène à l'extérieur du Continent Terre-Meng — les têtes humaines volant dans les airs et Wang Lin tentant désespérément d'échapper au destin — surgit dans son esprit, à chaque coup!
 
 « Meurs! » Wang Lin lança un coup de poing et le corps du maître de la Secte du Dao Démoniaque s'effondra. Son âme originelle hurla en tentant de s'échapper de son enveloppe dévastée.
 
-Tout ce qui s'était passé au Temple du Scorpion Vert et sa ténacité passèrent par l'esprit de Wang Lin. Une intention meurtrière pure jaillit de ses yeux.
+Tout ce qui s'était passé au Temple du Scorpion Démon Vert et sa ténacité passèrent par l'esprit de Wang Lin. Une intention meurtrière pure jaillit de ses yeux. Cette fois, il ne frappa pas, mais ouvrit la bouche et aspira!
 
 Cette dévoration sembla engendrer une force d'aspiration infinie. L'âme originelle du maître de la Secte du Dao Démoniaque poussa un hurlement de désespoir avant de périr.
 
@@ -101,10 +101,10 @@ Alors que son hurlement résonnait, son âme originelle se trouvait à moins de 
 
 La mission du messager impérial était de transmettre l'édit. Puisque celui qui devait le recevoir l'avait accepté, il n'hésita pas à l'ouvrir. Simultanément, sa voix résonna:
 
-« La lignée céleste perdure depuis les temps anciens jusqu'à ce jour. Le maître de la Secte du Dao Démoniaque sur le Continent du Démon Vert a osé offenser la puissance de la famille impériale. Il a comploté avec le serviteur du Démon Vert contre la famille impériale. S'il est encore en vie, détruisez-le ainsi que la Secte du Dao Démoniaque avant l'accomplissement de l'édit!!
+« La lignée céleste perdure depuis les temps anciens jusqu'à ce jour. Le maître de la Secte du Dao Démoniaque sur le Continent du Démon Vert a osé offenser la puissance de la famille impériale. Il a comploté avec le serviteur du Démon Vert contre la famille impériale. S'il est encore en vie, qu'il se détruise lui-même, ainsi que la Secte du Dao Démoniaque, devant mon édit!!
 
 « S'il est mort et s'il a été tué par un homme nommé Wang Lin, alors Wang Lin devra accepter l'édit. Venez sur le Continent Central. J'ai appris comment vous avez aidé Dao Fei, et je ne l'ai pas oublié!! »
 
 Alors que le messager impérial lisait l'édit, de la sueur perla sur son front. Il n'avait pu l'ouvrir qu'une fois la personne désignée présente. C'était la première fois qu'il voyait le contenu, et après sa lecture, il fut stupéfait.
 
-Si un tel être existait, il était inutile de mentionner le maître de la Secte du Dao Démoniaque. Après avoir été totalement dévoré par Wang Lin, il entendit la fin de l'édit et sa vision s'obscurcit...
+Si le messager lui-même en restait stupéfait, que dire du maître de la Secte du Dao Démoniaque? Au moment où il fut totalement dévoré par Wang Lin, il entendit le contenu de l'édit et sa vision s'obscurcit...

@@ -42,21 +42,21 @@ Dans cette pénombre, la silhouette d'une femme apparut au loin, glissant comme 
 
 Elle observa l'antre avec hésitation. Après avoir longuement réfléchi en silence, elle était sur le point de parler quand la voix calme de Wang Lin résonna depuis l'intérieur.
 
-« La camarade cultivatrice Yan Lu vient me rendre visite au plus profond de la nuit. Pourquoi hésiter ainsi dehors? Je vous en prie, entrez. »
+« La camarade cultivatrice Yan Luan vient me rendre visite au plus profond de la nuit. Pourquoi hésiter ainsi dehors? Je vous en prie, entrez. »
 
 Alors que les paroles de Wang Lin s'évanouissaient, la porte de la grotte s'ouvrit silencieusement, révélant une ouverture. L'entrebâillement était plongé dans un noir absolu, rendant tout intérieur invisible.
 
-Pour Yan Lu, cette ouverture ressemblait à une gueule prête à dévorer son cœur, l'attendant de pied ferme.
+Pour Yan Luan, cette ouverture ressemblait à une gueule prête à dévorer son cœur, l'attendant de pied ferme.
 
-Après une ultime hésitation, Yan Lu serra les dents. Le doute pesait sur son cœur, et tant qu'il ne serait pas dissipé, elle ne pourrait trouver la paix. Elle se transforma en fumée et se glissa à travers l'ouverture.
+Après une ultime hésitation, Yan Luan serra les dents. Le doute pesait sur son cœur, et tant qu'il ne serait pas dissipé, elle ne pourrait trouver la paix. Elle se transforma en fumée et se glissa à travers l'ouverture.
 
 Dès qu'elle fut entrée, la porte de la grotte se referma, ne laissant plus passer la moindre parcelle de lumière.
 
-Une fois à l'intérieur, Yan Lu s'immobilisa immédiatement. Elle regarda devant elle. À moins d'avoir utilisé sa culture pour aiguiser sa vue, l'obscurité y était totale.
+Une fois à l'intérieur, Yan Luan s'immobilisa immédiatement. Elle regarda devant elle. À moins d'avoir utilisé sa culture pour aiguiser sa vue, l'obscurité y était totale.
 
 Elle distinguait vaguement la silhouette de Wang Lin assis au loin, ce qui lui imposait une immense pression. L'origine de cette sensation venait des deux paris qu'elle avait conclus au Pavillon des Écritures de l'Âme.
 
-En scrutant les environs, Yan Lu perçut une pointe d'intention meurtrière. Cette intention était très légère et ne lui était pas destinée; c'était une aura naturelle émanant de quelqu'un qui revenait tout juste d'un massacre.
+En scrutant les environs, Yan Luan perçut une pointe d'intention meurtrière. Cette intention était très légère et ne lui était pas destinée; c'était une aura naturelle émanant de quelqu'un qui revenait tout juste d'un massacre.
 
 Seuls les cultivateurs pouvaient percevoir ce genre d'aura.
 
@@ -64,27 +64,27 @@ Sans qu'elle sache pourquoi, dès qu'elle ressentit cette intention meurtrière,
 
 Elle eut l'impression d'avoir vu Wang Lin terrasser Liu Zhiyuan en un instant.
 
-« Camarade Yan Lu, la nuit est avancée et vous restez là, immobile dans ma grotte, sans dire un mot. Prévoyez-vous de rester ainsi toute la nuit? » lança Wang Lin d'une voix sereine.
+« Camarade Yan Luan, la nuit est avancée et vous restez là, immobile dans ma grotte, sans dire un mot. Prévoyez-vous de rester ainsi toute la nuit? » lança Wang Lin d'une voix sereine.
 
-Yan Lu réfléchit un instant avant que sa voix ne résonne lentement dans la cavité: « Avez-vous tué le cultivateur de stade initial de la Tribulation du Vide du Continent du Démon Vert? »
+Yan Luan réfléchit un instant avant que sa voix ne résonne lentement dans la cavité: « Avez-vous tué le cultivateur de stade initial de la Tribulation du Vide du Continent du Démon Vert? »
 
 « Ce devait être vous. Dans ce palais souterrain, hormis l'Ancien Lu Wenran, personne d'autre n'aurait pu accomplir un tel exploit en si peu de temps. Si quelqu'un l'a fait, c'est forcément vous! »
 
-« Les autres ignorent votre puissance, mais moi, je la connais bien », dit doucement Yan Lu en fixant Wang Lin qui se tapissait dans l'ombre. « Wang Lin... est-ce bien vous? »
+« Les autres ignorent votre puissance, mais moi, je la connais bien », dit doucement Yan Luan en fixant Wang Lin qui se tapissait dans l'ombre. « Wang Lin... est-ce bien vous? »
 
 Wang Lin marqua une pause et répondit calmement: « Sans commentaire! » Il n'y eut aucune fluctuation dans son ton, comme si de rien n'était.
 
-À ces mots, Yan Lu esquissa un sourire. De sa main délicate, elle écarta quelques mèches de cheveux derrière ses oreilles. Elle fixa Wang Lin et reprit d'un ton suave:
+À ces mots, Yan Luan esquissa un sourire. De sa main délicate, elle écarta quelques mèches de cheveux derrière ses oreilles. Elle fixa Wang Lin et reprit d'un ton suave:
 
 « Je ne sais pas pourquoi vous refusez de l'admettre. Votre aura est instable et il est évident que vous en avez payé le prix. Après tout, un cultivateur de la Tribulation du Vide ne meurt pas si facilement... »
 
 « Si vous avez besoin d'aide, je peux vous en fournir... À condition qu'une fois un cultivateur de la Tribulation du Vide tué, nous partagions les bénéfices en deux! Je vous prie de m'excuser pour ce dérangement, j'espère que l'Ancien Wang ne m'en voudra pas. C'est ma façon de vous prouver ma sincérité et ma bonne volonté! »
 
-C'était là la véritable raison de la venue de Yan Lu. Elle sortit une pilule, la déposa au sol, puis s'inclina devant Wang Lin. Une légère brise souffla à l'entrée de la grotte, et elle disparut.
+C'était là la véritable raison de la venue de Yan Luan. Elle sortit une pilule, la déposa au sol, puis s'inclina devant Wang Lin. Une légère brise souffla à l'entrée de la grotte, et elle disparut.
 
-En définitive, les réponses de Wang Lin aux interrogations incessantes de Yan Lu n'avaient été que deux mots simples: « Non ». Après le départ de la femme, Wang Lin ouvrit les yeux, et deux éclats semblables à des flammes brillèrent dans l'obscurité.
+En définitive, les réponses de Wang Lin aux interrogations incessantes de Yan Luan n'avaient été que ces quelques mots: « Sans commentaire ». Après le départ de la femme, Wang Lin ouvrit les yeux, et deux éclats semblables à des flammes brillèrent dans l'obscurité.
 
-Il fixa la porte, pensa au dos de Yan Lu qui s'éloignait, puis réfléchit. D'un geste de la main droite, il fit voler la pilule vers lui. Il l'examina avec soin. Elle dégageait un parfum exquis; c'était manifestement une pilule médicinale extraordinaire pour la guérison. Un léger sourire se dessina sur les lèvres de Wang Lin.
+Il fixa la porte, pensa au dos de Yan Luan qui s'éloignait, puis réfléchit. D'un geste de la main droite, il fit voler la pilule vers lui. Il l'examina avec soin. Elle dégageait un parfum exquis; c'était manifestement une pilule médicinale extraordinaire pour la guérison. Un léger sourire se dessina sur les lèvres de Wang Lin.
 
 Le temps s'écoula lentement. Deux jours passèrent bientôt. Les cultivateurs du Continent du Démon Vert, postés à la lisière de la Prairie de l'Extrême Ciel, restaient très calmes et ne déclenchèrent pas de second combat. Ils semblaient attendre quelque chose et continuaient d'envoyer des dizaines d'éclaireurs observer la prairie.
 
@@ -102,7 +102,7 @@ La question de l'identité du tueur du cultivateur de la Tribulation du Vide de 
 
 Bien qu'il doutât que Wang Lin possède une telle capacité, c'était une question d'une importance capitale. Il convoqua l'un des trois vieillards, Zhou. Après lui avoir transmis ses ordres, le vieil homme sortit de la grotte.
 
-Durant ces deux jours, Wang Lin avait largement récupéré. Au crépuscule du deuxième jour, un autre invité arriva devant sa grotte après le passage de Yan Lu. Un nouvel invité non désiré!
+Durant ces deux jours, Wang Lin avait largement récupéré. Au crépuscule du deuxième jour, un autre invité arriva devant sa grotte après le passage de Yan Luan. Un nouvel invité non désiré!
 
 « Camarade cultivateur Wang Lin de la Secte de la Grande Âme. Je vous demande de cesser votre culture pour patrouiller durant la nuit! » L'homme qui parlait était le vieillard nommé Zhou, exécutant les ordres de Lu Wenran.
 

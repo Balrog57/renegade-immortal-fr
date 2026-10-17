@@ -36,7 +36,7 @@ La septième marche, la huitième! Wang Lin atteignit la 208e marche. Les veines
 
 Mais son regard demeurait inébranlable. Il sentait ses pouvoirs célestes et anciens fusionner rapidement sous cette pression. À cet instant précis, il sentit que quelque chose changeait!
 
-« Le pouvoir ancien est à l'extérieur et la culture céleste à l'intérieur. La fusion du pouvoir céleste et ancien en un seul... » Wang Lin leva le pied et franchit la neuvième puis la dixième marche pour atteindre la 210e!
+« Le corps ancien à l'extérieur, la culture d'essence à l'intérieur. La fusion du pouvoir céleste et ancien en un seul... » Wang Lin leva le pied et franchit la neuvième puis la dixième marche pour atteindre la 210e!
 
 Au moment où son pied se posa, une infime parcelle de sa culture d'essence et de son pouvoir ancien fusionna enfin sous l'intense pression extérieure!
 
@@ -80,7 +80,7 @@ Cependant, sous une telle pression, même s'il pouvait reconstruire son corps de
 
 Mais cette pression mortelle était l'outil parfait pour fusionner ses pouvoirs célestes et anciens. Wang Lin poussa un rugissement et planta son pied sur la 220e marche!
 
-Des bruits de déchirement résonnèrent follement à travers le monde. Le pied de Wang Lin se désintégra en gaz noir des dizaines de fois avant qu'il ne parvienne enfin à se stabiliser!
+Des détonations résonnèrent follement à travers le monde. Le pied de Wang Lin se désintégra en gaz noir des dizaines de fois avant qu'il ne parvienne enfin à se stabiliser!
 
 Dès qu'il fut immobile, un son retentit soudainement dans ce ciel doré et cette terre noire. Ce son n'était pas très net au début, mais bientôt, il balaya l'horizon, devenant plus distinct.
 
@@ -116,6 +116,6 @@ Le tonnerre résonna et fusionna avec le chant du vent. Le souffle et la foudre 
 
 « À la naissance de l'Ancêtre Ancien, neuf chants l'accompagnèrent. Si les neuf chants apparaissent tous, ils peuvent composer une chanson de naissance... Depuis les temps anciens, la rumeur dit que lorsque les neuf chants et les trois signes se manifestent sur le Continent Astral Immortel, le successeur de l'Ancêtre Céleste et de l'Ancêtre Ancien apparaîtra... » Xuan Luo regarda Wang Lin. Il eut soudain l'impression de ne plus rien comprendre à son disciple...
 
-« Dans la grotte, j'ai aussi vu chez lui... des yeux argentés... »
+« Dans le monde des grottes, j'ai aussi vu chez lui... des yeux argentés... »
 
 « Ce n'est qu'une rumeur qui parcourt le Continent Astral Immortel... Serait-ce lui? » Xuan Luo sombra dans une transe, peinant à croire à tout ce qui venait de se produire.

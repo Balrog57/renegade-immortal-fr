@@ -24,11 +24,11 @@ C'était là la clé de l'Art du Sort Rapide; c'était ce qui avait attiré Wang
 
 « Testons la rapidité de mon corps! » Wang Lin leva les yeux et son corps s'élança. Bien qu'il fût toujours assis sous le soleil, la lumière solaire se déforma et un second Wang Lin apparut à trente pieds de là.
 
-Ce second Wang Lin resta immobile en souriant. Tandis qu'il avançait, la lumière solaire se distordit à nouveau et un troisième Wang Lin apparut à cent pieds de distance.
+Ce second Wang Lin se tenait là en souriant. Tandis qu'il avançait d'un pas tranquille, la lumière solaire se distordit à nouveau et un troisième Wang Lin apparut à cent pieds de distance.
 
 Le troisième Wang Lin fronça les sourcils et leva les yeux vers le ciel. On ignorait ce qu'il pensait.
 
-Bientôt, la lumière solaire continua de se déformer alors que la quatrième, la cinquième, la sixième... jusqu'à ce qu'un total de 98 silhouettes apparaissent! Certains étaient assis, d'autres volaient, certains marchaient, d'autres incantaient des sorts ou agitaient les poings. Chacune était différente et, au premier regard, le spectacle était saisissant.
+Bientôt, la lumière solaire continua de se déformer alors que la quatrième, la cinquième, la sixième... jusqu'à ce qu'un total de 98 silhouettes apparaissent! Certains étaient assis, d'autres volaient, certains marchaient, d'autres incantaient des sorts ou agitaient les poings. Chacune était différente et, dans ce rayon de dix mille pieds, le spectacle était saisissant au premier regard.
 
 La 98e figure s'assit à côté de la première. Les deux se ressemblaient trait pour trait, seules leurs expressions différaient.
 
@@ -52,7 +52,7 @@ Il était très simple d'atteindre une telle vitesse avec l'aide de sorts, mais 
 
 « Enfin, le plus difficile sera les essences éthérées. Si je peux comprendre deux autres essences éthérées et combiner les cinq, je devrais atteindre le sommet de la Tribulation du Vide, au rang d'Exalté Empyréen! »
 
-« Après cela, si toutes mes essences forment leurs propres Corps Véritables d'Essence, alors avec ces trois corps, mon niveau de culture dépassera celui d'Exalté Empyréen pour atteindre un point où je ne serai second que devant les Grands Empyréens! »
+« Après cela, si toutes mes essences forment leurs propres Corps Véritables d'Essence, alors avec ces trois corps, mon niveau de culture dépassera celui d'Exalté Empyréen pour atteindre un point où je ne serai inférieur qu'aux Grands Empyréens! »
 
 « Bien que j'ignore la méthode pour devenir un Grand Empyréen, le Maître a dit que cela exigeait une chance immense et l'ouverture du Royaume Divin Immémorial... »
 
@@ -84,7 +84,7 @@ En un instant, le fracas assourdissant disparut du monde, comme si une pièce br
 
 Une silhouette apparut à mille pieds de Wang Lin!
 
-Le vieil homme aux cheveux roux portait une robe pourpre bordée d'un motif Tai Chi sur l'épaule droite. Ce motif était rouge feu, comme s'il incarnait le Dao lui-même!
+Le vieil homme aux cheveux roux portait une robe pourpre ornée de liserés dorés, avec un motif Tai Chi sur le pan droit. Ce motif était rouge feu, comme s'il incarnait le Dao lui-même!
 
 Le vieillard resta là et, après un long moment, fixa Wang Lin en disant: « Est-ce toi qui as détruit ma Secte du Dao Démoniaque? » Il était d'un calme absolu, ne montrant aucune émotion. Pourtant, sa voix déclencha d'innombrables échos de plus en plus intenses. Finalement, le ciel gronda, la terre rugit, et une onde de choc terrifiante frappa le corps de Wang Lin.
 

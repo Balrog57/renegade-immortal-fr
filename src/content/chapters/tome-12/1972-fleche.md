@@ -8,7 +8,7 @@ slug: fleche
 ---
 Dans les rues de la ville orientale, le corps élancé d'un dragon marin de cent pieds de long fendait l'air à toute vitesse. Cependant, il n'osait pas voler trop haut, car une pression terrifiante régnait en ces lieux; s'il s'élevait trop, ce serait fatal.
 
-Le dragon marin était couvert de cicatrices au cours de sa fuite. Une flèche noire lui transperçait l'abdomen, libérant une puissance qui consumait sa vitalité. Une aura de gaz noir enveloppait la créature.
+Le dragon marin était couvert de cicatrices au cours de sa fuite. Une flèche noire, plantée à moitié dans son abdomen, libérait une puissance qui consumait sa vitalité. Une aura de gaz noir enveloppait la créature.
 
 Sur son dos, Liu Jinbiao bouillonnait de rage, bien qu'il fût dans un état lamentable. La flèche précédente avait jailli avec une soudaineté absolue. S'il n'avait pas été protégé par le dragon marin, il serait déjà mort.
 
@@ -20,7 +20,7 @@ Derrière le dragon marin, une silhouette noire semblait fusionner avec la nuit.
 
 Dès l'apparition de la flèche, toute l'énergie céleste environnante sembla se condenser en elle.
 
-Depuis que Liu Jinbiao et le dragon marin avaient commencé leur fuite, à peine dix respirations s'étaient écoulées. Le poursuivant venait déjà de décocher une seconde flèche!
+Depuis que Liu Jinbiao et le dragon marin avaient commencé leur fuite, une dizaine de respirations seulement s'étaient écoulées. Le poursuivant venait déjà de décocher une seconde flèche!
 
 Cette nouvelle flèche était imprégnée d'une intention meurtrière glaciale, comme si elle avait pour dessein d'annihiler instantanément le dragon et Liu Jinbiao.
 
@@ -30,7 +30,7 @@ La silhouette qui les traquait esquissa un sourire froid. Une fois décochée, s
 
 Cependant, à cet instant précis, le sourire narquois s'effaça du visage de l'assaillant. Ses pupilles se rétractèrent et une terreur profonde l'envahit.
 
-Au moment où la flèche allait frapper le dragon et Liu Jinbiao, une silhouette vêtue d'un manteau et d'une capuche surgit subitement. Son apparition fut si soudaine qu'elle semblait s'être imposée à l'existence même.
+Au moment où la flèche allait frapper le dragon et Liu Jinbiao, une silhouette vêtue d'un manteau de paille et coiffée d'un chapeau de bambou surgit subitement. Son apparition fut si soudaine qu'elle semblait s'être imposée à l'existence même.
 
 Une fois apparu, il leva simplement la tête, révélant un regard éblouissant. La lumière dorée de ses yeux se posa sur la flèche et provoqua son éclatement.
 
@@ -80,7 +80,7 @@ Dès qu'il dépassa les deux lions de pierre, ceux-ci ouvrirent soudainement les
 
 Sous ces rugissements, deux ombres gigantesques jaillirent des statues. Deux lions de plusieurs milliers de pieds de haut s'élancèrent vers Wang Lin.
 
-Wang Lin ne leva pas les yeux et continua sa marche vers le portail ouvert, son manteau et sa capuche toujours ajustés. En un éclair, les deux lions convergèrent, mais lorsqu'ils furent à moins de dix pieds de lui, ils poussèrent des hurlements de douleur. Ils se dissipèrent comme la brume face à un vent violent.
+Wang Lin ne leva pas les yeux et continua sa marche vers le portail ouvert, son manteau de paille et son chapeau de bambou toujours en place. En un éclair, les deux lions convergèrent, mais lorsqu'ils furent à moins de cent pieds de lui, ils poussèrent des hurlements de douleur. Ils se dissipèrent comme la brume face à un vent violent.
 
 Des craquements retentirent et des fissures parcoururent les deux lions de pierre avant qu'ils ne volent en éclats.
 
@@ -100,7 +100,7 @@ Sans s'arrêter, Wang Lin leva la main droite et l'agita. Instantanément, une e
 
 Un fracas tonitruant retentit et la formation s'effondra, bien que la paume se soit également affaiblie. Wang Lin franchit le seuil et passa au travers de l'empreinte, qui finit par disparaître.
 
-« Ils ont instantanément condensé une puissance équivalente à celle d'un Exalté Empyréen du sixième palais. » Le manteau de Wang Lin resta parfaitement en place alors qu'il pénétrait dans le manoir.
+« Ils ont instantanément condensé une puissance équivalente à celle d'un Exalté Empyréen du sixième palais. » Le manteau de paille et le chapeau de Wang Lin restèrent parfaitement en place alors qu'il pénétrait dans le manoir.
 
 Les centaines de silhouettes, hommes et femmes, étaient pétrifiées par l'horreur et l'incrédulité. Ils avaient une confiance absolue en cette attaque; même des Exaltés Empyréens auraient eu du mal à la contrer, mais cet homme l'avait balayée d'un simple revers de main.
 

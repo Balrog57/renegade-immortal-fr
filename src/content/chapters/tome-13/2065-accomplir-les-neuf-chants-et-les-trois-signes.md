@@ -32,21 +32,21 @@ Après la durée d'un bâton d'encens, Gu Dao regarda Wang Lin d'un regard compl
 
 Avec son niveau de culture actuel, il était incapable de franchir cette étape.
 
-« Peut-être ne pourrai-je vraiment pas te retenir... » Gu Dao prit une profonde inspiration et la complexité de son regard se mua en détermination alors qu'il poursuivait: « Cependant, je ne peux pas abandonner ainsi. J'ai passé ma vie entière à méditer sur le Monde d'un Seul Dao! »
+« Peut-être ne pourrai-je vraiment pas te retenir... » Gu Dao prit une profonde inspiration et la complexité de son regard se mua en détermination alors qu'il poursuivait: « Cependant, je ne peux pas abandonner ainsi. J'ai passé ma vie entière à méditer sur un Ciel de Dao! »
 
-« Je l'appelle le "Monde d'un Seul Dao" car il est forgé par ma foi envers le clan Antique. Je ne suis peut-être pas aussi puissant que l'Ancêtre Antique, mais ma foi est différente de la sienne! »
+« Je l'appelle le "Ciel de Dao" car il est forgé par ma foi envers le clan Antique. Je ne suis peut-être pas aussi puissant que l'Ancêtre Antique, mais ma foi est différente de la sienne! »
 
 « Il avait la foi qu'il pouvait se transformer en monde, et à cause de cette foi, je ne pouvais quitter le clan Antique. Peut-être que dans l'esprit de l'Ancêtre Antique, la terre des célestes n'était pas un monde qu'il avait formé, mais un lieu qu'il détestait. »
 
 « Ma foi consiste à croire que le ciel ne peut occulter mes yeux, que la terre est incapable d'entraver mon corps, que le soleil, la lune et tout le Continent Astral Immortel sont incapables d'arrêter mon cœur! »
 
-« Avec le Monde d'un Seul Dao, mon cœur est le dao, mon dao piétine les cieux, les cieux deviennent des marches, et je piétine les cieux pour contempler la vérité!! » Après avoir parlé, Gu Dao agita la main vers le ciel.
+« Avec un Ciel de Dao, mon cœur est le dao, mon dao piétine les cieux, les cieux deviennent des marches, et je piétine les cieux pour regarder au loin!! » Après avoir parlé, Gu Dao agita la main vers le ciel.
 
 Le ciel gronda et un vortex colossal enveloppa toute la vaste cuvette, comme si la fin du monde était arrivée. La main droite de Gu Dao pointa Wang Lin.
 
 « Tu es les cieux! » La voix de Gu Dao résonna comme le tonnerre, portée par une foi puissante. Alors qu'il pointait du doigt, des ondulations apparurent autour de Wang Lin. Ce dernier ressentit quelque chose et leva les yeux pour voir un pied géant surgir du vortex, s'abattant sur lui!
 
-Après deux cents ans, Wang Lin ressentit à nouveau une crise de vie ou de mort. Ceux qui étaient à demi-pas du stade du Piétinement des Cieux possédaient une puissance effrayante. Wang Lin avait compris l'étape du piétinement des cieux en observant cette figure familière. Gu Dao avait utilisé son incroyable sagesse et d'innombrables années de foi pour concevoir son propre dao du piétinement des cieux!
+Après deux cents ans, Wang Lin ressentit à nouveau une crise de vie ou de mort. Tous ceux du stade du Piétinement des Cieux possédaient une puissance suprême. Wang Lin avait compris l'étape du piétinement des cieux en observant cette figure familière. Gu Dao avait utilisé son incroyable sagesse et d'innombrables années de foi pour concevoir son propre dao du piétinement des cieux!
 
 « Tous les êtres vivants aspirent à piétiner les cieux. Ceux qui ne parviennent pas à réussir manquent de foi, de volonté... » Cette sentence était gravée devant le huitième pont, et Wang Lin l'avait vue la seconde fois qu'il s'était rendu aux Ponts du Piétinement des Cieux.
 
@@ -54,7 +54,7 @@ Après deux cents ans, Wang Lin ressentit à nouveau une crise de vie ou de mort
 
 Tout comme il avait répondu aux trois questions de Li Qianmei dans le monde des grottes, le monde était un cercle, et à l'extérieur de ce cercle se trouvait un autre cercle...
 
-« Très peu de gens sont extraordinaires dès la naissance... Tous les êtres vivants du monde désirent l'extraordinaire. Ils aspirent à la liberté pour ne pas être contrôlés par autrui. La loi de ce mot est un cercle; la prédation des faibles par les forts dans le monde de la culture est un cercle; et ce monde entier est une cage circulaire... »
+« Très peu de gens sont extraordinaires dès la naissance... Tous les êtres vivants du monde désirent l'extraordinaire. Ils aspirent à la liberté pour ne pas être contrôlés par autrui. Les lois du monde mortel sont des cercles; la pauvreté, la richesse et la médiocrité sont des cercles; la prédation des faibles par les forts dans le monde de la culture est un cercle; et ce monde entier est une cage circulaire... »
 
 « Le ciel radieux et le ciel étoilé sont également des cercles! »
 
@@ -66,7 +66,7 @@ Wang Lin murmura tandis qu'il observait le pied gigantesque qui tombait du ciel.
 
 « Si la vie et la mort étaient une corde, d'innombrables vies et morts se lieraient pour former des cercles. Ces cercles sans fin formeraient un filet, et ce filet serait le karma. Ce vaste filet de karma servirait à capturer soi-même dans le fleuve de la réincarnation. Le fleuve de la réincarnation contient le vrai et le faux, et seule une paire d'yeux capable de discerner le vrai du faux peut lancer le filet pour s'en extraire. »
 
-« Après avoir complété mon essence du vrai et du faux dans la Secte Dong Lin il y a des centaines d'années, j'avais ressenti l'essence de la réincarnation. Pourtant, au cours des siècles passés, je ne comprenais toujours pas ce qu'était la réincarnation... »
+« Après avoir complété mon essence du vrai et du faux dans la Secte Dong Lin il y a des centaines d'années, j'avais compris que la réincarnation était la quatrième essence éthérée. Pourtant, au cours des siècles passés, je ne comprenais toujours pas ce qu'était la réincarnation... »
 
 « Qu'est-ce que la réincarnation? Je pensais à l'origine qu'il s'agissait d'une loi régissant l'au-delà. Ce n'est que lors de l'apparition de l'Enseignant Impérial du Dao Antique que j'ai découvert que, pour véritablement ressusciter Wan Er, je devais utiliser le pouvoir de la réincarnation dans le Royaume Divin Immémorial... »
 
@@ -84,7 +84,7 @@ Wang Lin murmura tandis qu'il observait le pied gigantesque qui tombait du ciel.
 
 C'était le bruit du vent!
 
-C'était le chant du clan Antique! J'étais le premier des neuf chants, et après mon apparition, les huit autres suivirent. C'étaient le ciel, la terre, le vent, le tonnerre, le nuage, la pluie, les organes internes, le corps, et enfin le chant du sang!
+C'était le chant du clan Antique! C'était le premier des neuf chants, et après mon apparition, les huit autres suivirent. C'étaient le ciel, la terre, le vent, le tonnerre, le nuage, la pluie, les organes internes, le corps, et enfin le chant du sang!
 
 Le chant résonna violemment depuis les cieux, depuis le corps de Wang Lin et depuis le monde entier.
 
@@ -102,7 +102,7 @@ Les neuf chants et les trois signes étaient apparus sur le corps de Wang Lin lo
 
 Dans le palais du Dao Antique, ils étaient apparus une seconde fois. Les neuf chants étaient là, mais l'un des trois signes manquait toujours.
 
-Désormais, au centre de la vaste cuvette, aux abords de la tempête marine et sous le Monde d'un Seul Dao du Grand Empyréen Gu Dao, les neuf chants et les trois signes apparaissaient pour la troisième fois!
+Désormais, au centre de la vaste cuvette, aux abords de la tempête marine et sous le Ciel de Dao du Grand Empyréen Gu Dao, les neuf chants et les trois signes apparaissaient pour la troisième fois!
 
 Pourtant, cette troisième apparition ne comportait toujours que les neuf chants et manquait encore le troisième signe. C'était comme s'il manquait quelque chose, une pièce maîtresse indispensable!
 

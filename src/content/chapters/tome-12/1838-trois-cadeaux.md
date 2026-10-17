@@ -14,7 +14,7 @@ En contemplant la boîte, Wang Lin resta pensif, puis ses yeux s'illuminèrent e
 
 À l'instant même où le sceau fut retiré, Wang Lin sentit clairement une force étrange pénétrer son corps. Elle y circula une fois, puis repartit rapidement, comme si elle jugeait si la bonne personne avait ouvert la boîte.
 
-Le papier de scellement sembla vieillir de plusieurs millénaires entre les mains de Wang Lin, se transformant en poussière sous ses yeux. Seule la boîte flottait, immobile, devant lui.
+Le papier de scellement sembla traverser d'innombrables années entre les mains de Wang Lin, se transformant en poussière sous ses yeux. Seule la boîte flottait, immobile, devant lui.
 
 L'expression de Wang Lin devint sérieuse. Lors de la libération du sceau, il avait ressenti une fluctuation émanant de la boîte. Cette fluctuation était difficile à détecter et facile à manquer.
 
@@ -70,9 +70,9 @@ Ce troisième objet était bien plus nécessaire pour Wang Lin que les deux pré
 
 Même après la formation de son corps véritable d'essence de feu, son niveau de culture n'avait pas progressé; cela avait seulement rendu ses sorts plus féroces.
 
-« J'ai déjà sept essences. Une fois que cette essence aquatique sera complète, j'en aurai huit et j'atteindrai le sommet du Vide Spirituel. Si je peux obtenir une neuvième essence après cela, je pourrai les fusionner en une seule pour briser le stade du Vide Spirituel et devenir un cultivateur du Néant Arcanique! »
+« J'ai déjà sept essences. Une fois que cette essence aquatique sera complète, j'en aurai huit et j'atteindrai le sommet du Vide Spirituel. Si je peux obtenir une neuvième essence après cela, je pourrai les faire circuler neuf fois neuf pour briser le stade du Vide Spirituel et devenir un cultivateur du Néant Arcanique! »
 
-« À ce moment-là, bien que je ne sois qu'au stade du Néant Arcanique, avec mes neuf essences, je pourrai combattre des cultivateurs du stade de la Tribulation du Vide sans même utiliser ces grands sorts. Une fois que j'aurai atteint le stade avancé du Néant Arcanique, je n'aurai pas à affronter les Tribulations Arcaniques une par une, mais toutes les neuf d'un coup! Alors, je deviendrai un cultivateur de la Tribulation du Vide! »
+« À ce moment-là, bien que je ne sois qu'au stade du Néant Arcanique, avec mes neuf essences, je pourrai combattre des cultivateurs du début de la Tribulation du Vide sans même utiliser ces grands sorts. Une fois que j'aurai atteint le stade avancé du Néant Arcanique, je n'aurai pas à affronter les Tribulations Arcaniques une par une, mais toutes les neuf d'un coup! Alors, je deviendrai un cultivateur de la Tribulation du Vide! »
 
 Wang Lin comprit que son chemin de culture était radicalement différent de celui des autres. Il ne possédait aucune Flamme Joss et s'appuyait uniquement sur sa compréhension et le pillage des énergies du ciel et de la terre. Une fois qu'il aurait obtenu ses neuf essences et serait entré dans le Néant Arcanique, il serait incomparablement supérieur aux autres.
 
@@ -86,7 +86,7 @@ Cependant, la goutte qu'il tenait là dépassait de loin ce que l'Omniscient lui
 
 « Cette goutte d'essence aquatique est le troisième cadeau que je t'ai préparé. J'ai raffiné 99 rivières dans le Continent du Fleuve Céleste et j'ai également utilisé de nombreux cultivateurs possédant des essences aquatiques pour les nourrir. Je ne sais pas si ton essence sera complète après l'avoir absorbée, mais même si ce n'est pas le cas, elle ne sera qu'à un cheveu de l'aboutissement... »
 
-« J'espère que ces trois cadeaux te plairont. J'espère que tu protégeras mon Secte de la Grande Âme... et que tu permettras à mes descendants de retourner sur le Continent Central! »
+« J'espère que ces trois cadeaux te plairont. J'espère que tu protégeras ma Secte de la Grande Âme... et que tu permettras à mes descendants de retourner sur le Continent Central! »
 
 Les yeux de Wang Lin s'illuminèrent. Une fois la voix antique disparue de son esprit, il saisit la goutte d'eau. Elle était d'une importance vitale pour lui!
 
@@ -100,7 +100,7 @@ Tandis que le grondement se propageait, de nombreux cultivateurs furent ébranl�
 
 Pendant que le tonnerre grondait, Wang Lin leva la main gauche et forma un sceau. Une pression écrasante émana de son corps et enveloppa la montagne.
 
-« Corps véritable d'essence, protège-moi! » La voix de Wang Lin résonna dans tout la Secte de la Grande Âme. Sa main droite traça un sceau et les flammes de la montagne en fusion se rassemblèrent devant sa grotte pour former son corps véritable d'essence, puis il s'assit.
+« Corps véritable d'essence, protège-moi! » La voix de Wang Lin résonna dans toute la Secte de la Grande Âme. Sa main droite traça un sceau et les flammes de la montagne en fusion se rassemblèrent devant sa grotte pour former son corps véritable d'essence, puis il s'assit.
 
 Au même moment, les yeux de Fan Shanmeng s'illuminèrent et elle leva le regard vers le sommet de la montagne embrasée. On ignorait ce qu'elle pensait.
 

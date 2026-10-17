@@ -46,7 +46,7 @@ Le cultivateur cracha du sang et fut expulsé de la terre. À l'instant où il f
 
 À cet instant, le cultivateur poussa un cri déchirant tandis que son corps se flétrissait à vue d'œil. Il perdit toute trace d'eau et de sang; alors que son corps rendait l'âme, son âme originelle s'en échappa. Cependant, des gaz noirs enveloppèrent son âme et, alors qu'il tentait de fuir, la Poupée Yi Si le rattrapa. Son âme originelle fut plongée dans un brouillard noir, et après des cris de douleur qui s'étouffèrent peu à peu, tout disparut.
 
-« Cher cultivateur, ce vieil homme est Zuo Zou. La personne qui vous a provoqué est morte, veuillez donc dissiper cet art dao. C'est le point le plus bas de tout le continent du Taureau Céleste, nous ne pouvons pas nous permettre une telle perte. Je vous en prie, ne détruisez pas les fondations de tous les cultivateurs marginaux de la Prairie du Ciel Extrême! » Le vieil homme aux cheveux blancs apparut dans le ciel. Il regarda Wang Lin au loin et joignit les mains en signe de respect.
+« Cher cultivateur, ce vieil homme est Zuo Zou. La personne qui vous a provoqué est morte, veuillez donc dissiper cet art dao. C'est le point le plus bas de tout le continent du Taureau Céleste, nous ne pouvons pas nous permettre une telle perte. Je vous en prie, ne détruisez pas les fondations de tous les cultivateurs marginaux de la Prairie de l'Extrême Ciel! » Le vieil homme aux cheveux blancs apparut dans le ciel. Il regarda Wang Lin au loin et joignit les mains en signe de respect.
 
 Après ces paroles, l'herbe cessa de se faner et la vapeur d'eau retourna vers le corps de Wang Lin. Cependant, cette quantité d'eau, ajoutée à l'essence du cultivateur décédé, ne suffisait pas pour que Wang Lin complète son neuvième cycle.
 
@@ -62,7 +62,7 @@ Alors que Wang Lin avançait, des ondulations résonnèrent et il se fondit dans
 
 Ce n'est qu'une fois Wang Lin parti que le vieil homme se détendit. Des ombres émergèrent de la terre et plus d'une douzaine de personnes fixèrent l'endroit où Wang Lin s'était volatilisé.
 
-« Le Senior Gauche est décisif. Cet homme n'est pas quelqu'un que nous pouvons provoquer. Sa poupée est très puissante et sa bête est très étrange. Lui-même est extrêmement fort! Un tel être ne peut pas être sans secte! »
+« Le Senior Zuo est décisif. Cet homme n'est pas quelqu'un que nous pouvons provoquer. Sa poupée est très puissante et sa bête est très étrange. Lui-même est extrêmement fort! Un tel être ne peut pas être sans secte! »
 
 « Oui, cet homme est très tranchant, il a même tué les quatre membres du Dao de la Montagne Noire. Il est véritablement féroce et, à en juger par son apparence, c'est clairement un cultivateur démoniaque! »
 
@@ -70,21 +70,21 @@ Ce n'est qu'une fois Wang Lin parti que le vieil homme se détendit. Des ombres 
 
 Quant à Wang Lin, après avoir utilisé une seconde fois la Déviation Spatiale, il apparut dans une chaîne de montagnes. Selon la carte de Yan Lu, il se trouvait à trois mois de la mer intérieure.
 
-« Le continent du Taureau Céleste est trop vaste... » murmura Wang Lin en invoquant la bête moustique pour s'installer sur son dos alors qu'elle s'envolait vers l'est. La bête était très rapide. Cet endroit se situait près du Continent des Démons Verts, il n'y avait donc guère de cultivateurs aux alentours; seules quelques cités mortelles apparaissaient occasionnellement.
+« Le continent du Taureau Céleste est trop vaste... » murmura Wang Lin en invoquant la bête moustique pour s'installer sur son dos alors qu'elle s'envolait vers l'est. La bête était très rapide. Cet endroit se situait près du Continent du Démon Vert, il n'y avait donc guère de cultivateurs aux alentours; seules quelques cités mortelles apparaissaient occasionnellement.
 
-Wang Lin ne savait pas grand-chose sur le Continent des Démons Verts, mais Kang Ren en avait une peur viscérale, comme si quiconque en était issu était terrifiant.
+Wang Lin ne savait pas grand-chose sur le Continent du Démon Vert, mais Kang Ren en avait une peur viscérale, comme si quiconque en était issu était terrifiant.
 
 Dix jours passèrent en un éclair. Wang Lin croisa quelques cultivateurs, mais aucun n'interagit avec lui; ils se contentaient de passer son chemin. Même lorsque leurs Sens Divins s'étendaient, ils hésitaient après avoir perçu la présence de Wang Lin avant de s'écarter.
 
 Après dix jours, Wang Lin utilisa sa troisième Déviation Spatiale et disparut de cette chaîne de montagnes.
 
-Le Continent Oriental était immense, et la mer séparant le Continent du Taureau Céleste du Continent des Démons Verts s'appelait la Mer des Pilules. La rumeur prétendait que cette mer avait été créée par une pilule tombée du ciel.
+Le Continent Oriental était immense, et la mer séparant le Continent du Taureau Céleste du Continent du Démon Vert s'appelait la Mer des Pilules. La rumeur prétendait que cette mer avait été créée par une pilule tombée du ciel.
 
 Cependant, cette légende était si ridicule qu'il paraissait impossible d'imaginer quelle sorte de pilule aurait pu engendrer un tel océan. Personne n'y croyait vraiment, mais le récit se transmettait de génération en génération.
 
 La Mer des Pilules était infinie et ses vagues étaient déchaînées. Bien qu'il s'agisse d'une mer intérieure, les vents et la houle y étaient violents.
 
-Comme cet endroit appartenait à la fois au Continent du Taureau Céleste et au Continent des Démons Verts, les cultivateurs qui s'y trouvaient vivaient dans un chaos constant. Des nuages sombres couvraient le ciel tandis que le tonnerre grondait et que la pluie se mêlait aux flots.
+Comme cet endroit appartenait à la fois au Continent du Taureau Céleste et au Continent du Démon Vert, les cultivateurs qui s'y trouvaient vivaient dans un chaos constant. Des nuages sombres couvraient le ciel tandis que le tonnerre grondait et que la pluie se mêlait aux flots.
 
 Sous la couche nuageuse, des ondulations apparurent à la surface de l'eau sous l'effet de la pluie. La silhouette de Wang Lin émergea des remous et se tint debout sur l'océan.
 
@@ -110,6 +110,6 @@ L'ensemble de la mer était entouré d'une couche de restrictions. Cette barriè
 
 Cette couche de restrictions permettait d'entrer, mais empêchait de sortir, scellant ainsi totalement la Mer des Pilules!
 
-Tandis que Wang Lin absorbait l'essence aquatique, de nombreux cris misérables s'élevaient des profondeurs. De nombreux cultivateurs marginaux du Continent du Taureau Céleste étaient massacrés par d'autres cultivateurs entourés d'un feu fantomatique vert.
+Tandis que Wang Lin absorbait l'essence aquatique, de nombreux cris misérables s'élevaient des profondeurs. De nombreux cultivateurs marginaux du Continent du Taureau Céleste étaient massacrés sauvagement par des groupes de cultivateurs vêtus de robes daoïstes vertes et entourés d'un feu fantomatique vert.
 
 Il y avait une quantité immense de ces cultivateurs dans la Mer des Pilules!

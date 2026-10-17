@@ -82,7 +82,7 @@ Cet homme dégageait une détermination farouche et une aura de froideur. Vêtu 
 
 En tant que cultivateur ayant progressé le plus rapidement au cours des mille dernières années au sein de la Secte du Fourneau d'Or, il était très célèbre. Il jouissait d'un statut élevé et recevait l'enseignement personnel du Grand Ancien.
 
-Non seulement son niveau de culture était élevé, mais il se montrait extrêmement décisif et impitoyable. Sa réputation dépassait les frontières du continent Yun Tao; il avait même tué un individu venant d'entrer dans la troisième étape, ce qui avait fait connaître son nom à de nombreuses autres sectes.
+Non seulement son niveau de culture était élevé, mais il se montrait extrêmement décisif et impitoyable. Il était aussi assez renommé sur le continent Yun Tao; il avait même tué un individu venant d'entrer dans la troisième étape, ce qui avait fait connaître son nom à de nombreuses autres sectes.
 
 Cette bataille fut d'ailleurs plus tranchante que celles de certains cultivateurs de la troisième étape. Quiconque l'affrontait mourait neuf fois sur dix sous ses coups.
 
@@ -94,7 +94,7 @@ Orphelin, il ignorait tout de ses parents. Il avait été recueilli par un vieux
 
 Au début, même ce dos était flou; mais à mesure que sa culture progressait, la silhouette devenait plus nette. Il sentait que s'il atteignait la troisième étape, il verrait enfin clairement cette personne.
 
-C'était la raison pour laquelle il cultivait avec une telle acharnement!
+C'était la raison pour laquelle il cultivait avec un tel acharnement!
 
 « Wang Shi! » Alors qu'il était absorbé par sa culture, une voix retentit à l'extérieur de la chambre secrète. Un rayon de lumière vola alors devant lui et prit la forme illusoire d'un vieil homme.
 
@@ -120,7 +120,7 @@ Wang Shi demanda d'un ton grave: « Qui êtes-vous, Monsieur? »
 
 « Je... Je suis un orphelin et je me suis donné ce nom... J'ai senti que je devais porter le nom de "Wang"... »
 
-Un silence s'installa derrière lui. Les yeux de Wang Shi brillèrent et il saisit l'occasion pour se retourner. Il vit alors, derrière lui, un jeune homme en blanc aux cheveux argentés qui le contemplait d'un regard empreint de douceur. C'était le regard d'un aîné observant son cadet.
+Un silence s'installa derrière lui. Les yeux de Wang Shi brillèrent et il saisit l'occasion pour se retourner. Il vit alors, derrière lui, un jeune homme en blanc aux cheveux blancs qui le contemplait d'un regard empreint de douceur. C'était le regard d'un aîné observant son cadet.
 
 En découvrant l'apparence de cet homme, le corps de Wang Shi trembla et son esprit sombra dans le chaos. La silhouette de ses rêves apparut soudainement, se superposant parfaitement à cette personne.
 

@@ -30,7 +30,7 @@ Il n'y avait aucune certitude.
 
 Treize partit également. Il avait passé sa vie à suivre les traces de Wang Lin. Désormais, Wang Lin le laissait s'envoler seul. Lorsqu'un oiseau grandit, il doit affronter seul le vent et la pluie. Ce n'est qu'en apercevant l'arc-en-ciel au cœur de la tempête qu'il pourra devenir un homme capable de soutenir le monde.
 
-Ils étaient tous partis... Seul Wang Lin resta sur la planète Suzaku. Avant d'entrer dans le rêve avec Liu Mei, il était allé voir ses parents; désormais, il y retourna une dernière fois avant de rejoindre le foyer originel qu'il partageait avec Li Muwan.
+Ils étaient tous partis... Seul Wang Lin resta sur la planète Suzaku. Avant d'entrer dans le rêve avec Liu Mei, il était allé voir ses parents; désormais, après leur avoir rendu hommage une nouvelle fois, il se rendit dans la demeure où il vivait jadis avec Li Muwan.
 
 La vallée avait été perdue sous le poids du temps, mais il l'avait restaurée.
 
@@ -44,7 +44,7 @@ Wang Lin restait aux côtés de Li Muwan, tandis que des notes de cithare réson
 
 Dix ans, dix ans, dix ans... Wang Lin vécut dans cette vallée paisible pendant soixante-dix ans.
 
-Il accompagna Li Muwan. Ici, il avait tout oublié. Il ne se souciait plus de son niveau de culture, ne cherchait plus à comprendre les essences et ignorait les complots et les mensonges. Dans ses yeux, il n'y avait que Li Muwan. Dans son esprit, seule cette silhouette existait. Et à ses oreilles, seul le son de la cithare d'autrefois subsistait.
+Il accompagna Li Muwan. Ici, il avait tout oublié. Il ne se souciait plus de son niveau de culture, ne cherchait plus à comprendre les essences et ignorait les complots et les vicissitudes de la vie. Dans ses yeux, il n'y avait que Li Muwan. Dans son esprit, seule cette silhouette existait. Et à ses oreilles, seul le son de la cithare d'autrefois subsistait.
 
 Deux cents ans après le retour de Wang Lin dans le monde des grottes, un invité vint dans sa vallée. Cet invité était un homme chauve. Il ressemblait exactement à l'homme du passé, sans le moindre changement.
 
@@ -60,7 +60,7 @@ Wang Lin ouvrit les yeux et observa l'homme chauve devant lui. Un sourire se des
 
 L'homme chauve acquiesça silencieusement.
 
-« Je ne pouvais pas oublier... » Un instant plus tard, l'homme chauve tendit la cruche à Wang Lin et en sortit une autre. Il prit une longue gorgée, laissant le vin couler du coin de sa bouche sur ses vêtements.
+« Tu n'arrives pas à oublier?... » Un instant plus tard, l'homme chauve tendit la cruche à Wang Lin et en sortit une autre. Il prit une longue gorgée, laissant le vin couler du coin de sa bouche sur ses vêtements.
 
 « Je n'ai jamais voulu oublier, alors il n'y a pas de "ne pas pouvoir oublier". » Wang Lin prit la cruche et but une gorgée à son tour.
 
@@ -68,7 +68,7 @@ L'homme chauve acquiesça silencieusement.
 
 « Me tourmenter... » murmura Wang Lin. Il but du vin sans ajouter un mot.
 
-L'homme chauve secoua la tête et dit doucement: « Oublie cela... Tu n'y parviendras pas. Si tu continues ainsi, tu finiras par t'épuiser, et Wan Er aussi... »
+L'homme chauve secoua la tête et dit doucement: « Abandonne... Tu n'y parviendras pas. Si tu continues ainsi, tu finiras par t'épuiser, et Wan Er aussi... »
 
 Wang Lin leva les yeux vers le ciel. Après un moment de réflexion, il demanda lentement: « Dois-je t'appeler "Mo Zhi" ou un autre nom? »
 
@@ -92,7 +92,7 @@ Lorsque le soleil pointa à nouveau à l'horizon, Mo Zhi se leva. Il regarda Wan
 
 Wang Lin resta là, assis, à boire son vin. Il ne fit aucun commentaire sur les paroles ou le départ de Mo Zhi.
 
-Il avait compris bien des choses depuis longtemps, mais il savait qu'il était lui-même, nommé Wang Lin. Né sur la planète Suzaku, fils d'un charpentier, ayant grandi dans un petit village de montagne.
+Il avait compris bien des choses depuis longtemps, mais il savait qu'il était lui-même, nommé Wang Lin. Né dans le pays de Zhao, sur la planète Suzaku, fils d'un charpentier, ayant grandi dans un petit village de montagne.
 
 Pas à pas, il avait parcouru le chemin de la culture pour atteindre son état actuel.
 
@@ -116,7 +116,7 @@ Le crâne scintilla et une courte ligne de mots s'y afficha avant de disparaîtr
 
 « Vous avez tous tort... » Wang Lin détourna le regard et sourit en regagnant la maison en bois. Il regarda Li Muwan qui dormait et s'assit à ses côtés. Son regard était empreint d'une infinie tendresse alors qu'il la contemplait.
 
-« Wan Er, tu te réveilleras... Car j'ai enfin trouvé la véritable voie... Et j'ai déjà commencé les préparatifs dans l'Ancien Temple Ancestral Shi. »
+« Wan Er, tu te réveilleras... Car je connais enfin la véritable méthode... Et j'ai déjà commencé les préparatifs dans l'Ancien Temple Ancestral Shi. »
 
 Une trace de folie dansait dans les yeux de Wang Lin. Cette méthode était, en vérité, totalement insensée!
 
@@ -128,7 +128,7 @@ Au fil des ans, Treize revint à plusieurs reprises. Chaque fois, il restait aup
 
 Xu Liguo et Liu Jinbiao avaient utilisé une méthode inconnue pour retrouver Zhong Grand Rouge. Les trois compères travaillaient ensemble, faisant ce qu'ils voulaient dans le monde des grottes, dans une immense joie.
 
-Leurs corps ayant été régénérés sur le Continent Astral Immortel, ils pouvaient partir et revenir à leur guise en empruntant la puissance de Wang Lin pour franchir la porte. Avec le niveau de culture actuel de Wang Lin, Zhong Grand Rouge pouvait également le faire. Après avoir parcouru le monde des grottes, les trois hommes, accompagnés du dragon de mer qui s'était également pris d'affection pour l'endroit, quittèrent le monde des grottes. Ils commencèrent alors leur propre épopée légendaire sur le Continent Astral Immortel.
+Leurs corps s'étant réincarnés et ayant grandi sur le Continent Astral Immortel, ils pouvaient partir et revenir à leur guise en empruntant la puissance de Wang Lin pour franchir la porte. Grâce à l'aide de Wang Lin, Zhong Grand Rouge pouvait également le faire. Après avoir parcouru le monde des grottes, les trois hommes, accompagnés du dragon de mer qui s'était lui aussi pris de goût pour cette activité, quittèrent le monde des grottes. Ils commencèrent alors leur propre épopée légendaire sur le Continent Astral Immortel.
 
 Cependant, avant leur départ, le groupe de Xu Liguo vint rendre visite à Wang Lin pour le servir et le flatter. Finalement, Wang Lin rit. Il laissa son aura et son empreinte sur eux pour assurer leur protection. Les trois partirent avec enthousiasme.
 
@@ -140,6 +140,6 @@ Avant de partir, son Sens Divin balaya le Royaume Céleste; il y vit les cultiva
 
 Il rétracta son Sens Divin et jeta un dernier regard sur le monde des grottes.
 
-Trois mois restaient avant l'ouverture du Royaume Divin Immémorial. Ce lieu serait le champ de la bataille finale de Wang Lin.
+Trois mois restaient avant l'ouverture du Royaume Divin Immémorial. Ce lieu serait la dernière étape de Wang Lin.
 
 « Quand je quitterai le Royaume Divin Immémorial, Wan Er, tu m'accompagneras... » murmura Wang Lin alors qu'il franchissait la porte du monde des grottes pour disparaître.

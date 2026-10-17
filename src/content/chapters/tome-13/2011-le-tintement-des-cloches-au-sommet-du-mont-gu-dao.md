@@ -64,11 +64,11 @@ Au bas de la montagne, Xuan Luo marchait devant et jeta un regard bienveillant �
 
 « Le Grand Empyréen Gu Dao appartient à la même ère que l'Ancêtre Ancien et il est le gardien du clan ancien. S'il n'existait pas, je crains que notre clan n'ait été dévoré par le clan céleste et n'ait cessé d'exister. » Xuan Luo leva les yeux vers le mont Gu Dao avec un respect profond.
 
-« Lorsque le Disciple était au sein du clan céleste, j'ai lu des descriptions du Grand Empyréen Gu Dao dans certains ouvrages. On disait que son niveau de culture était supérieur à celui des autres Grands Empyréens et qu'il était le seul à avoir tué plusieurs Grands Empyréens. Le Disciple respecte un être d'une telle puissance. » Wang Lin gravit les marches en contemplant le sommet de la montagne.
+« Lorsque le Disciple était au sein du clan céleste, j'ai lu des descriptions du Grand Empyréen Gu Dao dans certains ouvrages. On disait que son niveau de culture avait dépassé celui d'un Grand Empyréen et qu'il était le seul à avoir tué plusieurs Grands Empyréens de même rang. Le Disciple respecte un être d'une telle puissance. » Wang Lin gravit les marches en contemplant le sommet de la montagne.
 
 « Même ton Maître ignore quel est le véritable niveau de culture du Grand Empyréen Gu Dao, mais face à lui, j'ai ressenti comme si j'étais un mortel... » Xuan Luo secoua la tête dans un soupir.
 
-« Hormis les Grands Empyréens, le Senior Gu Dao ne convoque personne au hasard. Ce n'est que lorsqu'un nouvel empereur ancien est sélectionné qu'ils sont appelés ici. » Xuan Luo monta silencieusement les marches, une pointe d'inquiétude dans le cœur.
+« Hormis les Grands Empyréens, le Senior Gu Dao ne convoque personne au hasard. Ce n'est que lorsqu'un nouvel empereur ancien est sélectionné qu'ils sont appelés ici pour recevoir sa bénédiction. » Xuan Luo monta silencieusement les marches, une pointe d'inquiétude dans le cœur.
 
 « Je me demande si le Grand Empyréen Gu Dao rencontrera Wang Lin maintenant que je l'ai amené ici. J'avais signalé au Senior Gu Dao que Wang Lin avait obtenu dix gouttes de sang ancestral, et que la dixième était une goutte de sang de l'âme. Le Grand Empyréen Gu Dao devrait donc rencontrer mon disciple. » Xuan Luo restait silencieux en montant. Plus il approchait du sommet, plus son malaise grandissait.
 

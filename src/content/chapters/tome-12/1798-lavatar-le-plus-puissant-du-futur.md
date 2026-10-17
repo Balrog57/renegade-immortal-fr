@@ -30,7 +30,7 @@ Les yeux du Roi-Moustique étaient rouge sang. En criant, sa large bouche effleu
 
 D'innombrables tentatives, d'innombrables échecs. Le corps du Roi-Moustique trembla et ses cris devinrent rauques de désespoir. Il avait tant travaillé et cherché si longtemps pour finalement trouver son maître sous la forme d'un cadavre.
 
-Le simple d'esprit Roi-Moustique ne pouvait l'accepter. Il s'empara de Wang Lin et du cercueil, puis s'envola vers l'horizon.
+Le Roi-Moustique, au caractère simple, ne pouvait l'accepter. Il s'empara de Wang Lin et du cercueil, puis s'envola vers l'horizon.
 
 Le vide serait terrifiant pour quiconque, mais pour le Roi-Moustique ayant subi cinq métamorphoses, il n'y avait aucune gêne. Il transporta Wang Lin et le cercueil à travers d'immenses distances en un instant.
 
@@ -80,11 +80,11 @@ Cette plateforme se situait dans le vide du Continent Astral Immortel. Peu de ge
 
 Ces deux conditions étaient déjà extrêmement difficiles à réunir, et très peu y parvenaient. De plus, la plateforme rejetait tout ce qui n'était pas issu des lois du Continent Astral Immortel. C'était comme une faille béante rendant l'accès encore plus ardu.
 
-À moins d'être comme le Roi-Moustique, qui tentait désespérément au péril de sa vie, l'accomplissement était quasi impossible. Faire en sorte qu'une bête moustique, incapable de reconnaître un maître, accomplisse un tel acte était une véritable providence!
+À moins d'être comme le Roi-Moustique, qui tentait désespérément au péril de sa vie, l'accomplissement était quasi impossible. Faire en sorte qu'une bête moustique, qui ne reconnaît presque jamais de maître, accomplisse un tel acte était une véritable providence!
 
 Cependant, ce n'étaient pas là les seules conditions. La condition finale exigeait que la personne soit morte ou endormie, et que la lumière blanche apparaisse! Cette lueur faisait en fait partie des lois du Continent Astral Immortel. Elle ne se manifestait que sur les cadavres de très rares individus après leur trépas!
 
-Nul n'ignorait les conditions spécifiques permettant cette apparition!
+Nul ne connaissait les conditions spécifiques permettant cette apparition!
 
 Ce n'est qu'une fois tout cela accompli que ce qui devait arriver à Wang Lin se produisit. Lorsque le sang toucha la plateforme circulaire, il fut immédiatement absorbé. La plateforme entière trembla et une lumière invisible se propagea, emplissant le vide. Une lumière blanche jaillit de toutes les directions du néant pour converger vers la plateforme.
 
@@ -100,6 +100,6 @@ Simultanément, ses sept essences atteignirent leur apogée en un instant.
 
 Il pouvait vaguement ressentir qu'une autre version de lui-même existait dans ce monde. En ouvrant les yeux, Wang Lin entendit les cris de joie du Roi-Moustique.
 
-Il vit le moustique excité et la structure géante semblable à une coquille. Un instant, il eut l'impression de voir son propre double!
+Il vit le moustique excité et la structure géante, semblable à une coquille de pierre en forme de fruit. Un instant, il eut l'impression de voir son propre double!
 
 « Ceci... Qu'est-ce que c'est... » Pendant un moment, l'esprit de Wang Lin fut plongé dans la confusion.

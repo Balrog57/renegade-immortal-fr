@@ -6,7 +6,7 @@ bookTitle: Light of the coming end
 en: Chapter 2073 - Cave World
 slug: le-monde-des-grottes
 ---
-Wang Lin retrouva tous ses vieux amis aux côtés de Li Qianmei et Qing Shui. Il leur rendit soit leurs souvenirs, soit leur permit de choisir l'oubli. Wang Lin n'avait plus rien qui le liait désormais au Continent Astral Immortel.
+Wang Lin retrouva tous ses vieux amis, à l'exception de Li Qianmei et de Qing Shui. Il leur rendit soit leurs souvenirs, soit les laissa partir en silence et choisir l'oubli. Wang Lin n'avait plus rien qui le liait désormais au Continent Astral Immortel.
 
 Avant de se rendre sur le Continent du Taureau Céleste, il alla voir Zhou Yi et Qing Shuang une dernière fois. De loin, il aperçut le sourire radieux de Zhou Yi. Wang Lin sourit à son tour; il se sentait heureux pour elle.
 
@@ -18,7 +18,7 @@ Le Continent du Taureau Céleste, le lieu où il était apparu pour la première
 
 Ces paysages familiers éveillèrent ses souvenirs. Au centre du Continent du Taureau Céleste, là où les chaînes de montagnes s'étendaient à l'infini, Wang Lin contempla silencieusement la terre en contrebas.
 
-Fixant l'horizon, Wang Lin dit lentement: « Taureau Céleste, autrefois, ton armure d'âme m'a aidé à surmonter plusieurs crises... Moi, Wang Lin, je n'oublie jamais ceux qui m'ont aidé. Aujourd'hui, je vais libérer l'âme de l'Ancêtre Céleste et te permettre de retrouver ta liberté! »
+Fixant l'horizon, Wang Lin dit lentement: « Taureau Céleste, autrefois, ton armure d'âme m'a aidé à surmonter plusieurs crises... Moi, Wang Lin, je n'oublie jamais ceux qui m'ont aidé. Aujourd'hui, je vais lever le sceau laissé par l'Ancêtre Céleste et te permettre de retrouver ta liberté! »
 
 « Mais ton corps est déjà devenu la terre et ne peut être restauré. Je vais libérer l'âme de ton sceau pour qu'elle forme une âme originelle, afin que tu puisses quitter le Continent Astral Immortel. En es-tu d'accord? »
 
@@ -106,7 +106,7 @@ La Secte des Sept Dao resta enveloppée de brume, ruine délaissée que plus per
 
 Monde des Grottes.
 
-La barrière entre le Royaume Intérieur et le Royaume Extérieur était extrêmement puissante. Au cours de ces centaines d'années, le Royaume Extérieur avait lancé des assauts retentissants sans jamais parvenir à percer la défense.
+La barrière entre le Royaume Intérieur et le Royaume Extérieur était extrêmement puissante. Au cours de ces centaines d'années, le Royaume Extérieur avait lancé un assaut sans jamais parvenir à percer la défense.
 
 Le nom de Wang Lin était devenu une légende dans le monde des grottes, une existence quasi mythique. Beaucoup se souvenaient de lui, mais encore plus l'avaient oublié.
 
@@ -118,7 +118,7 @@ Une multitude de cultivateurs avaient migré des quatre grands systèmes stellai
 
 Mu Bingmei n'était pas partie; elle avait choisi de rester dans le monde des grottes, au sein du Nouveau Royaume Céleste. Elle attendait qu'un certain être revienne un jour.
 
-Le Maître du Dao Rêve Bleu n'était pas non plus parti. En tant que protecteur suprême du Nouveau Royaume Céleste, il était resté pour veiller sur lui. Il y avait aussi des gens comme le Maître Nan Yunzi, qui avaient également choisi de rester.
+Le Maître du Dao Rêve Bleu n'était pas non plus parti. En tant que plus puissant de tout le royaume céleste, il y siégeait pour veiller sur sa paix. Il y avait aussi des gens comme le Maître Nan Yunzi, qui avaient également choisi de rester.
 
 Cependant, en cet instant, une atmosphère funèbre régnait sur le Nouveau Royaume Céleste. Un nuage noir semblait planer sur eux, plongeant les cultivateurs dans un silence pesant.
 

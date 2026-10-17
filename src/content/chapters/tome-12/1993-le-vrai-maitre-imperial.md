@@ -12,9 +12,9 @@ S'il ne parvenait pas à absorber par la force le pouvoir de l'Ancêtre Céleste
 
 Il ne permettrait jamais une telle chose. Ayant atteint la dernière étape, il était sur le point de réussir et refusait catégoriquement d'échouer maintenant!
 
-« Même le Maître Impérial n'a pu percer mon plan. Jiu Di n'est venu que parce qu'il est proche de la cité ancestrale, mais Dao Yi et Wu Feng sont arrivés si vite! »
+« Même l'Enseignant Impérial n'a pu percer mon plan. Jiu Di n'est venu que parce qu'il est proche de la cité ancestrale, mais Dao Yi et Wu Feng sont arrivés si vite! »
 
-L'Empereur Céleste serra les dents et pointa la tête de sa main droite. Dès que son doigt toucha la tête, celle-ci s'effondra en un amas de chair et de sang.
+L'Empereur Céleste serra les dents et, sans hésiter, leva la main droite pour pointer un doigt devant lui. À l'instant où le doigt retomba, il s'effondra en un amas de chair et de sang.
 
 « En utilisant ma propre chair et mon sang, descendants de l'Ancêtre Céleste, activez la loi de l'Astral Immortel pour lever le sceau éternel sur le clan Dao Wang! » rugit l'Empereur Céleste, tandis que ses doigts restants se désintégraient. Ce n'étaient pas seulement ses doigts, mais même sa paume qui s'effondrait.
 
@@ -22,15 +22,15 @@ Ce délabrement se poursuivit. À l'instant où l'Empereur Céleste eut fini de 
 
 Une quantité massive de sang doré se répandit et forma une rune dorée devant lui. Cette rune brûla jusqu'à ne laisser que des cendres!
 
-Au moment où la rune dorée finit de consumer, le Maître Impérial, qui possédait le corps de Wang Lin, trembla. Le sceau qui avait réprimé son clan Dao Wang pendant d'innombrables générations venait de disparaître.
+Au moment où la rune dorée finit de consumer, l'Enseignant Impérial, qui possédait le corps de Wang Lin, trembla. Le sceau qui avait réprimé son clan Dao Wang pendant d'innombrables générations venait de disparaître.
 
-Au moment où le sceau fut levé, des larmes de joie coulèrent des yeux du Maître Impérial. C'était le but de toute sa vie : il avait tout sacrifié pour lever ce sceau, afin que son clan puisse échapper à ce destin scellé dès la naissance!
+Au moment où le sceau fut levé, des larmes de joie coulèrent des yeux de l'Enseignant Impérial. C'était le but de toute sa vie : il avait tout sacrifié pour lever ce sceau, afin que son clan puisse échapper à ce destin scellé dès la naissance!
 
-Dès que le sceau fut levé, la puissance de l'Empereur Céleste s'engouffra en lui. Elle pénétra le corps de Wang Lin et effaça sans effort l'existence du Maître Impérial!
+Dès que le sceau fut levé, la puissance de l'Empereur Céleste s'engouffra en lui. Elle pénétra le corps de Wang Lin et effaça sans effort l'existence de l'Enseignant Impérial!
 
-C'était l'ultime atout de l'Empereur Céleste: il ne laisserait pas le Maître Impérial subsister après la levée du sceau. L'instant où le sceau se brisait était celui de la mort du Maître Impérial.
+C'était l'ultime atout de l'Empereur Céleste: il ne laisserait pas l'Enseignant Impérial subsister après la levée du sceau. L'instant où le sceau se brisait était celui de la mort de l'Enseignant Impérial.
 
-Alors que le Maître Impérial était sur le point de mourir, un souvenir scellé depuis une éternité s'éveilla.
+Alors que l'Enseignant Impérial était sur le point de mourir, un souvenir scellé depuis une éternité s'éveilla.
 
 Il se souvenait vaguement que le clan Dao Wang, après des années d'héritage, était presque éteint. Il se rappelait qu'après sa naissance, il ne restait plus que trois personnes, lui inclus.
 
@@ -38,21 +38,21 @@ Il ignorait qui étaient ses parents et personne ne lui l'avait dit. Il savait s
 
 Cette mère et cette fille étaient ses seuls proches!
 
-Il se souvint que cette femme était le Maître Impérial de la génération précédente et que ce n'était pas lui le véritable Maître Impérial. Le vrai Maître Impérial était la petite fille.
+Il se souvint que cette femme était l'Enseignant Impérial de la génération précédente et que ce n'était pas lui le véritable Enseignant Impérial. Le vrai Enseignant Impérial était la petite fille.
 
-Il ignorait qui était le père de l'enfant, laquelle avait disparu peu après sa naissance. Il avait été recueilli par la femme, qui lui avait transmis les sorts du Maître Impérial.
+Il ignorait qui était le père de l'enfant, laquelle avait disparu peu après sa naissance. La femme l'avait pris pour l'Enseignant Impérial et lui avait transmis les arts divins de son clan.
 
-Il grandit lentement, ses souvenirs étant scellés. Il croyait toujours être le Maître Impérial. Tandis qu'il devenait adulte, la femme mourut. Dans sa mémoire, de nombreux membres de son clan dormaient encore. Sa mission était de libérer tous les membres endormis de leur destin.
+Il grandit lentement, ses souvenirs étant scellés. Il croyait toujours être l'Enseignant Impérial. Tandis qu'il devenait adulte, la femme mourut. Dans sa mémoire, de nombreux membres de son clan dormaient encore. Sa mission était de libérer tous les membres endormis de leur destin.
 
 Il restait convaincu que son clan comptait encore de nombreux membres... Mais maintenant que ses souvenirs s'éveillaient, il comprit qu'en dehors de la petite fille disparue, il était le dernier de son lignage...
 
 « Pas étonnant que l'Empereur Céleste ait osé lever le sceau... Car il sait que je suis le seul survivant du clan Dao Wang... Tant que je meurs, même si le sceau est levé, tout ira bien. »
 
-« Ainsi, je ne suis pas le Maître Impérial... Alors... Suis-je un membre du clan Dao Wang... Le suis-je vraiment...? Maintenant que le sceau est levé, la petite fille disparue doit être le vrai Maître Impérial. Où est-elle? Qui est-elle...? » Il avait passé sa vie à croire qu'il était le Maître Impérial, prêt à tout sacrifier pour comploter contre l'Empereur Céleste au nom de son clan. Maintenant qu'il avait échoué, ses souvenirs étaient libérés et ses pensées se dissipaient lentement.
+« Ainsi, je ne suis pas l'Enseignant Impérial... Alors... Suis-je un membre du clan Dao Wang... Je dois l'être, je suppose...? Maintenant que le sceau est levé, la petite fille disparue doit être le vrai Enseignant Impérial. Où est-elle? Qui est-elle...? » Il avait passé sa vie à croire qu'il était l'Enseignant Impérial, prêt à tout sacrifier pour comploter contre l'Empereur Céleste au nom de son clan. Maintenant qu'il avait échoué, ses souvenirs étaient libérés et ses pensées se dissipaient lentement.
 
-Même dans la mort, il ignorait toujours qui était le véritable Maître Impérial...
+Même dans la mort, il ignorait toujours qui était le véritable Enseignant Impérial...
 
-Pourtant, au moment de trépasser, il n'éprouva aucune amertume. Il comprit que c'était peut-être là sa mission: protéger le vrai Maître Impérial et lever le sceau du clan. Dès sa naissance, ce fut son destin funeste.
+Pourtant, au moment de trépasser, il n'éprouva aucune amertume. Il comprit que c'était peut-être là sa mission: protéger le vrai Enseignant Impérial et lever le sceau du clan. Dès sa naissance, c'était la mission qui lui était destinée.
 
 Alors que cet être pitoyable rendait l'âme, la puissance de l'Empereur Céleste balaya le corps de Wang Lin. Après avoir déterminé qu'il ne subsistait plus aucune fluctuation d'âme, elle passa une seconde fois avant de se retirer.
 
@@ -66,15 +66,15 @@ L'excitation emplit l'Empereur Céleste, mais il ne vit pas qu'au loin, au momen
 
 Les yeux de Hai Zi étaient empreints de confusion et de lutte. Un souvenir s'éveillait dans son esprit. Lorsque le sceau du clan Dao Wang disparut, une source de puissance s'éveilla à l'intérieur de son corps!
 
-Cette puissance émanait du clan Dao Wang — elle appartenait au véritable Maître Impérial du clan céleste!
+Cette puissance émanait du clan Dao Wang — elle appartenait au véritable Enseignant Impérial du clan céleste!
 
 Ses yeux se mirent soudainement à briller d'une lumière vive et, inconsciemment, elle leva la main. Elle pointa la tête rayonnante de l'Ancêtre Céleste!
 
-« Tout existe parce qu'il peut être perdu, c'est la mort... »
+« Tout ce qui existe, puisqu'il existait déjà, peut être perdu: c'est la mort... »
 
-« Tous ceux qui sont morts par les pensées des vivants naissent du néant, c'est le Dao... »
+« Tous les défunts, par le souvenir des vivants, voient naître du néant des pensées: c'est le deuil... »
 
-« Le clan Dao Wang prend les pensées des vivants, l'existence des morts, la quête de l'espoir et le pouvoir de l'au-delà pour créer les Flammes Joss. Par cela... nous transformons le Dao en mort afin que ceux qui existent puissent continuer d'exister, et que les morts... retournent au néant! » murmura Hai Zi en pointant la tête. Toute la lumière dorée se rétracta brusquement vers la tête de l'Ancêtre Céleste.
+« Le clan Dao Wang prend les pensées des vivants, l'existence des morts, le soutien de la quête spirituelle et la force de cette vie et de la suivante pour condenser les Flammes Joss. Par cela... nous transformons le deuil en mort afin que ceux qui existent puissent continuer d'exister, et que les morts... retournent au néant! » murmura Hai Zi en pointant la tête. Toute la lumière dorée se rétracta brusquement vers la tête de l'Ancêtre Céleste.
 
 Lorsque la lumière se dissipa, la tête de l'Ancêtre Céleste fut mise à nu!
 
@@ -84,7 +84,7 @@ Cela interrompit l'aura dorée que l'Empereur Céleste absorbait; la source s'é
 
 Ce changement soudain stupéfia l'Empereur Céleste. Ses yeux s'écarquillèrent d'incrédulité et il leva brusquement les yeux. Il vit immédiatement l'Exalté Empyréen Hai Zi!
 
-« C'est... C'est impossible! Le Maître Impérial est mort, totalement mort! Vous n'appartenez pas au clan Dao Wang, comment pouvez-vous posséder le pouvoir du Maître Impérial?! » L'Empereur Céleste était au bord de la folie. Il refusait de croire ce qu'il voyait — il ne pouvait, ne voulait pas y croire!
+« C'est... C'est impossible! L'Enseignant Impérial est mort, totalement mort! Vous n'appartenez pas au clan Dao Wang, comment pouvez-vous posséder le pouvoir de l'Enseignant Impérial?! » L'Empereur Céleste était au bord de la folie. Il refusait de croire ce qu'il voyait — il ne pouvait, ne voulait pas y croire!
 
 « Vous n'êtes certainement pas une membre du clan Dao Wang! Sous le sceau de l'Ancêtre Céleste, le clan Dao Wang ne peut quitter ni le palais, ni la cité ancestrale... Vous n'êtes pas morte, qui êtes-vous?! » Le visage de l'Empereur Céleste était livide. Il croyait tout savoir et que personne ne pouvait déjouer ses plans. Sa confiance était sans limite.
 
@@ -92,11 +92,11 @@ Tout s'était déroulé selon ses desseins. Seules les apparitions soudaines de 
 
 Pourtant, alors qu'il était sur le point de réussir l'absorption du pouvoir de l'Ancêtre Céleste pour devenir le second Ancêtre Céleste, il réalisa que rien n'était ce qu'il avait imaginé. Il était en réalité au cœur du plan de quelqu'un d'autre!
 
-« Je... suis le Maître Impérial... » L'Exalté Empyréen Hai Zi s'exprima avec une expression complexe. Ses souvenirs s'étaient éveillés, fusionnant avec ceux de sa mère et l'héritage de toutes les générations précédentes de Maîtres Impériaux.
+« Je... suis l'Enseignant Impérial... » L'Exalté Empyréen Hai Zi s'exprima avec une expression complexe. Ses souvenirs s'étaient éveillés, fusionnant avec ceux de sa mère et l'héritage de toutes les générations précédentes d'Enseignants Impériaux.
 
-« La personne qui est morte était le dernier membre de mon clan sur le Continent Astral Immortel, à mes côtés... » soupira Hai Zi.
+« La personne qui est morte était le dernier membre de mon clan sur le Continent Astral Immortel, en dehors de moi... » soupira Hai Zi.
 
-« Qu'est-ce que c'est que ce délire? C'est impossible! Si vous êtes vraiment le Maître Impérial, comment avez-vous pu quitter la cité ancestrale?! Jiu Di, répondez-moi! » L'Empereur Céleste prit une profonde inspiration. Bien qu'il fût sur le point de sombrer dans la démence, il parvint à se calmer par la force de sa volonté!
+« Qu'est-ce que c'est que ce délire? C'est impossible! Si vous êtes vraiment l'Enseignant Impérial, comment avez-vous pu quitter la cité ancestrale?! Jiu Di, répondez-moi! » L'Empereur Céleste prit une profonde inspiration. Bien qu'il fût sur le point de sombrer dans la démence, il parvint à se calmer par la force de sa volonté!
 
 « Ce plan fut conçu par un génie de mon clan. Il n'hésita pas à agir de manière à sembler se séparer du clan. Il multiplia les méthodes jusqu'à réussir à quitter ce lieu et à fonder la Secte de la Grande Âme... »
 

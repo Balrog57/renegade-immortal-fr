@@ -8,7 +8,7 @@ slug: bataille-pour-la-suprematie-du-continent-astral-immortel
 ---
 Hormis Wang Lin lui-même, nul ne savait combien de ponts il avait franchis. Même le Grand Empyréen Gu Dao n'était pas en mesure de le ressentir avec précision.
 
-Il savait seulement qu'après l'entrée de Wang Lin dans les Ponts de l'Écrasement Céleste, celui-ci s'était avancé sur le cinquième pont! Quant à savoir si Wang Lin avait franchi ou non le sixième pont, il l'ignorait, car sa propre limite était le cinquième.
+Il savait seulement qu'après l'entrée de Wang Lin dans les Ponts du Piétinement des Cieux, celui-ci avait franchi le cinquième pont! Quant à savoir si Wang Lin avait franchi ou non le sixième pont, il l'ignorait, car sa propre limite était le cinquième.
 
 Les ondulations autour de la montagne persistèrent durant des mois, et lorsqu'elles finirent par se dissiper, Wang Lin en sortit calmement.
 
@@ -20,7 +20,7 @@ Vêtu d'une longue chemise blanche, il se tenait à l'extérieur du bassin de la
 
 « Si tu choisis de devenir l'Empereur Céleste, alors tu seras le véritable Empereur Céleste qui n'est plus en sommeil! »
 
-« De plus, Situ, Qing Shui, Treize, Da Tou, Papillon Rouge... Vous êtes tous sur le Continent Astral Immortel, et puisque aucun de vous ne se trouve dans le Clan Ancien, vous devez tous être dans le clan céleste. Cette fois, je vous trouverai sans faute! »
+« De plus, Situ, Qing Shui, Treize, Da Tou, Papillon Rouge... Vous êtes tous sur le Continent Astral Immortel, et puisque aucun de vous ne se trouve dans le Clan Ancien, vous devez tous vous être réincarnés sur les terres du clan céleste. Cette fois, je vous trouverai sans faute! »
 
 « Et il y a aussi... Li Qianmei... » L'expression de Wang Lin devint complexe. Dans un soupir, il s'élança avec une vélocité bien supérieure à celle d'autrefois, volant à cent fois la vitesse qu'il avait employée pour parcourir cette distance la dernière fois.
 
@@ -44,7 +44,7 @@ Tout semblait calme, comme si rien ne clochait, mais Wang Lin scruta le ciel et 
 
 Après dix respirations, un craquement retentit dans les cieux. Ce son fut si aigu qu'il surpassa le rugissement de la mer. Le monde entier sembla trembler.
 
-Une immense déchirure s'ouvrit soudainement dans le ciel. Une masse de brouillard en s'en échappa et se propagea dans toutes les directions. Simultanément, une silhouette floue émergea de cette brume.
+Une immense déchirure s'ouvrit soudainement dans le ciel. Une masse de brouillard s'en échappa et se propagea dans toutes les directions. Simultanément, une silhouette floue émergea de cette brume.
 
 L'expression de Wang Lin resta sereine. Il observa le brouillard recouvrir le ciel noir jusqu'à ce que le monde entier ne soit plus qu'un voile de brume, puis, quand la silhouette apparut enfin, il prononça: « Gu Dao! »
 
@@ -52,15 +52,15 @@ La silhouette au cœur du brouillard avança lentement, toujours enveloppée de 
 
 Cette scène revêtait une importance capitale pour le Continent Astral Immortel. C'était la toute première rencontre entre les deux êtres les plus puissants du continent!
 
-Ils étaient les seuls sur le Continent Astral à avoir atteint le stade de l'Écrasement Céleste, et c'était la première fois que leurs regards se croisaient.
+Ils étaient les deux seuls sur le Continent Astral à avoir un demi-pas dans le stade du Piétinement des Cieux, et c'était la première fois que leurs regards se croisaient.
 
 Quant à leur rencontre passée sur le Mont Gu Dao, elle ne pouvait être comparée à celle-ci en raison de la différence de niveau de culture.
 
 La silhouette dans la brume réfléchit silencieusement un instant avant de demander: « Tu savais que je viendrais? »
 
-Wang Lin se tenait là, imperturbable, ses vêtements dansant au gré du vent. Quelques mèches de ses cheveux flottaient tandis qu'il acquiesçait du chef.
+Wang Lin se tenait là, imperturbable, ses vêtements dansant au gré du vent. Quelques mèches de ses cheveux blancs flottaient tandis qu'il acquiesçait du chef.
 
-Dans le brouillard, Gu Dao médita de nouveau longuement avant de laisser échapper un soupir: « Combien de ponts as-tu franchis lors de ta seconde ascension vers les Ponts de l'Écrasement Céleste? »
+Dans le brouillard, Gu Dao médita de nouveau longuement avant de laisser échapper un soupir: « Combien de ponts as-tu franchis lors de ta seconde ascension vers les Ponts du Piétinement des Cieux? »
 
 « Cela n'a pas d'importance. Ce qui importe, c'est la raison de ta venue. » Wang Lin sourit, l'expression parfaitement calme.
 
@@ -68,7 +68,7 @@ Gu Dao reprit d'une voix éraillée: « Tu as pu tuer Ye Dao, le descendant de l
 
 « Je ne peux pas quitter le Clan Ancien? » Les yeux de Wang Lin s'illuminèrent.
 
-« À moins que je ne t'en empêche, tu ne peux partir, » répondit une voix antique émanant du brouillard.
+« À moins que je ne puisse t'en empêcher, tu ne peux partir, » répondit une voix antique émanant du brouillard.
 
 « Je ne te retiendrai pas éternellement: trois cents ans. Tu devras rester dans le Clan Ancien pendant trois cents ans. Une fois que le Royaume Divin Immémorial s'ouvrira, tu pourras partir comme bon te semble. »
 
@@ -108,11 +108,11 @@ En regardant Gu Dao à travers le brouillard, Wang Lin sembla comprendre quelque
 
 « Si tu veux te battre, alors battons-nous! » Wang Lin leva les yeux, le regard brillant d'une lueur intense. Puisque l'affrontement était inévitable, il voulait voir lequel d'eux était le plus puissant!
 
-Ce serait un combat pour la suprématie absolue du Continent Astral Immortel depuis l'Ancêtre Céleste et l'Ancêtre Ancien! Un duel entre les deux êtres au sommet de l'existence!
+Ce serait un combat pour la suprématie absolue du Continent Astral Immortel, le premier combat de tout le continent depuis la disparition de l'Ancêtre Céleste et de l'Ancêtre Ancien! Un duel entre les deux êtres au sommet de l'existence!
 
-Gu Dao, l'être le plus puissant du Continent Astral Immortel. Il avait gravi les Ponts de l'Écrasement Céleste il y a des éons. Bien qu'il fût bloqué au sixième pont, sa puissance de combat était phénoménale et il était le seul à avoir tué des Grands Empyréens!
+Gu Dao, l'être le plus puissant du Continent Astral Immortel. Il avait gravi les Ponts du Piétinement des Cieux il y a des éons. Bien qu'il fût bloqué au sixième pont, sa puissance de combat était phénoménale et il était le seul à avoir tué des Grands Empyréens!
 
-Wang Lin, quant à lui, était une fusion des pouvoirs célestes et anciens. Sa culture n'était pas encore achevée, mais avec seulement deux corps véritables complets, il se trouvait déjà à un demi-pas de l'Écrasement Céleste. Il ignorait quel niveau il atteindrait une fois ses essences éthérées totalement complétées!
+Wang Lin, quant à lui, était une fusion des pouvoirs célestes et anciens. Sa culture n'était pas encore achevée, mais avec seulement deux corps véritables complets, il se trouvait déjà à un demi-pas du Piétinement des Cieux. Il ignorait quel niveau il atteindrait une fois ses essences éthérées totalement complétées!
 
 Il possédait également cet avatar dans le vide. Cela faisait des centaines d'années qu'il l'avait obtenu, et il avait commencé à croître. Une fois fusionné avec lui, Wang Lin pourrait déchaîner une puissance terrifiante.
 
@@ -122,7 +122,7 @@ Cette bête de brume était étrange, dotée de neuf têtes. Elle ressemblait é
 
 Ses neuf têtes rugissaient avec des expressions féroces, tout en dégageant une aura ancestrale. On aurait dit que cette créature possédait une âme et existait depuis des éternités.
 
-Depuis le cœur de la bête de brume, le Grand Empyréen Gu Dao pointa un doigt vers l'avant. Ce doigt était enveloppé de brouillard, mais on pouvait y déceler un éclat glacial.
+Depuis le cœur de la bête de brume, le Grand Empyréen Gu Dao pointa un doigt vers l'avant. Ce doigt était enveloppé de brouillard, mais on y distinguait vaguement un ongle recourbé d'où émanait un éclat glacial.
 
 Soudain, le monde entier bascula sous les yeux de Wang Lin. Le ciel et la terre se trouvèrent parcourus d'innombrables lignes fines. L'univers entier semblait désormais régi par les Lois.
 

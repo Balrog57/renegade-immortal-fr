@@ -6,9 +6,9 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: Chapter 1851 - Soul Order
 slug: ordre-de-lame
 ---
-Parmi les dizaines de milliers de cultivateurs, d'innombrables personnes périrent dans la Mer des Pilules. L'avatar de Yun Kong était trop proche et fut le premier à mourir. Peu importait la puissance de son intention d'épée, face à l'explosion de la Pilule Céleste, il n'était aussi fragile qu'un morceau de papier!
+Parmi les dizaines de milliers de cultivateurs, d'innombrables personnes périrent dans la Mer des Pilules. L'avatar de Yun Kong était trop proche et fut le premier à mourir. Peu importait la puissance de son intention d'épée, face à l'explosion de la Pilule Céleste, il fut aussi fragile qu'un morceau de papier!
 
-Sous l'effet de l'effondrement, toute la Mer des Pilules disparut. Le Continent du Démon Vert perdit plus de dizaines de milliers de cultivateurs. Les autres ne purent échapper à cette force destructrice et furent envahis par le désespoir lorsqu'une ombre gigantesque apparut. Cette silhouette ressemblait à une personne, mais il était impossible d'en distinguer les traits clairement. D'un revers de manche, elle enveloppa les cultivateurs restants du Continent du Démon Vert.
+Sous l'effet de l'effondrement, toute la Mer des Pilules disparut. Le Continent du Démon Vert perdit plus de dix mille cultivateurs. Les autres ne purent échapper à cette force destructrice et furent envahis par le désespoir lorsqu'une ombre gigantesque apparut. Cette silhouette ressemblait à une personne, mais il était impossible d'en distinguer les traits clairement. D'un revers de manche, elle enveloppa les cultivateurs restants du Continent du Démon Vert.
 
 Alors que la force destructrice se rapprochait, la silhouette recula de nouveau, évitant de justesse le choc. Puis, elle disparut sans laisser de trace, bien qu'en réalité, elle fût encore blessée.
 
@@ -20,7 +20,7 @@ Heureusement, la Pilule Céleste avait explosé au centre de la Mer des Pilules.
 
 De cela, on pouvait mesurer à quel point l'origine de la Pilule Céleste était extraordinaire et mystérieuse!
 
-Trois jours plus tard, la puissance destructrice de l'explosion de la Pilule Céleste finit par s'atténuer jusqu'à disparaître. Cependant, la tempête de poussière qui enveloppait les confins des deux continents persistait toujours.
+Trois jours plus tard, la puissance destructrice de l'explosion de la Pilule Céleste finit par s'atténuer jusqu'à disparaître en grande partie. Cependant, la tempête de poussière qui enveloppait les confins des deux continents persistait toujours.
 
 Du côté du Continent du Démon Vert, après trois jours de silence, ils ne changèrent en rien leur plan d'invasion du Continent du Taureau Céleste. Les trois grandes sectes s'unirent et rassemblèrent disciples et Anciens pour former une armée de 70 000 cultivateurs, marchant désormais vers le Continent du Taureau Céleste qui n'avait plus de barrière!
 
@@ -36,7 +36,7 @@ Dans la brume, parmi les décombres d'une montagne, un jeune homme aux cheveux b
 
 La puissance destructrice était dans les prévisions de Wang Lin, mais il avait tout de même été frappé par l'onde de choc.
 
-Bien qu'elle n'ait effleuré son corps qu'un instant, Wang Lin eut l'impression d'entendre le craquement de ses os se brisant, de ses éclats de lumière se fragmentant et de son âme originelle se désintégrer. Dès son arrivée ici, il n'avait pu contenir sa douleur; il avait craché du sang avant de se stabiliser rapidement.
+Bien qu'elle n'ait effleuré son corps qu'un instant, Wang Lin eut l'impression d'entendre le craquement de ses os se brisant, de sa chair s'effondrant et de son âme originelle se désintégrer. Dès son arrivée ici, il n'avait pu contenir sa douleur; il avait craché du sang avant de se stabiliser rapidement.
 
 S'il avait été un cultivateur ordinaire, s'il n'était pas mort, il aurait dû chercher un autre corps. Cependant, grâce à son corps de Dao Antique, il n'était que blessé.
 
@@ -70,7 +70,7 @@ S'il se contentait de parler, on le soupçonnerait ou ne le croirait pas. La mei
 
 Après réflexion, Wang Lin effaça la séquence où il obtenait la boussole, ne laissant que celle où il tranchait la Pilule Céleste. Cela suffisait amplement!
 
-« Avec cela, je pourrai réclamer le sortilège d'illusion multicouche auprès du Vénérable Taureau Vert! » Wang Lin rangea le jade et la boussole. Après avoir levé sa restriction, il s'envola vers les profondeurs du Continent du Taureau Céleste.
+« Avec cela, je pourrai réclamer le sortilège d'illusion multicouche du neuvième étage auprès de l'Ancêtre Taureau Vert! » Wang Lin rangea le jade et la boussole. Après avoir levé sa restriction, il s'envola vers les profondeurs du Continent du Taureau Céleste.
 
 Après avoir parcouru plus de 100 000 pieds, des ondulations se firent entendre et il disparut. Lorsqu'il réapparut, il se trouvait loin de la Mer des Pilules, dans les terres intérieures du Continent du Taureau Céleste.
 
@@ -88,13 +88,13 @@ Ces grues s'éparpillèrent dans différentes directions, se déplaçant même p
 
 Son Sens Divin pénétra dans la grue en papier et une voix puissante résonna soudainement dans son esprit:
 
-« Le Continent du Démon Vert envahit les terres. La Mer des Pilules a été détruite, tout comme la barrière entourant le Continent du Taureau Céleste. Leur armée approchera bientôt. La Secte de la Grande Âme et la Secte Gui Yi émettent l'Ordre de l'Âme. Toutes les sectes doivent se sceller, et tous les cultivateurs aptes au combat doivent se rassembler aux sept points clés du Continent du Taureau Céleste, établis il y a des éons! »
+« Le Continent du Démon Vert envahit les terres. La Mer des Pilules a été détruite, tout comme la barrière entourant le Continent du Taureau Céleste. Leur armée approchera bientôt. La Secte de la Grande Âme et la Secte Gui Yi émettent l'Ordre de l'Âme. Toutes les sectes doivent se sceller, et tous les cultivateurs aptes au combat doivent se rassembler aux sept méridiens du Continent du Taureau Céleste, ouverts il y a des éons. Ceux qui en sont proches doivent s'y rendre sans délai! »
 
 Wang Lin relâcha la grue en papier qui disparut instantanément sans laisser de trace.
 
 Wang Lin contempla le ciel devant lui, l'esprit tourmenté par mille pensées. Après un long moment, il fronça les sourcils et chassa ces réflexions étranges. Il se calma, s'assit sur le dos du roi moustique et reprit sa route.
 
-Pendant que Wang Lin regagnait la Grande Secte, vingt jours après l'explosion, des dizaines de cultivateurs de la Tribulation du Vide du Continent du Démon Vert arrivèrent en éclaireurs. Leur objectif était de dévorer les cultivateurs du troisième stade du Continent du Taureau Céleste à tout prix!
+Pendant que Wang Lin regagnait la Grande Secte, vingt jours après l'explosion, des dizaines de cultivateurs de la Tribulation du Vide du Continent du Démon Vert arrivèrent en éclaireurs. Leur objectif était d'user par tous les moyens les cultivateurs du troisième stade du Continent du Taureau Céleste!
 
 Plus ils massacreraient, plus leurs chances de victoire augmenteraient!
 

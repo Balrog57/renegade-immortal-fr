@@ -10,13 +10,13 @@ Certains membres du clan des Anciens croyaient que l'Ancêtre n'était pas mort 
 
 L'esprit de l'Ancêtre continuait de protéger les trois clans. Autrement, comment expliquer la scène étrange qui s'était produite lors des épreuves au temple ancestral des trois clans, et comment justifier la bénédiction accordée par la statue de l'Ancêtre?
 
-Comment expliquer les halos qui apparaissaient autour de la statue de l'Ancêtre lorsque quelqu'un subissait la Triple Scission d'Âme du Dao Antique?
+Comment expliquer les halos qui apparaissaient autour de la statue de l'Ancêtre lorsque quelqu'un subissait la Triple Division de l'Âme de l'Ancien Dao?
 
-Lors de la Triple Scission d'Âme du Dao Antique, lors de la première scission, neuf halos apparaissaient autour de la statue de l'Ancêtre. Lors de la deuxième scission, 18 halos apparaissaient, et lors de la troisième, un total de 27 halos se manifestaient!
+Lors de la Triple Division de l'Âme de l'Ancien Dao, lors de la première scission, neuf halos apparaissaient autour de la statue de l'Ancêtre. Lors de la deuxième scission, 18 halos apparaissaient, et lors de la troisième, un total de 27 halos se manifestaient!
 
 À cet instant, dans la ville impériale, à l'extérieur de la statue de l'Ancêtre, 18 halos brillaient et des ondulations se propageaient dans toutes les directions, attirant l'attention de tous les habitants de la cité.
 
-Song Tian se tenait à 10 000 pieds de la cité ancestrale, contemplant les 18 halos. Il médita silencieusement un instant avant de prendre congé. Trois ans plus tôt, il était venu pour expier ses actes et apaiser sa propre conscience.
+Song Tian se tenait à 10 000 pieds du temple ancestral, contemplant les 18 halos. Il médita silencieusement un instant avant de prendre congé. Trois ans plus tôt, il était venu pour expier ses actes et apaiser sa propre conscience.
 
 Il avait gardé Wang Lin pendant trois ans. Bien qu'il ne fût pas le seul ici, sa décision était prise. Si Wang Lin avait couru le moindre danger au cours de ces trois années, il l'aurait certainement aidé.
 
@@ -32,7 +32,7 @@ Wang Lin prit une profonde inspiration et ses yeux brillèrent. Il leva les yeux
 
 « La première scission a duré trois ans. Les derniers instants ressemblaient presque à la mort. Si ce n'était pas pour ma volonté, je crains que je n'aurais pas pu fusionner à nouveau... »
 
-« Cette Triple Scission d'Âme du Dao Antique est liée à la force de la volonté... mais aussi à la chance... » Wang Lin fronça les sourcils; il comprenait désormais pourquoi si peu de personnes choisissaient de tenter une scission complète.
+« Cette Triple Division de l'Âme de l'Ancien Dao est liée à la force de la volonté... mais aussi à la chance... » Wang Lin fronça les sourcils; il comprenait désormais pourquoi si peu de personnes choisissaient de tenter une scission complète.
 
 La chance peut frapper une fois, ou peut-être deux, mais trois fois consécutives... était extrêmement improbable.
 
@@ -110,7 +110,7 @@ Ji Du s'élança dans les airs et observa la scène avec nervosité, serrant inc
 
 Song Tian, debout au sommet de la corne de la Montagne d'Origine, affichait une expression incertaine.
 
-L'un des 18 halos s'étiola soudainement avant de se briser en d'innombrables fragments.
+L'un des 18 halos s'assombrit rapidement puis, un bâton d'encens plus tard, il se brisa soudainement en d'innombrables fragments.
 
 Désormais, il ne restait que 17 halos autour de la statue de l'Ancêtre!
 

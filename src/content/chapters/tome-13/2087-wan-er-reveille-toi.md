@@ -6,13 +6,13 @@ bookTitle: Light of the coming end
 en: Chapter 2087 - Wan Er, Wake Up
 slug: wan-er-reveille-toi
 ---
-La voix de l'Omniscient résonna dans le Royaume Divin Immémorial, avec la montagne enneigée aux sept couleurs comme centre. Son immense corps de brume noire se précipita vers Wang Lin, animé d'une résistance et d'une folie désespérées.
+La voix de l'Omniscient résonna dans le Royaume Divin Immémorial, avec la montagne enneigée aux sept couleurs comme centre. Son immense corps de brume noire se précipita vers Wang Lin, animé d'un refus rageur et d'une folie désespérée.
 
 Il refusait d'accepter cette issue. Il avait attendu si longtemps, traversé d'innombrables réincarnations jusqu'à ce jour fatidique, mais il ne s'était jamais attendu à ce que tout se termine ainsi.
 
 Wang Lin avait trompé tout le monde. Même l'Omniscient ignorait que tout n'était pas un rêve de Wang Lin, mais plutôt la Voie de l'avatar de massacre.
 
-Le cœur de l'Omniscient était envahi par un sentiment absurde, une sensation suffisante pour le rendre fou. Il était l'âme précieuse de la Boussole des Limites, et il avait vu Wang Lin revenir ici encore et encore, se dissipant à chaque réincarnation.
+Le cœur de l'Omniscient était envahi par un sentiment absurde, une sensation suffisante pour le rendre fou. Il était l'esprit précieux de la Boussole des Limites, et il avait vu Wang Lin revenir ici encore et encore, se dissipant à chaque réincarnation.
 
 Jusqu'au moment où il vit personnellement Wang Lin briser la boussole avant de se dissiper. Cela lui permit, à l'Omniscient, de sortir, et à cet instant, il avait éclaté de joie.
 
@@ -34,7 +34,7 @@ Il avait même décidé qu'une fois libre et parvenu à prendre possession du co
 
 Selon lui, après avoir pris le contrôle de Wang Lin, la Boussole des Limites deviendrait son trésor suprême. Il était l'esprit de l'objet, et personne n'en connaissait mieux la puissance que lui.
 
-Outre sa force, son utilité la plus cruciale était de permettre de quitter le Royaume Défiant la Terre!
+Outre sa force, son utilité la plus cruciale était de permettre de quitter le Royaume de la Terre Défiante!
 
 Quant à l'origine de la Boussole des Limites, il avait quelques intuitions, mais elles restaient floues. Il ignorait qui l'avait créée et pourquoi il se trouvait en son sein.
 
@@ -48,7 +48,7 @@ Wang Lin leva la main droite et, regardant la brume noire foncer sur lui, fit un
 
 « Lorsque j'ai maîtrisé la réincarnation, j'avais déjà atteint le Piétinement des Cieux. » Tandis que Wang Lin parlait calmement, il agita sa manche. La brume noire devant lui grésilla et commença à se dissiper rapidement.
 
-« Je refuse que cela se termine ainsi! Wang Lin, je refuse! » L'Omniscient poussa un cri misérable. Alors que les gaz noirs se dispersaient, le reste de la substance se condensa en une tête gigantesque. Cette tête différait grandement de l'apparence de l'Omniscient: c'était celle d'un homme d'âge moyen, entre ses sourcils scintillait un motif étoilé à l'intérieur duquel une ombre vague de grue semblait lutter.
+« Je refuse que cela se termine ainsi! Wang Lin, je refuse! » L'Omniscient poussa un cri misérable. Alors que les gaz noirs se dispersaient, le reste de la substance se condensa en une tête gigantesque. Cette tête différait grandement de l'apparence de l'Omniscient: c'était celle d'un homme d'âge moyen, entre ses sourcils scintillait un motif d'étoile à cinq branches à l'intérieur duquel une ombre vague de grue semblait lutter.
 
 Tout cela ne dura qu'un instant avant de se dissiper. La tête de l'homme s'évapora et le reste de la brume noire se transforma soudainement en une gigantesque grue noire.
 
@@ -90,13 +90,13 @@ Ce cri d'aide si doux et ces yeux emplis de panique avaient poussé Wang Lin, qu
 
 S'il n'avait pas levé les yeux, peut-être que tout aurait été différent.
 
-Dans la Mer des Diables, lorsqu'il avait ouvert les yeux et vu cette silhouette fragile mais déterminée se tenir à l'entrée de la grotte, son cœur avait tremblé un instant. Il ne savait pas pourquoi il avait dit: « N'aie pas peur, je vais t'emmener pour tuer... », mais il savait qu'à ce moment-là, ces mots étaient sortis naturellement...
+Dans la Mer des Diables, pendant ces années, à l'instant où il avait ouvert les yeux et vu cette silhouette fragile mais déterminée se tenir à l'entrée de la grotte, son cœur avait tremblé un instant. Il ne savait pas pourquoi il avait dit: « N'aie pas peur, je vais t'emmener pour tuer... », mais il savait qu'à ce moment-là, ces mots étaient sortis naturellement...
 
-Cette silhouette délicate qui avait utilisé son sang pour graver la formation du dragon sur l'écaille, ce visage pâle qui lui brisait le cœur. Mais à cette époque, il était traqué par des êtres dont la haine envers lui était aussi profonde que l'océan. Il ne pouvait que s'enjoindre d'oublier toutes les souffrances qu'elle avait endurées.
+Cette silhouette délicate qui avait utilisé son sang pour graver des écailles sur la grande formation du Dragon Azur et se changer en jade protecteur de vie, ce visage pâle qui lui brisait le cœur. Mais il portait alors une haine du sang aussi profonde que la mer. Il ne pouvait que fermer les yeux et se dire d'oublier.
 
 La scène à la Secte du Nuage, lorsqu'il entendit le son de la cithare et vit la mélancolie de cette silhouette dans le pavillon, Wang Lin sut qu'il ne pourrait jamais oublier.
 
-*Ma main gauche est un court karma dans la Mer des Diables, et ma main droite représente des centaines d'années de culture...*
+*Ma main gauche est un court karma dans la Mer des Diables, et ma main droite est une méditation solitaire longue d'un siècle...*
 
 « Wan Er, ouvre les yeux, réveille-toi... Et il y a aussi Ping Er. Il s'éveillera lui aussi, tu aimeras cet enfant... » Les larmes de Wang Lin coulaient tandis qu'il murmurait.
 

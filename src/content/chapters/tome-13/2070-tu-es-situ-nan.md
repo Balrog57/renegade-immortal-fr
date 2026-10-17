@@ -104,7 +104,7 @@ Wang Lin le regarda et hocha lentement la tête.
 
 « Wang Lin... » murmura le vieux général avant de s'éclater en un rire sonore. Tandis qu'il riait, des larmes coulèrent. Normalement, il n'aurait jamais cru cela, mais ce sentiment de familiarité émanant de son âme et tout ce qu'il avait entendu sur le monde de la grotte rendaient l'incrédulité impossible.
 
-Il ne pouvait croire qu'un cultivateur céleste vienne tromper un mortel comme lui!
+Il ne pensait pas qu'un cultivateur immortel viendrait tromper un mortel comme lui!
 
 « Ainsi, je me suis déjà réincarné plusieurs fois sur le Continent Astral Immortel, et cette fois-ci, je suis Si Nan, le grand général du pays Wu Xuan... » Le vieux général riait de plus belle, les larmes aux yeux. Il y croyait, mais c'était précisément cette certitude qui rendait la chose si difficile à accepter.
 
@@ -112,7 +112,7 @@ Il ne pouvait croire qu'un cultivateur céleste vienne tromper un mortel comme l
 
 Maintenant, tu me dis que je suis Situ Nan. Je suis ce Situ Nan qui voulait devenir roi. Si je ne suis pas le Si Nan de Wu Xuan, alors que deviendront tous ces soldats?! » Sous l'effet de sa voix, la tente s'ouvrit et les soldats se précipitèrent à l'intérieur. Cependant, un seul cri du vieux général les renvoya tous à leurs postes.
 
-« Réincarnation... Réincarnation... Une seule réincarnation comporte tant de contraintes. Je me suis réincarné plusieurs fois... » Le vieux général resta assis, fixant Wang Lin d'un regard complexe, son rire se muant en amertume.
+« Réincarnation... Réincarnation... Une seule réincarnation comporte tant de liens. Je me suis réincarné plusieurs fois... » Le vieux général resta assis, fixant Wang Lin d'un regard complexe, son rire se muant en amertume.
 
 « Je suis désolé... C'était mon propre choix à l'époque. J'ai choisi de me réincarner sur le Continent Astral Immortel, et cela n'a rien à voir avec toi. »
 
@@ -120,7 +120,7 @@ Wang Lin resta silencieux, continuant de boire son vin.
 
 « Aide-moi à libérer les souvenirs de ma vie antérieure! » Le vieux général continua de boire jusqu'à vider trois cruches. Les yeux injectés de sang, l'air ivre, il fixait Wang Lin.
 
-Lorsque la nuit tomba de nouveau, Wang Lin quitta le camp, l'expression tourmentée. Il s'éleva dans les airs et regarda le camp avec une pointe de fierté. En levant les yeux, il vit le vieux général ouvrir les rideaux de la tente pour le contempler.
+Lorsque la nuit tomba de nouveau, Wang Lin quitta le camp, l'expression tourmentée. Il s'éleva dans les airs et regarda longuement la tente du commandement en contrebas. Quand il regarda, il vit le vieux général ouvrir les rideaux de la tente pour le contempler.
 
 « Wang Lin, une fois que ce vieil homme aura accompli cette réincarnation sans aucun regret et sera devenu le Roi Nan, je viendrai te chercher! » lança le vieux général d'une voix empreinte d'arrogance et de vigueur.
 

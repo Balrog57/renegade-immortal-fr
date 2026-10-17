@@ -20,13 +20,13 @@ Les pupilles de Tang Jia se rétractèrent alors qu'elle fixait la silhouette du
 
 « Si je n'active pas l'armure d'âme du Taureau Céleste, je ne pourrai pas résister à ce coup! » Tang Jia n'était qu'au huitième niveau de la Tribulation Arcane. Une fois le neuvième niveau franchi, elle pourrait véritablement entrer dans le stade initial de la Tribulation du Vide!
 
-Il y avait également le vieil homme assis sous l'horloge. Il ouvrit soudainement les yeux et tourna son regard vers eux. Sa culture était insondable et il dégageait l'aura d'un cultivateur au milieu de la Tribulation du Vide. Il ressemblait étrangement au Souverain Céleste aux Sept Couleurs à son apogée!
+Il y avait également le vieil homme assis sous la cloche. Il ouvrit soudainement les yeux et tourna son regard vers eux. Sa culture était insondable et il dégageait l'aura d'un cultivateur au milieu de la Tribulation du Vide. Il ressemblait étrangement au Souverain Céleste aux Sept Couleurs d'autrefois: il était manifestement au sommet du stade intermédiaire de la Tribulation du Vide!
 
 L'expression de Wang Lin resta imperturbable. Lorsque la lame dorée du jeune homme fut à moins de cent pieds, ses yeux brillèrent et il fixa intensément le regard de son adversaire. Il leva la main et pointa l'avant.
 
 D'un seul geste, le monde entier sembla se figer, comme si une force étrange avait solidifié la réalité, les lois, l'énergie céleste entourant la lame dorée et chaque mouvement du jeune homme!
 
-La lame d'or, aussi massive qu'un éboulement, se brisa sans même que Wang Lin n'ait eu à attaquer! Tandis que le jeune homme restait pétrifié, Wang Lin atterrit calmement sur la place, au pied de l'horloge.
+La lame d'or, aussi massive qu'un éboulement, se brisa sans même que Wang Lin n'ait eu à attaquer! Tandis que le jeune homme restait pétrifié, Wang Lin passa calmement à côté de lui et se posa sur la place, sous la cloche.
 
 Tang Jia vit tout cela et son cœur trembla. Elle tourna soudain les yeux vers Wang Lin, une lueur mystérieuse dans le regard. Quant au vieil homme de la Tribulation du Vide, il fronça les sourcils et jeta un coup d'œil à Wang Lin.
 
@@ -40,7 +40,7 @@ Ce jeune homme était Yun Yifeng, de la Secte Gui Yi!
 
 Yun Yifeng atterrit aux côtés de Wang Lin et rit. En voyant Wang Lin, il ressentit une immense joie. En repensant à ce qui s'était passé dans le monde des grottes, ils avaient été à la fois ennemis et amis. C'était complexe, et ce souvenir l'emplissait d'émotion. Après tout, ces dizaines de milliers d'années passées dans le monde des grottes représentaient la majeure partie de sa vie.
 
-« Frère Wang, après avoir quitté la grotte, j'ai immédiatement utilisé la puissance de ma secte pour te chercher, mais sans succès. Je ne m'attendais pas à ce que tu apparaisses ainsi. J'étais si heureux que je voulais naturellement poursuivre notre combat », dit sincèrement Yun Yifeng en ouvrant les bras vers Wang Lin.
+« Frère Wang, après être retourné à ma secte, j'ai immédiatement utilisé la puissance de ma secte pour te chercher, mais sans succès. Je ne m'attendais pas à ce que tu apparaisses ainsi. J'étais si heureux que je voulais naturellement poursuivre notre combat », dit sincèrement Yun Yifeng en ouvrant les bras vers Wang Lin.
 
 Wang Lin marqua un temps d'arrêt et observa Yun Yifeng. Après une courte réflexion, il s'avança et lui serra chaleureusement la main dans une étreinte fraternelle.
 
@@ -56,7 +56,7 @@ Wang Lin écouta Yun Yifeng sans dire mot, les yeux fixés sur la grande salle q
 
 « Vous trois, dites-moi vos noms. » La voix majestueuse retentit de nouveau.
 
-Tang Jia prit un air sérieux et déclara doucement: « Secte Xiu Shen, Tang Jia! »
+Tang Jia prit un air sérieux et déclara doucement: « Secte Xiu Sheng, Tang Jia! »
 
 « Cultivateur errant, Bord-des-Nuages! » Le vieil homme se leva et joignit les mains en direction de la salle.
 
@@ -76,7 +76,7 @@ Ce qui le surprit secrètement était que les fluctuations du monde étaient ég
 
 « Tang Jia! » La voix résonna à nouveau.
 
-« Tu as gardé le sixième méridien et accompli des mérites. Je permettrai à ta Secte Xiu Shen de tripler sa taille, de recruter trois fois plus de disciples et d'obtenir trois fois plus de ressources de culture. Je te remettrai également l'armure élémentaire d'eau, un trésor de la Secte Gui Yi! »
+« Tu as gardé le sixième méridien et accompli des mérites. Je permettrai à ta Secte Xiu Sheng de tripler sa taille, de recruter trois fois plus de disciples et d'obtenir trois fois plus de ressources de culture. Je te remettrai également l'armure élémentaire d'eau, un trésor de la Secte Gui Yi! »
 
 Un rayon de lumière bleue jaillit de la grande salle, se transformant en une mer qui sembla remplir le monde. Elle s'élança et enveloppa Tang Jia, pénétrant ses pores. Le corps de la jeune femme trembla et des ondulations parcoururent ses yeux autrefois calmes. Elle s'inclina respectueusement: « Merci, Senior Maître de Secte. »
 
@@ -102,7 +102,7 @@ Les trois autres avaient reçu deux récompenses, tandis que Wang Lin n'en avait
 
 « Attendez! » Wang Lin fixa la grande salle et fit un pas en avant, interrompant le Maître de la Secte Gui Yi.
 
-À cet instant, l'expression de Yun Yifeng changea et il fit signe à Wang Lin de se taire. Tang Jia regarda lui aussi Wang Lin, stupéfaite qu'il ose prendre la parole dans un tel moment. Même Bord-des-Nuages se tourna vers lui.
+À cet instant, l'expression de Yun Yifeng changea et il fit signe à Wang Lin de se taire. Tang Jia regarda elle aussi Wang Lin, stupéfaite qu'il ose prendre la parole dans un tel moment. Même Bord-des-Nuages se tourna vers lui.
 
 « Votre mission est de vous rendre sur le Continent du Démon Vert, d'infiltrer le Temple du Démon Vert et de détruire la Statue du Démon Vert afin de blesser gravement l'âme du Démon Vert. Une fois cela accompli, vous aurez tous quatre réalisé un exploit immense pour le Continent du Taureau Céleste! » La voix ignora totalement l'interruption de Wang Lin et poursuivit son énoncé.
 

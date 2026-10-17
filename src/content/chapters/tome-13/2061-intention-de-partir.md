@@ -6,33 +6,33 @@ bookTitle: Light of the coming end
 en: Chapter 2061 - Intent to Leave
 slug: intention-de-partir
 ---
-Le sang d'âme rouge vif changea soudainement de couleur pour devenir violet. Lorsqu'il atteignit la statue de l'Ancêtre Divin, il était devenu pourpre!
+Le sang d'âme rouge vif changea soudainement de couleur pour devenir violet. Lorsqu'il atteignit la statue de l'Ancêtre Ancien, il était devenu pourpre!
 
-Sang violet, le sang d'âme de l'Ancêtre Divin!
+Sang violet, le sang d'âme de l'Ancêtre Ancien!
 
 L'aura spirituelle à l'intérieur devint encore plus puissante, teintant tout le ciel de violet!
 
-Toute la cité impériale de Shi Antique, y compris le nouvel Empereur Ji Du, contemplait le sang d'âme violet surplombant la statue de l'Ancêtre Divin. À cet instant, la lumière pourpre forma un halo et descendit rapidement depuis le sommet de la statue.
+Toute la cité impériale de Shi Antique, y compris le nouvel Empereur Ji Du, contemplait le sang d'âme violet surplombant la statue de l'Ancêtre Ancien. À cet instant, la lumière pourpre forma un halo et descendit rapidement depuis le sommet de la statue.
 
 En un éclair, ce halo violet disparut dans les profondeurs du temple ancestral.
 
 Wang Lin était assis au plus profond du temple ancestral, entouré d'innombrables particules de lumière pourpre. La lumière se condensa sur son corps et fusionna rapidement avec la première goutte de sang d'âme qu'il possédait.
 
-Après les Trois Séparations de l'Âme du Dao Antique vinrent la Bénédiction de l'Ancêtre Divin. Ce sang d'âme était cette bénédiction!
+Après les Trois Séparations de l'Âme du Dao Antique vinrent la Bénédiction de l'Ancêtre Ancien. Ce sang d'âme était cette bénédiction!
 
-Tous ceux qui avaient vu le sang pourpre descendre étaient sous le choc. Ils ne pouvaient croire ce qu'ils voyaient. C'était du sang d'âme, le sang d'âme de l'Ancêtre Divin!!
+Tous ceux qui avaient vu le sang pourpre descendre étaient sous le choc. Ils ne pouvaient croire ce qu'ils voyaient. C'était du sang d'âme, le sang d'âme de l'Ancêtre Ancien!!
 
-« La rumeur dit que trois gouttes de sang d'âme peuvent créer un nouveau clan. Il a réellement obtenu une goutte de sang d'âme lors de la Bénédiction de l'Ancêtre Divin! »
+« La rumeur dit que trois gouttes de sang d'âme peuvent créer un nouveau clan. Il a réellement obtenu une goutte de sang d'âme lors de la Bénédiction de l'Ancêtre Ancien! »
 
 « Serait-il possible que si l'on traverse parfaitement les Trois Séparations de l'Âme du Dao Antique, l'on puisse obtenir du sang d'âme?! »
 
-Un tollé retentit à travers le monde. Ji Du regarda la statue de l'Ancêtre Divin en laissant échapper un souffle court. Même lui ne s'attendait pas à ce que son parrain obtienne le sang d'âme de l'Ancêtre Divin!
+Un tollé retentit à travers le monde. Ji Du regarda la statue de l'Ancêtre Ancien en laissant échapper un souffle court. Même lui ne s'attendait pas à ce que son parrain obtienne le sang d'âme de l'Ancêtre Ancien!
 
-Lorsque le sang pourpre disparut, le ciel retrouva son aspect normal et il sembla que tout était terminé. Après tout, la Bénédiction de l'Ancêtre Divin avait eu lieu, et les trois épreuves ainsi que les sept calamités touchaient à leur fin.
+Lorsque le sang pourpre disparut, le ciel retrouva son aspect normal et il sembla que tout était terminé. Après tout, la Bénédiction de l'Ancêtre Ancien avait eu lieu, et les trois épreuves ainsi que les sept calamités touchaient à leur fin.
 
 Cependant, alors que chacun s'apprêtait à conclure, un autre changement survint dans le ciel. Un vacarme encore plus grand éclata aux quatre coins de la cité impériale.
 
-« Ce n'est pas fini! Regardez le ciel changer, la Bénédiction de l'Ancêtre Divin ne s'achève pas! »
+« Ce n'est pas fini! Regardez le ciel changer, la Bénédiction de l'Ancêtre Ancien ne s'achève pas! »
 
 « Pourpre... c'est encore du pourpre! »
 
@@ -46,15 +46,15 @@ C'était au cœur de ce trou noir que la lumière violette était la plus dense.
 
 « Deux gouttes! Il a obtenu deux gouttes de sang d'âme!! »
 
-Le sang d'âme tomba lentement pour finalement pénétrer le sommet de la statue de l'Ancêtre Divin. La lumière pourpre descendit et disparut dans le temple ancestral.
+Le sang d'âme tomba lentement pour finalement pénétrer le sommet de la statue de l'Ancêtre Ancien. La lumière pourpre descendit et disparut dans le temple ancestral.
 
 L'agitation ne faiblissait pas. À l'intérieur du temple, de plus en plus de lumières pourpres apparurent autour de Wang Lin. Elles se condensèrent rapidement vers son corps avant d'y être absorbées.
 
 Finalement, lorsque toute la lumière pourpre eut pénétré le corps de Wang Lin, il possédait un total de trois gouttes de sang d'âme en lui. Il ouvrit soudainement les yeux.
 
-À l'instant où il les ouvrit, la statue de l'Ancêtre Divin projeta une puissante lumière pourpre. Tandis que cette clarté brillait, l'âme originelle de Wang Lin, qui recouvrait la statue, se rétracta rapidement jusqu'à disparaître sans laisser de trace dans le temple ancestral.
+À l'instant où il les ouvrit, la statue de l'Ancêtre Ancien projeta une puissante lumière pourpre. Tandis que cette clarté brillait, l'âme originelle de Wang Lin, qui recouvrait la statue, se rétracta rapidement jusqu'à disparaître sans laisser de trace dans le temple ancestral.
 
-Le ciel retrouva lentement sa normale et plus aucune trace de violet ne subsistait. La statue de l'Ancêtre Divin resta calme, semblant toujours contempler le ciel avec dédain et mépris.
+Le ciel retrouva lentement sa normale et plus aucune trace de violet ne subsistait. La statue de l'Ancêtre Ancien resta calme, semblant toujours contempler le ciel avec dédain et mépris.
 
 Une fois le calme revenu, les habitants de Shi Antique sortirent de leur stupeur. Bien qu'une immense vague ait déferlé dans leurs cœurs, ils s'efforcèrent de garder une apparence sereine.
 
@@ -64,7 +64,9 @@ Leurs regards portés vers le temple ancestral étaient empreints d'émotions di
 
 Après quelques respirations, son corps passa de son état squelettique à celui qu'il avait lors de sa première entrée dans le temple, mais sa puissance était radicalement différente!
 
-Wang Lin ferma les yeux pour ressentir les mutations de son âme originelle. Celle-ci était désormais d'une puissance extrême. Lorsque son Sens Divin se déploya, il ne couvrit pas seulement tout le clan Antique, mais s'étendit jusqu'à la vaste mer.
+Wang Lin ferma les yeux pour ressentir les mutations de son âme originelle. Celle-ci était désormais d'une puissance extrême. Lorsque son Sens Divin se déploya, il ne couvrit pas seulement tout le territoire du clan Antique, mais aussi l'immense bassin formé par la vaste mer après que ses eaux se furent élevées dans le ciel.
+
+Un Sens Divin aussi puissant exigeait une âme originelle presque indestructible, et à présent, après ces trois fragmentations et fusions, l'âme originelle de Wang Lin avait atteint un degré inconcevable.
 
 Il pouvait percevoir la Loi du monde, ressentir le mouvement de toutes choses et même voir le flux du temps.
 
@@ -82,7 +84,7 @@ Observant le ciel et la direction prise par Xuan Luo, Wang Lin resta pensif. Ses
 
 « Avant de partir, je dois aller voir mon Maître... » se dit-il.
 
-« Les Ponts du Piétinement des Cieux... je me demande si je peux atteindre le quatrième pont! Mais quoi qu'il advienne, mon temps au sein du clan Antique est terminé. Il reste encore 300 ans avant l'ouverture du Royaume des Dieux Immémoriaux. Je ne veux pas passer ce temps sur le Continent Astral Immortel, je veux rentrer chez moi... »
+« Les Ponts du Piétinement des Cieux... je me demande si je peux atteindre le quatrième pont! Mais quoi qu'il advienne, mon temps au sein du clan Antique est terminé. Il reste encore 300 ans avant l'ouverture du Royaume Divin Immémorial. Je ne veux pas passer ce temps sur le Continent Astral Immortel, je veux rentrer chez moi... »
 
 « Je ramènerai Wan Er à la maison. » Wang Lin détourna les yeux du ciel et se dirigea vers le palais.
 

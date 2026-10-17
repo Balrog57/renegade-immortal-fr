@@ -24,7 +24,7 @@ Mais à cet instant, l'ancêtre de la Secte du Dao Démoniaque remarqua qu'aucun
 
 La portée de cette phrase était vertigineuse!
 
-« Cette personne a obtenu la haute reconnaissance de l'âme du Taureau Céleste et possède une puissance proche d'un Exalté Empyréen. Après avoir revêtu l'armure de l'âme, son niveau de culture est infiniment proche de celui d'un Ascendant Empyréen. Cet homme... Il n'est pas étonnant que le Grand Empyréen Dao Yi lui accorde autant d'importance », soupira l'ancêtre de la Secte du Dao Démoniaque intérieurement.
+« Cette personne a obtenu la haute reconnaissance de l'âme du Taureau Céleste et possède une puissance proche d'un Exalté Empyréen. Après avoir revêtu l'armure de l'âme, sa puissance de combat est infiniment proche de celle d'un Ascendant Empyréen. Cet homme... Il n'est pas étonnant que le Grand Empyréen Dao Yi lui accorde autant d'importance », soupira l'ancêtre de la Secte du Dao Démoniaque intérieurement.
 
 Wang Lin réfléchit silencieusement. Le Grand Empyréen Dao Yi était le premier Grand Empyréen qu'il rencontrait, et il pouvait percevoir la sincérité de la promesse dans ces mots.
 
@@ -78,7 +78,7 @@ Le vieil homme poursuivit lentement: « L'Épreuve Empyréenne comporte 19 nivea
 
 Wang Lin demanda immédiatement: « Comment puis-je entrer dans l'Épreuve Empyréenne? »
 
-Le vieil homme regarda le ciel et répondit lentement: « C'est très simple. Dès que vous aurez obtenu la reconnaissance de la Loi Astrale Immortelle en tant qu'Exalté Empyréen, il vous suffira de trouver un lieu sûr dans la terre des cieux. Ensuite, projetez votre âme originelle vers le ciel le plus rapidement possible. Après 60 respirations, vous pourrez pénétrer dans l'Épreuve Empyréenne créée par l'Ancêtre Céleste. »
+Le vieil homme regarda le ciel et répondit lentement: « C'est très simple. Dès que vous aurez obtenu la reconnaissance de la Loi Astrale Immortelle en tant qu'Exalté Empyréen, il vous suffira de trouver un lieu sûr dans la terre des cieux. Ensuite, quittez votre corps avec votre âme originelle et volez vers le ciel le plus rapidement possible. Une fois passées plus de 60 respirations, vous pourrez pénétrer dans l'Épreuve Empyréenne créée par l'Ancêtre Céleste. »
 
 « La rumeur prétend qu'au pays des anciens, l'Ancêtre a également reproduit le Royaume Divin Immémorial pour créer un terrain d'essai adapté au Clan Ancien. »
 
@@ -106,9 +106,9 @@ Cependant, incapables de franchir la barrière protectrice, ils finirent par se 
 
 Wang Lin resta assis là pendant un an.
 
-Cette année ne fut pour lui qu'un instant fugace. Un jour, après cette année écoulée, Wang Lin ouvrit lentement les yeux. Il regarda le ciel et son regard brilla d'une intensité fulgurante.
+Cette année ne fut pour lui qu'un instant fugace. Un jour, après cette année écoulée, Wang Lin ouvrit lentement les yeux. Il regarda le ciel nocturne et son regard brilla d'une intensité fulgurante.
 
-« Ce coup de poing... j'ai calculé toutes les manières possibles d'y résister. J'ai simulé des millions de fois, mais pas une seule fois je n'ai pu l'esquiver... Ce n'était pourtant qu'un fragment du sens divin du Grand Empyréen Dao Yi... » Wang Lin soupira.
+« Ce coup de poing... j'ai calculé toutes les manières possibles d'y résister. J'ai simulé plus d'un million de fois, mais pas une seule fois je n'ai pu y résister... Ce n'était pourtant qu'un fragment du sens divin du Grand Empyréen Dao Yi... » Wang Lin soupira.
 
 L'euphorie liée à l'augmentation de son niveau de culture s'était estompée. Comparé à un Grand Empyréen, il était encore bien trop faible.
 

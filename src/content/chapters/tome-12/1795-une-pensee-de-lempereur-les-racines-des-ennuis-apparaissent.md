@@ -8,13 +8,13 @@ slug: une-pensee-de-lempereur-les-racines-des-ennuis-apparaissent
 ---
 Wang Lin ressentit une vive excitation dans son cœur. Il regarda les dix bêtes-moustiques restantes ainsi que son roi moustique. Il s'élança, enveloppé par le dragon de sang, et atterrit sur la tête du roi moustique.
 
-« Maître, nous nous reverrons sur le Continent Astral Immortel! » Wang Lin se retourna et joignit les mains en signe de respect envers Xuan Luo. Le roi moustique laissa échapper un hurlement féroce et chargea dans les profondeurs avec Wang Lin.
+« Enseignant, nous nous reverrons sur le Continent Astral Immortel! » Wang Lin se retourna et joignit les mains en signe de respect envers Xuan Luo. Le roi moustique laissa échapper un hurlement féroce et chargea dans les profondeurs avec Wang Lin.
 
 Derrière lui, les neuf bêtes-moustiques suivaient comme une garde d'honneur!
 
 Xuan Luo observa Wang Lin disparaître à travers l'interstice de la glace. Après un long moment, il ferma les yeux et agita la main. La brèche dans la glace se rétracta et fut scellée.
 
-« Cette bête semblable à un moustique... pourrait-elle être l'une des neuf créatures nées de la Loi du Continent Astral Immortel aux côtés de l'Ancêtre Ancien... Si c'est le cas, alors l'avenir de Wang Lin est devenu imprévisible... Il... il est probable qu'il devienne, par lui-même, le dixième soleil du Continent Astral Immortel! »
+« Cette bête semblable à un moustique... pourrait-elle être l'une des neuf créatures nées de la Loi du Continent Astral Immortel en même temps que la race antique et la race céleste... Si c'est le cas, alors l'avenir de Wang Lin est devenu imprévisible... Il... il est probable qu'il devienne, par lui-même, le dixième soleil du Continent Astral Immortel! »
 
 « S'il devient réellement le dixième Grand Empyréen, mon clan Dao Antique existera éternellement!! » Le visage de Xuan Luo devint légèrement rubicond. Il était stupéfait que ce moustique puisse absorber la Loi du Continent Astral Immortel. À cet instant, d'innombrables pensées traversèrent son esprit.
 
@@ -70,7 +70,7 @@ Un instant, il crut apercevoir Mu Bingmei tenant un parapluie sous la pluie. Ce 
 
 Wang Lin ne ressentait plus de haine envers Mu Bingmei.
 
-Un mois, deux mois, trois mois... Un autre semestre passa. Wang Lin était dans le vide depuis un an. En vérité, il aurait dû tout oublier, mais il ne pouvait se permettre d'oublier. S'il oubliait le passage du temps, ce serait comme avoir tout perdu.
+Un mois, deux mois, trois mois... Un autre semestre passa. Wang Lin était dans le vide depuis un an et demi. En vérité, il aurait dû tout oublier, mais il ne pouvait se permettre d'oublier. S'il oubliait le passage du temps, ce serait comme perdre sa ténacité.
 
 Ce jour-là, après un an et demi, Wang Lin murmura: « Il reste encore huit ans et demi... »
 
@@ -108,7 +108,7 @@ Heureusement, il pouvait compter sur la bête-moustique. Elle maintenait une all
 
 Wang Lin luttait pour rejoindre le Continent Astral Immortel. Sur ce continent, au cœur du clan Dao Antique, se trouvait la cité flottante. Au centre de la ville trônait le Palais Dao Antique, et un homme d'âge mûr vêtu d'une robe royale se tenait sur le plus haut pavillon, contemplant un ciel sombre qui semblait sur le point de pleuvoir.
 
-Il sentit une perle émettre une lueur spectrale. Bien que l'intérieur de la perle soit trouble, il pouvait y voir l'ombre d'une âme féminine endormie.
+Dans sa main se trouvait une perle émettant une lueur spectrale. Bien que l'intérieur de la perle soit trouble, il pouvait y voir l'ombre d'une âme féminine endormie.
 
 « Le Grand Empyréen est parti depuis bien longtemps... Hmph, dépenser tant d'efforts pour un simple cultivateur de monde de cavernes. La vieillesse l'a rendu sénile! »
 

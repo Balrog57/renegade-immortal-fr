@@ -34,7 +34,7 @@ Les trois lumières les plus importantes avaient disparu. Quant aux neuf points 
 
 La femme examina attentivement la boussole et fronça les sourcils avec encore plus d'intensité.
 
-« Il n'y a rien d'anormal... Comment le niveau de l'eau a-t-il pu chuter autant en deux jours... Il reste pourtant deux jours... Peu importe, je n'attendrai pas la fin. Cette baisse soudaine du niveau de la mer est trop suspecte... Je vais utiliser le Liquide de Corruption Raffinée pour balayer les cultivateurs restants! »
+« Il n'y a rien d'anormal... Comment le niveau de l'eau a-t-il pu chuter autant en deux jours... Il reste pourtant deux jours... Peu importe, je n'attendrai pas la fin. Cette baisse soudaine du niveau de la mer est trop suspecte... Je vais utiliser le Liquide de Corruption des Dix Mille Raffinements pour balayer les cultivateurs restants! »
 
 Un sentiment d'inquiétude l'envahit. Après une brève hésitation, elle serra les dents et sortit le liquide noir, qu'elle projeta vers la mer.
 
@@ -42,7 +42,7 @@ La goutte d'eau noire s'élança instantanément pour disparaître dans l'océan
 
 Cette eau sombre, semblable à de l'encre, se répandit à une vitesse inimaginable.
 
-« Quel que soit le secret caché dans la Mer des Pilules, il périra face au Liquide de Corruption Raffinée! »
+« Quel que soit le secret caché dans la Mer des Pilules, il périra face au Liquide de Corruption des Dix Mille Raffinements! »
 
 Quant à Wang Lin, après deux jours, il avait absorbé une quantité massive d'eau de mer. Il tentait de la condenser en son sein pour former une essence d'eau, mais rien ne s'était encore produit. Après réflexion, il accéléra encore son absorption.
 
@@ -62,7 +62,7 @@ Le point blanc représentant Wang Lin fut d'abord ignoré par la femme. Cependan
 
 « J'aurais dû m'en rendre compte bien plus tôt! » Un éclair de fureur traversa ses yeux.
 
-« Directement au nord, à 97 millions de kilomètres, envoyez 30 unités de Soldats du Démon Vert pour l'éliminer... » Avant qu'elle n'ait pu terminer sa phrase, le point blanc représentant Wang Lin disparut soudainement.
+« Plein est, à 97 millions de kilomètres, envoyez 30 unités de Soldats du Démon Vert pour l'éliminer... » Avant qu'elle n'ait pu terminer sa phrase, le point blanc représentant Wang Lin disparut soudainement.
 
 L'événement fut si brusque qu'elle en resta muette et stupéfaite.
 
@@ -82,13 +82,13 @@ Alors qu'il l'absorbait frénétiquement, il ressentit des picotements douloureu
 
 Loin de lui, de l'autre côté de la Mer des Pilules, près du Continent du Démon Vert, les pupilles de la femme se rétractèrent sous ses bannières. Elle fixa la boussole entre ses mains, la main droite tremblante.
 
-L'encre noire qui recouvrait la moitié de la Mer des Pilules se dissipait rapidement sur la carte. En voyant cela, son expression changea et elle eut un haut-le-cœur.
+L'encre noire qui recouvrait la moitié de la Mer des Pilules se dissipait rapidement sur la carte. En voyant cela, son expression changea et elle inspira brusquement.
 
 « C'est... » L'incrédulité se lut dans ses yeux alors qu'elle contemplait la boussole, hébétée. Bientôt, elle remarqua qu'un point blanc subsistait au milieu de la zone noire de la Mer des Pilules. Ce point n'était pas brillant, mais il était l'unique point blanc de cette moitié de la mer!
 
 « C'est lui! » Les yeux de la femme se remplirent d'une intention meurtrière alors qu'elle pointait sa main gauche vers l'avant.
 
-« 50 unités de Soldats du Démon Vert, tuez cet homme! » Sur ce commandement, plus de la moitié des mille cultivateurs présents aux côtés de la femme s'élancèrent et disparurent.
+« 50 unités de Soldats du Démon Vert, tuez cet homme! » Sur ce commandement, plus de la moitié des milliers de cultivateurs présents aux côtés de la femme s'élancèrent et disparurent.
 
 Sur la boussole de la femme, une multitude de points verts apparurent autour de Wang Lin pour l'encercler.
 
@@ -112,4 +112,4 @@ Lors de cette percée, son aura continua de croître jusqu'à atteindre le somme
 
 Simultanément, l'intérieur du corps de Wang Lin entra en ébullition et des bruits de craquements retentirent. Ses yeux révélèrent une lumière semblable à celle d'un cristal d'eau!
 
-« Essence d'eau, condense-toi dans le sang de mon corps. Désormais, mon sang sera l'essence d'eau! »
+« Essence d'eau, condense-toi dans le sang de mon corps. Désormais, mon sang sera l'essence d'eau des cinq éléments du ciel et de la terre! »

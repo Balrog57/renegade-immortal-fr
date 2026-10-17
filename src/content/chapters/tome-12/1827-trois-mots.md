@@ -14,7 +14,7 @@ Ce vieil homme semblait être là depuis longtemps, attendant Wang Lin. C'était
 
 Ses yeux étaient clairs et empreints d'une sagesse infinie. Il regardait Wang Lin comme s'il pouvait sonder les profondeurs de son esprit.
 
-Au moment où il fixa Wang Lin, celui-ci commença également à absorber le vieil homme. Ses pupilles se rétractèrent soudainement avant de reprendre rapidement leur forme normale. Les yeux de ce vieil homme révélaient une essence; ce n'était pas son corps originel, mais un véritable corps d'essence!
+Au moment où il fixa Wang Lin, celui-ci commença également à observer le vieil homme. Ses pupilles se rétractèrent imperceptiblement avant de reprendre rapidement leur forme normale. Le vieil homme semblait dégager une trace d'essence originelle; ce n'était manifestement pas son corps originel, mais un véritable corps d'essence!
 
 C'était la première fois que Wang Lin voyait un autre véritable corps d'essence en dehors du sien!
 
@@ -34,7 +34,7 @@ Wang Lin réfléchit en silence sans répondre.
 
 Le corps d'essence du Très Respecté Taureau Vert déclara soudain: « Ton nom est Wang Lin! »
 
-Wang Lin resta impassible, comme si le fait que ce vieil homme connaisse son nom ne l'étonnait guère. Fan Shanmeng le connaissait, il n'était donc pas surprenant que l'Ancien de la Secte de la Grande Âme soit au courant.
+Wang Lin resta impassible, comme si le fait que ce vieil homme connaisse son nom ne l'étonnait guère. Fan Shanmeng le connaissait, il n'était donc pas surprenant que l'Ancêtre de la Secte de la Grande Âme soit au courant.
 
 Wang Lin répondit calmement: « C'est bien moi! »
 
@@ -52,15 +52,15 @@ Le Très Respecté Taureau Vert sourit et regarda Wang Lin avec une admiration n
 
 « Je l'ai su dès l'instant où tu as pénétré dans la formation de la Secte de la Grande Âme. Je t'ai vu entrer dans la montagne rouge, je t'ai vu rencontrer Fan Shanlu, j'ai vu ton absorption de la veine principale de feu terrestre... »
 
-« Tu as formé ce corps d'essence de feu au sein de mon Secte de la Grande Âme, ce qui signifie que toi et ma secte êtes liés par le destin! Puisque nos destins sont liés, il n'est pas nécessaire de partir précipitamment. Wang Lin, deviens un Ancien de mon Secte de la Grande Âme. Qu'en dis-tu? »
+« Tu as formé ce corps d'essence de feu au sein de ma Secte de la Grande Âme, ce qui signifie que toi et ma secte êtes liés par le destin! Puisque nos destins sont liés, il n'est pas nécessaire de partir précipitamment. Wang Lin, deviens un Ancien de ma Secte de la Grande Âme. Qu'en dis-tu? »
 
 Les yeux de Wang Lin brillèrent, mais il garda le silence.
 
 Le corps d'essence du Très Respecté Taureau Vert reprit: « Sur le Continent Astral Immortel, à moins de fonder sa propre secte, il faut s'allier à une puissance existante pour progresser. Tu peux refuser cette offre, mais tôt ou tard, tu devras faire ce choix! »
 
-« Mon Secte de la Grande Âme est l'une des neuf sectes et treize factions du Continent de l'Est. Deviens un Ancien de ma secte et je te donnerai ton propre sommet ainsi qu'une grotte! Tout ce dont tu as besoin sera fourni par la Secte de la Grande Âme, et tant que tu remplis les conditions, tu pourras apprendre n'importe quel sort taoïste de notre secte! Qu'en dis-tu? »
+« Ma Secte de la Grande Âme est l'une des neuf sectes et treize factions du Continent de l'Est. Deviens un Ancien de ma secte et je te donnerai ton propre sommet ainsi qu'une grotte! Tout ce dont tu as besoin sera fourni par la Secte de la Grande Âme, et tant que tu remplis les conditions, tu pourras apprendre n'importe quel sort taoïste de notre secte! Qu'en dis-tu? »
 
-Les paroles du Très Respecté Taureau Vert étaient extrêmement séduisantes. Il ne menaçait pas Wang Lin et ignorait superbement le fait que ce dernier avait détruit la veine de feu terrestre, combattu cette femme dans la veine et provoqué un incendie colossal au sein de la Secte de la Grande Âme.
+Les paroles du Très Respecté Taureau Vert étaient extrêmement séduisantes. Il ne menaçait pas Wang Lin et ignorait superbement le fait que ce dernier avait détruit la veine de feu terrestre, affronté la jeune femme de la montagne rouge et provoqué un incendie colossal au sein de la Secte de la Grande Âme.
 
 Pourtant, plus il feignait l'indifférence, plus Wang Lin percevait une pression invisible. L'expression de Wang Lin resta néanmoins neutre et son cœur apaisé. Il avait depuis longtemps anticipé tout ce qui pourrait survenir après son entrée dans la Secte de la Grande Âme.
 
@@ -80,11 +80,11 @@ Le temps s'écoulait lentement. Peu après, alors qu'il ne restait plus que la m
 
 « Comment saviez-vous que je réapparaîtrais ici après mon départ? »
 
-« Mon Secte de la Grande Âme possède un sort taoïste nommé "Le Dao de l'Œil de l'Âme". Ce sort permet de diviner bien des choses... Il existe une multitude de personnes sur le Continent Astral Immortel, et parmi elles, de nombreuses méthodes de divination. Dans mon clan céleste, l'Enseignant Impérial de la Capitale Impériale est le premier. »
+« Ma Secte de la Grande Âme possède un sort taoïste nommé "Le Dao de l'Œil de l'Âme". Ce sort permet de diviner bien des choses... Il existe une multitude de personnes sur le Continent Astral Immortel, et parmi elles, de nombreuses méthodes de divination. Dans mon clan céleste, l'Enseignant Impérial de la Capitale Impériale est le premier. »
 
 « Avec son seul pouvoir, en matière de divination, il pourrait rivaliser avec les trois Enseignants Impériaux des trois Anciens Pays! »
 
-« Le Dao de l'Œil de l'Âme de mon Grande Secte n'est qu'un aperçu du chemin de la divination. Il ne se concentre pas sur le fait de diviner autrui, mais sur la capacité à se transformer soi-même pour devenir indéchiffrable aux yeux des autres. »
+« Le Dao de l'Œil de l'Âme de ma Secte de la Grande Âme n'est qu'un aperçu du chemin de la divination. Il ne se concentre pas sur le fait de diviner autrui, mais sur la capacité à se transformer soi-même pour devenir indéchiffrable aux yeux des autres. »
 
 « Si tu souhaites l'apprendre, je peux te l'enseigner... Le temps touche à sa fin, j'attends ta décision. » Le Très Respecté Taureau Vert sourit en parlant.
 
@@ -92,7 +92,7 @@ Wang Lin regarda le bâton d'encens de neige dont la fin était proche, et ses y
 
 Son mouvement soudain ne fut pas entravé par le Très Respecté Taureau Vert, et ce dernier ne changea même pas d'expression. Il regarda Wang Lin disparaître en secouant légèrement la tête.
 
-« Si tu es réellement la personne dont parlait l'Ancien lorsqu'il a choisi de bâtir la Secte de la Grande Âme sur la veine principale de feu terrestre, alors tu reviendras avant que ce bâton d'encens ne soit consumé. Je possède les sorts et les informations dont tu as besoin, mais si tu ne reviens pas, alors tu n'es pas... » En murmurant cela, il ferma les yeux.
+« Si tu es réellement la personne dont parlait l'Ancêtre fondateur lorsqu'il a choisi de bâtir la Secte de la Grande Âme sur la veine principale de feu terrestre, alors tu reviendras avant que ce bâton d'encens ne soit consumé. Je possède les sorts et les informations dont tu as besoin, mais si tu ne reviens pas, alors tu n'es pas... » En murmurant cela, il ferma les yeux.
 
 Il ne restait presque plus rien du bâton d'encens de neige; il fondait lentement.
 
@@ -112,13 +112,13 @@ Mais les pupilles de Wang Lin se rétractèrent brusquement et il ressentit un f
 
 Ce mot était très simple: c'était un « Wang ».
 
-Après une longue réflexion, une lueur étrange brilla dans les yeux de Wang Lin et il se fondit à nouveau dans le monde. Lorsqu'il réapparut, il se trouvait loin, près de la Secte du Dragon Bleu. Wang Lin était déjà venu ici; c'est là qu'il avait absorbé le premier filon enfantin et qu'il avait rencontré Du Qing.
+Après une longue réflexion, une lueur étrange brilla dans les yeux de Wang Lin et il se fondit à nouveau dans le monde. Lorsqu'il réapparut, il se trouvait loin, près de la Secte du Dragon Bleu. Wang Lin était déjà venu ici; c'est là qu'il avait absorbé la première veine enfantine et qu'il avait rencontré Du Qing.
 
 « L'endroit qui a formé le mot "Wang" est un lieu où je n'ai jamais été. Il existe de nombreuses façons d'expliquer pourquoi un mot apparaîtrait ainsi. Maintenant, je vais dans un endroit que je connais déjà. Je veux voir si un miracle peut réellement se produire! » Wang Lin apparut dans les airs et regarda en bas.
 
 Cependant, ce qu'il vit fit trembler son corps. Son esprit fut bouleversé tandis qu'il fixait la terre.
 
-En raison de l'assèchement de la veine de feu terrestre, des fissures étaient apparues sur le sol, et ces fissures formaient le mot « Lin! »
+En raison de l'assèchement de la veine enfantine de feu terrestre, des fissures étaient apparues sur le sol, et ces fissures formaient le mot « Lin! »
 
 Il fallait observer depuis les hauteurs pour percevoir le mot « Lin ». Après avoir contemplé la scène un long moment, Wang Lin ferma les yeux. Il était certain que toutes ces fissures venaient d'apparaître et n'avaient été modifiées par personne. Cela signifiait qu'elles étaient apparues naturellement!
 

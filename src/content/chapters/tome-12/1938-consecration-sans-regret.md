@@ -6,19 +6,19 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: Chapter 1938 - Dedication With No Regret
 slug: consecration-sans-regret
 ---
-La silhouette de Wang Lin apparut soudainement à la lisière de la Mer de Montagnes. D'un seul pas, il se fondit dans le monde et disparut.
+La silhouette de Wang Lin apparut soudainement à la lisière de la Mer et de la Montagne. D'un seul pas, il se fondit dans le monde et disparut.
 
-Ce n'est que lorsque Wang Lin fut loin du continent de la Mer de Montagnes, au sein du continent de la Forêt de la Mer de Montagnes, qu'il réapparut au-dessus d'une ancienne forêt de pins. Flottant au-dessus des cimes, il regarda derrière lui.
+Ce n'est que lorsque Wang Lin fut loin du continent de la Mer et de la Montagne, dans le continent voisin, qu'il réapparut dans une ancienne forêt de pins. Debout sur un pin, il regarda au loin derrière lui, vers l'horizon.
 
-Plus tôt, il avait utilisé *Nuit Brisée* pour éveiller la paume brisée, puis il s'était enfui sans hésiter. En sortant, il avait vaguement ressenti trois auras puissantes, capables de briser le monde, qui planaient là. Combiné à ses spéculations antérieures, il n'était pas difficile de deviner qui elles étaient.
+Plus tôt, il avait utilisé *Nuit Brisée* pour briser et affaiblir l'ombre de la paume brisée, puis il s'était enfui sans hésiter. En sortant, il avait vaguement ressenti trois auras puissantes, capables d'écraser le monde, qui planaient là. Combiné à ses spéculations antérieures, il n'était pas difficile de deviner qui elles étaient.
 
 Wang Lin s'assit au sommet d'un pin et prit une profonde inspiration. Le monde ici était vaste et bien plus serein qu'à l'intérieur du rideau de lumière.
 
-« Il doit y avoir un secret derrière cette paume brisée. J'ai beaucoup gagné lors de ce voyage à la Mer de Montagnes. Outre les esprits, j'ai également obtenu un fragment de l'épée de l'Ancêtre Céleste! » Les yeux de Wang Lin s'illuminèrent, une lueur dorée brillant dans sa main.
+« Il doit y avoir un secret derrière cette paume brisée. J'ai beaucoup gagné lors de ce voyage à la Mer et la Montagne. Outre les esprits, j'ai également obtenu un fragment de l'épée de l'Ancêtre Céleste! » Les yeux de Wang Lin s'illuminèrent, une lueur dorée brillant dans sa main.
 
 « Je n'ai pas pu l'absorber à l'intérieur du rideau lumineux de l'Exalté Empyréen Hai Zi. Maintenant que je suis libre, je le fusionnerai avec le fragment dans mon œil dès que possible! » Wang Lin avait réfléchi aux questions que les Grands Empyréens pourraient lui poser; puisqu'ils l'avaient laissé partir, cela signifiait qu'il avait réussi leur test.
 
-En un éclair, le corps de Wang Lin devint flou et se fondit lentement dans un pin en dessous. À l'intérieur de l'arbre ancien, il s'assit et sortit les deux derniers Esprits de la Mer de Montagnes.
+En un éclair, le corps de Wang Lin devint flou et se fondit lentement dans un pin en dessous. À l'intérieur de l'arbre ancien, il s'assit et sortit les deux derniers Esprits de l'Arbre de la Mer et de la Montagne.
 
 « Au cours des dernières années, mon essence de bois a atteint sa plénitude et je peux ressentir l'essence de bois du monde qui m'entoure. Il me reste deux esprits, mais j'ignore si je pourrai créer un corps d'essence véritable après les avoir absorbés! »
 
@@ -58,11 +58,11 @@ Après une profonde inspiration, Wang Lin ferma lentement les yeux, puis les rou
 
 « L'épée de l'Ancêtre Céleste, le sommet de l'essence métallique. Je ne m'attendais pas à ce que la fusion de ces deux fragments fasse apparaître la dernière essence: l'essence métallique! » Wang Lin paraissait calme. Bien que cela fût soudain, il avait acquis une certaine compréhension après sept jours de raffinage.
 
-« Un seul fragment équivaut à absorber l'Esprit de la Mer de Montagnes pendant plusieurs années... » Wang Lin leva sa main droite et l'agita. Au total, 98 images fantômes apparurent et fusionnèrent avec sa main alors qu'il fermait le poing.
+« Un seul fragment équivaut à absorber l'Esprit de l'Arbre de la Mer et de la Montagne pendant plusieurs années... » Wang Lin leva sa main droite et l'agita. Au total, 98 images fantômes apparurent et fusionnèrent avec sa main alors qu'il fermait le poing.
 
 Des craquements retentirent dans sa paume. Le son était sec mais empreint d'une aura de destruction. Neuf vortex noirs apparurent dans son poing, chacun contenant un sort fusionné à son corps.
 
-Avant de se rendre à la Mer de Montagnes, Wang Lin pouvait fusionner neuf sorts dans ses attaques. Désormais, il observa sa main droite et les neuf tourbillons qui l'entouraient. Des bruits de craquement résonnèrent alors que le dixième vortex apparaissait parmi les autres.
+Avant de se rendre à la Mer et la Montagne, Wang Lin pouvait fusionner neuf sorts dans ses attaques. Désormais, il observa sa main droite et les neuf tourbillons qui l'entouraient. Des bruits de craquement résonnèrent alors que le dixième vortex apparaissait parmi les autres.
 
 « Il devrait y en avoir plus de dix! » Wang Lin desserra la main, puis la serra à nouveau. Un grondement sourd retentit tandis que le onzième vortex surgissait!
 
@@ -72,7 +72,7 @@ Son corps véritable des cinq éléments copierait son corps originel et doubler
 
 Cette multiplication était une méthode de combat qu'il avait lui-même patiemment comprise au fil de ses affrontements durant les cinquante dernières années.
 
-« Je devrais pouvoir faire encore plus... » murmura Wang Lin en pointant sa main gauche vers la paume de sa main droite. Sur ce, son corps trembla et il laissa échapper un rugissement.
+« Je devrais pouvoir faire encore plus... » murmura Wang Lin en plaquant sa main gauche sur sa main droite. Sur ce, son corps trembla et il laissa échapper un rugissement.
 
 Le douzième vortex apparut soudainement autour de sa main droite, suivi immédiatement par le treizième.
 
@@ -84,11 +84,11 @@ La respiration de Wang Lin devint plus lourde. Il sentait qu'il avait atteint sa
 
 Cependant, il n'avait aucune intention de retourner à l'Épreuve Céleste pour le moment. Il avait pris une décision: la prochaine fois qu'il s'y présenterait, il allait stupéfier tout le monde!
 
-« Attirer l'attention de tous les Grands Empyréens dépendra de ma seconde tentative à l'Épreuve Céleste! Désormais, nul besoin de continuer à défier d'autres Exaltés Empyréens. Je dois me rendre sur le Continent Oriental, rejoindre la Secte Dong Lin et voir si le bassin de Dong Lin est le même que celui que j'ai vu dans l'illusion du monde des grottes, ou s'il est différent! » Wang Lin se leva, les yeux brillants.
+« Attirer l'attention de tous les Grands Empyréens dépendra de ma seconde tentative à l'Épreuve Céleste! Désormais, nul besoin de continuer à défier d'autres Exaltés Empyréens. Je dois me rendre sur le Continent de l'Est, rejoindre la Secte Dong Lin et voir si le bassin de Dong Lin est le même que celui que j'ai vu dans l'illusion du monde des grottes, ou s'il est différent! » Wang Lin se leva, les yeux brillants.
 
 « J'irai à la Secte Dong Lin, puis je retournerai à l'Épreuve Céleste pour voir combien de niveaux je peux franchir! Après cela, je devrai choisir un Grand Empyréen, puis je rejoindrai ma dernière étape au sein du clan céleste: la cité impériale du Continent Central!! »
 
-« Une fois le problème de la cité impériale résolu, je quitterai le clan céleste pour me rendre au Pays Ancien. Je trouverai mon maître, Xuan Luo, et j'accomplirai ma promesse! » Wang Lin prit une profonde inspiration et disparut des pins. Il se changea en un rayon de lumière et s'envola vers le lointain Continent Oriental.
+« Une fois le problème de la cité impériale résolu, je quitterai le clan céleste pour me rendre au Pays Ancien. Je trouverai mon maître, Xuan Luo, et j'accomplirai ma promesse! » Wang Lin prit une profonde inspiration et disparut des pins. Il se changea en un rayon de lumière et s'envola vers le lointain Continent de l'Est.
 
 « Je sens que je deviens de plus en plus fort. Wan Er, le jour où je deviendrai un Grand Empyréen sera celui où je ressusciterai personnellement ma femme! »
 

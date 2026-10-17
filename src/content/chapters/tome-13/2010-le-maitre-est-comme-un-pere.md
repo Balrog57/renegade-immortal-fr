@@ -24,13 +24,13 @@ Mais s'il s'agissait bien de l'individu qu'il avait en tête, il devait voir de 
 
 « Cette affaire a été scellée par Xuan Luo, l'Ancien Dao l'ignore donc. Xuan Luo n'a même pas hésité à déclarer que quiconque violerait ce secret serait mis à mort, quelle que soit son identité! »
 
-« Un Grand Empyréen n'a pas le droit de décider de mon destin. S'il a agi ainsi autrefois, c'est parce qu'il pensait que son disciple obtiendrait la reconnaissance de l'Exalté Empyréen Gu Dao! »
+« Un Grand Empyréen n'a pas le droit de décider de mon destin. S'il a agi ainsi autrefois, c'est parce qu'il pensait que son disciple obtiendrait la reconnaissance du Grand Empyréen Gu Dao! »
 
-« Mais il ne peut être un descendant de la famille royale. Je ne crois pas qu'il obtiendra jamais la reconnaissance du Grand Empyréen Gu Dao!! » L'Empereur de l'Ancien Dao conservait son sourire serein, mais sous cette façade se cachaient des siècles de jalousie!
+« Mais il n'est sûrement pas un descendant direct de l'Ancêtre Ancien. Je ne crois pas qu'il obtiendra jamais la reconnaissance du Grand Empyréen Gu Dao!! » L'Empereur de l'Ancien Dao conservait son sourire serein, mais sous cette façade se cachaient des siècles de jalousie!
 
 Cette jalousie brûlait en lui depuis que Wang Lin avait obtenu le sang d'âme, et elle atteignit son paroxysme lorsqu'il réalisa que Wang Lin était bel et bien l'Ascendant Empyréen aux Cheveux Blancs, le numéro un sous les Grands Empyréens. Sa rancœur fut soudainement attisée, mais il parvint à la réprimer.
 
-L'expression de Wang Lin resta calme alors que son regard balayait l'empereur. Lorsqu'il posa ses yeux sur le vieil homme qui avait rugi contre lui, une lueur dorée jaillit de ses prunelles.
+L'expression de Wang Lin resta calme alors que son regard balayait l'empereur. Lorsqu'il posa ses yeux sur le vieil homme qui avait rugi contre lui, une lueur perçante jaillit de ses prunelles.
 
 Wang Lin dit lentement: « Qu'as-tu dit? Répète encore une fois. »
 
@@ -48,7 +48,7 @@ L'Empereur de l'Ancien Dao sourit et tourna un regard glacial vers le vieil homm
 
 Le vieil homme hocha précipitamment la tête, couvert de sueur. On ignorait si celle-ci provenait du rugissement de l'Empereur ou de la terreur inspirée par le regard de Wang Lin.
 
-« Wang Lin, c'est bien cela? J'ai beaucoup entendu parler de ton nom, surtout en tant qu'Ascendant Empyréen aux Cheveux Blancs qui a ébranlé le clan céleste! Lorsque j'ai appris ton existence, j'ai regretté qu'un tel génie ne soit pas né dans l'Ancien Dao! »
+« Wang Lin, c'est bien cela? J'ai beaucoup entendu parler de ton nom, surtout en tant qu'Ascendant Empyréen aux Cheveux Blancs qui a ébranlé le Continent Astral Immortel! Lorsque j'ai appris ton existence, j'ai regretté qu'un tel génie ne soit pas né dans l'Ancien Dao! »
 
 « Mais aujourd'hui, je suis comblé de joie! »
 
@@ -58,7 +58,7 @@ Le vieil homme hocha précipitamment la tête, couvert de sueur. On ignorait si 
 
 « Votre humble serviteur est à votre service! »
 
-« Informe le clan Ancien que Wang Lin est le futur gardien de l'Ancien Dao et qu'il possède un statut égal au mien. Hormis la grande cérémonie du clan, nul n'a besoin de s'agenouiller devant lui! Si quiconque ose désobéir, son clan tout entier sera exterminé! »
+« Informe le clan Ancien que Wang Lin est le futur gardien de l'Ancien Dao et qu'il possède un statut égal au mien. Hormis la grande cérémonie du clan, nul n'a besoin de s'agenouiller devant lui! Si quiconque ose désobéir, il sera exécuté à la Porte Méridienne! »
 
 Le vieil homme répondit respectueusement: « À vos ordres! »
 
@@ -94,7 +94,7 @@ Dans le palais de la cité céleste, l'Empereur apparut dans son pavillon favori
 
 « Maître, j'attends depuis trois jours le cadeau que vous m'aviez promis. » Le sourire de Wang Lin rendit le visage de Xuan Luo encore plus tourmenté.
 
-« Tu viens du monde des grottes où ton statut était très élevé. Dans le clan céleste, tu es l'Exalté Empyréen aux cheveux blancs, le premier sous les Grands Empyréens! Mais dans le clan Ancien, en raison de la suprématie du pouvoir impérial, tu dois courber l'échine... »
+« Tu viens du monde des grottes où ton statut était très élevé. Dans le clan céleste, tu es l'Ascendant Empyréen aux cheveux blancs, le premier sous les Grands Empyréens! Mais dans le clan Ancien, en raison de la suprématie du pouvoir impérial, tu dois courber l'échine... »
 
 « Ton Maître s'y attendait, mais j'ai maintenant le sentiment de t'avoir lésé... » Xuan Luo regarda son disciple.
 

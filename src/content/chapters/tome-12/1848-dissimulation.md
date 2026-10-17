@@ -26,15 +26,15 @@ Ces groupes étaient souvent composés de dizaines d'individus, affichant des ex
 
 Le massacre entre les sectes et la cruauté entre les continents étaient les mêmes partout. Il en allait de même dans le Monde des Cavernes, et le Continent Astral Immortel n'échappait pas à cette règle.
 
-Il n'y avait aucune loi dans ce monde. Si des lois existaient, c'était uniquement parce que des cultivateurs puissants s'érigeaient pour les imposer, empêchant ainsi quiconque d'oser nourrir de mauvaises pensées.
+Il n'y avait aucune terre pure en ce monde. S'il en existait, c'était uniquement parce que des cultivateurs puissants s'érigeaient pour tout réprimer aux huit directions, empêchant ainsi quiconque d'oser nourrir de mauvaises pensées.
 
 Tout en réfléchissant silencieusement, le regard de Wang Lin se fit plus perçant. Il perçut une puissante fluctuation au loin. Cela ne provenait pas d'un cultivateur, mais d'un trésor.
 
-Lorsqu'il scruta l'horizon, il vit passer cent cultivateurs du Continent du Démon Vert. Parmi eux se trouvaient quatre cultivateurs du Vide Arcane, répartis deux de chaque côté pour assurer l'escorte.
+Lorsqu'il scruta l'horizon, il vit passer plusieurs centaines de cultivateurs du Continent du Démon Vert. Parmi eux se trouvaient quatre cultivateurs du Vide Arcane, placés aux quatre points cardinaux pour assurer l'escorte.
 
 Au centre de cette troupe trônait un tambour gigantesque d'environ mille pieds de large!
 
-Ce tambour était d'un noir absolu, sa surface même étant d'ébène. Une multitude de bêtes féroces semblaient s'en échapper et une aura sinistre s'en dégageait.
+Ce tambour était d'un noir absolu, sa surface même étant d'ébène. De nombreuses bêtes féroces et hideuses saillaient tout autour et une aura sinistre s'en dégageait.
 
 D'innombrables âmes tourmentées gravitaient autour de l'instrument, poussant des rugissements silencieux qui projetaient des ondulations invisibles dans l'air.
 
@@ -44,7 +44,7 @@ Dès que Wang Lin aperçut ce grand tambour, ses yeux se plissèrent. Il se mua 
 
 Ce cultivateur semblait ne faire qu'un avec le tambour et, lorsqu'il passa au-dessus de Wang Lin, un sens divin s'en déploya. Après avoir balayé la zone, il s'éloigna lentement.
 
-Une fois les cent cultivateurs passés, Wang Lin observa l'ombre diffuse du tambour et commença à réfléchir.
+Une fois les centaines de cultivateurs passés, Wang Lin observa l'ombre diffuse du tambour et commença à réfléchir.
 
 « Un trésor fusionné avec un cultivateur... »
 

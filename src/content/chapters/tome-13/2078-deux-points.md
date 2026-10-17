@@ -28,13 +28,13 @@ Toute cette puissance se concentra autour du Maître Âme Écarlate sans en lais
 
 Lorsque son corps s'effondra, le Maître Âme Écarlate perdit la raison.
 
-Il ne pouvait accepter cette réalité. Il n'osait croire qu'il avait eu des intentions hostiles envers quelqu'un qui avait raffiné l'âme de l'Empereur Céleste, que même Dao Yi craignait, et qui était lui-même un Grand Empyréen. Il avait même osé plaisanter sur l'amante d'un Grand Empyréen et avait pris le descendant d'un Grand Empyréen pour disciple.
+Il ne pouvait accepter cette réalité. Il n'osait croire qu'il avait eu des intentions hostiles envers quelqu'un qui avait raffiné l'âme de l'Empereur Céleste, que même Dao Yi craignait, et qui était lui-même un Grand Empyréen. Il avait même voulu s'amuser avec l'amante d'un Grand Empyréen et avait pris le descendant d'un Grand Empyréen pour disciple.
 
 Il avait même poussé le descendant de ce Grand Empyréen à se rebeller contre lui.
 
 Absurde, absolument ridicule!
 
-Il devint fou. Son corps s'effondra et son âme originelle mourut. Cependant, comparée à la folie qui le consumait, cette douleur n'était rien face à la lune comparée à une luciole — les deux étaient incomparables.
+Il devint fou. Son corps s'effondra et son âme originelle mourut. Cependant, comparée à la folie qui le consumait, cette douleur était, face à cette folie, comme une luciole face à la pleine lune — les deux étaient incomparables.
 
 Cette mort était innombrablement plus cruelle que la simple destruction du corps et de l'âme. Outre son enveloppe charnelle, Wang Lin avait impitoyablement brisé sa raison et son esprit.
 
@@ -46,7 +46,7 @@ En partant, Wang Lin laissa une partie de son Dao et de ses sorts dans le Royaum
 
 Une formation de protection parfaite, une immense quantité de pilules et de textes de Dao, ainsi que la compréhension des essences éthérées par Wang Lin... Tout cela rendrait le Royaume Céleste extrêmement fort et garantirait que des incidents comme celui du Maître Âme Écarlate ne se reproduisent plus jamais.
 
-Avant de s'en aller, Wang Lin et le Maître du Dao Rêve Bleu discutèrent longuement. Personne n'ignorait le sujet de leur conversation, et après avoir raccompagné Wang Lin, le Maître du Dao Rêve Bleu se mit en culture isolée.
+Avant de s'en aller, Wang Lin et le Maître du Dao Rêve Bleu discutèrent longuement. Nul autre qu'eux ne sut de quoi ils avaient parlé, et après avoir raccompagné Wang Lin, le Maître du Dao Rêve Bleu se mit en culture isolée.
 
 Wang Lin partit. Il voyagea à travers le vaste système stellaire pour atteindre la planète Suzaku. Il resta assis devant sa propre statue pendant plusieurs jours avant de repartir. Il se rendit ensuite sur la planète Tian Yun, devenue une ruine lors de la grande guerre.
 
@@ -66,7 +66,7 @@ Ses empreintes se firent sentir partout dans le Royaume Extérieur. Il vit l'Est
 
 De même, Wang Lin aperçut un bébé sur une planète de culture dans le Royaume Extérieur.
 
-Le corps du nouveau-né se trouvait au cœur de la planète et semblait dormir. Le bébé ressemblait à Tuo Sen. Bien que Wang Lin ignorât ce qui s'était passé, Tuo Sen semblait être devenu Tu Si, et il pratiquait une sorte de sortilège.
+Le corps du nouveau-né se trouvait au cœur de la planète et semblait dormir. Le bébé ressemblait à Tuo Sen. Bien que Wang Lin ignorât ce qui s'était passé, Tuo Sen était peut-être Tu Si, et il pratiquait une sorte de sortilège.
 
 Ce sort exigeait qu'il réintègre un corps de bébé pour recommencer sa croissance.
 

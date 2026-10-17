@@ -8,13 +8,13 @@ slug: formation-dun-corps-véritable-dessence
 ---
 « Avec mon sceau doré, il devrait s'en sortir dans les terres célestes... Maintenant qu'il est arrivé, il n'y a pas d'urgence à aller le chercher... Laissons-le perfectionner ses compétences afin qu'il puisse devenir encore plus puissant à l'avenir! » murmura Xuan Luo pour lui-même. Il ne se rendrait pas dans les terres des Cieux. Après tout, avec son statut, il n'était pas opportun d'y aller trop souvent, au risque de provoquer des ennuis inutiles.
 
-Tout comme si le Grand Empyréen céleste continuait de fréquenter les Anciens Pays, il finirait par être expulsé ou même assiégé.
+Tout comme si plusieurs Grands Empyréens du clan céleste venaient sans cesse dans les Anciens Pays, ils finiraient par être chassés, voire assiégés conjointement.
 
 Lors de son précédent voyage, bien qu'il fût parti, il avait subi des blessures, ce qui l'avait contraint à une culture en porte fermée. L'autre raison pour laquelle il s'était retiré était le regret qu'il ressentait de ne pas avoir pu attendre Wang Lin.
 
 Maintenant que ce regret s'était dissipé, ses blessures ne posaient plus de problème.
 
-« Disciple Wang Er, le Continent Astral Immortel est votre foyer et l'Ancien Dao est votre terre natale. Votre Maître attendra votre retour ici... » Xuan Luo afficha un sourire bienveillant et ferma lentement les yeux pour s'immerger dans sa culture.
+« Disciple Wang Lin, le Continent Astral Immortel est votre foyer et l'Ancien Dao est votre terre natale. Votre Maître attendra votre retour ici... » Xuan Luo afficha un sourire bienveillant et ferma lentement les yeux pour s'immerger dans sa culture.
 
 Dans le Continent du Taureau Céleste, Wang Lin était assis à côté de la boule de feu, y projetant des sceaux. Cela rendait l'Oiseau Vermillon à l'intérieur encore plus distinct et son rugissement plus puissant.
 
@@ -30,13 +30,13 @@ Le corps véritable d'essence était en pleine formation!
 
 Du Qing, témoin de cette scène, resta stupéfait. C'était la première fois qu'il assistait à la formation d'un corps véritable d'essence. Un tel spectacle lui apportait des bénéfices immenses et ouvrait même une voie pour sa future culture. Ce chemin, autrefois flou, devenait désormais limpide.
 
-« Un corps véritable! C'est un corps véritable! J'ai réellement pu observer le processus. Une telle chose est extrêmement rare, et moi, Du Qing, j'en suis le témoin! » Du Qing était exalté. Il avait traversé sept Tribulations Arcanes, mais il n'aurait jamais osé, ni n'aurait eu la confiance nécessaire pour affronter la huitième ou la neuvième. Ce qu'il venait de voir aidait son essence de feu à croître!
+« Un corps véritable! C'est un corps véritable! J'ai réellement pu observer le processus. Une telle chose est extrêmement rare, et moi, Du Qing, j'en suis le témoin! » Du Qing était exalté. Son niveau de culture n'avait pas encore atteint le stade initial de la Tribulation du Vide; il en était à sept Tribulations Arcanes, et il n'aurait jamais osé ni n'aurait eu la confiance nécessaire pour affronter la huitième ou la neuvième. Ce qu'il venait de voir aidait énormément les transformations de son essence!
 
 La scène paraissait simple, mais en vérité, la pression que subissait Wang Lin était monstrueuse. La sueur couvrait son front et se transformait instantanément en vapeur, lui donnant l'apparence d'être caché dans un brouillard épais.
 
 Son essence de feu n'était pas assez puissante pour former un corps véritable d'essence, mais il avait dévoré seize veines secondaires et une veine enfantine, ainsi que la volonté du feu qui s'y trouvait.
 
-Tout cela avait permis à l'essence de feu de Wang Lin de posséder sa propre volonté. Celle-ci se battait désormais contre le feu terrestre de la Secte du Taureau Céleste pour le contrôle des flammes de ce monde!
+Tout cela avait permis à l'essence de feu de Wang Lin de posséder sa propre volonté. Celle-ci se battait désormais contre le feu du Continent du Taureau Céleste pour le contrôle des flammes de ce monde!
 
 Ce changement et cette expansion avaient donné à Wang Lin l'idée de former un corps véritable d'essence. Cependant, la tâche était ardue; même en déployant toute sa force, il n'avait réussi qu'à former une paire de jambes!
 
@@ -44,7 +44,7 @@ Au fil du temps, la boule de feu de dix pieds s'affaiblissait et montrait des si
 
 L'essence de feu manquait. Les yeux de Wang Lin brillèrent; il chargea vers la terre et, s'étant posé sur la montagne, plaqua sa main au sol.
 
-À cet instant, le sens divin de Wang Lin jaillit de sa main, pénétra la terre et se propagea à une vitesse fulgurante. Des milliers de kilomètres, des dizaines de milliers, des centaines de milliers, des millions de kilomètres...
+À cet instant, le sens divin de Wang Lin jaillit de sa main, pénétra la terre et se propagea à une vitesse fulgurante. Des milliers de kilomètres, des dizaines de milliers, des centaines de milliers, des millions de kilomètres... jusqu'à l'infini.
 
 C'était la première fois que Wang Lin déployait son sens divin de la sorte sur le Continent Astral Immortel pour couvrir une zone aussi vaste. Pourtant, malgré cela, il ne couvrait même pas 10 % du Continent du Taureau Céleste; il semblait même peiner à atteindre les 5 %.
 
@@ -56,7 +56,7 @@ Si l'on observait la scène du haut du ciel par un puissant sortilège, on aurai
 
 Dans certaines plaines, des fissures apparurent; la lave en jaillit et les âmes de dragons chargèrent! Les rivières s'asséchèrent soudainement et leurs lits s'effondrèrent alors que ces âmes de dragons fendaient le ciel!
 
-Au total, 172 âmes de dragons de feu terrestre surgirent de cette vaste région en rugissant vers les cieux. Les cultivateurs ordinaires ne pouvaient percevoir que leur présence, seuls quelques cultivateurs du troisième pas pouvaient réellement les ressentir.
+Au total, 172 âmes de dragons de feu terrestre surgirent de cette vaste région en rugissant vers les cieux. Les cultivateurs ordinaires ne pouvaient pas voir leurs corps, seuls quelques êtres aux grands pouvoirs divins pouvaient les ressentir.
 
 À cet instant, ces 172 âmes de dragons semblaient être attirées par une force puissante vers Wang Lin, venant de toutes les directions. Ces dragons étaient bien plus rapides que les cultivateurs; ils se déplaçaient comme s'ils maniaient la courbure spatiale, apparaissant instantanément dans le ciel au-dessus de Wang Lin et Du Qing.
 
@@ -82,9 +82,9 @@ Wang Lin, essoufflé sur le sommet de la montagne, contemplait la boule de feu e
 
 « Deux âmes de dragons de feu enfantines, sortez pour moi! » Wang Lin serra les dents et plaqua sa main au sol. Des grondements sourds retentirent et un rugissement se fit entendre. Dans le champ de son sens divin, deux fluctuations puissantes surgirent de deux directions opposées.
 
-À l'est de Wang Lin, une montagne enneigée qui n'avait pas fondu depuis des décennies trembla. À cet instant, toute la neige fondit d'un coup, se transformant en un océan dévalant les pentes. Mais avant d'atteindre le bas, des sifflements stridents retentirent et toute l'eau se changea en vapeur blanche. L'âme d'une veine enfantine de feu terrestre apparut au cœur de cette brume et chargea vers Wang Lin.
+À l'est de Wang Lin, une montagne enneigée qui n'avait pas fondu depuis des dizaines de milliers d'années trembla. À cet instant, toute la neige fondit d'un coup, se transformant en un océan dévalant les pentes. Mais avant d'atteindre le bas, des sifflements stridents retentirent et toute l'eau se changea en vapeur blanche. L'âme d'une veine enfantine de feu terrestre apparut au cœur de cette brume et chargea vers Wang Lin.
 
-À l'ouest de Wang Lin se trouvait une mer intérieure bordant le Continent du Taureau Céleste. Au fond de cette mer gisait une chaîne de montagnes qui ressemblait à un dragon!
+À l'ouest de Wang Lin se trouvait une mer intérieure entourée par le Continent du Taureau Céleste. Au fond de cette mer gisait une chaîne de montagnes qui ressemblait à un dragon!
 
 Soudain, la montagne trembla et un vortex géant se forma dans les eaux. Alors que la mer s'agitait violemment, une fluctuation d'âme émana de la montagne. Une masse colossale d'eau se rassembla pour former un dragon marin qui jaillit des profondeurs.
 

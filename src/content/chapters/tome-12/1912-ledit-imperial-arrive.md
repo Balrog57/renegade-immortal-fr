@@ -26,7 +26,7 @@ Ses bras s'étendirent soudainement de plusieurs fois leur taille, offrant un sp
 
 Wang Lin avait déjà vu Da Tou utiliser ce genre de sort, mais il n'était pas aussi prodigieux que celui de l'homme à la robe rouge. Non seulement ses jambes se flétrissaient, mais son corps tout entier semblait dépérir. Toute sa chair et son sang se rassemblèrent dans ses bras pour percuter la seconde empreinte de paume dans le ciel!
 
-Des grondements tonitruants secouèrent le monde. La seconde empreinte, créée par le vrai corps des cinq éléments, entra en collision avec l'homme à la robe rouge. L'empreinte s'effondra et le corps de l'homme trembla violemment. Il continua de reculer, tandis que son bras gauche explosait en une brume sanglante.
+Des grondements tonitruants secouèrent le monde. La seconde empreinte, créée par le corps véritable des cinq éléments, entra en collision avec l'homme à la robe rouge. L'empreinte s'effondra et le corps de l'homme trembla violemment. Il continua de reculer, tandis que son bras gauche explosait en une brume sanglante.
 
 Ses yeux étaient emplis de désespoir. Alors que la troisième empreinte de paume se rapprochait, il poussa le dernier rugissement de sa vie. Il savait qu'il ne pouvait s'échapper, mais il voulait combattre!
 
@@ -46,9 +46,9 @@ Sans la moindre hésitation, il chargea vers Wang Lin!
 
 Wang Lin n'esquiva pas; il se contenta de fixer froidement l'homme à la robe rouge.
 
-« Tu es digne que j'utilise 70 % de ma puissance! » murmura Wang Lin alors que l'homme approchait. Il leva la main droite et la Lame Yin se rétracta. Ses yeux s'illuminèrent tandis que son vrai corps des cinq éléments et son vrai corps d'essence du tonnerre fusionnaient en lui. Puis, il décocha un coup de poing à l'homme à la robe rouge!
+« Tu es digne que j'utilise 70 % de ma puissance! » murmura Wang Lin alors que l'homme approchait. Il leva la main droite et la Lame Yin se rétracta. Ses yeux s'illuminèrent tandis que son corps véritable des cinq éléments et son corps véritable de l'essence du tonnerre fusionnaient en lui. Puis, il décocha un coup de poing à l'homme à la robe rouge!
 
-Ce coup représentait 70 % de la puissance de Wang Lin. C'était une fusion de son Dao Antique et de sa culture de Tribulation du Vide, avec la veine céleste libérant 70 % de son pouvoir!
+Ce coup représentait 70 % de la puissance de Wang Lin. C'était une fusion de son Dao Antique et de sa culture de Tribulation du Vide, avec le cheveu de l'Ancêtre Céleste logé dans son corps libérant 70 % de son énergie immortelle!
 
 Le coup semblait sans force, mais il fit changer les couleurs du monde et le fit trembler. Le vide entre eux se distordit et des ondulations résonnèrent. Le poing de Wang Lin sembla transcender le temps et l'espace pour s'abattre sur la poitrine de l'homme à la robe rouge.
 
@@ -74,7 +74,7 @@ Simultanément, le sceau entourant la Secte du Dao Démoniaque gronda. Le périm
 
 Puisqu'il avait déclaré qu'il détruirait la secte, il l'exécuterait. Pas un seul membre ne serait épargné!
 
-Wang Lin se déplaçait avec indifférence, éliminant un à un ces dizaines de cultivateurs du troisième niveau. Debout au bord du lac à moitié vide, il contemplait l'île. Les cris déchiraient l'air alors qu'une masse considérable de cultivateurs de la Secte du Dao Démoniaque succombait.
+Wang Lin se déplaçait avec indifférence, éliminant un à un ces dizaines de cultivateurs du troisième niveau. Debout dans les airs, à l'extérieur du lac, il contemplait l'île. Les cris déchiraient l'air alors qu'une masse considérable de cultivateurs de la Secte du Dao Démoniaque succombait.
 
 Ces lamentations atroces résonnaient dans le monde entier. Elles parvinrent aux oreilles de Wang Lin, mais aussi au cœur du Maître de la Secte du Dao Démoniaque, toujours en méditation profonde.
 
@@ -82,7 +82,7 @@ Le visage du Maître de la Secte était déformé par la douleur. Ses yeux étai
 
 Il n'en avait pas le courage. Il avait vu Wang Lin tuer le vieil homme aux robes dorées et avait vu l'homme à la robe rouge sacrifier sa vie pour atteindre le rang d'Exalté Doré. Pourtant, ce qui le faisait trembler véritablement, c'était le coup de poing de Wang Lin!
 
-Ce coup si simple en apparence avait instantanément terrassé un Exalté Doré! Le Maître de la Secte avait diviné des milliers de fois pour savoir s'il pourrait survivre à une telle attaque!
+Ce coup si simple en apparence avait instantanément terrassé un Exalté Doré! Le Maître de la Secte avait diviné plus d'un millier de fois pour savoir s'il pourrait survivre à une telle attaque!
 
 Après plus de mille tentatives de divination, il mourait dans 50 % des cas! Et cela ne représentait que 70 % de la puissance de Wang Lin. Si ce dernier utilisait sa pleine puissance... les conséquences étaient limpides!
 

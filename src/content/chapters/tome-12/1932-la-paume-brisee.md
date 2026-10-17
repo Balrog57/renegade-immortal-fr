@@ -6,7 +6,7 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1932 - Broken Palm!"
 slug: la-paume-brisee
 ---
-À l'instant même où l'Exalté Empyréen Hai Zi reprit connaissance, Wang Lin trancha le cou reliant le visage au sceau à l'intérieur du trou noir, au fond de la Mer des Montagnes.
+À l'instant même où l'Exalté Empyréen Hai Zi reprit connaissance, Wang Lin trancha le cou reliant le visage au sceau à l'intérieur du trou noir, au fond de la Mer Montagneuse.
 
 Dès que la lame frappa, le visage poussa un rugissement et se retourna complètement. Cependant, il s'effondra strate après strate devant Wang Lin, se changea en poussière et disparut dans la mer.
 
@@ -16,11 +16,11 @@ Wang Lin avait déployé toute sa puissance avec cette lame. La Lame Yin, dans s
 
 « Tu veux me sceller? » Wang Lin respirait lourdement. Son niveau de culture était si élevé qu'il pouvait encore respirer normalement même sous l'eau. À chaque expiration, des bulles remontaient, mais aucune eau ne pénétrait en lui; il inhalait plutôt l'air respirable piégé dans l'eau.
 
-Wang Lin observa les couches de sceaux sur l'Arbre de la Mer des Montagnes. Le sceau de l'arbre n'avait pas été brisé par la lame. Des ondulations résonnèrent et il reprit son état normal.
+Wang Lin observa les couches de sceaux sur l'Arbre de la Mer Montagneuse. Le sceau de l'arbre n'avait pas été brisé par la lame. Des ondulations résonnèrent et il reprit son état normal.
 
 Le regard de Wang Lin s'anima. Il ne partit pas immédiatement, mais vérifia ses blessures ainsi que le temps restant sur son armure d'âme. En ayant déployé toute sa puissance, le temps restant avait été considérablement réduit — il ne lui restait plus qu'un demi-encens de temps.
 
-« C'est suffisant! » Wang Lin régula sa respiration et chargea vers la surface. Sa vitesse était fulgurante; il apparut près du trou noir, quittant les profondeurs abyssales pour pénétrer dans la Mer des Montagnes.
+« C'est suffisant! » Wang Lin régula sa respiration et chargea vers la surface. Sa vitesse était fulgurante; il apparut près du trou noir, quittant les profondeurs abyssales pour pénétrer dans la Mer Montagneuse.
 
 Dès qu'il émergea du trou noir, le dragon marin arriva prestement. Il poussa un rugissement, les yeux brillants de joie. Wang Lin hocha la tête et ils s'élancèrent ensemble vers le haut.
 
@@ -30,17 +30,17 @@ Alors que Wang Lin montait rapidement, une voix colérique résonna au-dessus de
 
 « Wang Lin!!! » Tandis que la voix retentissait, la mer bleue vira au noir. L'eau devant Wang Lin devint instantanément noire comme de l'encre. De gigantesques tentacules s'agitèrent, créant des vortex qui fonçaient sur lui.
 
-« Exalté Empyréen Hai Zi, tu n'es plus mon adversaire. Il n'y a aucune haine entre nous et l'Esprit de l'Arbre de la Mer des Montagnes ne t'appartient pas. Si tu persistes, ne me reproche pas d'être impitoyable! » Wang Lin resta calme et mania le dragon marin pour éviter les eaux noires alors qu'ils chargeaient vers la surface.
+« Exalté Empyréen Hai Zi, tu n'es plus mon adversaire. Il n'y a aucune haine entre nous et l'Esprit de l'Arbre de la Mer Montagneuse ne t'appartient pas. Si tu persistes, ne me reproche pas d'être impitoyable! » Wang Lin resta calme et mania le dragon marin pour éviter les eaux noires alors qu'ils chargeaient vers la surface.
 
-« Toute cette Mer des Montagnes est ma demeure, comment pourrais-je te laisser entrer et sortir comme bon te semble?! Formation de la Mer des Montagnes! » Le véritable nom de l'Exalté Empyréen Hai Zi était Yi Ting. Cependant, parce qu'elle vivait dans la Mer des Montagnes toute l'année et qu'elle y avait atteint le rang d'Exalté Empyréen, on l'appelait l'Exalté Empyréen Hai Zi, tout comme Wang Lin était l'Exalté Empyréen aux Cheveux Blancs!
+« Toute cette Mer Montagneuse est ma demeure, comment pourrais-je te laisser entrer et sortir comme bon te semble?! Formation de la Mer Montagneuse! » Le véritable nom de l'Exalté Empyréen Hai Zi était Yi Ting. Cependant, parce qu'elle vivait dans la Mer Montagneuse toute l'année et qu'elle y avait atteint le rang d'Exalté Empyréen, on l'appelait l'Exalté Empyréen Hai Zi, tout comme Wang Lin était l'Exalté Empyréen aux Cheveux Blancs!
 
 Après sa parole, l'eau de mer environnante devint noire. Une couche d'encre séchée sembla se former à la surface.
 
-Cette couche d'encre était extrêmement puissante et scellait presque toute la Mer des Montagnes. Vu d'en haut, la Mer des Montagnes ressemblait désormais à une terre noire!
+Cette couche d'encre était extrêmement puissante et scellait presque toute la Mer Montagneuse. Vu d'en haut, la Mer Montagneuse ressemblait désormais à une terre noire!
 
 Au sein de l'eau, l'Exalté Empyréen Hai Zi apparut soudainement. Un poulpe surgit dans un rugissement et chargea le dragon marin qui accompagnait Wang Lin.
 
-Elle détestait le dragon marin au plus haut point. En jaillissant, des ondulations parcoururent la mer. Le dragon marin afficha un regard féroce et rugit à son tour. Il chargea pour engager le combat contre le poulpe.
+Le poulpe haïssait le dragon marin jusqu'à la moelle. En jaillissant, des ondulations parcoururent la mer. Le dragon marin afficha un regard féroce et rugit à son tour. Il chargea pour engager le combat contre le poulpe.
 
 Le duel entre les deux bêtes marines provoqua des grondements tonitruants et des ondes de choc violentes qui se propagèrent dans toute la mer.
 
@@ -50,11 +50,11 @@ Après l'échec de Wang Lin lors de cette bataille passée, l'Exalté Empyréen 
 
 C'était tout simplement inacceptable pour elle, et cela l'exaspérait au plus haut point! Il faut dire que bien qu'elle fût une Exalté Empyréen, elle était aussi une cultivatrice féminine. En tant que femme, être ainsi stoppée sans pouvoir opposer la moindre résistance la rendait aussi embarrassée qu'en colère!
 
-Bien que l'Arbre de la Mer des Montagnes puisse condenser l'essence du bois, cela ne lui était pas utile. Dans son plan initial, si Wang Lin avait fait preuve de plus de modestie et lui avait demandé, elle aurait été disposée à lui en donner un peu, en tant que pair de rang Exalté Empyréen.
+Bien que l'Arbre de la Mer Montagneuse puisse condenser l'essence du bois, cela ne lui était pas utile. Dans son plan initial, si Wang Lin avait fait preuve de plus de modestie et lui avait demandé, elle aurait été disposée à lui en donner un peu, en tant que pair de rang Exalté Empyréen.
 
 Cependant, que ce soit il y a trois ans ou aujourd'hui, Wang Lin était resté tout aussi indifférent. Cela agaçait la belle Exalté Empyréen Hai Zi, qui avait donc délibérément décidé de lui rendre la tâche difficile.
 
-Dotée d'une culture puissante et d'un statut noble, elle ne prêtait guère attention aux cultivateurs ordinaires, à l'exception de quelques rares Ascendants. C'est grâce à ce rang qu'elle pouvait occuper toute la Mer des Montagnes sans que personne n'ose troubler sa paix.
+Dotée d'une culture puissante et d'un statut noble, elle ne prêtait guère attention aux cultivateurs ordinaires, à l'exception de quelques rares Ascendants. C'est grâce à ce rang qu'elle pouvait occuper toute la Mer Montagneuse sans que personne n'ose troubler sa paix.
 
 Pourtant, elle n'aurait jamais imaginé être ainsi retenue pendant plus de dix respirations!
 
@@ -86,11 +86,11 @@ L'Empreinte de l'Esprit de la Guerre de Wang Lin percuta l'oiseau bleu. Un grond
 
 Le sort du Taureau Céleste qui avait terrifié l'ancêtre de la Secte du Dao Démoniaque réapparut. Les 97 images rémanentes de Wang Lin fusionnèrent et une immense ombre de Taureau Céleste surgit. Elle contenait 98 sorts alors qu'elle chargeait le sceau ovale.
 
-Wang Lin et l'Exalté Empyréen Hai Zi se livraient bataille au-dessus de la mer gelée. Dans les profondeurs, se trouvait le trou noir que Wang Lin avait ouvert, là où résidait l'Arbre de la Mer des Montagnes.
+Wang Lin et l'Exalté Empyréen Hai Zi se livraient bataille au-dessus de la mer gelée. Dans les profondeurs, se trouvait le trou noir que Wang Lin avait ouvert, là où résidait l'Arbre de la Mer Montagneuse.
 
 À cet instant, un changement très étrange s'opérait rapidement.
 
-Près de l'Arbre de la Mer des Montagnes, à l'extérieur des couches de sceaux, des lueurs fantomatiques étaient apparues là où Wang Lin avait détruit le visage. Ces lumières dégageaient une férocité et une soif de sang démentes, ainsi qu'une aura terrifiante.
+Près de l'Arbre de la Mer Montagneuse, à l'extérieur des couches de sceaux, des lueurs fantomatiques étaient apparues là où Wang Lin avait détruit le visage. Ces lumières dégageaient une férocité et une soif de sang démentes, ainsi qu'une aura terrifiante.
 
 Cependant, cette aura était si singulière qu'elle ne se propageait pas du tout. Elle n'était remarquée ni par Wang Lin, ni par l'Exalté Empyréen Hai Zi qui combattaient à l'extérieur.
 
@@ -100,10 +100,10 @@ Ils ne formèrent pas le visage précédent, mais une paume brisée!
 
 Une simple paume sans bras, d'où son nom de Paume Brisée!
 
-Cette paume était initialement gigantesque, haute de milliers de pieds. Cependant, après son apparition, elle se rétracta jusqu'à atteindre la taille de la paume d'un homme ordinaire. Sa couleur était presque transparente; à moins de regarder avec une attention extrême, il était difficile de la percevoir.
+Cette paume était initialement gigantesque, haute de mille pieds. Cependant, après son apparition, elle se rétracta jusqu'à atteindre la taille de la paume d'un homme ordinaire. Sa couleur était presque transparente; à moins de regarder avec une attention extrême, il était difficile de la percevoir.
 
 Au centre de la paume semblait se trouver une marque floue.
 
-« Âme Astrale Non-Immortelle détectée, scellement!! » Une voix vague émana de la paume brisée. La mer ondula alors que la paume s'élançait droit vers le haut!
+« Âme non issue du Continent Astral Immortel détectée, sceller!! » Une voix vague émana de la paume brisée. La mer ondula alors que la paume s'élançait droit vers le haut!
 
 À ce moment précis, Wang Lin luttait contre l'Exalté Empyréen Hai Zi. Aucun des deux ne remarqua l'apparition et l'ascension de cette paume brisée!

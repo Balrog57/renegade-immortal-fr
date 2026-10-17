@@ -16,7 +16,7 @@ Au fil des ans, quiconque en était digne avait entendu parler de l'Ascendant Em
 
 Toutes les familles de cultivateurs s'étaient rendues sur la vaste place après avoir reçu l'autorisation de l'Empereur Céleste d'assister à cette cérémonie.
 
-En ce moment précis, le soleil s'élevait et une immense foule de cultivateurs s'était rassemblée. D'un seul coup d'œil, on comptait pas moins de 10 000 individus. Tous possédaient des niveaux de culture extraordinaires, et certains étaient même des Ascendants Empyréens.
+En ce moment précis, le soleil s'élevait et une immense foule de cultivateurs s'était rassemblée. D'un seul coup d'œil, on comptait pas moins de plusieurs dizaines de milliers d'individus. Tous possédaient des niveaux de culture extraordinaires, et certains étaient même des Exaltés Empyréens.
 
 Même au sein du palais impérial, ces êtres recevaient le respect de tous ceux qui les entouraient.
 
@@ -36,7 +36,7 @@ Peu de gens en connaissaient les détails précis, mais à cet instant, les deux
 
 Ces deux lignes semblaient fendre la place, s'étendant directement au-delà des neuf portes!
 
-À l'extérieur de la place du Temple du Dao Céleste se trouvaient neuf portes espacées de 100 000 pieds les unes des autres. En réalité, il s'agissait de neuf immenses édifices en forme de portes, d'un noir profond, exhalant une puissante intention meurtrière. Au terme de la dernière porte, un éclair jaillit tandis que les membres de la famille Li apparaissaient. Ils franchirent les neuf portes pour atteindre la place.
+À l'extérieur de la place du Temple du Dao Céleste se trouvaient neuf portes espacées de 100 000 pieds les unes des autres. En réalité, il s'agissait de neuf immenses édifices en forme de portes, d'un noir profond, exhalant une puissante intention meurtrière. Au terme de la dernière porte, un éclair jaillit tandis que les membres de la famille Li apparaissaient. Ils contournèrent les neuf portes et se dirigèrent respectueusement vers la place.
 
 « Le temps est venu, scellez les neuf portes! » Peu après, une silhouette vêtue de vert sortit du temple. C'était un vieil homme à l'apparence ordinaire, mais dont les yeux brillaient d'un éclat vif. Il scruta les environs en émergeant du sanctuaire.
 
@@ -52,7 +52,7 @@ Dans un éclat de lumière, un jeune homme calme aux cheveux blancs sortit de l'
 
 Debout là, Wang Lin avait les mains derrière le dos. La brise matinale faisait flotter sa robe et sa chevelure blanche.
 
-Sous ce vent, Wang Lin paraissait très jeune, mais la traînée du temps pesait sur son corps. Bien que son visage fût resté celui d'un jeune homme, son cœur ressentait la lassitude. À mesure qu'il avançait, la traînée du temps se manifestait lentement.
+Sous ce vent, Wang Lin paraissait très jeune, mais les années avaient laissé des pattes d'oie au coin de ses yeux. Bien que son visage fût resté celui d'un jeune homme, ces rides, nées de la lassitude de son cœur et de ses pas sans regret, apparaissaient lentement.
 
 Son regard perçait le passage obscur formé par les neuf portes. Il vit la foule immense au loin et l'imposant palais qui se dressait derrière eux.
 
@@ -66,11 +66,11 @@ Ce palais était trop vaste. Wang Lin ne pouvait en voir la fin, mais il sentait
 
 L'homme qui avait parlé était le vieil homme en vert sorti du temple. Il observait Wang Lin au loin à travers les neuf portes.
 
-« Wang Lin, chaque Ascendant Empyréen recevra un titre de Sa Majesté, mais avant la cérémonie de couronnement, il doit subir une épreuve. Cette épreuve est constituée de ces neuf portes. Une fois que vous aurez franchi les neuf portes et vous serez tenu devant moi, la cérémonie débutera! »
+« Wang Lin, chaque Ascendant Empyréen recevra un titre de Sa Majesté, mais avant la cérémonie de couronnement, il doit subir une épreuve. Cette épreuve est constituée de ces neuf portes. Une fois que vous aurez franchi les neuf portes et que vous vous serez tenu devant moi, la cérémonie débutera! »
 
 « À ce moment-là, Sa Majesté viendra personnellement vous nommer et le Maître Impérial viendra diviner votre destin! Toutes vos actions devant le Temple du Dao Céleste seront enregistrées et diffusées auprès de toutes les sectes des 72 continents! » Les paroles du vieil homme étaient empreintes de calme. Lorsqu'il eut fini, il ferma les yeux, ne lui accordant plus aucune attention.
 
-Cependant, tous les cultivateurs, y compris les quatre rois, les yeux rivés sur Wang Lin.
+Cependant, tous les cultivateurs, y compris les quatre rois, avaient les yeux rivés sur Wang Lin.
 
 Wang Lin resta immobile. Il avait entendu parler de cette cérémonie par le vieil homme de la famille Li. Chaque Ascendant Empyréen devait effectivement traverser les neuf portes avant son intronisation.
 
@@ -94,18 +94,18 @@ Cette force ne se propageait que dans un rayon de 100 pieds autour de lui, mais 
 
 Le passage devant Wang Lin fut soudainement repoussé de 100 pieds, comme si la lumière noire n'avait d'autre choix que de reculer face à son intention meurtrière.
 
-Wang Lin ne s'arrêta pas et continua sa marche. Cependant, à chaque pas, les 100 pieds d'intention meurtrière se déplaçaient avec lui, repoussant constamment le passage. Même les soldats en armure noire à l'intérieur furent stupéfaits et reculèrent malgré eux. C'était comme si Wang Lin dégageait un momentum si écrasant que son intention meurtrière suffisait à briser toute volonté de combattre!
+Wang Lin ne s'arrêta pas et continua sa marche. Cependant, à chaque pas, les 100 pieds d'intention meurtrière se déplaçaient avec lui, repoussant constamment le passage. Même les soldats en armure noire à l'intérieur furent stupéfaits et reculèrent malgré eux. C'était comme si Wang Lin dégageait une aura si écrasante que son intention meurtrière suffisait à briser toute volonté de combattre!
 
 1 000 pieds, 10 000 pieds, 100 000 pieds! Wang Lin avança calmement sur 100 000 pieds. Derrière lui, il n'y avait plus de lumière noire, seulement la porte de pierre!
 
 Devant lui, le passage formé par la lueur sombre couvrant les huit portes restantes devint instable sous la pression de Wang Lin.
 
-*Roar!!* Le soldat en armure noire situé dans le passage qui avait été repoussé de 100 000 pieds poussa un troisième rugissement. La lumière noire s'étendit et prit la forme d'un tigre noir devant le temple, lequel bondit sur Wang Lin.
+*Rugissement!!* Les soldats en armure noire situés dans le passage qui avait été repoussé de 100 000 pieds poussèrent un troisième rugissement. La lumière noire s'étendit et prit la forme d'un tigre noir qui, dans le palais, devant Wang Lin, bondit sur lui en rugissant.
 
-« Reculez tous! » Les yeux de Wang Lin brillèrent et le tatouage du Taureau Céleste sur son visage s'illumina. Il lança alors un coup de poing de la main droite, et l'armure spirituelle disparut de son corps.
+« Reculez tous! » Les yeux de Wang Lin brillèrent et le totem de l'âme du Taureau Céleste sur son visage se répandit instantanément sur tout son corps. Il lança alors un coup de poing de la main droite, et l'armure d'âme disparut de son corps.
 
 Lorsque ce coup percuta sa cible, le monde trembla et l'ombre du tigre se désintégra. Le passage noir formé par les huit portes restantes s'effondra avec la lumière noire. Les 100 000 soldats en armure noire crachèrent tous du sang et furent projetés en arrière, sans qu'aucun ne succombe.
 
-Les pupilles de Wang Lin se contractèrent imperceptiblement tandis qu'il observait attentivement les soldats. Il traversa calmement les huit portes restantes pour arriver devant le Temple du Dao Céleste. Son regard se posa avec acuité sur le vieil homme en vert qui reculait!
+Les pupilles de Wang Lin se contractèrent imperceptiblement tandis qu'il observait attentivement leurs armures. Il traversa calmement les huit portes restantes pour arriver devant le Temple du Dao Céleste. Son regard se posa avec acuité sur le vieil homme en vert qui reculait!
 
 « Vous aussi, reculez! » Wang Lin lança froidement un regard au vieillard aux vêtements verts.

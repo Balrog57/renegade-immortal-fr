@@ -14,7 +14,7 @@ Le temps s'écoulait lentement. En un éclair, trois mois passèrent. Durant ces
 
 Au cours de cette période de trois mois, l'âme originelle de Wang Lin avait patiemment attendu, protégée par la Perle Défiant le Ciel. Il possédait assez de patience pour ce qu'il percevait comme une immense fortune.
 
-Le vieil homme en robe verte était extrêmement suspicieux. Wang Lin ne croyait pas que ce dernier croirait aisément qu'il avait déjà péri. Ce qui attendait Wang Lin était probablement une série d'autres tests, jusqu'à ce que le vieil homme soit suffisamment convaincu pour lui accorder cette grande fortune.
+Le vieil homme en robe verte était extrêmement suspicieux. Wang Lin pensait que ce dernier ne se fierait pas aisément à son propre jugement du moment. Ce qui attendait Wang Lin était probablement une série d'autres tests, jusqu'à ce que le vieil homme soit suffisamment convaincu pour lui accorder cette grande fortune.
 
 Bien que Wang Lin fût incapable de deviner la nature des épreuves à venir, il était prêt. Il attendait calmement sous la protection de la Perle Défiant le Ciel.
 
@@ -22,11 +22,11 @@ Ne pas changer tout en étant dans une forme de changement: tel était le plan d
 
 Le temps recommença à passer, imperceptiblement. Trois mois, trois mois, trois mois... Bientôt, après le départ du vieil homme, Wang Lin passa une année entière dans cet espace vert.
 
-Grâce à son niveau de culture actuel, son corps ne se décomposera pas avant des dizaines de milliers d'années. Son enveloppe charnelle n'avait pas changé durant cette année, mais les scorpions verts, eux, recouvraient désormais davantage sa peau.
+Grâce à son niveau de culture actuel, son corps ne se décomposera pas avant dix mille ans. Son enveloppe charnelle n'avait pas changé durant cette année, mais les scorpions verts, eux, recouvraient désormais davantage sa peau.
 
 Dans cet espace émeraude, les scorpions considéraient déjà Wang Lin comme l'un des leurs. Ce lieu ressemblait à un cachot et dégageait une aura lugubre.
 
-À cet instant, si quiconque avait pu voir la scène à travers l'écran, il en aurait été terrifié.
+À cet instant, si quiconque avait vu la scène de cet espace vert, il en aurait été terrifié.
 
 Wang Lin n'existait plus. La seule chose qui subsistait était un monticule de forme humaine.
 
@@ -86,7 +86,7 @@ La compétition consistait en une joute de patience!
 
 Mais cela n'était valable que si les spéculations de Wang Lin étaient exactes!
 
-À cet instant, il ignorait qu'au sommet du gigantesque bâtiment en forme de scorpion se trouvait une grotte. Là, assis, le vieil homme en vert contemplait un miroir émeraude qui reflétait tout ce qui se passait dans l'espace où se trouvait Wang Lin.
+À cet instant, il ignorait qu'à l'intérieur de la tête du gigantesque bâtiment en forme de scorpion se trouvait une grotte. Là, assis, le vieil homme en vert contemplait un miroir émeraude qui reflétait tout ce qui se passait dans l'espace où se trouvait Wang Lin.
 
 Durant ces dix années, Wang Lin n'était pas le seul à attendre. Le vieil homme en vert attendait également.
 
@@ -98,7 +98,7 @@ Il avait plus de 2 800 ans. Il frôlait la mort.
 
 Il ne manquait pas de patience. Il vivait dans ce bâtiment depuis plus de 2 000 ans et s'était habitué au passage des âges. Cela était devenu une seconde nature pour lui.
 
-Deux ans, trois ans, quatre ans... La deuxième décennie s'écoula alors que les deux adversaires attendaient l'un l'autre. C'était une bataille d'une cruauté extrême, bien plus féroce que les combats ordinaires entre cultivateurs, car ils se livraient un combat contre le temps!
+Trois ans, trois ans, quatre ans... La deuxième décennie s'écoula alors que les deux adversaires attendaient l'un l'autre. C'était une bataille d'une cruauté extrême, bien plus féroce que les combats ordinaires entre cultivateurs, car ils se livraient un combat contre le temps!
 
 Cette guerre temporelle était silencieuse, sans l'ombre d'un conflit apparent, mais elle était saturée de danger. La lignée du vieil homme s'était préparée pendant d'innombrables années pour ce moment. Ils ne pouvaient se permettre la défaite...
 

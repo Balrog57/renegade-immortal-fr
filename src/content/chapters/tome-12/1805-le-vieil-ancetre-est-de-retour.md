@@ -6,13 +6,13 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1805 - The Old Ancestor Returns!"
 slug: le-vieil-ancetre-est-de-retour
 ---
-Le murmure du Dao résonna à travers la Secte du Dragon Bleu en flammes, produisant un son singulier. Ce son n'était ni aigu ni strident, mais il possédait une puissance étrange qui sembla détacher l'âme de Wang Lin de son corps. Même ses pensées furent affectées, tout comme ses sept essences.
+Le murmure du Dao résonna à travers la Secte du Dragon Bleu en flammes, produisant un son singulier. Ce son n'était ni aigu ni strident, mais il possédait une puissance étrange qui sembla détacher l'âme de Wang Lin de son corps. Même l'état d'esprit de son intention du Dao fut affecté, et indirectement ses essences.
 
 Cette technique était extrêmement difficile à exécuter seul; elle devait donc être utilisée par un vaste groupe de cultivateurs. Les disciples de la Secte du Dragon Bleu voulaient manifestement employer ce sort pour empêcher Wang Lin de partir!
 
 Wang Lin avait déjà rencontré ce type de sortilège dans le monde des grottes, mais aucun n'avait égalé une telle puissance. Il faut dire qu'il pouvait actuellement combattre des individus ayant traversé plusieurs Tribulations Arcanes, et pourtant il restait affecté. Cela démontrait à quel point cette technique était terrifiante.
 
-Cependant, Wang Lin avait compris le Tonnerre du Cœur dans l'Ancienne Tombe, et celui-ci ressemblait à ce sortilège. Son rythme cardiaque était tel un tonnerre résonnant à travers le monde. Il devint plus violent lorsqu'il entra en contact avec les dizaines de milliers de disciples de la Secte du Dragon Bleu, faisant battre leurs cœurs sauvagement.
+Cependant, Wang Lin avait compris le Tonnerre des Battements de Cœur dans la Tombe Antique, et celui-ci ressemblait à ce sortilège. Son rythme cardiaque était tel un tonnerre résonnant à travers le monde. Il devint plus violent lorsqu'il entra en contact avec les dizaines de milliers de disciples de la Secte du Dragon Bleu, faisant battre leurs cœurs sauvagement.
 
 Désormais, ils étaient à égalité!
 
@@ -36,9 +36,9 @@ Le grondement résonnait encore à leurs oreilles alors qu'une montagne entière
 
 Une fois la montagne disparue, un dragon de feu long de 100 000 pieds et doté d'une tête aussi vaste qu'une montagne émergea des profondeurs. Le dragon de feu n'avait pas de corps physique; il était constitué de flammes et dégageait une aura d'âme ancienne.
 
-Quel genre de dragon de feu était-ce? C'était manifestement l'âme de la veine de feu terrestre!
+Ce n'était pas un dragon de feu ordinaire: c'était manifestement l'âme d'une branche de la veine de feu terrestre!
 
-Au sommet de la tête du dragon se tenait un homme. Ses cheveux blancs flottaient et ses yeux étaient semblables à des étoiles, avec un cercueil flottant derrière lui. Il se tenait là comme s'il trônait au sommet du monde!
+Au sommet de la tête du dragon se tenait un homme. Ses cheveux blancs flottaient et ses yeux étaient semblables à des étoiles, portant un cercueil dans le dos. Il se tenait là comme s'il trônait au sommet du monde!
 
 Il dégageait une aura qui semblait mépriser le monde entier. Le feu qui brillait derrière lui rendait sa présence presque insoutenable au regard!
 
@@ -56,9 +56,9 @@ C'était Wang Lin!
 
 Il atteignait le sommet du monde des grottes! Bien qu'il venait de pénétrer sur le Continent Astral Immortel, il restait tout aussi redoutable!
 
-Tout cela se produisit en quelques respirations seulement. Debout sur le dragon de feu, celui-ci laissa échapper un rugissement qui fendit les cieux!
+Tout cela se produisit en quelques respirations seulement. Sur une pensée de Wang Lin, le dragon de feu sur lequel il se tenait leva la tête et laissa échapper un rugissement qui fendit les cieux!
 
-ROAR!!
+GRAOUUU!!
 
 Ce rugissement dévastateur fit cracher du sang aux cultivateurs suspendus dans les airs. Ils reculèrent tous; personne n'osa barrer la route à Wang Lin, ils lui ouvrirent même le passage.
 
@@ -88,7 +88,7 @@ L'âme d'une branche de la veine de feu terrestre était une force qu'il ne pouv
 
 L'homme d'âge moyen ne tint pas un souffle. Il eut l'impression d'être plongé dans le creuset des cieux et de la terre. S'il ne reculait pas, il serait réduit en cendres!
 
-La peur qu'il ressentit à cet instant surpassa celle qu'il éprouvait pour le Vieil Ancêtre. Sans hésiter, il cracha du sang et recula de centaines de pieds. Puis, dans un nouveau spasme de douleur, il battit en retraite frénétiquement. Seuls ses bras, qui avaient touché le dragon, étaient presque entièrement calcinés.
+La peur qu'il ressentit à cet instant surpassa celle qu'il éprouvait pour le Vieil Ancêtre. Sans hésiter, il cracha du sang et recula de centaines de pieds. Puis, après avoir craché du sang une fois de plus, il battit en retraite frénétiquement. Seuls ses bras, qui avaient touché le dragon, étaient presque entièrement calcinés.
 
 Bien qu'il ait réussi à s'éloigner, ses bras furent balayés par les vents ardents et tombèrent en cendres.
 
@@ -98,17 +98,17 @@ Quant aux deux autres Anciens qui s'étaient transformés en dragons, ils furent
 
 Leurs âmes originelles s'enfuirent, habitées par une terreur qu'ils n'oublieraient jamais.
 
-La puissance de ces quatre individus ne parvint pas à retarder Wang Lin et son dragon un seul instant. D'un simple revers de queue, le dragon de feu les laissa tous gravement blessés! Les dizaines de milliers de disciples de la Secte du Dragon Bleu restèrent pétrifiés par ce spectacle.
+La puissance de ces quatre individus ne parvint pas à retarder Wang Lin et son dragon un seul instant. D'une seule charge, le dragon de feu les laissa tous gravement blessés! Les dizaines de milliers de disciples de la Secte du Dragon Bleu restèrent pétrifiés par ce spectacle.
 
 Le dragon de feu s'élança vers les cieux et Wang Lin apparut au sommet de sa tête. Il jeta un regard dédaigneux vers le bas.
 
 « Je n'ai tué personne. Si cette affaire a éclaté aujourd'hui, c'est parce que votre secte souhaitait me transformer en marionnette. Soyez sages! » Wang Lin laissa ces paroles glaciales et s'éloigna sur son dragon de feu sous les regards terrifiés de l'assemblée. Il s'éloigna de plus en plus jusqu'à disparaître à l'horizon.
 
-Une secte entière n'avait pu arrêter un seul homme, ne serait-ce qu'une seconde. Cette démonstration de puissance et cet aura gravèrent la silhouette de Wang Lin dans l'esprit de chaque membre de la Secte du Dragon Bleu.
+Une secte entière n'avait pu arrêter un seul homme, ne serait-ce qu'une seconde. Cette démonstration de puissance et cette aura gravèrent la silhouette de Wang Lin dans l'esprit de chaque membre de la Secte du Dragon Bleu.
 
 Cette bataille était destinée à rendre le nom de Wang Lin célèbre dans tout le Continent du Taureau Céleste!
 
-Une heure après le départ de Wang Lin, les trois Anciens ayant perdu leur corps et l'homme d'âge moyen ayant perdu ses bras étaient encore plongés dans leurs pensées quand, soudain, l'homme d'âge moyen se mit à trembler. De l'autre côté du monde, un rugissement de colère prodigieux retentit!
+Une heure après le départ de Wang Lin, les trois Anciens ayant perdu leur corps et l'homme d'âge moyen ayant perdu ses bras étaient encore plongés dans leurs pensées quand, soudain, l'homme d'âge moyen se mit à trembler. Depuis une autre direction, un rugissement de colère prodigieux retentit!
 
 Dès que ce cri éclata, les couleurs du monde semblèrent changer; le feu ardent au sol s'éteignit brusquement pour ne laisser place qu'à des volutes de fumée noire s'élevant dans l'air.
 

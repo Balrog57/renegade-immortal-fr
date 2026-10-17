@@ -16,7 +16,7 @@ Dans les montagnes reculées, une cascade retentissait avec fracas. À côté se
 
 « Il a passé le huitième palais... » sourit le jeune homme. D'un mouvement de sa branche de saule, il créa une ondulation à la surface de l'étang, et la scène de l'Épreuve Empyrée apparut.
 
-La majeure partie du Continent du Nord était recouverte de glace et de neige toute l'année. Le vent, faisant danser les flocons, hurlait comme des cris de fantômes, faisant trembler le cœur de la plupart des cultivateurs arrivant pour la première fois dans le Continent du Sud.
+La majeure partie du Continent du Nord était recouverte de glace et de neige toute l'année. Le vent, faisant danser les flocons, hurlait comme des cris de fantômes, faisant trembler le cœur de la plupart des cultivateurs arrivant pour la première fois dans le Continent du Nord.
 
 Une chaîne de montagnes s'étendait à l'extrême nord du Continent du Nord. Ce massif était un immense glacier qui n'avait pas fondu depuis des dizaines de milliers d'années. Ses formes irrégulières ressemblaient à des épées perçant le ciel. La glace scintillait sous le soleil, dégageant une intention glaciale.
 
@@ -46,7 +46,7 @@ Continent de l'Est, la secte numéro un parmi les neuf sectes et treize factions
 
 Dans la terre interdite de la Secte Ziyang, au sein d'une chambre de pierre, un homme d'âge moyen observait intensément un immense miroir reflétant l'Épreuve Empyrée. Cependant, une lumière dorée saturait le miroir, rendant la silhouette floue.
 
-Près de lui se trouvaient deux fillettes, l'une vêtue de rouge et l'autre de violet. Elles semblaient avoir sept ou huit ans. Telles de petites poupées de jade, leurs yeux brillaient d'éclat. Elles étaient adorables. À cet instant, la petite en rouge soutenait son menton de la main tout en jouant avec ses cheveux, les yeux fixés sur le miroir, bien qu'en réalité elle ne songeait qu'à aller jouer dehors. Elle lança un regard à la fillette en violet et elles échangèrent un clin d'œil complice.
+Près de lui se trouvaient deux fillettes, l'une vêtue de rouge et l'autre de violet. Elles semblaient avoir sept ou huit ans. Telles de petites poupées de jade, leurs yeux brillaient d'éclat. Elles étaient adorables. À cet instant, la petite en rouge soutenait son menton de la main tout en jouant avec ses cheveux, les yeux fixés sur le miroir, bien qu'en réalité elle ne songeait qu'à aller jouer dehors. Elle lança un regard à la fillette en violet et elles clignèrent des yeux avant de faire la moue en même temps.
 
 Un cultivateur se tenait aux côtés de la petite en violet. Il affichait une mine déconfite, accroupi avec une chaîne autour du cou. On aurait dit que des larmes étaient sur le point de couler de ses yeux; il semblait ainsi en raison d'années de dépression, dans un état pitoyable.
 
@@ -54,7 +54,7 @@ Un cultivateur se tenait aux côtés de la petite en violet. Il affichait une mi
 
 « Deux petits ancêtres, par pitié... Ne pensez pas toujours à jouer... Hélas, regardez cet homme. J'ai fait des recherches sur lui — il vient aussi du Continent de l'Est. Qu'il réussisse ou non le neuvième palais, il doit être recruté », murmura l'homme d'âge moyen avec amertume à l'adresse des deux fillettes.
 
-« Ah, occupe-toi de ça comme bon te semble. Han Han, tu dois donner une leçon à ce Petit Loup désobéissant. Nous devrions le jeter dans la Mare du Neuf Yin, comme la dernière fois qu'il a fait des siennes. Après quelques jours, il est devenu très sage et nous a même trouvé une cloche amusante pour jouer! » La petite en rouge sourit à l'homme d'âge moyen avant de s'approcher du cultivateur au visage amer. Avec la fillette en violet, elle commença à lui tapoter la tête sans aucune pitié.
+« Ah, occupe-toi de ça comme bon te semble. Han Han, tu dois donner une leçon à ce Petit Loup désobéissant. Nous devrions le jeter dans la Mare du Neuf Yin, comme la dernière fois qu'il a fait des siennes. Après quelques jours, il est devenu très sage et nous a même trouvé une cloche amusante pour jouer! » La petite en rouge sourit sans prêter la moindre attention à l'homme d'âge moyen et s'approcha du cultivateur au visage amer. Avec la fillette en violet, elle commença à lui tapoter la tête sans aucune pitié.
 
 L'homme d'âge moyen observa la scène, stupéfait, avec un sourire amer. Il se leva et s'inclina devant les deux fillettes qui jouaient, l'air très sérieux.
 
@@ -68,11 +68,11 @@ Les deux fillettes continuaient de tapoter la tête du cultivateur nommé Petit 
 
 L'homme d'âge moyen, au bord de la folie, rugit vers les deux fillettes: « Grand Empyréen Gémeaux!!! » Sa voix tonna comme le tonnerre, faisant trembler le monde. Les deux fillettes se retournèrent enfin pour le regarder.
 
-« Petite Gu Ya, es-tu désobéissante toi aussi? » La petite nommée Wa Wa fronça les sourcils en fixant l'homme.
+« Petit Gu Ya, es-tu désobéissant toi aussi? » La petite nommée Wa Wa fronça les sourcils en fixant l'homme.
 
 Ignorant la remarque, l'homme prit une profonde inspiration et dit d'un ton solennel: « Grand Empyréen Gémeaux, cet homme doit être recruté! »
 
-« Alors va le recruter. Vas-y, ramène-le et nous le verrons. » La fillette nommée Han Han agita la main en direction du cultivateur nommé Petit Loup, puis disparut dans la chambre de pierre avec l'autre enfant.
+« Alors va le recruter. Vas-y, ramène-le et nous le verrons. » La fillette nommée Han Han agita la main, saisit le cultivateur nommé Petit Loup et, avec l'autre enfant, disparut en un éclair de la chambre de pierre.
 
 L'homme d'âge moyen resta seul. Il se prit la tête entre les mains, tirant ses cheveux, et sourit amèrement.
 
@@ -110,4 +110,4 @@ Sous les yeux de la multitude, le neuvième palais, resté sombre durant de long
 
 Les cultivateurs en bas étaient tous stupéfaits. L'Exalté Empyréen Zhu Lin baissa amèrement la tête.
 
-« Camarade cultivateur Wang Lin, félicitations pour avoir franchi le neuvième palais! » On ne sut qui commença, mais tous les cultivateurs en contrebas joignirent les mains vers le ciel en signe de respect.
+« Daoïste Wang Lin, félicitations pour avoir franchi le neuvième palais! » On ne sut qui commença, mais tous les cultivateurs en contrebas joignirent les mains vers le ciel en signe de respect.

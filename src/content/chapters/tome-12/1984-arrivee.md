@@ -40,7 +40,7 @@ Wang Lin dit calmement: « Cet endroit est la cité ancestrale du clan céleste.
 
 « Qui a osé s'en prendre à toi? Hmph, hmph... qui ose provoquer notre petit Wang Lin! Nous réglerons cela pour toi! » Les deux fillettes devinrent soudainement pleines de fougue, comme si elles étaient très enclines au combat.
 
-Wang Lin regarda les deux fillettes et dit doucement: « J'aimerais demander au Grand Empyréen Gémeaux de m'aider à piéger l'Empereur Céleste pendant un certain temps. Je dois me rendre au palais! »
+Wang Lin regarda les deux fillettes et dit doucement: « J'aimerais demander au Grand Empyréen Gémeaux de m'aider à piéger l'Empereur Céleste pendant un certain temps. Je dois me rendre au palais souterrain! »
 
 « L'Empereur Céleste? Aucun problème! » Les yeux des deux fillettes s'animèrent, une pointe de sérieux perçant leur regard pur. Cependant, elles ne posèrent pas d'autres questions. Elles détournèrent le regard et s'envolèrent vers le palais.
 
@@ -80,19 +80,19 @@ Très peu de cultivateurs osaient barrer la route à Wang Lin. Ils regardaient, 
 
 Une traînée de ruines reliait désormais la cité orientale au palais. Derrière Wang Lin, il n'y avait plus de ville, seulement les poussières du temps.
 
-Devant le palais, des dizaines de milliers de soldats en armure noire étaient alignés, fixant Wang Lin. Derrière lui, d'innombrables silhouettes s'élancèrent de chaque recoin du palais.
+Devant le palais, des dizaines de milliers de soldats en armure noire étaient alignés, fixant Wang Lin. Derrière eux, d'innombrables silhouettes s'élancèrent de chaque recoin du palais.
 
 Dans le ciel, le monde changea de couleurs. Deux soleils brillaient désormais: l'un pourpre et l'autre doré! À l'intérieur du soleil pourpre se trouvait le Grand Empyréen Gémeaux, et dans le soleil doré, l'Empereur Céleste!
 
 Le combat entre les deux Grands Empyréens provoqua des grondements tonitruants qui rendirent le monde flou. Des ondes de choc se propagèrent dans toutes les directions.
 
-« Grand Empyréen Gémeaux, ce Wang Lin commet une intrusion dans le palais et ne respecte pas l'Ancêtre Céleste. C'est le comportement d'un traître!! Allez-vous continuer à vous montrer si obstinés?! » La voix de l'Ancêtre Céleste résonna dans les cieux, accompagnée de tonnerres et de sorts dévastateurs.
+« Grand Empyréen Gémeaux, ce Wang Lin commet une intrusion dans le palais et ne respecte pas l'Ancêtre Céleste. C'est le comportement d'un traître!! Allez-vous continuer à vous montrer si obstinés?! » La voix de l'Empereur Céleste résonna dans les cieux, accompagnée de tonnerres et de sorts dévastateurs.
 
 Wang Lin se tenait devant le palais et leva soudain les yeux. Tout le gaz noir autour de lui se condensa pour former une robe sombre. Ses cheveux noirs s'allongèrent même légèrement. Il contempla le soleil doré dans le ciel avec une indifférence absolue.
 
 Alors que le gaz noir se condensait en cette robe, l'obscurité céleste s'étala comme de l'encre. Le ciel devant le palais fut divisé en trois parties: une partie noire, une partie dorée, et au milieu, une bande pourpre!
 
-« Je ne voulais pas poursuivre le piège de la rue, je voulais simplement partir... Je ne voulais pas que la destruction et le massacre s'abattent sur le monde, mais vous... vous m'avez forcé à venir en utilisant ce fou... Maintenant, j'arrive! » Les yeux de Wang Lin étaient plus indifférents encore, dépourvus de toute émotion. Il tourna soudain son regard vers les dizaines de milliers de soldats noirs et les figures surgissant du palais.
+« Je ne voulais pas poursuivre le massacre de la longue rue, je voulais simplement partir... Je ne voulais pas que la destruction et le massacre s'abattent sur le monde, mais vous... vous m'avez forcé à venir en utilisant ce fou... Maintenant, j'arrive! » Les yeux de Wang Lin étaient plus indifférents encore, dépourvus de toute émotion. Il tourna soudain son regard vers les dizaines de milliers de soldats noirs et les figures surgissant du palais.
 
 Wang Lin leva le pied et fit un pas en avant. Son corps se dilata soudainement pour devenir un nuage noir qui fondit sur l'ennemi.
 

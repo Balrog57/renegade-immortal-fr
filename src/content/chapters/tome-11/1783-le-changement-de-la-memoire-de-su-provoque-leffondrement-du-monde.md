@@ -10,7 +10,7 @@ Alors que Wang Lin marchait dans la plaine, l'herbe autour de lui s'écartait po
 
 Cependant, Wang Lin réfléchissait encore à la manière de stimuler la troisième âme et de provoquer une confusion accrue dans ses souvenirs.
 
-« Alors, je devrais pouvoir procéder ainsi. » Wang Lin fit un pas en avant et leva les yeux vers le ciel sombre. Un rayon de lumière traversa l'azur et s'arrêta brusquement devant lui. Une lueur d'épée jaillit, et ce rayon fonça sur Wang Lin.
+« Alors, la première place permettra peut-être d'y parvenir. » Wang Lin s'arrêta et leva les yeux vers le ciel sombre. Un rayon de lumière traversa ce ciel et s'arrêta brusquement au-dessus de lui. Une lueur d'épée jaillit, et ce rayon fonça sur Wang Lin.
 
 Il s'agissait d'un jeune homme vêtu de bleu. Son visage était empreint d'une intention meurtrière et une aura sanglante émanait de lui. Dans un éclat de lumière d'épée, il s'approcha pour trancher la tête de Wang Lin.
 
@@ -28,7 +28,7 @@ Durant le premier essai, Wang Lin était tel un loup infiltré dans un troupeau 
 
 La renommée de Wang Lin grandit rapidement au sein de cette première épreuve. Dès qu'on l'apercevait, les participants tremblaient et lui remettaient leur jeton. Ses attaques étaient d'une décontraction absolue; il savait qu'il faisait face à la mémoire de Sept-Couleurs. Chaque acte déraisonnable devenait logique à mesure que les souvenirs se distordaient.
 
-Par exemple, à l'extérieur du Gouffre de Dong Lin, les expressions et les pensées de tous les spectateurs étaient dictées par la mémoire de Sept-Couleurs. Ils agissaient selon ce que celle-ci imaginait qu'ils feraient.
+Par exemple, à l'extérieur du Rift de Dong Lin, les expressions et les pensées de tous les spectateurs étaient dictées par la mémoire de Sept-Couleurs. Ils agissaient selon ce que celle-ci imaginait qu'ils feraient.
 
 « Qui est cet homme?! En moins d'une journée, il a déjà obtenu plus de 300 jetons!! »
 
@@ -42,7 +42,7 @@ Le visage du maître de Su Dao rayonnait d'un sourire fier. Plus les performance
 
 À l'intérieur du premier essai, Wang Lin sentait distinctement l'apparition de nombreuses distorsions alors qu'il collectait les jetons et abattait ces génies issus de la mémoire de Su Dao. Ces anomalies résultaient des altérations mémorielles et signalaient que les souvenirs de la troisième âme étaient en train de changer.
 
-« La simulation n'est pas assez puissante... » Wang Lin secoua la tête et son Sens Divin se déploya sur toute la zone. À l'instant où son Sens Divin s'étendit, chaque présence apparut dans son esprit.
+« La stimulation n'est pas assez puissante... » Wang Lin secoua la tête et son Sens Divin se déploya sur toute la zone. À l'instant où son Sens Divin s'étendit, chaque présence apparut dans son esprit.
 
 Il traquait les génies qui avaient suscité une telle jalousie chez Su Dao autrefois. Ces individus avaient réalisé des prouesses éblouissantes et occupaient des rangs élevés lors des essais suivants.
 
@@ -58,15 +58,15 @@ La distorsion n'était visible que par Wang Lin. À mesure qu'il se rapprochait 
 
 Les pupilles de Kun Peng se rétractèrent et il recula sans hésiter. Malgré sa grande vitesse, il paraissait bien trop lent aux yeux de Wang Lin.
 
-Ce dernier soupira et agita nonchalamment la main droite. Kun Peng poussa un cri de douleur et projeta plus d'une douzaine de jetons de jade dans les airs. Tandis que les jetons volaient, la distorsion s'accentua considérablement.
+Ce dernier soupira et agita nonchalamment la main droite. Kun Peng poussa un cri de douleur et projeta plusieurs dizaines de jetons de jade dans les airs. Tandis que les jetons volaient, la distorsion s'accentua considérablement.
 
 L'aura des huit portes devint plus dense, mais cela restait insuffisant pour qu'elles se révèlent totalement.
 
-« La simulation n'est toujours pas assez forte... Alors, je vais t'aider à tuer Zhou Li! » Une lueur de froideur traversa le regard de Wang Lin tandis que son Sens Divin se verrouillait sur Zhou Li. Ce dernier était dans un état pitoyable, dissimulé avec prudence dans une montagne. Il possédait huit jetons.
+« La stimulation n'est toujours pas assez forte... Alors, je vais t'aider à tuer Zhou Li! » Une lueur de froideur traversa le regard de Wang Lin tandis que son Sens Divin se verrouillait sur Zhou Li. Ce dernier était dans un état pitoyable, dissimulé avec prudence dans une montagne. Il possédait huit jetons.
 
-« Maudit Su Dao. Sans lui, l'Art Céleste du Nuage serait mien et je ne serais pas dans cet état lamentable lors de ce premier essai. Tout cela est de sa faute! Je vais le tuer! » Zhou Li était assis là, le visage féroce. Il haïssait Su Dao plus que tout.
+« Maudit Su Dao. Sans lui, l'Art Céleste du Dao des Nuages serait mien et je ne serais pas dans cet état lamentable lors de ce premier essai. Tout cela est de sa faute! Je vais le tuer! » Zhou Li était assis là, le visage féroce. Il haïssait Su Dao plus que tout.
 
-« Il est entré dans la secte bien après moi. Quelles sont ses qualifications pour apprendre l'Art Céleste du Nuage? Pourquoi le Maître lui accorde-t-il tant d'importance?! » Le cœur de Zhou Li bouillonnait de ressentiment. Il serra les dents, tentant de se soigner, quand la montagne où il se trouvait se mit à trembler.
+« Il est entré dans la secte bien après moi. Quelles sont ses qualifications pour apprendre l'Art Céleste du Dao des Nuages? Pourquoi le Maître lui accorde-t-il tant d'importance?! » Le cœur de Zhou Li bouillonnait de ressentiment. Il serra les dents, tentant de se soigner, quand la montagne où il se trouvait se mit à trembler.
 
 Après un instant de stupeur, la montagne gronda. Son expression changea radicalement et il s'élança hors de l'abri. À peine fut-il sorti que la montagne s'effondra, projetant des rochers vers lui. Il tenta d'esquiver, mais l'un d'eux le percuta. Il cracha du sang en reculant à mille pieds de l'amas de décombres.
 
@@ -88,7 +88,7 @@ Plus il collectait de jetons, plus la distorsion s'intensifiait et plus la trois
 
 Quiconque osait résister était immédiatement balayé par Wang Lin. Toutefois, il n'avait aucune rancune contre eux. Bien qu'ils soient des émanations de la mémoire de Sept-Couleurs, il ne les tuait pas sans nécessité.
 
-Seuls ceux dont Sept-Couleurs était jalouse, ou avec qui elle avait eu des affrontements ultérieurs, furent exécutés par Wang Lin. Chaque mort augmentait considérablement la distorsion environnante.
+Seuls ceux dont Sept-Couleurs était jaloux, ou avec qui il avait eu des affrontements ultérieurs, furent exécutés par Wang Lin. Chaque mort augmentait considérablement la distorsion environnante.
 
 C'était comme si la troisième âme s'excitait dans ce chaos!
 
@@ -100,7 +100,7 @@ Leurs expressions de choc et leurs pensées n'étaient que des constructions ima
 
 Lors de la première épreuve, quand Wang Lin obtint le dernier jeton de jade, la distorsion fut saisissante. Les auras des huit portes étaient très nettes, mais il semblait qu'un voile de brume s'interposait encore!
 
-Wang Lin se fondit dans l'obscurité du ciel et ses mains semblèrent déchirer la voûte céleste. Il agrippa le firmament et ouvrit une faille gigantesque.
+Wang Lin s'élança vers le ciel sombre et ses mains déchirèrent la voûte céleste. Il agrippa le firmament et ouvrit une faille gigantesque.
 
 De l'autre côté de cette brèche se trouvait la place principale de la Secte Dong Lin!
 
@@ -110,6 +110,6 @@ Wang Lin sortit sur la place sous les yeux ébahis de la foule, flottant haut da
 
 La cinquième fleur trembla et se désintégra morceau par morceau!
 
-Simultanément, les auras des huit portes apparurent pleinement alors que les souvenirs de la troisième âme étaient subvertis. Leurs énergies jaillirent vers le ciel tels des piliers de fumée.
+Simultanément, les auras des huit portes apparurent pleinement alors que les souvenirs de la troisième âme étaient subvertis. Leurs énergies jaillirent vers le ciel tels des piliers d'énergie s'élevant jusqu'aux nuages.
 
 La seule chose qui ne s'effondra pas fut la montagne arrière de la Secte Dong Lin: le Bassin de Dong Lin!

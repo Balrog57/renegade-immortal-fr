@@ -30,13 +30,13 @@ Bien que Wang Lin eût pu choisir de ne pas partir, sa nature était de rester c
 
 Avec un ricanement, il fixa les près de cent points verts sur sa boussole, une lueur d'intention meurtrière brillant dans ses yeux.
 
-Ces gens venaient pour le tuer, mais ils ignoraient que la raison pour laquelle Wang Lin était sorti était de remplir rapidement les trois missions confiées par l'Estimable Taureau Vert.
+Ces gens venaient pour le tuer, mais ils ignoraient que la raison pour laquelle Wang Lin était sorti était de remplir rapidement les trois missions confiées par l'Ancêtre Taureau Vert.
 
 « Deux des quatre directions sont occupées par des cultivateurs au stade intermédiaire de la Tribulation du Vide... Les deux autres ont des cultivateurs au stade initial de la Tribulation du Vide... Puisque Liu Zhiyuan est mort, il ne reste que six cultivateurs de la Tribulation du Vide sur le Continent du Démon Vert. S'ils en envoient cinq maintenant, c'est qu'ils savent que j'ai la boussole et qu'ils ont deviné que j'ai tué Liu Zhiyuan! » Wang Lin fit un pas vers la droite et, dans un écho de rides spatiales, il disparut.
 
-Dans les quatre directions de la Prairie du Ciel Extrême, plus d'une douzaine de cultivateurs volaient vers Wang Lin. Les vieillards nommés Zhao et Zhang affichaient tous deux des expressions sombres.
+Dans les quatre directions de la Prairie de l'Extrême Ciel, plus d'une douzaine de cultivateurs volaient vers Wang Lin. Les vieillards nommés Zhao et Zhang affichaient tous deux des expressions sombres.
 
-Dans les deux autres directions, un homme et une femme progressaient. Ces deux cultivateurs au stade initial de la Tribulation du Vide guidaient des dizaines de personnes à l'aide d'un guide vers Wang Lin.
+Dans les deux autres directions, un homme et une femme progressaient. Ces deux cultivateurs au stade initial de la Tribulation du Vide menaient chacun plus d'une douzaine de personnes vers Wang Lin, suivant une mystérieuse indication.
 
 Au même moment, loin de là, l'autre cultivatrice au stade initial de la Tribulation du Vide restait avec les milliers de membres du Continent du Démon Vert. Elle était assise devant une boussole illusoire qui révélait clairement la position de celle de Wang Lin. Elle donnait des ordres et relayait sa localisation.
 
@@ -44,7 +44,7 @@ Le tonnerre grondait dans le ciel et la pluie tombait à verse. Un massacre comm
 
 Xu Decai était un cultivateur errant du Continent du Démon Vert ayant atteint le stade initial de la Tribulation du Vide. C'était là sa limite; il ne pourrait progresser qu'en rencontrant une fortune extraordinaire.
 
-Il avait été invité par la Secte du Démon Dao pour participer à la guerre contre le Continent du Taureau Céleste. On lui avait promis de nombreux bénéfices, alors il s'était joint aux troupes pour tenter d'ouvrir son troisième méridien.
+Il avait été invité par la Secte de la Voie Démoniaque pour participer à la guerre contre le Continent du Taureau Céleste. On lui avait promis de nombreux bénéfices, alors il s'était joint à l'armée de cultivateurs qui avait fait voler en éclats le troisième méridien.
 
 À cet instant, il menait plus d'une douzaine de cultivateurs. Parmi eux se trouvaient trois personnes au troisième stade, mais la plus forte n'était qu'au stade intermédiaire du Vide Arcane.
 
@@ -76,13 +76,13 @@ Les pupilles de Xu Decai se contractèrent sous le choc. Wang Lin était trop ra
 
 « Wang Lin! » Sans hésiter, Xu Decai recula. Il leva la main droite vers le ciel.
 
-Une magnifique fleur illusoire apparut soudainement dans la nuit sombre et pluvieuse, occupant la moitié du firmament. Bien qu'elle parût splendide, un regard attentif aurait révélé qu'il s'agissait d'une fleur faite de crânes!
+Une magnifique fleur illusoire apparut soudainement dans la nuit sombre et pluvieuse, occupant une bonne part du firmament. Bien qu'elle parût splendide, un regard attentif aurait révélé qu'il s'agissait d'une fleur faite de crânes!
 
 À l'apparition de cette fleur, une lueur froide brilla dans les yeux de Wang Lin. À présent, il ne restait plus que cinq personnes. Hormis le cultivateur de la Tribulation du Vide, les quatre autres ne valaient pas l'attention qu'ils exigeaient.
 
 Les corps des quatre autres tremblèrent et ils tentèrent de fuir, mais leur vitesse était dérisoire face à celle de Wang Lin. Ce dernier s'élança et une lueur sanglante jaillit. L'épée de sang prit la forme d'un dragon et chargea. Deux personnes furent touchées et découpées en morceaux dans des cris de douleur.
 
-Après avoir éliminé ces deux individus, la boussole interne de Wang Lin lui indiqua clairement que trois groupes de cultivateurs du Continent du Démon Vert fonçaient vers lui. Trois vieux monstres au stade intermédiaire de la Tribulation du Vide chargeaient à pleine vitesse.
+Après avoir éliminé ces deux individus, la boussole interne de Wang Lin lui indiqua clairement que trois groupes de cultivateurs du Continent du Démon Vert fonçaient vers lui. Parmi eux, deux vieux monstres au stade intermédiaire de la Tribulation du Vide s'étaient détachés de leur groupe et chargeaient à pleine vitesse.
 
 À ce rythme, ils ne mettraient qu'une demi-heure à le rattraper.
 

@@ -10,9 +10,9 @@ Neuf chants, trois signes. Le premier chant était le Chant du Vent Céleste!
 
 Le deuxième chant était le Tonnerre du Dao Céleste!
 
-Le troisième chant était la Flûte des Nuages Originels!
+Le troisième chant était la Flûte des Nuages du Monde Mortel!
 
-Cette Flûte des Nuages Originels émanait des nuages blancs qui parsemaient le ciel doré. Son écho résonnait à travers les cieux et, lorsqu'elle pénétrait l'esprit, elle procurait une telle détente qu'on aurait eu envie de sombrer dans le sommeil.
+Cette Flûte des Nuages du Monde Mortel émanait des nuages blancs qui parsemaient le ciel doré. Son écho résonnait à travers les cieux et, lorsqu'elle pénétrait l'esprit, elle procurait une telle détente qu'on aurait eu envie de sombrer dans le sommeil.
 
 Alors que Wang Lin atteignait la 240e marche, ce son de flûte surgit dans le ciel. Cette mélodie était merveilleuse, dépassant ce qu'une créature vivante pourrait créer; elle naissait des innombrables interstices des nuages par lesquels le vent s'engouffrait.
 
@@ -22,9 +22,9 @@ Cette chanson avait le pouvoir de faire perdre tout sens de soi. Xuan Luo s'imme
 
 Sur les quatre piliers, tandis que les quatre hommes en robes grises écoutaient silencieusement la musique, des souvenirs affluèrent dans leurs esprits. Au sommet de la tour, un soupir s'échappa de la brume.
 
-Wang Lin, debout sur la 240e marche, écoutait également ce chant du vent, du tonnerre et des nuages. La mélodie enveloppait son âme originelle et son corps d'une chaleur bienfaisante, les nourrissant lentement. Toutes les blessures qu'il avait subies en gravissant les marches commençaient à cicatriser grâce à ce chant.
+Wang Lin, debout sur la 240e marche, écoutait également ce chant du vent, du tonnerre et des nuages. La mélodie enveloppait son âme originelle et son corps d'une chaleur bienfaisante, les nourrissant lentement. Toutes les blessures qu'il avait subies en gravissant les marches furent miraculeusement guéries par ce chant, comme au premier jour.
 
-Une puissance céleste et ancienne, encore plus profonde, fusionna avec lui, mais elle resta immobile.
+Un peu plus de la puissance née de la fusion céleste et ancienne apparut en lui, mais elle resta immobile.
 
 Après un long moment, une lueur jaillit dans les yeux de Wang Lin. Il leva le pied et reprit sa progression lente. Son expression n'était plus féroce, mais empreinte d'un calme absolu. Ses yeux n'étaient plus injectés de sang et il avançait avec sérénité.
 
@@ -44,11 +44,11 @@ Wang Lin marqua une légère pause sur la 250e marche. Après avoir entendu le b
 
 Sur la 260e marche, Wang Lin entendit le son du ciel. Ce son était d'un grand mystère; bien que le ciel fût silencieux, un doux murmure s'en échappa comme un chuchotement céleste. Il fusionna avec les chants du vent, du tonnerre, des nuages et de la pluie.
 
-Dès l'apparition de ce chant, la légère fusion des puissances célestes et anciennes commença à s'animer, tandis que la pression de la montagne augmentait.
+Dès l'apparition de ce chant, la légère fusion des puissances célestes et anciennes commença à s'animer, sortant peu à peu de son immobilité.
 
 Cependant, le processus était très lent, et nul ne savait combien de temps il faudrait pour achever un cycle complet. Wang Lin ne s'en inquiétait pas. Grâce aux cinq chants, il ressentait une plénitude absolue à l'intérieur comme à l'extérieur de son corps, comme s'il possédait une puissance infinie.
 
-Le sang de l'âme au sein du corps de Wang Lin montra des signes de dissolution. C'était ce même sang que Xuan Luo avait demandé au Grand Empyréen Gu Dao d'éveiller, mais qui lui avait été refusé.
+La goutte de sang de l'âme de l'Ancêtre Ancien au sein du corps de Wang Lin montra des signes de dissolution. C'était ce même sang que Xuan Luo avait demandé au Grand Empyréen Gu Dao d'éveiller, mais qui lui avait été refusé.
 
 Wang Lin avança silencieusement, franchissant les marches une à une. Lorsque son pied se posa sur la 270e marche, toutes les essences de son corps fondirent soudainement!
 
@@ -60,11 +60,11 @@ Face à cette aura, l'expression de Xuan Luo devint complexe.
 
 « Parmi les neuf chants et trois signes, les yeux argentés sont le point commun. Les neuf chants de l'Ancêtre peuvent rendre les yeux d'un homme argentés, et le deuxième des trois signes est précisément ces yeux... »
 
-Les quatre hommes en robes grises sur les piliers détournèrent le regard du ciel pour fixer à nouveau Wang Lin. Ils contemplèrent ses yeux argentés avec confusion. Cette perplexité était semblable à un trou noir, comme si leurs esprits mêmes étaient dévorés! C'était comme s'ils subissaient une étrange attraction vers ces yeux de métal précieux!
+Les quatre hommes en robes grises sur les piliers détournèrent le regard du ciel pour fixer à nouveau Wang Lin. Ils contemplèrent ses yeux argentés avec confusion. Cette perplexité laissait transparaître un vide, comme si leurs esprits mêmes étaient captés! C'était comme s'ils subissaient une étrange attraction vers ces yeux de métal précieux!
 
 Quant à la silhouette dans la brume, après une longue réflexion, il prononça des paroles qui résonnèrent dans le monde entier:
 
-« Neuf chants, trois signes... Dans ton corps, il y a cinq chants et deux signes... Monte. Si tu parviens à atteindre la 300e marche, j'éveillerai ton sang ancestral et je te convoquerai pour te voir... »
+« Neuf chants, trois signes... Dans ton corps, il y a cinq chants et deux signes... Monte. Si tu parviens à atteindre la 300e marche, j'éveillerai ton sang de l'âme et je te convoquerai pour te voir... »
 
 La voix demeurait glaciale.
 
@@ -96,13 +96,13 @@ Ces sons étaient subtils, mais à cet instant, ils fusionnèrent avec la mélod
 
 « Vous avez dit que je ne pourrais pas franchir la 300e marche... » Wang Lin leva le pied et bondit de dix marches d'un coup pour atteindre la 300e marche.
 
-Dès qu'il se tint sur la 300e marche, la confusion dans les yeux de deux des hommes en robes grises s'évanouit, remplacée par une froideur implacable, comme s'ils avaient recouvré leur conscience. Leurs regards glacés s'animèrent et ils s'élancèrent vers Wang Lin avec la rapidité de l'éclair.
+Dès qu'il se tint sur la 300e marche, la confusion dans les yeux de deux des hommes en robes grises s'évanouit, remplacée par une froideur implacable, comme s'ils avaient recouvré leur conscience. Leurs regards glacés s'animèrent et ils s'élancèrent, mais en plein ciel leurs deux silhouettes se superposèrent pour n'en former qu'une, qui fonça vers Wang Lin à grands pas avec la rapidité de l'éclair.
 
-Ils se rapprochèrent instantanément pour porter chacun un coup de poing.
+Elle fut sur lui en un instant et porta un coup de poing.
 
-Ces coups étaient enveloppés d'une brume grise, contenant chacun une tête gigantesque. Ces têtes, d'apparence démente, poussaient des rugissements silencieux en chargeant Wang Lin!
+Ce coup était enveloppé d'une brume grise qui laissait apparaître l'ombre d'une tête gigantesque. Cette tête, d'apparence démente, poussait un rugissement silencieux en chargeant Wang Lin!
 
-Des bruits de craquements résonnèrent dans le corps de Wang Lin. Ce son ressemblait à un battement de cœur, mais c'était le huitième chant, celui formé par ses organes internes!
+Des battements sourds résonnèrent dans le corps de Wang Lin. Ce son ressemblait à un battement de cœur, mais c'était le huitième chant, celui formé par ses organes internes!
 
 Le Chant des Organes Internes!
 

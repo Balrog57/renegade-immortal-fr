@@ -12,7 +12,7 @@ Cela était dû au fait que très peu de membres de cette secte quittaient leur 
 
 « Puisque cette secte fait partie des neuf sectes et treize factions, elle ne peut être médiocre; mais même s'il y a des cultivateurs de rang Exalté Empyréen, cela ne posera pas de problème. » Wang Lin réfléchit tandis que son sens divin se déployait. Alors qu'il s'apprêtait à se diriger vers la Secte Dong Lin, il s'arrêta soudainement.
 
-En étendant son sens divin, il perçut une fluctuation familière provenant d'une cité mortelle située à des centaines de milliers de kilomètres de là. Il avait placé ce sceau sur toutes les incarnations. Il ne pouvait pas les détecter de loin, mais dès qu'il s'approcherait, il pourrait ressentir leur présence.
+En étendant son sens divin, il perçut une fluctuation familière provenant d'une cité mortelle située à des dizaines de milliers de kilomètres de là. Il avait placé ce sceau sur toutes les incarnations. Il ne pouvait pas les détecter de loin, mais dès qu'il s'approcherait, il pourrait ressentir leur présence.
 
 « Cette fluctuation... qui pourrait-ce être? » Wang Lin esquissa un sourire teinté d'attente. Il lui était impossible de savoir de qui il s'agissait, tout comme lorsqu'il avait retrouvé Zhou Yi et Qing Shuang.
 
@@ -20,7 +20,7 @@ Il ne pouvait que détecter leur trace. À moins de les voir de ses propres yeux
 
 Un sourire joyeux éclaira son visage. Rencontrer un vieil ami en cette terre étrangère rendrait Wang Lin heureux, peu importe qui il s'agissait.
 
-En un éclair, il abandonna l'idée de se rendre à la Secte Dong Lin et vola vers la cité mortelle située à des centaines de milliers de kilomètres.
+En un éclair, il abandonna l'idée de se rendre à la Secte Dong Lin et vola vers la cité mortelle située à des dizaines de milliers de kilomètres.
 
 Avec son niveau de culture, il pouvait parcourir une telle distance en un instant. À mesure qu'il approchait de la ville, la sensation devenait plus intense. Lorsqu'il arriva au-dessus de la cité, il regarda en bas et aperçut, à l'intérieur des murs, un vieil homme aux cheveux blancs dégageant l'aura d'un immortel. Il afficha une expression étrange.
 

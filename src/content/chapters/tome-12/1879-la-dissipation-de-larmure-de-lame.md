@@ -16,7 +16,7 @@ Le dernier Messager du Démon Vert forma des sceaux et son corps commença à pi
 
 Bien qu'ils aient utilisé des méthodes variées, ils étaient tous extrêmement rapides. Au moment où Wang Lin réapparut à la surface, les quatre avaient déjà disparu sans laisser de trace.
 
-Cependant, comment Wang Lin pouvait-il les laisser s'échapper? Il devait remplir les conditions imposées par le Vieil Ancêtre Taureau Vert grâce à eux quatre. À cet instant, une lueur glaciale traversa le regard de Wang Lin et il fit un pas en avant.
+Cependant, comment Wang Lin pouvait-il les laisser s'échapper? Il devait remplir les conditions imposées par le Vieil Ancêtre Taureau Vert grâce à eux quatre. À cet instant, une lueur glaciale traversa le regard de Wang Lin et il fit un pas en avant vers l'est.
 
 Des ondulations résonnèrent sous ses pieds et il disparut instantanément.
 
@@ -68,9 +68,9 @@ L'épée de sang dans la main de Wang Lin continua de vibrer. Par ce coup, l'arm
 
 Elle avait autrefois tué de nombreux êtres célestes, mais depuis qu'elle était entre les mains de Wang Lin, c'était le niveau de cultivation le plus élevé qu'elle ait jamais terrassé!
 
-Au moment où le Messager du Démon Vert mourut, l'illusion du Taureau Céleste apparut autour de Wang Lin. Elle poussa un rugissement d'excitation, comme si la mort de ce messager lui procurait une immense joie.
+Au moment où le Messager du Démon Vert mourut, l'âme du Taureau Céleste apparut autour de Wang Lin. Elle poussa un rugissement d'excitation, comme si la mort de ce messager lui procurait une immense joie.
 
-Dès que l'âme du Taureau Céleste se manifesta, elle aspira l'air. Une volute de gaz vert s'échappa du corps du messager; elle prit la forme d'un scorpion et se débattit un instant avant d'être dévorée par le Taureau Céleste.
+Dès que l'âme du Taureau Céleste se manifesta, elle aspira le corps du messager. Une volute de gaz vert s'échappa du corps du messager; elle prit la forme d'un scorpion et se débattit un instant avant d'être dévorée par le Taureau Céleste.
 
 Wang Lin fut surpris, mais ne marqua pas de pause. Il s'élança et disparut.
 
@@ -98,9 +98,9 @@ La lueur rouge de l'épée de sang devint encore plus éclatante après avoir tu
 
 Ces caractères n'étaient pas ceux des cultivateurs, mais ceux des êtres antiques!
 
-Les cheveux blancs de Wang Lin flottaient au vent tandis que sa cultivation chutait jusqu'au stade avancé de la Tribulation Arcane. Il paraissait épuisé lorsqu'il fit un pas vers le palais souterrain.
+Les cheveux blancs de Wang Lin flottaient au vent tandis que sa cultivation chutait jusqu'au stade intermédiaire de la Tribulation Arcane. Il paraissait épuisé lorsqu'il fit un pas vers le palais souterrain.
 
-En chemin, son niveau de culture diminua encore pour atteindre le stade intermédiaire de la Tribulation Arcane. Lorsqu'il atteignit l'entrée du palais, sa cultivation revint à la normale, au stade avancé de la Tribulation de l'Esprit.
+En chemin, son niveau de culture diminua encore pour atteindre le stade initial de la Tribulation Arcane. Lorsqu'il atteignit l'entrée du palais, sa cultivation revint à la normale, au stade avancé de la Tribulation de l'Esprit.
 
 L'armure du Taureau Céleste sembla fondre, redevenant les innombrables fils noirs qui enveloppaient son corps. Finalement, ils se rassemblèrent sur le côté droit de son visage pour former un tatouage noir de Taureau Céleste.
 

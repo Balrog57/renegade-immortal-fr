@@ -52,7 +52,7 @@ Sous les éclats de tonnerre, le bras se dissipa avec les dix mille chevaux. Qua
 
 De l'autre côté de la Mer des Pilules, près du Continent du Démon Vert là où se trouvaient les trois grands fanions, le jeune homme réapparut aux côtés de la femme tenant la boussole. Dès son apparition, il cracha du sang. Son visage était marqué par la terreur et ses yeux trahissaient une peur persistante.
 
-Il essuya le sang au coin de sa bouche et dit: « Un accident est survenu. Il est probable que le frère Qian soit mort... Quand le Continent du Taureau Céleste a-t-il engendré un tel cultivateur? Son nom est Wang Lin! Je dois rapporter cela à Maître immédiatement. »
+Il essuya le sang au coin de sa bouche et dit: « Un accident est survenu. Il est probable que le frère Qian soit mort... Quand le Continent du Taureau Céleste a-t-il engendré un tel cultivateur? Son nom est Wang Lin! Nous devons en informer immédiatement notre secte. »
 
 La femme à ses côtés fixait toujours la boussole. Ses yeux étaient rivés sur le point blanc représentant Wang Lin.
 
@@ -60,9 +60,9 @@ Après un long moment, une lueur d'intention meurtrière traversa le regard de l
 
 « Le Senior Frère Yun Kong!! » Les yeux du jeune homme s'illuminèrent de respect à l'évocation de ce nom. Yun Kong était extrêmement célèbre dans le Continent du Démon Vert et partout sur le Continent de l'Est!
 
-Yun Kong, l'un des quatre génies du Continent de l'Est! Il n'appartenait à aucune secte fixe, pourtant les trois grandes sectes du Continent du Démon Vert étaient les siennes. Il pouvait fréquenter n'importe quelle secte pour y apprendre leurs sorts. Il était le Senior Frère de tous les disciples du Continent du Démon Vert!
+Yun Kong, l'un des quatre génies du Continent de l'Est! Il n'appartenait à aucune secte fixe, pourtant les trois grandes sectes du Continent du Démon Vert étaient les siennes. Il pouvait apprendre à son gré tous les sorts des trois grandes sectes. Il était le Senior Frère de tous les disciples du Continent du Démon Vert!
 
-« On dit que le Senior Frère Yun Kong est allé dans le Continent Nord pour rejoindre la secte du Grand Empyréen Wu Feng afin d'étudier le Dao. Sa culture est désormais insondable. Avec lui, Wang Lin ne fera aucun doute qu'il mourra! » Le jeune homme au visage de jade était transporté par l'excitation.
+« On dit que le Senior Frère Yun Kong est allé dans le Continent Nord pour rejoindre la secte du Grand Empyréen Wu Feng afin d'étudier le Dao. Sa culture est désormais insondable. Avec lui ici, Wang Lin mourra sans aucun doute! » Le jeune homme au visage de jade était transporté par l'excitation.
 
 Quant à Wang Lin, le cultivateur nommé Qian n'avait pas du tout été de taille face à Yi Si. La bataille s'acheva dans un cri et le corps de l'homme s'effondra. Yi Si dévora la dépouille, mais l'âme originelle fut préservée sur ordre de Wang Lin.
 
@@ -76,13 +76,13 @@ Yi Si, surpris, fixa Wang Lin d'un regard farouche.
 
 « Trois vieux amis, cela faisait des années que nous ne nous étions pas vus. Je ne m'attendais pas à vous retrouver ici... » Wang Lin se tourna vers le Tigre Blanc et les autres qui affichaient des expressions complexes. Il joignit les mains et sourit.
 
-Le Tigre Blanc et ses compagnons étaient émus et se sentaient embarrassés.
+Le Tigre Blanc et ses compagnons étaient émus et poussèrent des soupirs.
 
-« Wang Lin, puisque le Continent du Démon Vert est passé à l'action, ils frapperont comme la foudre. En ce moment même, je crains que la plupart des cultivateurs du Continent du Taureau Céleste n'aient déjà été massacrés. Nous... comment allons-nous partir? » La Tortue Noire regarda Wang Lin en poussant un soupir.
+« Wang Lin, puisque le Continent du Démon Vert est passé à l'action, ils frapperont comme la foudre. En ce moment même, je crains que la plupart des cultivateurs du Continent du Taureau Céleste présents dans la Mer des Pilules n'aient déjà été massacrés. Nous... comment allons-nous partir? » La Tortue Noire regarda Wang Lin en poussant un soupir.
 
-L'Oiseau Vermillon réfléchit un instant avant de déclarer: « C'est la première fois que le Continent du Démon Vert tente une invasion à grande échelle du Continent du Taureau Céleste. Jusqu'ici, ils étaient freinés par les barrières des Ancêtres de la Secte de la Grande Âme et de la Secte Gui Yi. Cependant, ils ont commencé par exterminer tous les cultivateurs marginaux dans la Mer des Pilules; leur objectif doit donc être colossal! »
+L'Oiseau Vermillon réfléchit un instant avant de déclarer: « Ce n'est pas la première fois que le Continent du Démon Vert entre en force sur le Continent du Taureau Céleste. Je me souviens qu'il y a bien longtemps, il y a eu quelques tentatives, mais elles ont toutes été arrêtées par les barrières dressées conjointement par les Ancêtres successifs de la Secte de la Grande Âme et de la Secte Gui Yi. Cette fois cependant, ils ont commencé par exterminer tous les cultivateurs marginaux dans la Mer des Pilules; leur objectif doit donc être colossal! »
 
-« Les changements ici sont dissimulés par le Continent du Démon Vert pour que la Secte de la Grande Âme et la Secte Gui Yi ne découvrent rien. En tant qu'habitants du Continent du Taureau Céleste, nous devons partir et leur transmettre un message! » affirma le Tigre Blanc d'une voix grave.
+« Les changements ici sont dissimulés par le Continent du Démon Vert; je crains que la Secte de la Grande Âme et la Secte Gui Yi ne sachent encore rien de ce qui se passe. En tant qu'habitants du Continent du Taureau Céleste, nous devons partir et leur transmettre un message! » affirma le Tigre Blanc d'une voix grave.
 
 « Ce n'est pas le moment de discuter, partons d'abord! » Wang Lin agita sa manche et des courants marins se formèrent, les entraînant vers l'avant.
 

@@ -6,7 +6,7 @@ bookTitle: Mysteries of the Ancient Era
 en: Chapter 1787 - I’d Rather Be With My Wife Forever
 slug: je-prefererais-être-avec-ma-femme-pour-toujours
 ---
-Alors que ses paroles résonnaient, la silhouette de Xuan Luo apparut lentement dans le palais vers lequel Wang Lin s'inclinait, avant de se manifester pleinement dans le système stellaire.
+Alors que ses paroles résonnaient, la silhouette de Xuan Luo apparut lentement dans le vide vers lequel Wang Lin s'inclinait, avant de se révéler pleinement dans le ciel étoilé.
 
 Au moment où Xuan Luo apparut, les expressions du Maître du Dao Rêve Bleu et de Tuo Sen changèrent soudainement. Leurs pupilles se rétractèrent et leurs visages devinrent extrêmement solennels.
 
@@ -20,7 +20,7 @@ Wang Lin réfléchit silencieusement un instant avant de hocher la tête. En vé
 
 Les souvenirs issus de l'âme de l'avatar étaient incomplets et ne couvraient que les événements récents, mais cela incluait le moment où Xuan Luo était apparu après le départ de Wang Lin.
 
-Cela confirma les doutes qui avaient assailli Wang Lin lorsqu'il avait vu les cultivateurs de la Planète des Cinq Éléments. Après tout, il n’avait pas vu le vieil homme qui avait parlé du Clan Dao Antique avec tant de mépris!
+Cela confirma les doutes qui avaient assailli Wang Lin lorsqu'il avait vu les cultivateurs de la Planète des Cinq Éléments. Après tout, il n’avait pas vu le vieil homme qui avait parlé du Clan Dao Antique avec tant de mépris et qui était mort de la main de Xuan Luo!
 
 Pour être plus précis, lorsque Wang Lin avait tendu un piège au Souverain Céleste aux Sept Couleurs, la disparition du Poisson-Œil l'avait profondément choqué. Il avait soigneusement cherché la raison et l'avait trouvée dans l'âme de l'avatar.
 
@@ -54,7 +54,7 @@ Xuan Luo observait Wang Lin depuis longtemps et le comprenait assez bien. En voy
 
 Il fronça les sourcils et regarda la porte dorée avec un soupir. Son mécontentement ne visait pas Wang Lin, mais ce qu'il imaginait être les préoccupations de ce dernier.
 
-« Il existe de nombreux mondes des grottes sur le Continent Astral Immortel. On peut dire que toute secte d'importance possède son propre monde des grottes. Cependant, depuis l'Antiquité, rares sont les êtres capables de sortir de ces mondes, et encore plus rares sont ceux qui parviennent à tuer le propriétaire du monde des grottes! »
+« Il existe de nombreux mondes des grottes sur le Continent Astral Immortel. On peut dire que toute secte d'importance possède son propre monde des grottes. Cependant, depuis l'Antiquité, rares sont les êtres capables de sortir de ces mondes, et encore moins ceux qui parviennent à se retourner contre leur maître et à prendre sa place! »
 
 S'il n'avait pas été pour le fait que l'âme du Souverain Céleste aux Sept Couleurs avait été brisée, il n'aurait pas été scellé. Xuan Luo regarda Wang Lin et reprit:
 
@@ -64,7 +64,7 @@ S'il n'avait pas été pour le fait que l'âme du Souverain Céleste aux Sept Co
 
 Wang Lin réfléchit un instant et dit doucement: « S'ils ne veulent pas partir, ce Junior ne les forcera pas; mais s'ils le souhaitent, alors ce Junior a effectivement cette intention en tête. »
 
-« C'est impossible! Passe encore pour toi, mais la femme nommée Wan Er de ton Dao des Rêves ne pourra jamais aller sur le Continent Astral Immortel! » À ces mots, Wang Lin leva brusquement la tête.
+« C'est impossible! Passe encore pour toi, mais la femme nommée Wan Er que tu as vue dans ton art des rêves ne pourra jamais aller sur le Continent Astral Immortel! » À ces mots, Wang Lin leva brusquement la tête.
 
 « Elle non plus? »
 
@@ -80,7 +80,7 @@ Le visage de Wang Lin devint livide, comme si tout son sang s'était retiré. Il
 
 « J'ai examiné la femme nommée Wan Er. Il est très étrange que son âme soit incomplète. Une partie semble avoir disparu; j'ai inspecté l'intégralité du monde des grottes pour toi, mais sans aucun résultat. C’est une affaire mystérieuse. Cependant, quoi qu'il arrive, tant que son âme sera incomplète, elle ne pourra être réveillée. Si elle était entière, je pourrais peut-être la ranimer! Tu peux d'abord te rendre toi-même sur le Continent Astral Immortel. Plus tard, quand tu auras l'occasion de retrouver l'âme manquante, tu pourras revenir... » Xuan Luo s'interrompit. Il voyait bien que des larmes de sang emplissaient les yeux de Wang Lin.
 
-« C’est vraiment... impossible... » Wang Lin baissa amèrement la tête. « Je n'abandonnerai pas Wan Er ici seule pour partir vers le Continent Astral Immortel par mes propres moyens... La raison pour laquelle je voulais ouvrir cette porte était pour elle! Afin de la réveiller, j'avais initialement pensé de chercher une méthode sur le Continent Astral Immortel... Si elle ne peut pas y aller et que je pars seul pour des milliers d'années... Si elle ne peut pas me suivre, autant rester dans ce monde des grottes et n'en jamais sortir avant la mort... » murmura Wang Lin, alors que ses larmes, teintées de rouge, coulaient sur son visage.
+« C’est vraiment... impossible... » Wang Lin baissa amèrement la tête. « Je n'abandonnerai pas Wan Er ici seule pour partir vers le Continent Astral Immortel par mes propres moyens... La raison pour laquelle je voulais ouvrir cette porte était pour elle! Afin de la réveiller, j'avais initialement pensé l'emmener avec moi pour chercher une occasion de la réveiller sur le Continent Astral Immortel... Si elle ne peut pas y aller et que je pars seul pour des milliers d'années... Si elle ne peut pas me suivre, autant rester dans ce monde des grottes et n'en jamais sortir avant la mort... » murmura Wang Lin, alors que ses larmes, teintées de rouge, coulaient sur son visage.
 
 Si l'âme est en peine, l'esprit est en peine; si tout votre être est noyé dans le désespoir, ce sont des larmes de sang qui coulent.
 

@@ -14,7 +14,7 @@ La marionnette Yi Si qu'il avait obtenue dans les profondeurs de l'Ancien Tombea
 
 Dès que son espace de stockage fut ouvert, la pierre spatiale trembla. L'un des espaces intérieurs remplaça l'espace de stockage de Wang Lin avant de s'effondrer.
 
-Au moment de cet effondrement, une intention meurtrière monstrueuse jaillit de l'espace de stockage de Wang Lin. En un éclair, une silhouette aux membres démesurés, à la langue écarlate et au corps svelte apparut aux côtés de Wang Lin.
+Au moment de cet effondrement, une intention meurtrière monstrueuse jaillit de l'espace de stockage de Wang Lin. En un éclair, une silhouette hideuse, à quatre pattes, à la langue écarlate démesurément longue, apparut aux côtés de Wang Lin.
 
 C'était la marionnette Yi Si, qui ressemblait à un singe décharné!
 
@@ -22,11 +22,11 @@ Des rugissements et une aura féroce émanèrent de la marionnette Yi Si. Elle f
 
 Wang Lin regarda froidement cette silhouette terrifiante, enveloppée d'une intention meurtrière, et dit lentement: « Yi Si, garde-moi! »
 
-« Roar! »
+« Rugissement ! »
 
 Les yeux de la marionnette Yi Si devinrent féroces alors qu'elle fixait l'entrée de la grotte, sa langue écarlate traînant sur le sol. C'était un spectacle saisissant. À cet instant, quiconque aurait pénétré dans la grotte aurait été attaqué par la marionnette Yi Si enragée.
 
-Wang Lin restait inquiet et jeta un regard au tatouage d'encre du roi des moustiques. Au moment où il baissa les yeux, le regard du roi des moustiques se fit glacial, semblant observer Wang Lin.
+Wang Lin restait inquiet et jeta un regard au tatouage d'encre du roi des moustiques sur son bras. Au moment où il baissa les yeux, le regard du roi des moustiques se fit glacial, semblant observer Wang Lin.
 
 Le roi des moustiques était la dernière couche de protection que Wang Lin avait préparée pour sa culture en isolement!
 
@@ -52,13 +52,13 @@ Deux jours plus tard, le corps desséché de Wang Lin trembla et il ouvrit les y
 
 Cette régénération fut instantanée. Wang Lin n'était plus desséché et sa peau devint cristalline. Une lumière semblait circuler à l'intérieur comme à l'extérieur de son corps.
 
-Il resta dans cet état pendant neuf jours. Durant cette période, la goutte d'eau fusionnée avec lui tournait rapidement, et il était évident qu'elle était bien plus petite qu'il y a dix-huit jours.
+Il resta dans cet état pendant neuf jours. Durant cette période, la goutte d'eau fusionnée avec lui tournait rapidement, et elle était visiblement un peu plus petite qu'il y a dix-huit jours.
 
 Il semblait que ces neuf jours de condensation et ces neuf jours de dispersion formaient un cycle. Une fois le premier cycle achevé, le second commençait immédiatement!
 
 Au dix-neuvième jour de sa culture en isolement, son corps changea de nouveau et s'atrophia instantanément pour redevenir un corps desséché. La goutte d'eau dans son corps scintillait frénétiquement.
 
-Ce processus se répéta de nombreuses fois. Wang Lin traversa sept cycles de dessèchement suivis de saturation. Après ces sept cycles, la goutte d'eau en lui ne représentait plus que 20 % de sa taille initiale.
+Ce processus se répéta de nombreuses fois. Wang Lin traversa sept cycles de dessèchement suivis de saturation. Après ces sept cycles, la goutte d'eau en lui ne représentait plus que moins de 20 % de sa taille initiale.
 
 Plusieurs mois passèrent.
 
@@ -74,7 +74,7 @@ Pendant que Wang Lin pratiquait sa culture en isolement, son corps d'essence vé
 
 La marionnette Yi Si n'avait pas consommé de sang depuis longtemps et était devenue très irritable. Elle rugissait constamment et lançait parfois des regards féroces à Wang Lin. Cependant, elle savait que Wang Lin était son maître; bien que ce lien ne fût pas puissant, il suffisait à l'aider à réprimer son envie dévorante de sang.
 
-L'autre aspect crucial était que la marionnette Yi Si sentait que son maître avait changé. Il possédait une aura qui l'effrayait. Bien que le lien fût ténu, il avait fusionné avec l'âme de son maître.
+L'autre aspect crucial était que la marionnette Yi Si sentait que son maître avait changé. Il possédait une aura qui l'effrayait. Bien que cette aura fût ténue, elle s'était fondue à l'âme de son maître, sans distinction.
 
 C'était la raison pour laquelle Wang Lin l'autorisait à le protéger. Malgré sa soif de sang, la volonté de Wang Lin exerçait encore une influence. Tant que cela ne durait pas trop longtemps, cela ne poserait pas de problème. À mesure que la culture de Wang Lin progresserait, sa volonté deviendrait plus forte et suffirait à contrôler cette marionnette sanguinaire!
 

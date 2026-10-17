@@ -24,7 +24,7 @@ Les quelques individus qui venaient d'entrer furent instantanément scellés par
 
 Le continent sur lequel Wang Lin et la femme se trouvaient était l'un des rares endroits de ce monde encore exempt de glace.
 
-« La glace ne pourra pas durer longtemps; quelqu'un possédant un haut niveau de culture et une aura de maître approche », dit doucement la femme Ancien Dieu en regardant Wang Lin. Elle pointa l'espace entre ses sourcils de sa main droite. Un vortex apparut entre ses arcades et une goutte de sang se condensa au bout de son doigt.
+« La glace ne pourra pas durer longtemps; parmi eux, certains ont un haut niveau de culture et d'autres portent l'aura de Maître », dit doucement la femme Ancien Dieu en regardant Wang Lin. Elle pointa l'espace entre ses sourcils de sa main droite. Un vortex apparut entre ses arcades et une goutte de sang se condensa au bout de son doigt.
 
 Une fois cette goutte formée, la femme ressentit immédiatement une grande faiblesse.
 
@@ -42,9 +42,9 @@ Wang Lin la fixa intensément et demanda une fois de plus: « Pourquoi? »
 
 La femme Ancien Dieu réfléchit un instant, ses yeux s'emplissant de souvenirs. Après un moment, elle parla d'une voix mélancolique.
 
-« Je suis née du sang du cœur de Ye Mo par la volonté de Maître, et je garde désormais la Secte Dong Ling pour lui. On m'a conféré le titre d'Ancien Dieu... Cependant, trop de temps a passé. Les Anciens Démons et les Anciens Diables sont morts dans leur sommeil gelé. Le reste des êtres mourra lentement si la force vitale de Maître ne les nourrit pas. »
+« Je suis née du sang du cœur de Ye Mo par la volonté de Maître, et je garde désormais la Secte Dong Lin pour lui. On m'a conféré le titre d'Ancien Dieu... Cependant, trop de temps a passé. Les Anciens Démons et les Anciens Diables sont morts dans leur sommeil gelé. Le reste des êtres mourra lentement si la force vitale de Maître ne les nourrit pas. »
 
-« Puisque vous avez pu pénétrer jusqu'au cœur de la grotte avec l'âme de Maître, vous devez avoir brisé les Cinq Fleurs et les Huit Portes. Vous cherchez la véritable porte pour quitter ce monde caverneux... »
+« Puisque vous avez pu pénétrer jusqu'au cœur de la grotte avec l'âme de Maître, vous devez avoir pénétré dans la formation des Cinq Fleurs et des Huit Portes. Vous cherchez la véritable porte pour quitter ce monde caverneux... »
 
 « Si vous ouvrez cette porte, j'espère que vous pourrez m'aider à quitter cet endroit. » La femme s'inclina devant Wang Lin. Ses longs cheveux noirs cascadèrent comme une chute d'eau lors de son salut; c'était une vision d'une grande beauté.
 
@@ -60,11 +60,11 @@ Alors que la puissante force vitale de Ye Mo pénétrait en lui, des bruits de c
 
 Au loin, Xuan Luo sourit en observant la scène. Son regard dépassa Wang Lin pour se porter sur la glace lointaine.
 
-« Cet endroit est une chance immense pour lui... Peu importe, je vais l'aider à gagner suffisamment de temps. » Xuan Luo leva la main droite et pointa la glace. Une puissance qui n'appartenait qu'à lui s'insinua silencieusement dans la masse glacée. La glace devint des dizaines de milliers de fois plus résistante qu'auparavant.
+« Cet endroit est une chance immense pour lui... Peu importe, je vais l'aider à gagner suffisamment de temps. » Xuan Luo leva la main droite et pointa la glace. Une puissance qui n'appartenait qu'à lui s'insinua silencieusement dans la masse glacée. La glace devint des centaines, des milliers, des dizaines de milliers de fois plus résistante qu'auparavant.
 
 « Je vous accorderai tout le temps dont vous avez besoin. » Xuan Luo sourit et s'assit. Cette fois, il ne regardait pas Wang Lin, mais la femme Ancien Dieu.
 
-« Peu importe votre origine, vous appartenez finalement à mon clan de l'Ancien Dao... Mon clan n'a pas beaucoup de femmes, et cette femme mérite d'être cultivée. Elle pourra devenir la servante de mon unique disciple... C'est un bon mariage. » Xuan Luo se frotta le menton, une telle pensée traversant son esprit.
+« Peu importe votre origine, vous appartenez finalement à mon clan de l'Ancien Dao... Mon clan n'a pas beaucoup de femmes, et cette femme mérite d'être cultivée. Elle pourra devenir la concubine de mon unique disciple... C'est un bon mariage. » Xuan Luo se frotta le menton, une telle pensée traversant son esprit.
 
 La goutte de sang de Ye Mo se propagea rapidement dans tout l'être de Wang Lin. Son cœur trembla tandis que des bruits de craquements résonnaient en lui, et son corps s'étendit pour atteindre plus de mille pieds.
 
@@ -94,9 +94,9 @@ Sous cette pression, la femme Ancien Dieu pâlit. Elle s'agenouilla lentement et
 
 Xuan Luo regarda l'âme de Ye Mo derrière Wang Lin avec une pointe de pitié et soupira.
 
-« Cet enfant, Ye Mo, était assez talentueux pour disperser son sang dans ce monde caverneux afin de former les trois clans. Heureusement, Wang Lin est apparu, ainsi Ye Mo a accompli une bonne œuvre! Il ne reste plus qu'à savoir si vous voulez prendre le corps de Wang Lin... c'est impossible! » Xuan Luo ferma les yeux. S'il n'était pas venu pour Wang Lin mais avait rencontré cette situation, il aurait aidé Ye Mo. Cependant, son choix était désormais fait.
+« Cet enfant, Ye Mo, était assez talentueux pour disperser son sang dans ce monde caverneux afin de former les trois clans. Heureusement, Wang Lin est apparu, ainsi Ye Mo a accompli une bonne œuvre! Seulement, si vous voulez prendre le corps de Wang Lin... c'est impossible! » Xuan Luo ferma les yeux. S'il n'était pas venu pour Wang Lin mais avait rencontré cette situation, il aurait aidé Ye Mo. Cependant, son choix était désormais fait.
 
-Ye Mo avait dispersé son sang ainsi qu'une partie de son âme originelle. Une fois le sang d'âme réuni, son âme originelle se reformerait et il pourrait posséder le corps. Comme ce corps appartiendrait à l'un de ses descendants, il n'y aurait aucun risque d'échec.
+Ye Mo avait dispersé son sang, dont quelques gouttes de sang d'âme originelle. Une fois le sang d'âme réuni, son âme originelle se reformerait et il pourrait posséder le corps. Comme ce corps appartiendrait à l'un de ses descendants, il n'y aurait aucun risque d'échec.
 
 Cependant, Wang Lin était différent. Il avait obtenu la reconnaissance de l'Ancien Ancêtre et le sang d'âme de ce dernier...
 
@@ -112,4 +112,4 @@ Les blessures de Wang Lin étaient totalement guéries. Cette goutte de sang et 
 
 À cet instant, l'héritage de l'Ancien Dao de Wang Lin était presque complet. Les seules choses manquantes étaient l'œil gauche et le cœur enfouis dans la Tombe Antique!
 
-Il restait également le bras gauche.
+Ou encore la main gauche.

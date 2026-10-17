@@ -52,7 +52,7 @@ La Secte de la Grande Âme.
 
 Après le départ de Wang Lin, l'Illustre Taureau Vert était entré en cultivation isolée, se détournant des affaires mondaines. La gestion de la secte fut confiée aux Anciens, sans qu'il n'impose de conditions particulières. La montagne offerte à Wang Lin devait être préservée et transformée en une terre interdite où nul ne pourrait pénétrer.
 
-Beaucoup étaient perplexes face à cette décision. Lorsque la renommée de Wang Lin s'étala lors de l'Épreuve Empyréenne, et que les rumeurs concernant l'Ascendant aux cheveux blancs se répandirent, les membres de la Secte de la Grande Âme furent déconcertés. Ce n'est qu'en suivant divers indices qu'ils comprirent que Wang Lin était bel et bien cet Exalté Empyréen aux cheveux blancs. Ils saisirent alors vaguement le sens des actions de l'Illustre Taureau Vert.
+Beaucoup étaient perplexes face à cette décision. Lorsque la renommée de Wang Lin s'étala lors de l'Épreuve Empyréenne, et que les rumeurs concernant l'Ascendant aux cheveux blancs se répandirent, les membres de la Secte de la Grande Âme furent déconcertés. Ce n'est qu'en suivant divers indices qu'ils comprirent que Wang Lin était bel et bien cet Ascendant Empyréen aux cheveux blancs. Ils saisirent alors vaguement le sens des actions de l'Illustre Taureau Vert.
 
 Yan Luan, une ancienne du passé, occupait désormais un poste élevé dans la secte et pouvait décider de questions importantes. Elle aurait pu quitter sa montagne pour s'installer dans les profondeurs de la Secte de la Grande Âme afin d'obtenir une grotte plus luxueuse.
 
@@ -62,7 +62,7 @@ Fan Shanmeng et Fan Shanlu étaient toujours ses disciples. Ses griefs personnel
 
 Dans la Secte de la Grande Âme, il y avait un autre Ancien nommé Du Qing. Son corps n'était pas fait de chair et de sang, mais d'un morceau de bois. Après avoir condensé son âme originelle à l'intérieur, il en fit son corps.
 
-Il avait été personnellement nommé Ancien par l'Illustre Taureau Vert, bien qu'il ne possédât pas le niveau de culture requis pour un tel rang. Sa vie était désormais très confortable, bien meilleure qu'auparavant.
+Il avait été personnellement nommé Ancien par l'ancêtre de la Secte de la Grande Âme, bien qu'il ne possédât pas le niveau de culture requis pour un tel rang. Sa vie était désormais très confortable, bien meilleure qu'auparavant.
 
 Le temps s'écoulait. Au fil des innombrables levers et couchers de soleil, la Secte de la Grande Âme semblait immuable, tout comme le Continent du Taureau Céleste. Les montagnes restaient les mêmes, et les pavillons étaient identiques à ceux d'autrefois.
 
@@ -70,7 +70,7 @@ Wang Lin se tenait devant la Secte de la Grande Âme, contemplant ce lieu famili
 
 « Le clan Dao Wang... Un génie que nul ne pouvait surpasser... L'ancêtre de cette Secte de la Grande Âme est peut-être mort, ou peut-être est-il encore de ce monde... Mais son plan s'étendait sur des éons et il avait prédit les événements d'aujourd'hui. Il avait manigancé contre tout le monde. À ses yeux, chacun n'était qu'un pion... »
 
-« En fin de compte, son plan consistant à lever le sceau sur son clan et à faire disparaître la lignée de l'Empereur Céleste a réussi. Tout cela pour permettre à son dernier membre survivant de gagner sa liberté... »
+« En fin de compte, son plan consistant à lever le sceau sur son clan et à faire disparaître la lignée de l'Ancêtre Céleste a réussi. Tout cela pour permettre à son dernier membre survivant de gagner sa liberté... »
 
 Wang Lin regarda la Secte de la Grande Âme avec une expression complexe. Il était arrivé sur le Continent Astral Immortel depuis longtemps, mais ce n'est que maintenant qu'il découvrait que ce lointain Continent du Taureau Céleste, méprisé par les êtres omnipotents, recelait un secret dont les racines remontaient à des temps immémoriaux.
 

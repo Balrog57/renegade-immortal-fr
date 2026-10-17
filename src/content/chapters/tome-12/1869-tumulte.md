@@ -12,9 +12,9 @@ Le Souverain Céleste aux Sept Couleurs était un cultivateur au stade interméd
 
 Avec la force de Wang Lin, il pouvait combattre des cultivateurs au stade précoce de la Tribulation du Vide. Les tuer serait difficile, mais pas impossible. Cependant, s'il devait affronter un ancien monstre comme le Souverain Céleste aux Sept Couleurs au sommet de sa puissance, l'écart serait trop grand.
 
-Même s'il possédait neuf essences et atteignait le stade précoce de l'Arcane Vide, la différence resterait immense. Au mieux, il gagnerait la capacité de riposter.
+Même s'il possédait neuf essences et atteignait le stade précoce du Vide Arcane, la différence resterait immense. Au mieux, il gagnerait la capacité de riposter.
 
-Pour véritablement résister aux anciens monstres du stade intermédiaire de la Tribulation du Vide, Wang Lin devrait atteindre le stade avancé de l'Arcane Vide, ou son Dao Ancestral devrait traverser la dernière épreuve!
+Pour véritablement résister aux anciens monstres du stade intermédiaire de la Tribulation du Vide, Wang Lin devrait atteindre le stade avancé du Vide Arcane, ou son Dao Ancestral devrait traverser la dernière épreuve!
 
 Mais Wang Lin avait passé sa vie dans le danger. Parfois, tuer ne dépendait pas seulement de la culture — d'autres facteurs entraient parfois en jeu!
 
@@ -44,7 +44,7 @@ Cette série d'actes faisait de Wang Lin la cible numéro un à éliminer pour l
 
 Au moment où Zhang Daozong commença sa poursuite, à 100 000 kilomètres du champ de bataille, quatre auras éclatèrent soudainement. Toutes étaient au stade intermédiaire de la Tribulation du Vide!
 
-Plus choquant encore, après l'apparition de ces quatre auras, le ciel au-dessus de la Prairie Extrême prit une étrange teinte verdâtre. Cette couleur se condensa pour former un scorpion géant.
+Plus choquant encore, après l'apparition de ces quatre auras, le ciel au-dessus de la Prairie de l'Extrême Ciel prit une étrange teinte verdâtre. Cette couleur se condensa pour former un scorpion géant.
 
 Le scorpion émit des sifflements stridents tandis qu'une brume verte se répandait vers le champ de bataille en contrebas!
 
@@ -54,7 +54,7 @@ Il avait personnellement combattu les Messagers du Démon Vert et savait à quel
 
 Il faut dire que même dans la Mer des Pilules, seuls trois en étaient apparus. Pour le Continent du Démon Vert, chaque Messager du Démon Vert était extrêmement précieux; ils n'en enverraient donc pas de grandes quantités sans raison!
 
-Le visage de Lu Wenran devint livide. Il ignorait que la cible de ces quatre Messagers était Wang Lin! Quant au méridien, ce n'était qu'un accident.
+Le visage de Lu Wenran devint livide. Il ignorait que la cible de ces quatre Messagers était Wang Lin! Quant à cet endroit, ce n'était qu'accessoire.
 
 Les yeux de Lu Wenran étaient emplis de terreur lorsqu'il rugit: « Retournez vite au palais souterrain et scellez l'entrée! » Même sans son avertissement, lorsque les cultivateurs du Continent du Taureau Céleste sentirent ces quatre auras et virent le scorpion vert, leur seule pensée fut de regagner précipitamment le palais souterrain!
 
@@ -82,7 +82,7 @@ Au loin, un rayon de lumière verte se rapprochait. Un Messager du Démon Vert a
 
 Pour le Continent du Démon Vert, la mort de Wang Lin était impérative; sinon, ils ne pourraient apaiser leur haine! Les Messagers du Démon Vert différaient des cultivateurs ordinaires: ils étaient extrêmement froids et impitoyables. Ils se souciaient peu du niveau de culture de l'ennemi. Même face à un simple disciple de l'Établissement des Fondations, ils utiliseraient toute leur puissance sans considérer cela comme une insulte à leur rang.
 
-Les pupilles de Wang Lin se rétractèrent. Il était encore à 3 000 pieds du sol. Au loin, il vit Yan Lu cracher du sang. Son corps délicat trembla tandis qu'elle s'enfuyait sous terre. Après elle, Xu Dongde, le visage pâle, s'engouffra également dans la terre.
+Les pupilles de Wang Lin se rétractèrent. Il était encore à 3 000 pieds du sol. Au loin, il vit Yan Luan cracher du sang. Son corps délicat trembla tandis qu'elle s'enfuyait sous terre. Après elle, Xu Dongde, le visage pâle, s'engouffra également dans la terre.
 
 Les cultivateurs de la Tribulation du Vide pénétraient un à un sous terre après avoir été blessés. Lu Wenran cracha une importante quantité de sang et son bras droit explosa alors qu'il chargeait vers le sol. Un Messager du Démon Vert le poursuivait.
 
@@ -92,13 +92,13 @@ Les cultivateurs de la Tribulation du Vide pénétraient un à un sous terre apr
 
 Elle se rapprocha instantanément!
 
-Wang Lin fit brusquement demi-tour, le regard déterminé. Au moment où la lumière verte allait l'atteindre, le parapluie bleu apparut devant lui!
+Wang Lin fit brusquement demi-tour, le regard déterminé. Au moment où la lumière verte allait l'atteindre, le parapluie vert apparut devant lui!
 
 Une fois l'objet apparu, Wang Lin n'eut pas le temps de s'en désoler; il rugit:
 
 « Explose! »
 
-Un fracas tonitruant retentit lorsque la lumière verte entra en collision avec l'explosion du parapluie bleu. L'impact frappa Wang Lin et des bruits d'éclatement résonnèrent dans son corps. Il cracha du sang tout en rangeant le roi moustique. Il était à moins de 500 pieds du sol!
+Un fracas tonitruant retentit lorsque la lumière verte entra en collision avec l'explosion du parapluie vert. L'impact frappa Wang Lin et des bruits d'éclatement résonnèrent dans son corps. Il cracha du sang tout en rangeant le roi moustique. Il était à moins de 500 pieds du sol!
 
 La distance qui, normalement, ne prendrait pas plus d'une respiration pour être franchie, devint un gouffre aussi vaste que les cieux et la terre. Car non seulement l'homme nommé Zhang se rapprochait, mais le froid Messager du Démon Vert était également à moins de 1 000 pieds!
 
@@ -108,7 +108,7 @@ Des fluctuations émanèrent de la terre; elle se scellait rapidement. Les yeux 
 
 Il la lança en avant!
 
-« Explose! » Le cœur de Wang Lin se serra, mais il n'avait pas le temps de réfléchir. Tandis qu'il rugissait, les 30 millions d'âmes Dao à l'intérieur de la gourde explosèrent, provoquant un fracas assourdissant qui résonna dans toute la Prairie Extrême Ciel.
+« Explose! » Le cœur de Wang Lin se serra, mais il n'avait pas le temps de réfléchir. Tandis qu'il rugissait, les 30 millions d'âmes Dao à l'intérieur de la gourde explosèrent, provoquant un fracas assourdissant qui résonna dans toute la Prairie de l'Extrême Ciel.
 
 L'explosion de 30 millions d'âmes Dao était suffisante pour menacer un cultivateur au stade intermédiaire de la Tribulation du Vide. Même l'expression de Zhang Daozong changea radicalement alors qu'il battait en retraite précipitamment.
 

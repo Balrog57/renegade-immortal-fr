@@ -16,7 +16,7 @@ Wang Lin esquissa un sourire fugace et secoua la tête sans répondre. Il contem
 
 « Je n'en dirai pas plus. Frère Du, si le destin le permet, nous nous reverrons. Adieu! » Wang Lin poussa un soupir et disparut d'un pas vers les cieux.
 
-En observant la silhouette de Wang Lin s'éloigner, Du Qing comprit vaguement quelque chose. Il laissa échapper un soupir secret et secoua la tête. Puis, il se transforma en un rayon de lumière pour regagner la Secte de la Grande Âme afin d'annoncer à l'Ancien Taureau Vert qu'il avait accompli sa mission.
+En observant la silhouette de Wang Lin s'éloigner, Du Qing comprit vaguement quelque chose. Il laissa échapper un soupir secret et secoua la tête. Puis, il se transforma en un rayon de lumière pour regagner la Secte de la Grande Âme afin d'annoncer à l'Ancêtre Taureau Vert qu'il avait accompli sa mission.
 
 Wang Lin fusionna avec le monde et quitta la Secte des Sept Dao. Il apparut dans un désert désolé, une contrée peu commune sur le Continent du Taureau Céleste.
 
@@ -28,7 +28,7 @@ Bien qu'il ignorât sa nature exacte, l'aura du Dao de l'Œil de l'Âme indiqua 
 
 Un instant plus tard, le regard de Wang Lin devint résolu. Il ouvrit la main et une petite silhouette de trois pouces apparut aux côtés de la pierre noire. En un éclair, elle pénétra à l'intérieur.
 
-Des craquements résonnèrent dans la nuit du désert, perçant les oreilles de Wang Lin entre deux hurlements du vent. Après l'entrée du petit être, de fines fissures parcoururent la pierre et, en moins de trois respirations, celle-ci vola en éclats.
+Des craquements résonnèrent dans la nuit du désert, perçant les oreilles de Wang Lin entre deux hurlements du vent. Après l'entrée du petit être, de fines fissures parcoururent la pierre et, en à peine dix respirations, celle-ci vola en éclats.
 
 Quatre sphères de lumière jaillirent soudainement!
 
@@ -36,13 +36,13 @@ Quatre sphères de lumière jaillirent soudainement!
 
 La première sphère contenait un être de terre de la taille d'un poing. Cet être était assis; il ne possédait aucun orifice, mais son corps oscillait constamment entre une forme d'armure et une forme humanoïde.
 
-Un jaillissement d'élément Terre s'en dégageait. Il semblait fusionner avec le sable environnant, provoquant un léger mouvement des grains.
+Des vagues d'aura d'armure de l'élément Terre des cinq éléments s'en dégageaient. Il semblait fusionner avec le sable environnant, provoquant un léger mouvement des grains.
 
-Wang Lin ne connaissait que peu de choses sur les armures de la Secte Gui Yi, mais il en avait vu certaines dans le monde de la grotte et celles offertes par la Secte aux messagers.
+Wang Lin ne connaissait que peu de choses sur les armures de la Secte Gui Yi, mais il en avait vu certaines dans le monde de la grotte et celles que le maître de la Secte Gui Yi avait offertes à quelques autres dans l'enceinte de la secte.
 
 Cependant, ces armures ne pouvaient rivaliser avec celle contenue dans la sphère, ni par leur apparence, ni par leur aura! Même Wang Lin, malgré ses connaissances limitées, pouvait constater qu'elles n'étaient pas du même rang.
 
-Cette armure humanoïde était probablement une rareté, même au sein de la Secte Gui Yi! Wang Lin ignorait quel prix l'Ancien Taureau Vert avait dû payer pour en obtenir une pour lui.
+Cette armure humanoïde était probablement une rareté, même au sein de la Secte Gui Yi! Wang Lin ignorait quel prix l'Ancêtre Taureau Vert avait dû payer pour en obtenir une pour lui.
 
 Wang Lin resta silencieux, plongé dans ses pensées.
 
@@ -52,7 +52,7 @@ Wang Lin pouvait ressentir l'aura de la Voile Fantôme principale, celle qui ser
 
 En contemplant cette petite voile, Wang Lin fut envahi par un sentiment indescriptible.
 
-La Voile Fantôme de protection était cruciale pour la Secte de la Grande Âme. Pourtant, l'Ancien Taureau Vert la lui avait offerte de manière inattendue.
+La Voile Fantôme de protection était cruciale pour la Secte de la Grande Âme. Pourtant, l'Ancêtre Taureau Vert la lui avait offerte de manière inattendue.
 
 Wang Lin ne put que méditer en silence.
 
@@ -68,7 +68,7 @@ Tout ce qui était lié au Taureau Céleste constituait un trésor inestimable p
 
 Enfin, il y avait la quatrième sphère de lumière. Elle renfermait une carapace de tortue brisée, couverte de motifs complexes. À l'œil nu, ils étaient flous, mais lorsqu'il utilisa son Sens Divin, Wang Lin tourna soudain le regard vers la Secte de la Grande Âme.
 
-Il sembla y voir un vieil homme au sein du Grande Secte, assis sur la Montagne du Ciel Vert. Le vieillard lui souriait et levait la main droite comme pour lui faire signe de l'adieu.
+Il sembla y voir un vieil homme au sein de la Secte de la Grande Âme, assis sur la Montagne du Ciel Vert. Le vieillard lui souriait et levait la main droite comme pour lui faire signe de l'adieu.
 
 La carapace contenait la carte intégrale du Continent Est. Elle manquait de précision; plus on s'éloignait du Continent du Taureau Céleste, plus les détails devenaient vagues, ne laissant place qu'à des contours grossiers et des indications sommaires.
 
@@ -104,11 +104,11 @@ En effet, les cultivateurs ordinaires du Continent du Taureau Céleste ne connai
 
 Cependant, Wang Lin n'avait aucune envie de massacrer les cultivateurs de son propre continent; ainsi, chaque fois qu'il ne pouvait plus utiliser la Distorsion Spatiale, il se mettait en retrait pour se cacher. Une fois le danger passé, il reprenait sa route.
 
-Par conséquent, sa progression était bien plus lente. Lorsqu'il dépassa la Prairie Extrême et qu'il ne lui restait plus qu'une seule Distorsion Spatiale pour atteindre la Mer des Pilules — un trajet qui aurait dû durer trois mois de vol —, plusieurs mois s'étaient déjà écoulés.
+Par conséquent, sa progression était bien plus lente. Lorsqu'il dépassa la Prairie du Ciel Extrême et qu'il ne lui restait plus qu'une seule Distorsion Spatiale pour atteindre la Mer des Pilules — un trajet qui aurait dû durer trois mois de vol —, plusieurs mois s'étaient déjà écoulés.
 
 Dans cette partie du Continent du Taureau Céleste, l'hiver était arrivé. La neige tombait du ciel et une tempête s'étendait sur des dizaines de milliers de kilomètres.
 
-Il lui faudrait encore une demi-quinzaine de jours avant de pouvoir utiliser à nouveau la Distorsion Spatiale. Il passa ce temps en culture isolée, et ses blessures se cicatrisèrent. Il finit par marcher dans la neige, affrontant le vent glacial pour avancer.
+Il lui faudrait encore la majeure partie d'un mois avant de pouvoir utiliser à nouveau la Distorsion Spatiale. Durant ces mois de retraite, ses blessures s'étaient entièrement rétablies. Il marchait dans la neige, affrontant le vent glacial pour avancer.
 
 Non loin de lui, dans le crépuscule neigeux, une ville mortelle émettait des lueurs diffuses. La fumée s'élevait vers le ciel pour se fondre dans les flocons. C'était une scène empreinte de calme et de beauté.
 

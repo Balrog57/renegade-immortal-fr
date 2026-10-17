@@ -10,7 +10,7 @@ Au moment où Wang Lin s'engouffra dans la terre, son visage était livide et il
 
 S'il avait été un instant plus lent, il serait resté bloqué à l'extérieur. Il aurait alors dû affronter six vieux monstres de stade intermédiaire de la Tribulation du Vide. Même en utilisant ses trois vies, il n'aurait eu aucune chance de survivre.
 
-Cependant, le prix à payer était bien trop lourd. L'effondrement des 30 millions d'âmes dao fit souffrir le cœur de Wang Lin. Si la gourde avait été utilisée avec discernement, il aurait pu blesser gravement un vieux monstre de stade intermédiaire de la Tribulation du Vide. Mais il n'avait eu d'autre choix que de la faire exploser pour s'offrir une chance de fuite.
+Cependant, le prix à payer était bien trop lourd. L'effondrement des 30 millions d'âmes Dao fit souffrir le cœur de Wang Lin. Si la gourde avait été utilisée avec discernement, il aurait pu blesser gravement un vieux monstre de stade intermédiaire de la Tribulation du Vide. Mais il n'avait eu d'autre choix que de la faire exploser pour s'offrir une chance de fuite.
 
 « Peu importe. Bien que cette gourde fût extrêmement puissante, ce n'était qu'une force extérieure. Tant que je survis à cette crise, j'obtiendrai un jour des trésors encore plus redoutables! »
 
@@ -58,13 +58,13 @@ Il ne se souciait guère de la destruction du palais. Il réfléchissait plutôt
 
 S'ils pouvaient sceller le monde une fois, ils pourraient le faire une deuxième, une troisième et même une quatrième fois! Ce scellement était spécifiquement ciblé contre lui, ce qui lui causait bien des maux de tête.
 
-À travers cela, Wang Lin comprit que le Continent du Démon Vert l'avait repéré, et qu'ils étaient probablement au courant de ce qui s'était passé dans la Mer de Pilules. C'était comme si ces quatre vieux monstres de stade intermédiaire de la Tribulation du Vide étaient venus pour lui!
+À travers cela, Wang Lin comprit que le Continent du Démon Vert l'avait repéré, et qu'ils étaient probablement au courant de ce qui s'était passé dans la Mer des Pilules. C'était comme si ces quatre vieux monstres de stade intermédiaire de la Tribulation du Vide étaient venus pour lui!
 
 « Briser le troisième méridien n'est que l'un de leurs objectifs; l'autre est sans doute de me tuer. Ils ont dû tout planifier avec soin pour ne me laisser aucune chance de m'échapper... »
 
 « Si je veux me sauver et riposter, je dois devenir plus fort, quel qu'en soit le prix... » Les yeux de Wang Lin s'illuminèrent. Il se concentra rapidement, cherchant un moyen d'accroître sa puissance.
 
-Cela faisait longtemps qu'il n'avait pas ressenti une telle urgence. Ce n'est qu'en étant constamment confronté à la mort que Wang Lin avait pu progresser autant en moins de 3 000 ans.
+Cela faisait longtemps qu'il n'avait pas ressenti une telle urgence. Ce n'est qu'en étant constamment confronté à la mort que Wang Lin avait pu progresser autant en un peu plus de 2 000 ans.
 
 Pendant que Wang Lin méditait, hormis quelques centaines de cultivateurs, l'agitation des autres s'intensifiait à mesure que les grondements persistaient. On ne savait pas qui menait la marche, mais ils se ruaient même vers les palais.
 
@@ -86,9 +86,9 @@ Dans un fracas assourdissant, le cultivateur explosa en un nuage de sang qui éc
 
 « Pourquoi paniquez-vous tous ainsi? » Une voix glaciale émana du palais. Lu Wenran, bien qu'ayant perdu un bras, sortit avec un visage pâle mais un regard sombre.
 
-Derrière lui, Yan Lu était livide. Elle suivait silencieusement, des taches de sang maculant ses vêtements. À ses côtés se trouvait Xu Dongde, qui paraissait extrêmement affaibli, comme s'il avait été gravement blessé lors du dernier affrontement.
+Derrière lui, Yan Luan était livide. Elle suivait silencieusement, des taches de sang maculant ses vêtements. À ses côtés se trouvait Xu Dongde, qui paraissait extrêmement affaibli, comme s'il avait été gravement blessé lors du dernier affrontement.
 
-Derrière ce trio marchaient les trois cultivateurs de stade initial de la Tribulation du Vide issus des sectes voisines. Tous étaient épuisés et avançaient en silence.
+Derrière ce trio marchaient les trois cultivateurs de la Tribulation du Vide issus des sectes voisines. Tous étaient épuisés et avançaient en silence.
 
 Sous la conduite de Lu Wenran, tous les cultivateurs de la Tribulation du Vide s'élancèrent. Le vieil homme nommé Zhou suivit le mouvement.
 
@@ -116,6 +116,6 @@ Il ne croyait pas un instant que Lu Wenran accepterait de porter cette armure un
 
 « Compagnons cultivateurs, bien que cette armure soit périlleuse, c'est un moment crucial pour notre Continent du Taureau Céleste. Comment pourrais-je laisser les autres s'en charger sous prétexte de danger? »
 
-« Plus elle est dangereuse, plus il est de mon devoir de la porter. Si... si je venais à mourir tragiquement à cause de cette armure, alors je vous en prie, chaque année à cette date, offrez-moi simplement une cruche de vieux vin! » Lu Wenran bouillonnait d'excitation intérieure et peinait à se contenir. Cependant, en apparence, il affichait un air de tristesse solennelle, comme s'il jouait son destin.
+« Plus elle est dangereuse, plus il est de mon devoir de la porter. Si... si je venais à mourir tragiquement à cause de cette armure, alors je vous en prie, chaque année à cette date, offrez-moi simplement une cruche de vieux vin! » Lu Wenran bouillonnait d'excitation intérieure et peinait à se contenir. Cependant, en apparence, il affichait un air de tristesse solennelle, comme s'il était prêt à tout sacrifier pour les autres.
 
-Ses paroles ne firent naître chez Yan Lu qu'un soupçon de mépris imperceptible.
+Ses paroles ne firent naître chez Yan Luan qu'un soupçon de mépris imperceptible.

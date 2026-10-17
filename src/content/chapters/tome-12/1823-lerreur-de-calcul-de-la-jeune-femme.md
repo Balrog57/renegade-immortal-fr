@@ -12,11 +12,11 @@ Tout au long du trajet, les flammes l'entouraient, mais il ne ressentait aucune 
 
 C'est aussi pour cette raison que son corps n'était pas entré dans la terre avant l'arrivée de la jeune femme.
 
-Les yeux de la jeune femme étaient empreints d'une intention meurtrière. Elle sentait clairement que quelqu'un absorbait la veine principale du feu terrestre comme un possédé, ce qui fit bouillonner la rage dans son cœur.
+Les yeux de la jeune femme étaient empreints d'une intention meurtrière. Elle sentait clairement que quelqu'un absorbait la veine principale du feu terrestre comme un possédé, ce qui fit naître une intention meurtrière dans son cœur.
 
 « Tu oses utiliser une telle ruse devant moi? Tu cherches la mort! » La jeune femme atteignit directement le cap des 370 pieds dans la grotte. D'un seul pas, elle se mit à poursuivre Wang Lin sous terre.
 
-Tous deux s'enfoncèrent rapidement plus profondément dans les profondeurs telluriques. Tandis que la terre tremblait, la montagne rouge semblait sur le point de s'effondrer. Les disciples s'enfuirent un à un en regardant la montagne rouge vaciller.
+Tous deux s'enfoncèrent rapidement plus profondément dans les profondeurs telluriques. Tandis que la terre tremblait, la montagne rouge semblait sur le point de s'effondrer. Tous les disciples sortirent précipitamment de leur culture isolée et, suspendus dans les airs, le visage grave, regardèrent la montagne rouge trembler.
 
 Fan Shanlu faisait partie de la foule. Sachant que cela était lié à Wang Lin, elle esquissa un sourire amer. Elle songeait au fait que, peu importe où Wang Lin se trouvait, il parvenait toujours à provoquer des bouleversements qui ébranlaient le ciel.
 
@@ -24,15 +24,15 @@ Fan Shanmeng était également parmi les spectateurs, ses yeux brillant en conte
 
 « Petite sœur, c'est toi qui as fait entrer l'étranger dans la salle de pierre... » La voix de Fan Shanmeng résonna dans l'esprit de Fan Shanlu.
 
-« Bien que tu sois mon aînée, ne parle pas avec autant de familiarité. Tu m'as utilisée pendant de nombreuses années dans le monde des grottes, et maintenant tu essaies de me faire porter le chapeau. As-tu seulement une conscience? » Fan Shanlu se tourna vers sa sœur, le regard glacial.
+« Bien que tu sois mon aînée, ne dis pas n'importe quoi. Tu m'as utilisée pendant de nombreuses années dans le monde des grottes, et maintenant tu essaies de me faire porter le chapeau. As-tu seulement une conscience? » Fan Shanlu se tourna vers sa sœur, le regard glacial.
 
-Elle n'oublierait jamais que son aînée l'avait même manipulée pour tenter d'influencer Wang Lin dans le monde des grottes. Ce moment de danger avait laissé un frisson durable dans son cœur et l'avait éveillée.
+Elle n'oublierait jamais que son aînée l'avait même manipulée pour tenter de contrôler Wang Lin dans le monde des grottes. Ce moment de danger avait laissé un frisson durable dans son cœur et l'avait éveillée.
 
 Fan Shanmeng resta silencieuse, plongée dans ses pensées.
 
 Alors que la montagne rouge tremblait, les auras des puissants cultivateurs de la Secte de la Grande Âme se déployèrent. Des Sens Divins terrifiants enveloppèrent la montagne rouge.
 
-Cette montagne n'était qu'un des pics principaux de la Secte de la Grande Âme, et celui-ci comptait au total 49 pics principaux! Bien que chaque sommet ne soit pas occupé par un cultivateur au stade de la Tribulation du Vide, cela témoignait de l'immense puissance de la Secte de la Grande Âme.
+Cette montagne n'était qu'un des pics principaux de la Secte de la Grande Âme, et la Secte de la Grande Âme comptait au total 49 pics principaux! Bien que chaque sommet ne soit pas occupé par un cultivateur au stade de la Tribulation du Vide, cela témoignait de l'immense puissance de la Secte de la Grande Âme.
 
 Dans les profondeurs de la veine principale du feu terrestre, le corps de Wang Lin, entouré de flammes, progressait rapidement vers les profondeurs. La jeune femme le poursuivait, dévorée par une intention meurtrière.
 
@@ -56,7 +56,7 @@ Ce bouleversement attira l'attention de la Secte de la Grande Âme. Les disciple
 
 « Que se passe-t-il?! »
 
-« Serait-ce quelqu'un qui s'est dirigé vers la veine principale du feu terrestre? »
+« Serait-ce quelqu'un qui s'est infiltré dans la veine principale du feu terrestre? »
 
 Des rugissements résonnèrent tandis que de plus en plus de disciples de la Secte de la Grande Âme arrivaient sur les lieux.
 

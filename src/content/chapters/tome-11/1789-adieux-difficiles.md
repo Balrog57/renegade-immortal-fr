@@ -6,7 +6,7 @@ bookTitle: Mysteries of the Ancient Era
 en: Chapter 1789 - Difficult Goodbye
 slug: adieux-difficiles
 ---
-Normalement, un mois s'écoule en un instant, mais ce dernier mois dans le monde de la grotte était différent.
+Normalement, un mois ne passe pas aussi vite qu'un nuage de fumée devant les yeux, mais ce dernier mois dans le monde de la grotte était différent.
 
 En un éclair, dix jours passèrent.
 
@@ -32,13 +32,13 @@ C'est pour cette raison qu'il avait laissé à chacun la possibilité de décide
 
 Le deuxième jour après l'installation de Wang Lin, Situ Nan arriva. Il marchait dans les airs, porté par des nuages blancs sous ses pieds. Une cruche de vin à la main, il s'approcha pas à pas jusqu'à rejoindre Wang Lin.
 
-Situ Nan était resté le même: ses longs cheveux flottaient au vent et sa tenue était décontractée tandis qu'il buvait une gorgée de vin. Bien qu'il paraisse calme, son esprit laissait encore deviner un trouble intérieur.
+Situ Nan était resté le même: ses longs cheveux flottaient au vent et sa tenue était décontractée tandis qu'il buvait une gorgée de vin. Il s'assit par terre et contempla les nuages blancs dans le ciel. Bien qu'il paraisse calme, son esprit laissait encore deviner un trouble intérieur.
 
-« Wang Lin, dis-moi, si je me réincarne, serais-je capable de devenir le roi d'une cité mortelle sur le Continent Astral Immortel...? » murmura Situ Nan.
+« Wang Lin, dis-moi, si je me réincarne, pourrais-je devenir un prince du monde mortel du Continent Astral Immortel...? » murmura Situ Nan.
 
 Initialement, une atmosphère de séparation pesait sur eux, mais les paroles de Situ dissipèrent largement ce sentiment. Wang Lin sourit, s'empara de la cruche et en prit une longue gorgée.
 
-« Si par un heureux hasard je me réincarne en roi, ne me cherche pas trop vite. Attends que j'aie savouré une vie entière de souverain avant de venir me retrouver », dit Situ Nan en souriant à Wang Lin.
+« Si par un heureux hasard je me réincarne en prince, ne me cherche pas trop vite. Attends que j'aie assouvi ma passion de prince pendant toute une vie avant de venir me retrouver », dit Situ Nan en souriant à Wang Lin.
 
 « Tu as décidé », constata Wang Lin en le regardant. Situ Nan était son ami et son mentor. En se disant adieu, plus de deux mille ans de souvenirs défilèrent dans leurs esprits.
 
@@ -48,7 +48,7 @@ Initialement, une atmosphère de séparation pesait sur eux, mais les paroles de
 
 Wang Lin regarda calmement Situ Nan. Leurs regards se croisèrent et, après un long silence, Situ Nan soupira.
 
-« Espèce de petit morveux, n'oublie surtout pas de venir me chercher. Bon sang, avec la réincarnation, ce vieil homme doit absolument renaître en roi! » Alors que Situ soupirait, Wang Lin hocha la tête.
+« Espèce de petit morveux, n'oublie surtout pas de venir me chercher. Bon sang, avec la réincarnation, ce vieil homme doit absolument renaître dans le ventre d'un prince! » Alors que Situ soupirait, Wang Lin hocha la tête.
 
 « Si je ne suis pas mort, je viendrai certainement te chercher. »
 
@@ -62,7 +62,7 @@ Outre Situ, Qing Shui et Papillon Rouge, la quatrième personne à arriver fut T
 
 Les pensées de Treize étaient d'une simplicité absolue. En tant que disciple de Wang Lin, il devait le suivre, que ce soit à travers les lames et le feu, ou même par la réincarnation. Dans son cœur, celui qui était son maître dans une vie le resterait, même après la renaissance!
 
-Treize s'assit calmement derrière Wang Lin. Sa personnalité était bien plus sereine qu'auparavant; son intention de tuer s'était presque dissipée, soigneusement dissimulée au plus profond de son être. Il n'en laissait rien paraître.
+Treize s'assit calmement derrière Wang Lin. Sa personnalité était bien plus sereine qu'auparavant; son intention de tuer s'était presque dissipée, soigneusement dissimulée au plus profond de son être. Tant qu'il n'en laissait rien paraître, tout allait bien, mais une fois révélée, elle ferait trembler les immortels.
 
 Le temps passa ainsi lentement. Plusieurs autres personnes arrivèrent de toutes les directions du Royaume Céleste pour s'asseoir derrière Wang Lin; ils avaient choisi de partir.
 
@@ -108,7 +108,7 @@ Il ne restait plus que deux jours avant la fin de la demi-lune. Le crépuscule t
 
 Dans ce décor onirique, trois silhouettes s'avancèrent. L'homme au centre était d'âge mûr et son apparence était remarquable; il dégageait une aura de grande ancienneté: c'était Qing Lin.
 
-À ses côtés se trouvait sa fille, Qing Shuang, dont l'expression froide témoignait de son indifférence totale envers Zhou Yi. Ce dernier ne semblait pas s'en offusquer, comme s'il s'y était habitué; il regardait Qing Shui avec la même nostalgie qu'autrefois.
+À ses côtés se trouvait sa fille, Qing Shuang, dont l'expression froide témoignait de son indifférence totale envers Zhou Yi. Ce dernier ne semblait pas s'en offusquer, comme s'il s'y était habitué, et n'éprouvait aucun regret; il regardait Qing Shuang avec la même nostalgie qu'autrefois.
 
 Il contemplait le même visage, mais une personne différente. Cette sensation infligeait à Zhou Yi une douleur si vive qu'elle semblait pouvoir le déchirer en deux. Il lui fallait soit renoncer, soit accepter cette réalité.
 
@@ -116,7 +116,7 @@ Il contemplait le même visage, mais une personne différente. Cette sensation i
 
 Au cours des trois derniers jours, Zhou Ru, Shengong Hu et d'autres prirent leur décision et vinrent voir Wang Lin. Le nombre de partants restait infime, moins de vingt personnes.
 
-Lors des derniers instants, une fine pluie commença à tomber sur le Royaume Céleste. Mu Bingmei, vêtue de blanc, s'avança sous l'averse. Wang Lin ouvrit les yeux et leva la tête pour contempler cette femme d'une beauté transcendante tenant un parapluie.
+Lors des derniers instants, une fine pluie commença à tomber sur le Royaume Céleste. Mu Bingmei, vêtue de blanc, s'avança sous l'averse, légère comme les fleurs de saule qui dansent dans la pluie. Wang Lin ouvrit les yeux et leva la tête pour contempler cette femme d'une beauté transcendante tenant un parapluie.
 
 Ses longs cheveux noirs encadraient son visage comme dans une peinture, et sa splendeur surnaturelle semblait suspendre le monde, ne laissant subsister que le bruit de la pluie. Une force étrange semblait effacer toute pensée, tandis que sa silhouette magnifique se dessinait à travers la brume de l'averse.
 

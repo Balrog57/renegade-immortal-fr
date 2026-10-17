@@ -10,17 +10,17 @@ slug: offrande
 
 Cette scène suffit à le pousser dans une telle colère qu'il en fit une crise cardiaque. Son espérance de vie étant déjà bien entamée, il cracha un flot de sang avant de s'éteindre!
 
-Il avait offert à Wang Lin un corps résistant, des yeux capables de réprimer le monde, une veine formée à partir des cheveux de l'Ancêtre Céleste, la Lame Yin et l'essence terrestre. Au-delà de tout cela, il avait même aidé Wang Lin à former deux corps vrais d'essence!
+Il avait offert à Wang Lin un corps résistant, des yeux capables de réprimer le monde, une veine formée à partir des cheveux de l'Ancêtre Céleste, la Lame Yin et l'essence terrestre. Au-delà de tout cela, il avait même aidé Wang Lin à former deux corps véritables d'essence!
 
 Tout cela lui avait été donné par lui...
 
 Ses yeux s'écarquillèrent sous l'effet de la rage, emplis d'une haine monstrueuse. Bien qu'il fût mort, sa haine persistait, comme si elle allait elle-même se métamorphoser en fantôme.
 
-Wang Lin n'eut pas le temps de prêter attention au vieillard décédé. Il bondit en avant et leva la lame que sa main droite avait transformée. Ses quatre corps vrais d'essence firent de même. Il trancha impitoyablement l'âme du Scorpion Vert Démoniaque qui tentait de s'échapper!
+Wang Lin n'eut pas le temps de prêter attention au vieillard décédé. Il bondit en avant et leva la lame que sa main droite avait transformée. Ses quatre corps véritables d'essence firent de même. Il trancha impitoyablement l'âme du Scorpion Vert Démoniaque qui tentait de s'échapper!
 
 L'âme du Scorpion Vert Démoniaque était elle aussi habitée par une haine infinie. Elle haïssait l'ancien à la robe verte pour l'avoir réduite à son état actuel. Cependant, ce dernier étant mort, elle n'avait plus personne vers qui déverser sa colère. Ne pouvant non plus évacuer sa rage en cet instant de péril, elle ne pouvait que fuir.
 
-De loin, la scène était saisissante. Le fourneau vert s'effondrait encore, dispersant ses fragments. L'âme du scorpion hurlait dans sa fuite. Derrière elle, les cheveux blancs de Wang Lin flottaient tandis qu'il la poursuivait, porté par une aura puissante. Il leva la lame qu'il tenait avec un élan capable de briser le ciel et la terre, puis frappa de concert avec ses quatre corps vrais d'essence!
+De loin, la scène était saisissante. Le fourneau vert s'effondrait encore, dispersant ses fragments. L'âme du scorpion hurlait dans sa fuite. Derrière elle, les cheveux blancs de Wang Lin flottaient tandis qu'il la poursuivait, porté par une aura puissante. Il leva la lame qu'il tenait avec un élan capable de briser le ciel et la terre, puis frappa de concert avec ses quatre corps véritables d'essence!
 
 C'est à cet instant que des ondulations résonnèrent et que trois rayons de lumière convergèrent. Pourtant, lorsqu'ils révélèrent leur présence, les trois hommes tremblèrent de stupeur face au spectacle qui s'offrait à eux!
 
@@ -34,7 +34,7 @@ Cependant, ce qui les attendait était cette lame capable de faire trembler les 
 
 « N'était-il pas mort?! » Les pupilles de Bord-des-Nuages se rétractèrent, le visage empreint de choc.
 
-La lame fendit l'air dans un éclat fulgurant alors que le cri de l'âme du scorpion atteignait son paroxysme. L'entité trembla, tentant de résister, mais elle ne devait pas seulement affronter la lame de Wang Lin — les lames de ses quatre corps vrais d'essence convergeaient également sur elle!
+La lame fendit l'air dans un éclat fulgurant alors que le cri de l'âme du scorpion atteignait son paroxysme. L'entité trembla, tentant de résister, mais elle ne devait pas seulement affronter la lame de Wang Lin — les lames de ses quatre corps véritables d'essence convergeaient également sur elle!
 
 Lorsque la première lame approcha, l'âme du scorpion se déforma pour tenter d'esquiver. La deuxième et la troisième arrivèrent, mais le scorpion ne put toutes les éviter. Il fit soudain volte-face et projeta une immense quantité de brouillard vert tandis que la quatrième et la cinquième lames s'abattaient.
 
@@ -46,7 +46,7 @@ Les deux fragments restants s'échappèrent prestement au loin dans un hurlement
 
 Le calme revint peu à peu. Seuls les respirations de Yun Yifeng et de ses compagnons résonnaient nettement dans le silence du temple.
 
-Wang Lin flottait là, et le brouillard environnant se condensa bientôt en sept mèches de force d'âme qui pénétrèrent son corps. Sa main droite était toujours une lame et ses quatre corps vrais d'essence se tenaient là, immobiles et froids. Son regard balaya Yun Yifeng et les autres.
+Wang Lin flottait là, et le brouillard environnant se condensa bientôt en sept filets de force d'âme, épais comme un bras, qui pénétrèrent ses sept orifices. Sa main droite était toujours une lame et ses quatre corps véritables d'essence se tenaient là, immobiles et froids. Son regard balaya Yun Yifeng et les autres.
 
 « Partez! » Il ne parla que très peu, se contentant de cette unique injonction. Pourtant, dès qu'il prit la parole, une aura terrifiante jaillit de son corps. Lorsque ses yeux se posèrent sur eux, le cœur de Yun Yifeng tressaillit. C'était comme si Wang Lin pouvait percer tous ses secrets; il eut même l'illusion d'être oppressé.
 
@@ -88,7 +88,7 @@ Les yeux de Wang Lin pétillèrent et il agita sa manche sans hésiter. L'âme f
 
 Avec cette âme et celle de la Prairie du Ciel Extrême, Wang Lin était confiant dans sa capacité à raffiner une Voile Fantôme de qualité quasi parfaite!
 
-Grâce à elle et à la Vice-Voile Fantôme qu'il possédait déjà, il pourrait déployer des sorts d'illusion d'un niveau presque parfait!
+Associée à la bannière secondaire du Grand Dispositif protecteur de la Secte de la Grande Âme qu'il détenait, cette Voile Fantôme lui permettrait de déployer des sorts d'illusion d'un niveau presque parfait!
 
 L'ancien à la robe verte n'avait pas seulement offert de nombreuses fortunes à Wang Lin; il s'était finalement offert lui-même...
 
@@ -104,4 +104,4 @@ Les yeux de Wang Lin s'illuminèrent. Son niveau de culture montrait des signes 
 
 « Cette fois, voyons jusqu'où ma culture peut s'élever!! Mon niveau était trop bas auparavant. J'espère pouvoir m'imposer au sommet du Continent Astral Immortel après cela!! »
 
-« Et la Secte du Dao Démoniaque... je n'ai jamais oublié le serment que j'ai prêté durant ces cent ans!! » Wang Lin était empreint d'une intention meurtrière. Lorsqu'il ferma les yeux, il revit les visages de ceux qu'il avait connus dans la Prairie du Ciel Extrême. Ils étaient tous là, gravés dans sa mémoire.
+« Et la Secte du Dao Démoniaque... je n'ai jamais oublié le serment que j'ai prêté durant ces cent ans!! » Wang Lin était empreint d'une intention meurtrière. Lorsqu'il ferma les yeux, il voyait voler puis retomber autour de lui des têtes familières. Toutes appartenaient à des gens qu'il avait connus dans la Prairie du Ciel Extrême.

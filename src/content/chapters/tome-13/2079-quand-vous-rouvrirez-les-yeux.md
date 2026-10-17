@@ -12,9 +12,9 @@ Le ciel d'automne était limpide sur dix mille kilomètres; il était d'une beau
 
 Cet endroit se trouvait dans le pays de Zhao. Beaucoup d'habitants n'allaient jamais au-delà de leurs terres agricoles. Sans parler du fait qu'il s'agissait d'un lieu reculé, un petit village montagneux niché au pied d'une montagne.
 
-Alors que le vent d'automne matinal emportait les feuilles, des éclats de voix s'élevèrent du village. Un groupe d'enfants espiègles jouait et riait aux éclats.
+Alors que le vent d'automne matinal emportait les feuilles, les sons d'un suona s'élevèrent lentement de l'entrée du village. Des enfants espiègles couraient en riant avec une joie simple et excitée.
 
-Une calèche rouge, entourée par les villageois, s'arrêta devant une cour. Le tumulte atteignit son apogée. Il était clair que cette famille accueillait une mariée.
+Un palanquin rouge, entouré par les villageois, s'arrêta devant une cour. Le tumulte atteignit son apogée. Il était clair que cette famille accueillait une mariée.
 
 La rumeur disait que l'ancêtre de cette famille était charpentier, mais que la génération actuelle était celle d'un érudit. On racontait qu'il avait réussi l'examen du comté. Cependant, pour une raison inconnue, il n'était pas parti pour la capitale, mais était revenu en ces lieux.
 
@@ -22,7 +22,7 @@ Plus de vingt ans s'étaient désormais écoulés, et l'érudit était devenu un
 
 Wang Lin avait grandi ici, les villageois voisins le connaissaient donc très bien. Cet enfant était très malheureux: il était muet. Il restait toujours silencieux, le regard perdu au loin, et nul ne savait ce qu'il contemplait.
 
-Alors que l'effervescence atteignait son paroxysme, le rideau de la calèche s'ouvrit et une femme portant un voile rouge en sortit. Wang Lin lui prit la main et tous deux pénétrèrent dans la cour.
+Alors que l'effervescence atteignait son paroxysme, le rideau du palanquin s'ouvrit et une femme portant un voile rouge en sortit. Wang Lin lui prit la main et tous deux pénétrèrent dans la cour.
 
 Quant à cette femme, tous les jeunes du village l'adoraient. Elle était la seconde fille de la famille Liu, une riche lignée de la région. Depuis son enfance, elle avait toujours aimé être aux côtés de Wang Lin. Ils étaient amoureux depuis leur plus tendre enfance, et l'on voyait souvent ces deux petits êtres regarder ensemble vers l'horizon.
 
@@ -60,7 +60,7 @@ Le temps passa sans qu'on ne s'en aperçoive. Des cheveux blancs apparurent sur 
 
 À ce moment-là, Wang Ping se maria. Sa femme portait un très joli nom: Qing Yi. C'était une jeune fille magnifique issue d'une riche famille de la capitale.
 
-Elle se montrait très dévouée envers Wang Lin et Liu Mei, ce qui les comblait de bonheur tout en les émut profondément. Après tout, cela signifiait que Wang Ping allait fonder sa propre famille et que, tel un oiseau ayant grandi, il s'envolerait haut dans le ciel. Peut-être ne reviendrait-il pas chez lui avant longtemps.
+Elle se montrait très dévouée envers Wang Lin et Liu Mei, ce qui les satisfaisait tout en les emplissant de mélancolie. Après tout, cela signifiait que Wang Ping allait fonder sa propre famille et que, tel un oiseau ayant grandi, il s'envolerait haut dans le ciel. Peut-être ne reviendrait-il pas chez lui avant longtemps.
 
 Wang Lin et Liu Mei choisirent de partir. Ils quittèrent la capitale pour retourner dans leur paisible village de montagne afin d'y passer leurs dernières années.
 
@@ -98,13 +98,13 @@ Wang Lin secoua la tête. Il regarda Liu Mei avec une expression empreinte de do
 
 Liu Mei continua de parler tandis que la nuit s'écoulait et que le soleil du matin se levait. Le vent d'automne soufflait et les feuilles jaunes dansaient dans le ciel. Soudain, les yeux de Liu Mei se remplirent de confusion et sa prise sur la main de Wang Lin se fit plus ferme encore.
 
-Son visage marqué par les rides devint rouge, comme si le temps avait remonté le cours de son fleuve. Son corps affaibli fut soudainement investi d'une force vitale.
+Son visage marqué par les rides reprit des couleurs, comme un dernier éclat de vie avant la mort. Son corps affaibli fut soudainement investi d'une force vitale.
 
 « Je l'ai vu... Wang Lin, je l'ai vu... » Elle s'efforça de se redresser, le visage illuminé par la joie. Elle pointa la fenêtre et parla avec précipitation à Wang Lin.
 
 « J'ai vu exactement ce qu'il y avait dans le ciel quand nous étions enfants, je l'ai vraiment vu! Dans le ciel, il y avait toi et moi... »
 
-« Je l'ai vu... Nous sommes des cultivateurs... Je... Je... » Liu Mei s'interrompit brusquement, les larmes coulant de ses yeux. Elle venait de voir une scène qui lui brisait le cœur.
+« Je l'ai vu... Nous sommes des immortels... Je... Je... » Liu Mei s'interrompit brusquement, les larmes coulant de ses yeux. Elle venait de voir une scène qui lui brisait le cœur.
 
 « Je... Comment est-ce possible... » Les larmes redoublèrent sur le visage de Liu Mei.
 
@@ -120,7 +120,7 @@ Dans la grotte, Treize montait la garde devant Wang Lin et Liu Mei, qui étaient
 
 Un jour, Wang Lin ouvrit les yeux et contempla la femme à ses côtés durant un long moment.
 
-Les yeux de la femme tremblèrent et des larmes s'en échappèrent. Elle ouvrit les paupières et regarda Wang Lin. Leurs regards se rencontrèrent comme dans le rêve du Dao, et cet instant sembla durer une éternité.
+Les yeux de la femme tremblèrent et des larmes s'en échappèrent. Elle ouvrit les paupières et regarda Wang Lin. Leurs regards se rencontrèrent comme dans le Dao onirique, et cet instant sembla durer une éternité.
 
 « C'est terminé... » murmura Mu Bingmei.
 

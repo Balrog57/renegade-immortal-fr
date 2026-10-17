@@ -16,7 +16,7 @@ Le vieil homme aux robes vertes avait à peine commencé à parler que Wang Lin 
 
 Les regards de dizaines de milliers de cultivateurs se fixèrent sur Wang Lin. Les cent mille soldats également les scrutaient, silencieux, le regard froid.
 
-Parmi les quatre rois, à l'exception du Manoir Li, les trois autres familles observaient Wang Lin d'un œil différent. En particulier, les trois ancêtres le regardaient avec des expressions complexes et impuissantes.
+Parmi les quatre rois, à l'exception du Manoir Li, les trois autres familles observaient Wang Lin d'un œil différent. En particulier, les chefs de ces trois manoirs le regardaient avec des expressions complexes et impuissantes.
 
 Une fois que Wang Lin eut joint les mains, l'entourage fut plongé dans le silence. Après un long moment, une voix calme émana du Temple du Dao Céleste.
 
@@ -28,13 +28,13 @@ Un homme d'âge moyen, vêtu d'une robe royale et coiffé d'une couronne, siége
 
 À ses côtés se tenait un jeune homme vêtu d'habits grossiers. Il avait la peau pâle et les yeux fins. Il manipulait deux perles violettes qui tournaient entre ses doigts. Un sourire flottait sur son visage et son regard était doux lorsqu'il posa les yeux sur Wang Lin.
 
-Mais ce regard glaça le sang de Wang Lin. Sous cette observation, il eut la sensation d'entrer en transe et de percevoir une image capable de bouleverser une existence.
+Mais ce regard glaça le sang de Wang Lin. Sous cette observation, il eut la sensation d'entrer en transe et de voir défiler toute sa vie en un éclair.
 
 Son cœur fut troublé, mais il reprit promptement ses esprits. Ses pupilles se rétractèrent alors qu'il fixait le jeune homme aux vêtements simples.
 
 Les yeux du jeune homme laissèrent transparaître un soupçon de choc. Il sourit et hocha la tête vers Wang Lin.
 
-« Le Professeur Impérial, Shang Xuandao! » Ce nom surgit dans l'esprit de Wang Lin à la vue du jeune homme. Bien qu'il ne l'eût jamais rencontré, le fait qu'un simple regard puisse lui donner l'impression de sombrer dans la réincarnation indiquait qu'il s'agissait bien du Professeur Impérial!
+« Le Maître Impérial, Shang Xuandao! » Ce nom surgit dans l'esprit de Wang Lin à la vue du jeune homme. Bien qu'il ne l'eût jamais rencontré, le fait qu'un simple regard puisse lui donner l'impression de sombrer dans la réincarnation indiquait qu'il s'agissait bien du Maître Impérial!
 
 Quant à l'Empereur Céleste siégeant sur le trône de dragon, il était identique à celui que Wang Lin avait vu lors de l'Épreuve Empyréenne. Cependant, sa majesté et la pression qu'il exerçait étaient bien plus puissantes désormais, comme s'il faisait corps avec le monde lui-même.
 
@@ -48,7 +48,7 @@ Tout dans cet univers devait s'agenouiller sous son regard.
 
 En passant devant Wang Lin, le jeune homme sourit et lui adressa un signe de tête. Puis, il tourna son regard vers les dizaines de milliers de cultivateurs rassemblés sur la place.
 
-« Je vais présider la cérémonie de titre. La prochaine étape consiste à sacrifier le sang pour ouvrir le Dao Céleste! » déclara le Professeur Impérial Xuan Dao en pointant le ciel de sa main droite.
+« Je vais présider la cérémonie de titre. La prochaine étape consiste à sacrifier le sang pour ouvrir le Dao Céleste! » déclara le Maître Impérial Xuan Dao en pointant le ciel de sa main droite.
 
 Sur ces mots, un rayon de lumière rouge s'élança vers l'horizon. À cet instant, des rugissements telluriques retentirent aux quatre-vingt-dix-neuf coins du palais. Ces cris ressemblaient aux hurlements d'une bête agonisante.
 
@@ -56,7 +56,7 @@ Immédiatement après, quatre-vingt-dix-neuf piliers de sang jaillirent du palai
 
 « Sacrifice de sang aux cieux. Tuer quatre-vingt-dix-neuf bêtes et utiliser leur sang pour ouvrir l'éthéré Dao Céleste... » Wang Lin observait la scène avec calme.
 
-Les quatre-vingt-dix-neuf piliers de sang s'élancèrent vers les cieux, teintant la voûte céleste d'un rouge sanglant, puis une porte s'ouvrit. L'intérieur de cette porte était si chaotique qu'il était impossible d'en deviner l'issue.
+Les quatre-vingt-dix-neuf piliers de sang s'élancèrent vers les cieux, teintant la voûte céleste d'un rouge sanglant, puis une porte s'ouvrit. Au-delà de cette porte s'étendait un vide dont il était impossible de deviner la nature.
 
 Les âmes des bêtes enfermées dans les piliers poussèrent des rugissements silencieux avant de disparaître dans le vide. Puis, un silence de mort s'abattit sur l'ensemble du palais impérial!
 
@@ -80,11 +80,11 @@ Son apparition fit instantanément pousser des cris d'effroi aux dizaines de mil
 
 « La Bête Lion Céleste! »
 
-« C'est la Bête Lion Céleste que l'Ancêtre Céleste a scellée! »
+« C'est la Bête Lion Céleste du totem laissé par l'Ancêtre Céleste! »
 
 « On raconte que le continent du Lion Céleste fut créé à partir d'un Empereur Lion Céleste. Cette bête n'a pas de crinière dorée, ce n'est donc pas un empereur, mais elle doit tout de même être un lion de combat adulte! »
 
-Tandis que les cris éclataient, le Professeur Impérial Shang Xuandao restait imperturbable. C'était comme s'il savait que ce Lion Céleste serait attiré.
+Tandis que les cris éclataient, le Maître Impérial Shang Xuandao restait imperturbable. C'était comme s'il savait que ce Lion Céleste serait attiré.
 
 « Le sceau laissé par l'Ancêtre empêche les êtres étrangers trop puissants d'entrer. Si ce lion n'avait pas été blessé, il ne serait pas apparu ici... La chance de Wang Lin est bonne! » Un rugissement tonitruant retentit soudainement du ciel.
 
@@ -112,7 +112,7 @@ Wang Lin réfléchissait en silence. Il aurait pu tuer la Bête Lion Céleste bl
 
 « Grand Empyréen... » L'expression de Wang Lin restait calme, ne trahissant aucune de ses pensées.
 
-À ce moment-là, la mer de feu se dissipa et une mèche de cheveux blancs tomba du ciel. L'apparition de ces cheveux fit plisser les yeux du Professeur Impérial.
+À ce moment-là, la mer de feu se dissipa et une mèche de cheveux blancs tomba du ciel. L'apparition de ces cheveux fit plisser les yeux du Maître Impérial.
 
 Non seulement lui, mais même l'Empereur Céleste, assis sur son trône, leva soudainement les yeux. Il fixa la mèche blanche qui chutait, une pointe de surprise brillant dans son regard!
 

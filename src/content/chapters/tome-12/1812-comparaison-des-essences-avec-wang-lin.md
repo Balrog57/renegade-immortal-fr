@@ -16,7 +16,7 @@ Tout cela rendait impossible pour Du Qing de juger l'identité et l'origine de W
 
 « Il les a peut-être réellement volés, en s'introduisant dans toutes ces sectes pour apprendre des sorts qui ne sont pas enseignés à l'extérieur! »
 
-« Ou alors il possède un passé très profond... Pour obtenir de tels sorts auprès de ces sectes... » Le visage de Du Qing se crispa tandis qu'il reculait de cent pas, d'innombrables spéculations traversant son esprit.
+« Ou alors il possède un passé très profond... Pour obtenir de tels sorts auprès de ces sectes... » Le visage de Du Qing se crispa tandis qu'il reculait sans cesse, d'innombrables spéculations traversant son esprit.
 
 « Si c'est le premier cas, cet homme est très rusé et sait parfaitement se dissimuler. Son niveau de culture ne doit pas être ce qu'il semble, et il sera très difficile à affronter... Un tel homme, bien que redoutable, ne poserait aucun problème si je l'assassinais... »
 
@@ -50,9 +50,9 @@ Le monde fut enveloppé par un vent noir. Ce vent tourbillonnait dans un rugisse
 
 Simultanément, les treize dragons noirs ouvrirent leurs gueules pour expirer le vent de l'extinction. D'innombrables gouttes de pluie s'élevaient dans ce courant. C'était comme si le Roi Dragon invoquait la pluie!
 
-Si cela avait été tout, cela n'aurait pas été surprenant, mais chaque goutte de pluie émettait une lumière dorée et éblouissante en tombant. Chaque goutte se transformait en une âme qui poussait un rugissement strident en chargeant vers Du Qing.
+Si cela avait été tout, cela n'aurait pas été surprenant, mais chaque goutte de pluie émettait une lueur cristalline et éblouissante en tombant. Chaque goutte se transformait en une âme qui poussait un rugissement strident en chargeant vers Du Qing.
 
-« Invoquer le Vent, Appeler la Pluie, Arsenal Magique... Effondrement des Terres, Ruine des Montagnes... » La voix froide de Wang Lin résonna tandis que la terre grondait. De vastes fissures lacérèrent le sol et des volcans illusoires surgirent au-dessus de la veine de feu terrestre. Les volcans explosèrent dans une fumée noire, déversant une lave infinie.
+« Invoquer le Vent, Appeler la Pluie, Semer des Haricots pour en Faire des Soldats... Effondrement des Terres, Ruine des Montagnes... » La voix froide de Wang Lin résonna tandis que la terre grondait. De vastes fissures lacérèrent le sol et des volcans illusoires surgirent au-dessus de la veine de feu terrestre. Les volcans explosèrent dans une fumée noire, déversant une lave infinie.
 
 « Lune Sombre, Ciel Clair! » Wang Lin pointa le ciel dans un rugissement. Une lune éclatante apparut soudainement dans l'éther obscurci par le vent noir.
 

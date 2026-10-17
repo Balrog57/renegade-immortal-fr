@@ -34,7 +34,7 @@ En conséquence, même les quatre autres Grands Empyréens témoignaient un cert
 
 Tandis que tous les cultivateurs de la Secte Gui Yi s'inclinaient, la silhouette dorée surplombait la terre du regard.
 
-« Il y a trois édits impériaux: l'un ici, l'un à la Secte de la Grande Âme, et le dernier à la Secte Dao Démoniaque du Continent du Démon Vert! »
+« Il y a trois édits impériaux: l'un ici, l'un à la Secte de la Grande Âme, et le dernier à la Secte du Dao Démoniaque du Continent du Démon Vert! »
 
 D'un mouvement de la main droite, la lumière dorée brilla de plus belle. Un édit impérial, fait d'une matière inconnue, fut déployé par cet être.
 
@@ -72,7 +72,7 @@ Cette guerre qui avait duré plus de cent ans prit fin grâce à ces deux édits
 
 Le Continent du Taureau Céleste avait subi de lourdes pertes, mais le Continent du Démon Vert en avait subi davantage!
 
-Sur le Continent du Démon Vert, au sein de la Secte Dao Démoniaque, alors que le sceau se contractait rapidement, quiconque le touchait mourait dans des souffrances atroces. Même les bâtiments étaient réduits en ruines par la puissance du sceau.
+Sur le Continent du Démon Vert, au sein de la Secte du Dao Démoniaque, alors que le sceau se contractait rapidement, quiconque le touchait mourait dans des souffrances atroces. Même les bâtiments étaient réduits en ruines par la puissance du sceau.
 
 En moins de trente respirations, le sceau avait tout détruit et massacré les cultivateurs. Il finit par se concentrer autour du lac situé sous les pieds de Wang Lin.
 
@@ -88,7 +88,7 @@ Dans une telle situation, s'il prenait soin de préserver ces âmes originelles,
 
 Wang Lin ignorait ce qui se passait sur le Continent du Taureau Céleste. Il fixait simplement le lac en contrebas. Les râles des mourants s'étaient tus, laissant place à un silence de mort.
 
-« La Secte Dao Démoniaque est détruit et tous sont morts. S'il en reste, ils sont sur le Continent du Taureau Céleste, et pourtant, tu refuses toujours de sortir! » Les paroles de Wang Lin étaient glaciales tandis qu'il agita la main vers le lac.
+« La Secte du Dao Démoniaque est détruite et tous sont morts. S'il en reste, ils sont sur le Continent du Taureau Céleste, et pourtant, tu refuses toujours de sortir! » Les paroles de Wang Lin étaient glaciales tandis qu'il agita la main vers le lac.
 
 Dès son geste, le sceau autour du lac brilla intensément et des grondements tonitruants résonnèrent à travers la secte en ruines. Le sceau commença à se contracter violemment autour de la masse d'eau.
 
@@ -96,17 +96,17 @@ L'eau du lac se mit à onduler frénétiquement et une vapeur dense s'en échapp
 
 Le sceau recelait une force destructrice colossale. En se resserrant sur l'eau, il la fit disparaître, provoquant l'effondrement du lac et ne laissant qu'un flux de lumière se précipitant vers l'îlot central.
 
-Cependant, alors que le sceau atteignait la moitié de l'île, un rugissement jaillit des profondeurs! Un dragon marin bleu foncé surgit des eaux!
+Cependant, alors que le sceau atteignait la moitié du lac, un rugissement jaillit des profondeurs! Un dragon marin bleu foncé surgit des eaux!
 
-C'était un dragon marin, une créature d'un bleu profond mesurant des centaines de milliers de pieds de long! Le dragon marin était une bête céleste du Continent Astral Immortel. Il paraissait féroce et dégageait une énergie céleste dense!
+C'était un dragon marin, une créature d'un bleu profond mesurant bien cent mille pieds de long! Le dragon marin était une bête céleste du Continent Astral Immortel. Il paraissait féroce et dégageait une énergie céleste dense!
 
 Ce dragon avait vécu durant des âges. Il exhalait une aura antique et sa tête différait de celle des autres dragons. La rangée d'épines sur son dos le rendait encore plus terrifiant!
 
-Ce dragon n'avait pas de griffes, il ressemblait à un immense python, mais possédait la puissance d'un véritable dragon! Son corps paraissait svelte mais atteignait des centaines de pieds de diamètre. Sur sa tête, outre les épines dorsales, se trouvaient deux immenses nageoires reliées entre elles comme un éventail.
+Ce dragon n'avait pas de griffes, il ressemblait à un immense python, mais possédait la puissance d'un véritable dragon! Son corps paraissait svelte mais atteignait un millier de pieds de diamètre. Sur sa tête, outre les épines dorsales, se trouvaient deux immenses nageoires reliées entre elles comme un éventail.
 
 Tandis que le dragon marin s'élançait dans les airs, d'énormes quantités d'eau s'égouttaient de ses écailles. En jaillissant, il fit chuter considérablement le niveau du lac!
 
-*ROAR!!*
+*GRAOUUU!!*
 
 Dès son apparition, les yeux rouges et gigantesques du dragon marin se fixèrent sur Wang Lin dans un rugissement assourdissant. Alors qu'il hurlait, deux autres yeux apparurent: ce dragon possédait en réalité quatre yeux!
 
@@ -118,4 +118,4 @@ Soudain, le dragon marin entra en mouvement. Il ouvrit la gueule et chargea Wang
 
 La puissance de ce dragon marin n'était pas inférieure à celle d'un Exalté Doré au sommet de sa puissance!
 
-Il avait suivi l'Exalté Empyréen pendant une très longue période et, lors de son départ, celui-ci l'avait laissé ici, à la Secte Dao Démoniaque. Il était certain qu'avec ce dragon et la force du secteur, la secte serait protégée pour d'innombrables années!
+Il avait suivi l'Exalté Empyréen pendant une très longue période et, lors de son départ, celui-ci l'avait laissé ici, à la Secte du Dao Démoniaque. Il était certain qu'avec ce dragon et la force de la secte elle-même, la secte serait protégée pour d'innombrables années!

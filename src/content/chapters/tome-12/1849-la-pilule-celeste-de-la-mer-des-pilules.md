@@ -10,19 +10,19 @@ La boussole entre les mains de la femme commença à se brouiller alors qu'elle 
 
 À cet instant, le groupe de cultivateurs dans lequel se trouvait Wang Lin se situait encore à 10 000 pieds de la femme. Le cultivateur contrôlé par Wang Lin fit un pas en avant et dépassa plusieurs autres membres du groupe. Tandis qu'ils le regardaient avec stupeur, il arriva derrière le cultivateur qui menait la marche.
 
-Ce dernier était un homme d'âge moyen au troisième niveau, proche du Vide du Nirvana. Il sembla percevoir quelque chose et se retourna. Les yeux du cultivateur que Wang Lin contrôlait s'illuminèrent d'une lueur étrange, et une volute de fumée s'échappa de son front pour pénétrer dans les yeux de l'homme d'âge moyen.
+Ce dernier était un homme d'âge moyen au troisième niveau, au stade initial du Vide du Nirvana. Il sembla percevoir quelque chose et se retourna. Les yeux du cultivateur que Wang Lin contrôlait s'illuminèrent d'une lueur étrange, et une volute de fumée s'échappa de son front pour pénétrer dans les yeux de l'homme d'âge moyen.
 
 Tout cela se produisit avec une rapidité fulgurante. Au moment où cela arriva, le corps de l'homme d'âge moyen trembla, manifestant un bref signe de lutte. Cependant, cette résistance s'estompa rapidement pour laisser place à un calme plat.
 
 La femme qui fixait la boussole fut également prise de tremblements. L'instrument entre ses mains se mit à vibrer violemment. Juste au moment où il allait révéler ce qui venait de se passer, l'homme d'âge moyen que Wang Lin avait usurpé chargea vers la femme, située à 10 000 pieds de là.
 
-« J'ai trouvé une goutte de liquide noir et j'ignore sa nature! » lança l'homme d'une voix rauque avant de s'élancer sur plus de 1 000 pieds. Lorsque les cultivateurs assis présents ouvrirent les yeux, l'homme sortit la goutte de liquide noir et la projeta en avant.
+« En chemin, j'ai trouvé dans l'eau de mer une goutte de liquide noir et j'ignore sa nature! » lança l'homme d'une voix rauque avant de s'élancer sur plusieurs milliers de pieds. Lorsque les cultivateurs assis présents ouvrirent les yeux, l'homme sortit la goutte de liquide noir et la projeta en avant.
 
 Dès que la goutte apparut, une puissante vague d'essence aquatique se manifesta. En entendant la voix de l'homme, la femme leva les yeux et vit le liquide noir. Ses pupilles se rétractèrent soudainement.
 
 « Le Liquide de Corruption des Dix Mille Raffinements! » Les yeux de la femme étaient empreints de choc.
 
-Profitant de cet instant de stupéfaction, l'homme contrôlé par Wang Lin vola encore plusieurs milliers de pieds. Il n'était plus qu'à quelques milliers de pieds de sa cible. Cependant, alors qu'il entrait dans un rayon de 1 000 pieds, les trois drapeaux provoquèrent des ondulations et émirent un sifflement strident. Simultanément, la boussole dans la main de la femme montra clairement la scène où Wang Lin se transformait en brume pour s'infiltrer dans l'oreille de l'homme d'âge moyen!
+Profitant de cet instant de stupéfaction, l'homme contrôlé par Wang Lin vola encore plusieurs milliers de pieds. Il n'était plus qu'à moins de 1 000 pieds de sa cible. Cependant, alors qu'il franchissait cette distance, les trois drapeaux provoquèrent des ondulations et émirent un sifflement strident. Simultanément, la boussole dans la main de la femme montra clairement la scène où Wang Lin se transformait en brume pour s'infiltrer dans l'oreille de l'homme d'âge moyen!
 
 « Arrêtez! » Le cœur de la femme trembla et elle poussa un cri. Elle s'apprêtait à battre en retraite, tandis que le jeune homme au visage de jade blanc était également saisi par la terreur.
 
@@ -40,15 +40,15 @@ Wang Lin fit un pas en avant et franchit 1 000 pieds en un instant, tandis que l
 
 Soudain, Wang Lin leva sa main droite et les pointa du doigt!
 
-« Arrêtez! »
+« Figés! »
 
 D'un seul mot, d'innombrables filaments remplirent le monde et enveloppèrent la femme et le jeune homme. Leurs corps tremblèrent, totalement immobilisés par Wang Lin. La peur se figea sur le visage du jeune homme, tandis que la main gauche de la femme, à moins d'un pouce de la boussole, resta pétrifiée en plein air!
 
-Wang Lin s'approcha instantanément et arracha la boussole des mains de la femme. Nul n'était digne de pitié dans son cœur lorsqu'il abattit sa paume gauche sur le front de la femme. Le corps de celle-ci se changea en une brume de sang, et même son âme originelle s'effondra avec elle. Wang Lin agita sa manche, propageant un souffle de vent qui emporta la brume sanglante vers le jeune homme. Tandis que la brume l'enveloppait, Wang Lin balaya l'air d'un geste, déclenchant un éclat de lumière rouge. Une épée de sang jaillit et trancha la tête du jeune homme.
+Wang Lin s'approcha instantanément et arracha la boussole des mains de la femme. Sans la moindre pitié pour sa beauté, il abattit sa paume gauche sur le front de la femme. Le corps de celle-ci se changea en une brume de sang, et même son âme originelle s'effondra avec elle. Wang Lin agita sa manche, propageant un souffle de vent qui emporta la brume sanglante vers le jeune homme. Tandis que la brume l'enveloppait, Wang Lin balaya l'air d'un geste, déclenchant un éclat de lumière rouge. Une épée de sang jaillit et trancha la tête du jeune homme.
 
 C'est à ce moment qu'un grondement de tonnerre résonna: les deuxième et troisième drapeaux venaient d'être brisés par le bras gauche de Yi Si!
 
-Tout l'encre noire située dans un rayon de 10 000 pieds se rétracta frénétiquement pour redevenir une simple goutte devant Wang Lin, qu'il avala aussitôt.
+Toute l'encre noire située dans un rayon de 10 000 pieds se rétracta frénétiquement pour redevenir une simple goutte devant Wang Lin, qu'il avala aussitôt.
 
 Le carnage prit fin; des centaines de cultivateurs étaient morts. La femme et le jeune homme nommé Zhao avaient également péri. Même les trois grands drapeaux étaient détruits! Le visage de Wang Lin était légèrement pâle. Désirant clore l'affaire rapidement, il rangea Yi Si et disparut dans la mer.
 
@@ -76,13 +76,13 @@ La Mer des Pilules ressemblait à un bassin dont le centre était un gigantesque
 
 Wang Lin se cachait également au sein du vortex, attendant que la Pilule Céleste soit formée pour lancer son assaut!
 
-Le temps s'écoulait lentement. Yun Kong était incapable d'observer ses environs; toute l'attention des milliers de cultivateurs célestes était braquée sur lui. Personne ne s'attendait à ce que des cultivateurs du Continent du Taureau Céleste subsistent dans la Mer des Pilules après qu'elle ait été purgée maintes fois. Avec les restrictions en place, nul n'avait besoin de s'inquiéter de ce qui se passait sous la surface!
+Le temps s'écoulait lentement. Yun Kong était incapable d'observer ses environs; toute l'attention des dizaines de milliers de cultivateurs était braquée sur lui. Personne ne s'attendait à ce que des cultivateurs du Continent du Taureau Céleste subsistent dans la Mer des Pilules après qu'elle ait été purgée maintes fois. Avec les restrictions en place, nul n'avait besoin de s'inquiéter de ce qui se passait sous la surface!
 
 À cet instant, personne ne remarqua que les trois grands drapeaux avaient été brisés ni que la boussole avait changé de maître. Tous les regards étaient captivés par Yun Kong. Après tout, rien n'était plus crucial que d'observer l'un des quatre génies, Yun Kong, raffiner la Mer des Pilules en une Pilule Céleste.
 
 Même Yun Kong ne s'attendait pas au retour de Wang Lin après son départ!
 
-Plongé dans le neuvième vortex, l'expression grave, il traça un sceau qui fit trembler le tourbillon. La structure se rétracta brutalement, passant d'une étendue infinie à moins de 1 000 000 de pieds! L'eau de la gigantesque Mer des Pilules fut ainsi concentrée en un vortex de cette dimension, provoquant l'exaltation des cultivateurs du Continent du Démon Vert.
+Plongé dans le neuvième vortex, l'expression grave, il traça un sceau qui fit trembler le tourbillon. La structure se rétracta brutalement, passant d'une étendue infinie à 1 000 000 de pieds! L'eau de la gigantesque Mer des Pilules fut ainsi concentrée en un vortex de cette dimension, provoquant l'exaltation des cultivateurs du Continent du Démon Vert.
 
 Un sourire apparut sur les lèvres de Yun Kong. Il prit une profonde inspiration et poussa un rugissement vers le ciel alors que sa culture explosait. Son niveau était si singulier qu'il restait impossible d'en percevoir l'exactitude; on ne pouvait que ressentir une puissante déferlante d'énergie d'épée. Une intention d'épée enveloppa toute la zone.
 

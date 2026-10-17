@@ -16,11 +16,11 @@ Alors que Wang Lin reculait, l'énergie monstrueuse de l'épée se rapprochait. 
 
 Wang Lin leva soudainement la tête et projeta son poing droit vers l'épée. Face à une telle ombre d'épée, les sorts étaient trop complexes; un simple coup de poing était préférable.
 
-Un grondement tonitruant retentit alors que l'ombre de l'épée tremblait puis s'effondra. Cependant, Wang Lin sentit son bras droit s'engourdir et le bras de l'armure humanoïde se fissurer.
+Un grondement tonitruant retentit alors que l'ombre de l'épée tremblait puis s'effondra. Cependant, Wang Lin sentit son bras droit s'engourdir et le bras de l'armure humanoïde se briser.
 
-L'énergie de l'épée s'engouffra dans le corps de Wang Lin et s'apprêtait à déclencher une attaque dévastatrice lorsqu'il la réprima par la force. Il chargea alors vers le jeune homme posté au sommet de la montagne.
+L'énergie de l'épée s'engouffra dans le corps de Wang Lin et s'apprêtait à déclencher une attaque dévastatrice lorsqu'il la réprima par la force. Il chargea alors vers l'homme en robe bleue posté au sommet de la montagne.
 
-Le jeune homme affichait une expression glaciale en fixant Wang Lin. C'était Yun Kong!
+L'homme en robe bleue affichait une expression glaciale en fixant Wang Lin. C'était Yun Kong!
 
 Alors que Wang Lin approchait, Yun Kong leva son épée et un second assaut surgit. Une ombre d'épée monstrueuse s'abattit sur Wang Lin!
 
@@ -84,7 +84,7 @@ La rumeur disait qu'il y a fort longtemps, un cultivateur étranger s'était ren
 
 On racontait que cet homme se nommait « Meng »; ainsi, après d'innombrables années, ce lieu fut nommé le continent Terre-Meng!
 
-L'endroit était saturé de l'aura de l'essence terrestre, semblable au continent du Démon Vert. Le continent du Démon Vert était une terre d'essence terrestre, où vivait le Scorpion du Démon Vert, une bête féroce issue des profondeurs.
+L'endroit était saturé de l'aura de l'essence terrestre, semblable au continent du Démon Vert. Le continent du Démon Vert était une terre d'essence terrestre, où vivait le Scorpion du Démon Vert, une bête féroce venue d'au-delà des cieux qui vivait dans la terre.
 
 Cependant, cette essence était masquée par son aura démoniaque, ce qui la rendait difficile à percevoir.
 
@@ -96,7 +96,7 @@ Mais à cet instant précis, le monde changea de teinte et une lumière aveuglan
 
 Les matrices s'activèrent promptement. Alors que Wang Lin observait la scène, des dizaines de silhouettes surgirent de chacune des six matrices!
 
-Plus de cent individus apparurent, dégageant des auras puissantes.
+Des centaines d'individus apparurent, dégageant des auras puissantes.
 
 L'activation de ces six matrices coûta un prix exorbitant au continent du Démon Vert, d'autant plus qu'elles téléportaient un si grand nombre de personnes. Plus le niveau de culture était élevé, plus le coût était lourd. Pour un cultivateur de la troisième étape, le tribut était indescriptible.
 
@@ -104,7 +104,7 @@ Et ces centaines de cultivateurs étaient tous extrêmement puissants. Leur tran
 
 Ces individus étaient initialement en embuscade aux diverses frontières du continent du Taureau Céleste, attendant Wang Lin. Cependant, suite à une erreur de prédiction, ils furent contraints de téléporter massivement des troupes ici. Ce n'était là qu'une partie d'entre eux; d'autres arrivaient encore par transfert.
 
-Ces cultivateurs portaient tous des vêtements similaires. Bien que les couleurs diffèrent, le motif lunaire noir et blanc sur leurs étoffes était identique!
+Ces cultivateurs portaient tous des vêtements similaires. Bien que les couleurs diffèrent, le motif solaire et lunaire noir et blanc sur leurs étoffes était identique!
 
 Wang Lin avait reconnu ce symbole sur la carapace de tortue. Ce motif appartenait à la première secte du continent du Démon Vert: la Secte du Démon Dao!
 
@@ -112,13 +112,13 @@ Le blocus et la traque visant Wang Lin n'étaient pas l'œuvre de tout le contin
 
 Le continent Terre-Meng était à mille kilomètres, mais la Secte du Démon Dao venait de surgir pour lui barrer la route. Le sentiment qu'une crise imminente approchait devint d'autant plus oppressant!
 
-Les pupilles de Wang Lin se contractèrent. Alors qu'il fonçait en avant, les plus de cent cultivateurs sortis des six matrices s'élancèrent. Simultanément, ils projetèrent tous quelque chose vers lui!
+Les pupilles de Wang Lin se contractèrent. Alors qu'il fonçait en avant, les centaines de cultivateurs sortis des six matrices s'élancèrent. Simultanément, ils projetèrent tous quelque chose vers lui!
 
 « Neuf têtes de cultivateurs de la Prairie du Ciel Extrême! »
 
 « Six têtes de cultivateurs de la Prairie du Ciel Extrême! »
 
-« La tête d'un cultivateur errant de la Tribulation du Vide de la Prairie du Ciel Extrême! »
+« La tête d'un cultivateur errant de la Tribulation Arcanique de la Prairie du Ciel Extrême! »
 
 « La Prairie du Ciel Extrême... »
 

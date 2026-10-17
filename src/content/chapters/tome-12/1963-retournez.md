@@ -22,7 +22,7 @@ Cette scène lui conférait une aura de grand maître, et tous les cultivateurs 
 
 Le temps s'écoulait, souffle après souffle... En un éclair, plus d'un bâton d'encens s'était écoulé. Wang Lin était le seul à se tenir devant le 16e palais, et aucun signe de l'Ascendant Empyréen Ming Dao n'apparaissait.
 
-Après encore une demi-heure d'encens, le 16e palais, enveloppé de reflets dorés, libéra une nouvelle déferlante de lumière. L'Ascendant Empyréen Ming Dao émergea de cet éclat en riant.
+Après encore un demi-bâton d'encens, le 16e palais, enveloppé de reflets dorés, libéra une nouvelle déferlante de lumière. L'Ascendant Empyréen Ming Dao émergea de cet éclat en riant.
 
 Ce rire trahissait son excitation. Il avait attendu ce jour pendant tant d'années, et il avait enfin franchi le 16e palais! Il apparut devant Wang Lin, révélant sa silhouette vêtue d'une robe noire.
 
@@ -42,7 +42,7 @@ Cette réalisation plongea Ming Dao dans une colère mêlée d'humiliation. Son 
 
 « Avec un tel tempérament, comment a-t-il atteint son niveau de culture actuel? Peut-être est-ce lié à son arrogance. Plus il perd, plus cela l'exalte. Cela lui a permis de comprendre une forme de vie déformée en endurant la douleur d'être surpassé. »
 
-« Comme un arc, plus on le courbe, plus la puissance potentielle est grande lors du déclenchement, mais... peu importe la force de l'arc, je le ferai ployer jusqu'à la rupture! » Wang Lin regarda Ming Dao. Il n'avait pas oublié l'humiliation que ce dernier lui avait infligée. Ming Dao s'était montré très vicieux, et Wang Lin ne le laisserait pas s'en tirer ainsi.
+« Comme un arc, plus on le courbe, plus la puissance potentielle est grande lors du déclenchement, mais... peu importe la force de l'arc, je le ferai ployer jusqu'à la rupture! » Wang Lin regarda Ming Dao. Il n'avait pas oublié l'humiliation que ce dernier lui avait infligée. Toute sa vie, Wang Lin avait rendu la moindre offense, et il ne laisserait pas cet homme s'en tirer ainsi.
 
 De plus, cet Ascendant Empyréen Ming Dao était l'individu que l'Empereur Céleste estimait le plus. Le détruire serait un coup porté directement à la parole de l'Empereur Céleste concernant le talent!
 
@@ -84,7 +84,7 @@ L'Ascendant Empyréen Ming Dao réfléchit un instant et ferma les yeux, comme s
 
 « Je veux simplement qu'il tente le 17e palais. Une fois qu'il aura échoué, il pourra partir. » Wang Lin sourit, et son rire résonna aux oreilles de Ming Dao comme un poignard transperçant son cœur.
 
-C'était exactement ce que l'Empereur avait dit à Wang Lin!
+C'était exactement ce que Ming Dao lui-même avait dit à Wang Lin!
 
 Sa respiration devint rauque et il s'arrêta de nouveau. Son estime de soi refusait d'endurer cela, mais à cet instant, l'Empereur Céleste agita sa manche. Une brise légère enveloppa Ming Dao et le projeta vers l'ancien réseau de transfert.
 
@@ -106,7 +106,7 @@ C'était exactement ce que Ming Dao avait fait à Wang Lin!
 
 « Wang Lin!!! » L'Ascendant Empyréen Ming Dao sortit du réseau et fixa Wang Lin. La colère et l'humiliation qu'il avait contenues étaient sur le point d'exploser.
 
-« Wang Lin, tu as du cran. Tu as l'audace de violer les règles ici. Aujourd'hui, ne blâme pas cet empereur! » L'Empereur Céleste ne pensait manifestement pas que Wang Lin oserait attaquer.
+« Wang Lin, tu as du cran. Tu as l'audace de violer les règles ici. Aujourd'hui, il se pourrait bien que cet empereur doive te capturer! » L'Empereur Céleste ne pensait manifestement pas que Wang Lin oserait attaquer.
 
 « Oh? Ai-je blessé qui que ce soit? Est-il blessé? Puisqu'il n'y a aucune blessure, comment ai-je pu violer une règle? » Wang Lin sourit et répliqua en utilisant les mots mêmes de l'Empereur Céleste!
 

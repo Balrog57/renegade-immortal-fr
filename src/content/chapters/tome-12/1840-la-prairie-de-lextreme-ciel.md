@@ -42,7 +42,7 @@ Elle lança le jade vers Wang Lin. Il le rattrapa et, après l'avoir scanné de 
 
 « Ancienne Yan Lu, merci beaucoup! » Sur ces mots, Wang Lin agita sa manche et, sans même accorder un second regard à Fan Shanmeng, se transforma en une masse de brume pour s'envoler.
 
-*Roar!!*
+*Rugissement !!*
 
 La marionnette Yi Si suivit Wang Lin et, après avoir fusionné avec la brume, il la rangea. Au même moment, le véritable corps d'essence de feu de Wang Lin leva les yeux; il le suivit et disparut au loin.
 
@@ -58,9 +58,9 @@ La raison pour laquelle tant de cultivateurs marginaux vivaient ici était la de
 
 « La Prairie de l'Extrême Ciel... Selon le jade de Yan Lu, une fois arrivé ici, il faudra encore six mois pour atteindre la mer intérieure qui relie au Continent du Démon Vert... » Wang Lin réfléchit tout en s'élançant rapidement.
 
-Sur le Continent Astral Immortel, même avec la puissance de son avatar dans le vide, il ne pouvait pas utiliser la Courbure Spatiale de manière répétée sur de très longues distances. Sur de courtes distances, comme lorsqu'il s'était éloigné de la Montagne Céleste, cela ne posait aucun problème, mais là, il venait de traverser trois mois de voyage en un instant; il lui faudrait donc du temps avant de pouvoir l'utiliser à nouveau.
+Sur le Continent Astral Immortel, même en ayant compris cette technique grâce à la puissance de son avatar, il ne pouvait pas utiliser la Courbure Spatiale de manière répétée sur de très longues distances. Sur de courtes distances, comme lorsqu'il s'était éloigné de la Montagne Céleste, cela ne posait aucun problème, mais là, il venait de traverser près de trois mois de voyage en un instant; il lui faudrait donc du temps avant de pouvoir l'utiliser à nouveau.
 
-Alors qu'il volait, il leva la main droite et un rugissement s'échappa du tatouage du Roi Moustique sur son bras. Le Roi Moustique apparut sous la forme d'une encre noire et transporta Wang Lin. Il poussa un cri de joie et s'envola vers l'horizon.
+Alors qu'il volait, il leva la main droite et un rugissement s'échappa du tatouage du Roi Moustique sur son poignet. Le Roi Moustique apparut sous la forme d'une encre noire et transporta Wang Lin. Il poussa un cri de joie et s'envola vers l'horizon.
 
 Wang Lin s'assit sur le dos de la créature et ferma les yeux. Bien que sa culture actuelle fût à son apogée, son Sens Divin puissant et son âme originelle complète, son corps représentait un danger caché. Il devait absorber une immense quantité d'essence d'eau pour achever le neuvième cycle.
 
@@ -106,7 +106,7 @@ Peu après, le Roi Moustique sous Wang Lin poussa un rugissement et chargea vers
 
 D'un geste impérieux, il immobilisa totalement le cultivateur qui ne put qu'assister, impuissant, à sa propre mort imminente.
 
-Quant à Wang Lin, en un éclair, il sauta du Roi Moustique et tourna son regard vers la troisième personne en fuite. Son véritable corps d'essence de feu se transforma en un sceau ardent qui s'élança, embrasant les cieux et la terre. Il prit la forme d'une gueule géante pour dévorer le dernier fuyard.
+Quant à Wang Lin, en un éclair, il sauta du Roi Moustique et tourna son regard vers la troisième personne en fuite. Son véritable corps d'essence de feu se transforma en une mer de feu qui s'élança, embrasant les cieux et la terre. Il prit la forme d'une gueule géante pour dévorer le dernier fuyard.
 
 La scène était saisissante. Le brasier reliait le ciel à la terre, dévorant tout sur son passage. Il convergeait vers la troisième personne et, au moment même où celle-ci allait être consumée, une explosion de lumière verte surgit pour repousser les flammes.
 

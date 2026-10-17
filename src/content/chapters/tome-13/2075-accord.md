@@ -26,7 +26,7 @@ Comparé à l'époque où il l'avait quitté, certains lieux lui étaient famili
 
 Après avoir observé les alentours, Wang Lin agita la main droite. Trois rayons de lumière jaillirent, révélant trois silhouettes devant lui.
 
-C'étaient Xu Liguo, Liu Jinbiao et le seul disciple à avoir suivi Wang Lin dans le monde des grottes: Treize.
+C'étaient Xu Liguo, Liu Jinbiao et le seul disciple à avoir suivi Wang Lin de retour dans le monde des grottes: Treize.
 
 Treize n'était pas un être ordinaire. En voyant la brume rouge, il fut un instant déconcerté, mais se reprit rapidement. Il s'inclina devant Wang Lin et resta silencieusement à ses côtés.
 
@@ -98,7 +98,7 @@ Son visage exprimait une tristesse profonde et, mêlées aux larmes, une fragili
 
 Wang Lin observa Mu Bingmei, son apparence si frêle et la confusion dans son regard désemparé. Il poussa un soupir.
 
-« Outre retrouver de vieux amis, je suis revenu cette fois pour régler ce qui nous lie. J'ai trouvé un moyen de ressusciter Wang Er, et une fois que je serai parti, je le ferai. »
+« Outre retrouver de vieux amis, je suis revenu cette fois pour régler ce qui nous lie. J'ai trouvé un moyen de ressusciter Wan Er, et une fois que je serai parti, je le ferai. »
 
 Les larmes inondèrent les yeux de Mu Bingmei. Avec toute son intelligence, comment ne pas comprendre la portée de ses paroles? Son visage pâle se crispa dans une expression amère.
 

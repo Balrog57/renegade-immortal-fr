@@ -26,7 +26,7 @@ En moins d'un souffle après avoir atteint le stade initial du Vide Arcane, sa c
 
 Immédiatement après, à une vitesse encore plus fulgurante, son aura atteignit le stade avancé du Vide Arcane, faisant fouetter ses cheveux sans qu'aucun vent ne souffle!
 
-Son niveau de culture continuait de croître, et tout cela se produisit en un éclair. Non seulement Lu Wenran était stupéfait, mais Yan Lu, Xu Dongde ainsi que les trois cultivateurs du stade initial de la Tribulation du Vide qui ne prenaient pas parti étaient tous sous le choc.
+Son niveau de culture continuait de croître, et tout cela se produisit en un éclair. Non seulement Lu Wenran était stupéfait, mais Yan Luan, Xu Dongde ainsi que les trois cultivateurs de la Tribulation du Vide qui ne prenaient pas parti étaient tous sous le choc.
 
 Il ne fallait même pas mentionner les plus de 1 000 cultivateurs en contrebas. Tous fixaient Wang Lin avec incrédulité, témoins du miracle de celui qui avait obtenu l'armure d'âme!
 
@@ -38,7 +38,7 @@ L'armure seule suffisait à rendre Wang Lin invincible. Même si Lu Wenran s'ét
 
 Plus cela durait, plus la jalousie de Lu Wenran grandissait. Il continua de rugir et de bombarder de sorts, mais le résultat restait le même!
 
-« C'est à moi! Pas à toi! »
+« Enlève-la! C'est à moi! »
 
 « Wang Lin, cette armure d'âme est mienne! Tu as volé mon armure, tu vas mourir d'une mort terrible! »
 
@@ -46,19 +46,19 @@ Plus cela durait, plus la jalousie de Lu Wenran grandissait. Il continua de rugi
 
 Tout ce qu'il avait accompli pour se préparer n'avait servi qu'à quelqu'un d'autre! Un tel choc était insupportable, et face à la soudaineté de l'événement, il refusait de l'accepter.
 
-L'apparence de Wang Lin était la cause de tout cela, et sa folie ne devait rien qu'à Wang Lin! Mais c'était ainsi que les autres percevaient la scène. Seul Wang Lin savait que dans l'esprit de Lu Wenran, la silhouette d'une femme en blanc pleurait.
+L'apparition de Wang Lin était la cause de tout cela, et toute sa folie était due à Wang Lin! Mais c'était ainsi que les autres percevaient la scène. Seul Wang Lin savait que dans l'esprit de Lu Wenran, la silhouette d'une femme en blanc pleurait.
 
 Puisque Wang Lin allait agir, il ferait tout pour anticiper chaque issue. L'illusion multicouche avait été discrètement plantée sans que Lu Wenran ne s'en aperçoive!
 
-Tandis que Lu Wenran attaquait comme un possédé, l'aura de Wang Lin augmenta encore une fois. Il franchit directement le sommet du Vide Arcane pour entrer dans la Tribulation du Vide!
+Tandis que Lu Wenran attaquait comme un possédé, l'aura de Wang Lin augmenta encore une fois. Il franchit directement le sommet du Vide Arcane pour entrer dans la Tribulation de l'Arcane!
 
 Ce changement fut comme un coup invisible et pesant qui frappa l'esprit de Lu Wenran, au point qu'il faillit recracher une bouchée de sang. Ses yeux devinrent injectés de sang et il reprit ses attaques frénétiques.
 
-« J'étais au Pill Sea et tu y étais aussi! Pourquoi ai-je été destiné à m'échapper alors que tu es resté pour faire exploser le Pill Sea afin d'obtenir de grands mérites?! Si c'était moi, j'aurais pu le faire aussi! »
+« J'étais à la Mer des Pilules et tu y étais aussi! Pourquoi ai-je été destiné à m'échapper alors que tu es resté pour faire exploser la Mer des Pilules afin d'obtenir de grands mérites?! Si c'était moi, j'aurais pu le faire aussi! »
 
 « Je suis au troisième méridien et tu y es également. Mon niveau de culture est supérieur au tien et j'ai plus d'ancienneté. Cette armure d'âme m'appartient, de quel droit me la voles-tu?! »
 
-Les yeux de Wang Lin restaient clos. Son aura, après être entré dans la Tribulation du Vide, augmenta encore une fois.
+Les yeux de Wang Lin restaient clos. Son aura, après être entré dans la Tribulation de l'Arcane, augmenta encore une fois.
 
 La première Tribulation de l'Arcane, la deuxième, la troisième, la quatrième... la huitième, la neuvième!!!
 
@@ -68,7 +68,7 @@ Stade initial de la Tribulation du Vide!!
 
 Au moment où Wang Lin atteignit le stade initial de la Tribulation du Vide, il ouvrit soudainement les yeux. L'ombre du Taureau Céleste derrière lui ouvrit également les siennes, révélant un regard féroce et défiant les cieux!
 
-Roar!!
+Grrraaah!!
 
 L'ombre du Taureau Céleste leva la tête et poussa un rugissement qui se propagea dans le palais souterrain, à travers la terre, toute la Prairie de l'Extrême Ciel et par-delà le continent!
 
@@ -100,7 +100,7 @@ Dans un fracas tonitruant, Lu Wenran poussa un cri déchirant et son corps explo
 
 « Je suis un Ancien de la Secte de la Grande Âme, tu ne peux pas me tuer! » Les yeux de Wang Lin étaient glacials alors qu'il le rattrapait. Il fit un geste de la main droite et l'âme originelle de Lu Wenran explosa. Il perdit la moitié inférieure de son corps.
 
-« Je suis le disciple du Très Estimé Taureau Vert. Si tu me tues, mon Maître ne te lâchera pas! » Lu Wenran était affaibli après avoir perdu la moitié de son corps, et sa voix n'était plus qu'un souffle. Il reculait frénétiquement, terrorisé.
+« Je suis le disciple de l'Ancêtre Taureau Vert. Si tu me tues, mon Maître ne te lâchera pas! » Lu Wenran était affaibli après avoir perdu la moitié de son corps, et sa voix n'était plus qu'un souffle. Il reculait frénétiquement, terrorisé.
 
 Mais Wang Lin fit un autre pas et se rapprocha à nouveau. D'un geste de la main droite, il fit s'effondrer une fois de plus le corps de Lu Wenran, ne laissant qu'une tête sur le point de se dissiper.
 
@@ -118,7 +118,7 @@ Puisque la situation ne pouvait mener qu'à l'un ou l'autre, Wang Lin n'avait au
 
 À cet instant, Wang Lin ressentait clairement la puissance pure. Chaque mouvement était imprégné de sorts. Il n'avait jamais rien ressenti de tel auparavant. Les essences n'avaient plus d'importance car il sentait distinctement ses essences disparaître pour devenir une partie intégrante de sa lignée!
 
-Son corps pouvait être considéré comme un corps façonné par les essences. Son sang était l'essence de l'eau et ses yeux étaient l'essence du tonnerre. Son existence même était composée d'essences!
+Son corps pouvait être considéré comme un corps façonné par les essences. Son sang était l'essence de l'eau et ses yeux étaient l'essence du tonnerre et du feu. Son existence même était composée d'essences!
 
 Ce sentiment émanait de l'armure sur son corps. À cet instant, il avait la sensation de n'être plus un simple cultivateur, mais le féroce Taureau Céleste ayant cultivé dans l'immensité de l'espace pendant des éons!
 

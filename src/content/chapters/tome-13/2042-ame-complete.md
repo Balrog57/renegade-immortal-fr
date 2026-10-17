@@ -8,13 +8,13 @@ slug: ame-complete
 ---
 La ville de la Pierre Noire était restée la même qu'au moment de son départ. Elle ne croisa aucun garde sur son chemin, comme si le Seigneur de la Ville avait reçu un ordre.
 
-Mais lorsqu'elle arriva chez elle, elle vit deux personnes debout là. L'une était une vieille femme aux cheveux blancs et l'autre était une jeune fille.
+Mais lorsqu'elle arriva chez elle, elle vit deux personnes debout là. L'une était une vieille femme aux cheveux blancs et l'autre était une jeune servante.
 
-« Tante Chang... Sœur Dong... Je suis rentrée. » Song Zhi mordit sa lèvre inférieure et sourit.
+« Tante Chang... Dong Mei... Je suis rentrée. » Song Zhi mordit sa lèvre inférieure et sourit.
 
 À l'extérieur de Ville de la Pierre Noire, Wang Lin se tenait là où Song Zhi s'était tenue et contemplait la ville. Après un moment, il retira son Sens Divin. La femme était bien pitoyable. La fusion avec l'âme de Wan Er lui avait causé de grands maux. Sa mémoire était en désordre et elle ne savait plus qui elle était.
 
-Wang Lin aurait pu ignorer sa faiblesse et faire fi de sa vie pour séparer l'âme de Li Muwan. Cependant, le résultat aurait été l'extinction de sa force vitale.
+Wang Lin aurait pu ignorer sa faiblesse et faire fi de sa vie pour séparer l'âme de Li Muwan. Cependant, le résultat aurait été l'extinction de sa force vitale et la dispersion de son âme.
 
 Wang Lin avait cultivé pendant des milliers d'années. Les gens pensaient qu'il était impitoyable et sans cœur, mais il restait humain. Il ne voulait pas agir ainsi; il avait donc passé près de deux ans à se frayer un chemin jusqu'ici. En chemin, il avait lentement infusé sa culture dans le corps de la femme afin que l'âme de Li Muwan puisse être séparée sans lui nuire.
 
@@ -22,13 +22,13 @@ Wang Lin avait cultivé pendant des milliers d'années. Les gens pensaient qu'il
 
 « Ji Du, tu dois prendre soin d'elle, » dit lentement Wang Lin.
 
-Une onde sonore résonna derrière Wang Lin et le Prince Ji Du sortit de l'ombre. Il dit respectueusement: « Comme le Parrain l'ordonne. »
+Des ondulations résonnèrent derrière Wang Lin et le Prince Ji Du fit un pas hors de l'ombre, puis posa un genou à terre. Il dit respectueusement: « Comme le Parrain l'ordonne. »
 
 « J'ai informé le Seigneur de la Ville de veiller sur Song Zhi pour qu'elle ne subisse aucun préjudice. Soyez assuré que j'ai même envoyé des gardes pour vivre ici afin de la protéger. » Le Prince Ji Du savait à quel point Song Zhi était importante pour son parrain, il n'osait donc pas être négligent à cet égard.
 
-Le Prince Ji Du était resté ici car, selon ses analyses, Wang Lin viendrait probablement. Il attendait depuis son retour de l'Ancien Dao, et Wang Lin était enfin arrivé.
+Le Prince Ji Du était resté ici car, selon ses analyses, Wang Lin viendrait probablement. Il attendait depuis son retour dans le Shi Antique, et Wang Lin était enfin arrivé.
 
-Wang Lin ne montra aucune émotion face au fait que Ji Du l'ait attendu. Au contraire, si Ji Du n'avait pas fait cela, cela signifierait qu'il ne serait pas utile à Wang Lin, et il serait alors très difficile pour lui d'obtenir le poste d'Empereur Antique.
+Wang Lin ne montra aucune émotion face au fait que Ji Du l'ait attendu. Au contraire, si Ji Du n'avait pas fait cela, cela signifierait qu'il ne serait pas utile à Wang Lin, et il serait alors très difficile pour lui d'obtenir le poste d'Empereur Shi Antique.
 
 « Allons-y. » Wang Lin jeta un dernier regard vers Ville de la Pierre Noire puis s'éloigna dans la distance.
 
@@ -56,11 +56,11 @@ Le Prince Ji Du parut impuissant et parla avec un sourire amer.
 
 L'expression de Wang Lin resta calme et, après avoir entendu cela, il réfléchit silencieusement un instant.
 
-« Le Grand Empyréen de chaque clan peut nommer chaque génération d'empereur, mais c'est sans exception... Je pense que tu es prêt. » Wang Lin regarda profondément le Prince Ji Du.
+« Le Grand Empyréen de chaque clan peut nommer chaque génération d'empereur, mais il y a des exceptions... J'imagine que tu t'y es préparé. » Wang Lin regarda profondément le Prince Ji Du.
 
 Le Prince Ji Du eut immédiatement l'impression d'avoir été totalement percé à jour par Wang Lin, incapable même de dissimuler ses pensées.
 
-Il s'agenouilla et dit respectueusement: « Le fils est encore en préparation. Je refuse d'échouer et d'être écarté comme un roi sans couronne. Une fois que j'aurai perdu ma chance de devenir empereur, il n'y aura pas de seconde chance.
+Il posa un genou à terre et dit respectueusement: « Le fils est toujours en préparation. Je ne me résous pas à échouer et à être nommé roi pour être envoyé au loin. Une fois que j'aurai perdu ma chance de devenir empereur, il n'y aura pas de seconde chance.
 
 « Que ce soit par l'intelligence ou la ruse, je suis supérieur à ce Chi Man. Je ne suis pas prêt à abandonner.
 
@@ -90,25 +90,25 @@ Wang Lin entra dans la chambre secrète et fit le tour du regard. D'un geste de 
 
 Il s'assit au sol et ses yeux s'illuminèrent. Au-delà du fait d'avoir renvoyé Song Zhi chez elle, il y avait une raison plus profonde à sa venue dans le Shi Antique et à son aide pour que le Prince Ji Du devienne empereur.
 
-« Une seule goutte de sang d'âme ne peut suffire à faire entrer le corps de Wan Er dans le Royaume Divin Immémorial... » Lorsqu'il était à la Secte Yang Pourpre, il avait consulté de nombreux récits concernant le Royaume Divin Immémorial provenant de Gémeaux.
+« Une seule goutte de sang d'âme ne peut suffire à faire entrer le corps de Wan Er dans le Royaume Divin Immémorial... » Lorsqu'il était à la Secte Yang Pourpre, il avait consulté de nombreux récits concernant le Royaume Divin Immémorial provenant des collections du Grand Empyréen Gémeaux.
 
-Certaines descriptions existaient. Quant à son apparition, nul ne le savait, mais d'après ce qu'il avait pu comprendre, une pression puissante pouvait y dissimuler un être des rouages du monde. Les âmes des défunts n'y entraient pas dans la réincarnation, comme si la réincarnation elle-même s'y arrêtait.
+Certaines descriptions existaient. Quant à son apparition, nul ne le savait, mais d'après ce qu'il avait pu comprendre, une pression immense y régnait, capable de voiler le fonctionnement du ciel et de la terre. Les âmes des défunts n'y entraient pas dans la réincarnation, comme si la réincarnation elle-même s'y arrêtait.
 
-Cela ressemblait énormément à ce que l'Enseignant Impérial du Dao Antique avait affirmé. C'est pourquoi Wang Lin avait permis à l'Enseignant Impérial d'activer la formation et d'ouvrir le Royaume Divin Immémorial.
+Cela ressemblait énormément à ce que l'Ancien Maître Impérial du Dao avait affirmé. C'est pourquoi, un an plus tôt, Wang Lin avait permis à l'Ancien Maître Impérial d'activer la formation et d'ouvrir le Royaume Divin Immémorial.
 
-« Le corps de Wan Er ne peut survivre au Royaume Divin Immémorial, et selon l'Enseignant Impérial, bien que le sang d'âme puisse compenser cela, une goutte est manifestement loin d'être suffisante...
+« Le corps de Wan Er ne peut survivre au Royaume Divin Immémorial, et selon l'Ancien Maître Impérial, bien que le sang d'âme puisse compenser cela, une goutte est manifestement loin d'être suffisante...
 
-« L'Enseignant Impérial a pris tant de peine pour ouvrir le Royaume Divin Immémorial. Il a utilisé la vérité comme appât et la réincarnation de Wan Er comme leurre pour m'y entraîner... Quoi qu'il en soit, son but est de me faire croire en lui; il doit donc dire au moins la vérité concernant Wan Er.
+« L'Ancien Maître Impérial a pris tant de peine pour ouvrir le Royaume Divin Immémorial. Il a utilisé la vérité comme appât et la réincarnation de Wan Er comme leurre pour m'y entraîner... Quoi qu'il en soit, son but est de me faire croire en lui; il doit donc dire au moins la vérité concernant Wan Er.
 
 « Sinon, je n'aurais pas besoin d'y aller! » Wang Lin réfléchit silencieusement. La raison principale pour laquelle il allait aider Ji Du était qu'il avait besoin de plus de sang d'âme. Pour en obtenir davantage, il devait se rendre au Temple Ancestral pour affronter la dernière épreuve!
 
-C'était l'unique moyen d'avoir une chance d'obtenir à nouveau l'approbation de l'Ancêtre Ancestral et peut-être d'obtenir plus de sang d'âme!
+C'était l'unique moyen d'avoir une chance d'obtenir à nouveau l'approbation de l'Ancêtre Ancien et peut-être d'obtenir plus de sang d'âme!
 
 « Je ne peux plus retourner dans le Dao Antique, et le droit d'ouvrir le Temple Ancestral n'est pas entre les mains des Grands Empyréens. Ce droit appartient à l'empereur actuel.
 
 « Même si Luo Chen est reconnu comme l'Empereur du Dao Antique... je ne veux toujours pas retourner là-bas... » Wang Lin soupira, affichant une expression complexe.
 
-« Quant au Ji Antique, je n'ai que peu de contacts avec eux. L'Shi Antique me convient bien mieux, d'autant plus que malgré l'ambition de Ji Du, il n'osera pas s'opposer à mes intentions.
+« Quant au Ji Antique, je n'ai que peu de contacts avec eux. Le Shi Antique me convient bien mieux, d'autant plus que malgré l'ambition de Ji Du, il n'osera pas s'opposer à mes intentions.
 
 « 500 ans... Les 500 dernières années! » Wang Lin prit une profonde inspiration et agita la main. Un cercueil d'une clarté cristalline apparut devant lui.
 

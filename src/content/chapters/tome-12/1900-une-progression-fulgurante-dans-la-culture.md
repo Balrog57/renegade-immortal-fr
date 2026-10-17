@@ -8,7 +8,7 @@ slug: une-progression-fulgurante-dans-la-culture
 ---
 Il s'assit et les quatre corps véritables d'essence montèrent la garde autour de lui. Grâce à ces quatre corps véritables, Wang Lin pouvait augmenter calmement son niveau de culture à l'intérieur du silencieux temple du scorpion!
 
-Il avait atteint le sommet du Vide Spirituel avec huit essences, et l'une d'entre elles avait même formé un corps véritable d'essence! Aujourd'hui, tout était différent. Wang Lin possédait trois corps véritables d'essence et venait également d'obtenir sa neuvième essence!
+Il avait atteint le sommet du Vide Spirituel avec huit essences, et l'une d'entre elles avait même formé un corps véritable d'essence! Aujourd'hui, tout était différent. Wang Lin possédait trois corps véritables d'essence de plus et venait également d'obtenir sa neuvième essence!
 
 Cette neuvième essence était cruciale; elle était la clé de la progression de la culture de Wang Lin!
 
@@ -20,7 +20,7 @@ Le Vide Spirituel et le Vide Arcanique ne différaient que d'un seul mot, mais l
 
 Une fois qu'il aurait atteint le stade du Vide Arcanique, il entrerait dans le rang des puissants. Hormis des entités comme les neuf sectes et les treize factions, un cultivateur du Vide Arcanique était toujours considéré comme très puissant sur le Continent Astral Immortel. Plus important encore, après avoir atteint ce stade, on pouvait lancer certains sorts mystérieux. Bien qu'ils ne fussent pas d'une grande utilité pour Wang Lin, atteindre le Vide Arcanique constituerait une étape majeure de sa culture!
 
-Les neuf essences dans son corps continuèrent de pivoter et son niveau de culture au stade avancé du Vide Spirituel augmenta soudainement. La vitesse de cette progression était terrifiante et, en un clin d'œil, une illusion apparut au-dessus de Wang Lin.
+Les neuf essences dans son corps continuèrent de pivoter et son niveau de culture au sommet du Vide Spirituel augmenta soudainement. La vitesse de cette progression était terrifiante et, en un clin d'œil, une illusion apparut au-dessus de Wang Lin.
 
 C'était une masse de nuages qui tournait en un vortex. Elle semblait maintenir la même vitesse que les essences de Wang Lin, ce qui était extrêmement rapide. L'âme originelle de Wang Lin sembla subir une métamorphose et libéra une lumière aveuglante. Bien que cette lumière émane de l'intérieur de son corps, elle semblait transpercer sa peau.
 
@@ -52,7 +52,7 @@ Les yeux de Wang Lin s'illuminèrent et il mordit le bout de sa langue pour en r
 
 Les trois essences grondèrent au sein du vortex et des fracas de tonnerre éclatèrent. L'image à l'intérieur du tourbillon changeait sans cesse: tantôt une inondation terrifiante, tantôt une mer de feu. Cependant, qu'il s'agisse d'eau ou de feu, les deux étaient enveloppés par une tempête de sable tourbillonnante.
 
-Le temps passa et l'image au cœur du vortex s'accéléra. Plusieurs mois plus tard, bien que Wang Lin eût craché sept bouffées de sang, les essences montraient des signes de fusion. Il restait aux aguets, contrôlant les collisions des trois essences des milliers de fois!
+Le temps passa et l'image au cœur du vortex s'accéléra. Plusieurs mois plus tard, bien que Wang Lin eût craché sept bouffées de sang, les essences montraient des signes de fusion. Il restait aux aguets, contrôlant les collisions des trois essences des centaines, voire des milliers de fois!
 
 Sept jours supplémentaires s'écoulèrent. Un grondement de tonnerre retentit alors que les trois essences commençaient enfin à se fondre. Les images oscillaient entre le sable, l'inondation et le feu jusqu'à ce qu'elles se superposent pour former une image complète!
 
@@ -82,7 +82,7 @@ Les yeux de Wang Lin étaient parcourus de lignes de sang. Il observa les trois 
 
 « Malheureusement, je n'ai que deux essences spéciales. Si j'en avais une troisième, ce serait plus simple... Cependant, je ne peux plus attendre. Puisque cette méthode échoue, je vais tenter autre chose: condenser le tout sur le corps véritable d'essence du tonnerre! » Les yeux de Wang Lin brillèrent et il changea de stratégie. Il n'utilisait plus l'essence du tonnerre comme auxiliaire, mais comme corps principal pour absorber les deux essences spéciales!
 
-Alors que ses mains traçaient des sceaux, il cracha plusieurs bouffées de sang d'essence qui enveloppèrent le corps véritable du tonnerre. Une fois que ce corps eut absorbé son sang, chargé de sa volonté, il tendit ses bras vers les essences du massacre et de la restriction!
+Alors que ses mains traçaient des sceaux, il cracha plusieurs bouffées de sang d'essence qui enveloppèrent le corps véritable du tonnerre. Une fois que ce corps eut absorbé son sang, chargé de sa volonté, il tendit ses bras, qui se changèrent en deux éclairs fonçant vers les essences du massacre et de la restriction!
 
 Utiliser le corps du tonnerre pour fusionner le massacre!
 Utiliser le corps du tonnerre pour fusionner la restriction!

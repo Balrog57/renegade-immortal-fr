@@ -50,7 +50,7 @@ Cette croissance fulgurante de son essence de feu était ce qui enthousiasmait t
 
 Avec cette vague, le monde trembla et la mer de feu se rassembla autour de lui. Elle fusionna avec l'essence de feu à l'intérieur de son corps pour former une empreinte de main gigantesque.
 
-Cette empreinte arborait des détails précis; c'était la main droite de Wang Lin! Cette main, haute de milliers de pieds, consumait tout sur son passage alors qu'elle fonçait vers Du Qing!
+Cette empreinte arborait des détails précis; c'était la main droite de Wang Lin! Cette main, haute d'environ mille pieds, consumait tout sur son passage alors qu'elle fonçait vers Du Qing!
 
 Les pupilles de Du Qing se contractèrent. Sa main droite forma un sceau et une immense distorsion apparut autour de lui. La distorsion se transforma en vortex, puis un bras de bois gigantesque s'étira pour contrer l'empreinte de Wang Lin.
 
@@ -96,7 +96,7 @@ Après avoir entendu les paroles de Du Qing, Wang Lin décida simplement de ne p
 
 Après un bref moment de calme, l'âme du dragon poussa un cri d'une angoisse déchirante. L'essence de feu de Du Qing échappa à son contrôle, et la froideur dans ses yeux s'intensifia. S'il continuait à ignorer l'appel du feu, son essence de feu risquait de commencer à le rejeter.
 
-« Donnez-moi une explication! » Du Qing ne tarda plus et chargea Wang Lin. Alors qu'il fonçait, Wang Lin eut un sourire moqueur et pointa le ciel.
+« À court de mots? Alors donnez-moi une explication! » Du Qing ne tarda plus et chargea Wang Lin. Alors qu'il fonçait, Wang Lin eut un sourire moqueur et pointa le ciel.
 
 Le ciel gronda, les nuages tourbillonnèrent, puis une empreinte de paume gigantesque apparut dans les cieux. C'était l'Empreinte de l'Esprit Guerrier!
 

@@ -6,7 +6,7 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: Chapter 1927 - Empyrean Trial
 slug: lepreuve-celeste
 ---
-Sur le Continent de la Mer Montagneuse du Sud, il existait une mer intérieure nommée la Mer Montagneuse. Cette mer était vaste; parfois, on pouvait apercevoir d'innombrables oiseaux marins survolant l'azur du ciel. Le fracas des vagues résonnait tandis que la brise de la mer d'ouest soufflait vers le rivage.
+Sur le Continent de la Mer Montagneuse du Sud, il existait une mer intérieure nommée la Mer Montagneuse. Cette mer était vaste; parfois, on pouvait apercevoir d'innombrables oiseaux marins survolant l'azur du ciel. Le fracas des vagues résonnait tandis que des brises marines humides soufflaient vers le rivage.
 
 La Mer Montagneuse occupait plus de 70 % du Continent de la Mer Montagneuse, les 30 % restants étant constitués de terres entourant cette étendue marine.
 

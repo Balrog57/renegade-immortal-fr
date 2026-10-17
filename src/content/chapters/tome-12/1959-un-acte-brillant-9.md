@@ -22,7 +22,7 @@ Le Grand Empyréen Jiu Di, sur la Montagne de l'Empereur, ne se prélassait plus
 
 Il comprenait que franchir le 13e palais, même avec l'armure de l'âme, signifiait que cet homme n'était pas sans valeur...
 
-Quant à l'Empereur Céleste, qui s'était révélé dans le palais impérial, ses yeux brillaient d'une lueur étrange. Il observait l'illusion devant lui, regardant Wang Lin se précipiter vers le 13e palais.
+Quant à l'Empereur Céleste, qui s'était révélé dans le palais impérial, assis sur le trône du dragon, ses yeux brillaient d'une lueur étrange. Il observait l'illusion devant lui, regardant Wang Lin se précipiter vers le 13e palais.
 
 À ses côtés, l'Ascendant Ming Dao, vêtu de noir, s'était déjà assis. Son sens divin était concentré sur son front; il s'apprêtait à participer à l'Épreuve Empyrée!
 
@@ -30,13 +30,13 @@ Quant à l'Empereur Céleste, qui s'était révélé dans le palais impérial, s
 
 Mais peu importe l'ampleur de ce prix, cela en vaudrait la peine. Une fois que cet homme deviendrait un Grand Empyréen, les bénéfices seraient immenses. Avoir un autre Grand Empyréen comme allié, d'autant plus avec une relation préexistante, aiderait grandement à accroître le statut de n'importe quel Grand Empyréen.
 
-Le Grand Empyréen Wu Feng laissa également échapper un soupir. Il prévoyait déjà que Wang Lin reproduirait la scène où les quatre Grands Empyréens, aux côtés de Gémeaux, se disputeraient tous la même personne.
+Le Grand Empyréen Wu Feng laissa également échapper un soupir. Il prévoyait déjà que Wang Lin reproduirait la scène où, à l'exception de Gémeaux, les quatre autres Grands Empyréens se disputaient tous la même personne.
 
 À moins qu'un accident imprévu ne survienne...
 
 L'Épreuve Empyrée était plongée dans un silence total, et les Exaltés Empyréens contemplaient le ciel en silence. Tout au long de la journée, ils avaient ressenti l'abîme qui les séparait de Wang Lin, lequel était passé du cinquième palais au 12e palais actuel.
 
-Ils se remémoraient leurs pensées lorsqu'il venait à peine de franchir le cinquième palais, et combien celles-ci semblaient dérisoires aujourd'hui. Avec leur niveau de culture, ils étaient dignes de commenter les prouesses d'un Ascendant, et encore moins de celui qui venait de surmonter le 12e palais!
+Ils se remémoraient leurs pensées lorsqu'il venait à peine de franchir le cinquième palais, et combien celles-ci semblaient dérisoires aujourd'hui. Avec leur niveau de culture, ils n'étaient pas dignes de commenter les prouesses d'un Ascendant, et encore moins de celui qui venait de surmonter le 12e palais!
 
 Désormais, ils ne pouvaient que lever les yeux vers cette silhouette céleste!
 
@@ -106,7 +106,7 @@ Les Ascendants échangeaient des messages par sens divin — certains ressentaie
 
 Alors que chacun spéculait sur l'issue de l'épreuve, l'ancien réseau de transfert au loin s'illumina. Une silhouette commença à se condenser et, une fois la lumière dissipée, un jeune homme vêtu de noir apparut devant l'assemblée.
 
-Sa présence ébranla la foule autant que Dao Yi et Wu Feng. C'était comme si son apparition allait déclencher une nouvelle tempête au sein de l'Épreuve Empyrée!
+Sa présence ébranla la foule autant que l'arrivée de Dao Yi et Wu Feng. C'était comme si son apparition allait déclencher une nouvelle tempête au sein de l'Épreuve Empyrée!
 
 « L'Ascendant Ming Dao!! »
 

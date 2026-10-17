@@ -48,7 +48,7 @@ Le Maître du Dao Rêve Bleu ferma les yeux et murmura pour lui-même: « Tu ne 
 
 À ce moment précis, un grondement sourd retentit dans le ciel couleur sang. Les nombreuses fissures célestes montraient des signes d'effondrement et un rire arrogant s'éleva d'en haut.
 
-« Tous vous, cultivateurs du monde caverneux, vous avez résisté avec obstination, pensant que cette formation pourrait bloquer ce vieil homme. Désormais, la formation est sur le point de céder. Attendez simplement que ce vieil homme entre, et vous tous deviendrez la nourriture de ma culture! » La voix était faible au début, mais elle devint bientôt un tonnerre fracassant qui résonna à travers tout le Royaume Céleste. Tous levèrent les yeux vers le ciel.
+« Tous vous, cultivateurs du monde des grottes, vous avez résisté avec obstination, pensant que cette formation pourrait bloquer ce vieil homme. Désormais, la formation est sur le point de céder. Attendez simplement que ce vieil homme entre, et vous tous deviendrez la nourriture de ma culture! » La voix était faible au début, mais elle devint bientôt un tonnerre fracassant qui résonna à travers tout le Royaume Céleste. Tous levèrent les yeux vers le ciel.
 
 Personne dans le Royaume Céleste ne connaissait précisément le niveau de culture de Wang Lin, mais puisque celui-ci pouvait apparaître ici sans Maître Âme Écarlate, il était évident que sa puissance n'était pas ordinaire. Cependant, nul ne savait s'il pourrait vaincre Maître Âme Écarlate.
 
@@ -58,15 +58,15 @@ En particulier, lorsqu'il vit le mépris dans les yeux de Xu Liguo et Liu Jinbia
 
 Non loin de là, Treize regardait le ciel avec indifférence, bien qu'une lueur de froideur brille dans ses yeux.
 
-« Sa marque a disparu, elle devrait donc avoir recouvré ses souvenirs... Je l'ai cherchée longtemps, sans succès. Pourtant, je sens qu'elle se trouve quelque part sur le Continent Astral Immortel, et je la cherche maintenant... » Wang Lin ignora les grondements célestes pour s'adresser amèrement au Maître du Dao Rêve Bleu.
+« Sa marque a disparu, elle devrait donc avoir recouvré ses souvenirs... Je l'ai cherchée longtemps, sans succès. Pourtant, je sens qu'elle se trouve quelque part sur le Continent Astral Immortel, dans un recoin quelconque, qu'elle connaît mon existence et sait que je la cherche... » Wang Lin ignora les grondements célestes pour s'adresser amèrement au Maître du Dao Rêve Bleu.
 
-« Dès qu'elle laissera échapper un soupçon de son aura, je pourrai la détecter... Même si je suis revenu dans le monde caverneux, je peux toujours ressentir sa présence... » murmura Wang Lin. Li Qianmei était spéciale pour lui. Bien qu'elle ne fût pas comme Li Muwan, elle était la deuxième femme à avoir marqué son cœur.
+« Dès qu'elle laissera échapper un soupçon de son aura, je pourrai la détecter... Même si je suis revenu dans le monde des grottes, je peux toujours ressentir sa présence... » murmura Wang Lin. Li Qianmei était spéciale pour lui. Bien qu'elle ne fût pas comme Li Muwan, elle était la deuxième femme à avoir marqué son cœur.
 
 « Cependant... Je sens qu'elle... m'évite intentionnellement et ne veut pas que je la trouve... » Wang Lin ferma les yeux. Son cœur était en proie à une douleur profonde. Cette souffrance n'était pas aussi intense que le manque de Li Muwan, mais elle n'en demeurait pas moins déchirante.
 
 Il se souvenait encore des paroles que Li Qianmei lui avait murmurées avec une émotion indescriptible.
 
-« Wang Lin, euh, ne comprend rien aux sentiments... »
+« Wang Lin, c'est de la gratitude, pas de l'amour... »
 
 En observant le visage de Wang Lin et en écoutant ses paroles, le Maître du Dao Rêve Bleu réfléchit en silence. Il savait ce que ressentait Wang Lin, et il comprenait sa propre fille.
 
@@ -114,7 +114,7 @@ Le brasier céleste disparut instantanément après le départ de Treize. Le cie
 
 « Wang Lin!! » Le vieil homme était saisi d'incrédulité, mais il devint vite féroce. Sa culture de Tribulant du Vide explosa soudainement, faisant trembler le ciel et la terre.
 
-« Tu es donc revenu dans le monde caverneux! Mais même si tu es de retour, tu n'es qu'une fourmi face à ce vieil homme! » Ce vieil homme était Maître Âme Écarlate. Aussitôt, il fonça vers Wang Lin tel un rayon de lumière.
+« Tu es donc revenu dans le monde des grottes! Mais même si tu es de retour, tu n'es qu'une fourmi face à ce vieil homme! » Ce vieil homme était Maître Âme Écarlate. Aussitôt, il fonça vers Wang Lin tel un rayon de lumière.
 
 De son point de vue, la culture de Wang Lin n'était qu'un nuage de brume; il pensait que ce dernier dissimulait son véritable niveau grâce à des trésors, une pratique courante sur le Continent Astral Immortel. Il était absolument confiant en sa culture de Tribulant du Vide.
 

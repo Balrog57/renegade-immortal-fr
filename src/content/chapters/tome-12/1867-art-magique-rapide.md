@@ -14,13 +14,13 @@ Après tout, par ses racines, il appartenait au Dao Ancestral et n'était pas l'
 
 Mais à l'intérieur de cette Pierre Spatiale, il n'avait aucune inquiétude à avoir. Tandis que l'épée tranchait, une ombre gigantesque du Dao Ancestral apparut derrière lui. Cette ombre était vêtue d'une armure et dégageait une aura antique.
 
-La lumière sanglante flamba alors que Wang Lin tranchait prestement l'espace entre la lanterne et la tête de Xu Decai. L'âme originelle de Xu Decai recracha un grand flot d'essence originelle et se flétrit. La lanterne suspendue au-dessus de sa tête fut frappée par cette force puissante et projetée au loin, son feu s'éteignant instantanément.
+La lumière sanglante flamba alors que Wang Lin tranchait prestement l'espace entre la lanterne et l'âme originelle de Xu Decai. L'âme originelle de Xu Decai recracha un grand flot de souffle d'âme et se flétrit. La lanterne suspendue au-dessus de sa tête fut frappée par cette force puissante et projetée au loin, son feu s'éteignant instantanément.
 
 « Je refuse! » L'âme originelle affaiblie de Xu Decai laissa échapper un dernier rugissement alors que Wang Lin agitait sa manche pour lancer une ultime série de coups dévastateurs. Puis, Wang Lin rangea l'âme originelle de Xu Decai dans son espace de stockage.
 
 Après ces efforts, le corps de Wang Lin trembla et il cracha du sang. Il chuta du ciel et s'assit immédiatement, les yeux clos, pour se réguler.
 
-Le roi des moustiques patrouillait aux alentours avec vigilance. Quant à Yi Si, il se déplaça de manière étrange avant de s'élancer au loin. À son retour, il tenait un bras.
+Le roi des moustiques patrouillait aux alentours avec vigilance. Quant à Yi Si, elle se déplaça de manière étrange avant de s'élancer au loin. À son retour, elle tenait un bras.
 
 Ce bras était dans un état lamentable, couvert de sang: c'était celui de Xu Decai. En fixant le membre, les yeux d'Yi Si étaient empreints de confusion, mais bientôt, une brume émana de son corps et l'enveloppa.
 
@@ -34,7 +34,7 @@ Après avoir contemplé la tête de Xu Decai un instant, Wang Lin la rangea aux 
 
 « Ce trésor de lanterne est très étrange... » songea Wang Lin en regardant au loin tout en agitant sa manche. La lanterne éteinte vola vers lui et flotta devant ses yeux.
 
-L'examinant, Wang Lin projeta un jet d'énergie essence autour de la lanterne et commença à la raffiner lentement. Le feu à l'intérieur se ralluma, diffusant une lueur douce.
+L'examinant, Wang Lin souffla un souffle d'âme originelle sur la lanterne et commença à la raffiner lentement. Le feu à l'intérieur se ralluma, diffusant une lueur douce.
 
 Grâce à son essence de restriction, Wang Lin perçut parfaitement la nature du trésor. C'était un simple artefact de protection. Il n'avait aucun pouvoir offensif, mais sa défense était puissante.
 
@@ -64,7 +64,7 @@ Trois heures plus tard, Wang Lin ouvrit soudainement les yeux, l'expression empr
 
 Pourtant, après un long moment, elle ne s'effondra pas et ne disparut pas. Au lieu de cela, une lueur spectrale jaillit, chargée d'une rancœur monstrueuse. Cette rancœur émanait de son refus de mourir.
 
-Cependant, ce qui fit plisser les yeux de Wang Lin fut que cette rancœur atteignit un certain seuil avant de se stabiliser. L'âme originelle de Xu Decai ne se dissipa plus et il ouvrit lentement les yeux.
+Cependant, ce qui fit plisser les yeux de Wang Lin fut que cette rancœur, après s'être intensifiée, diminua lentement avant de se stabiliser à un certain seuil. L'âme originelle de Xu Decai ne se dissipa plus et il ouvrit lentement les yeux.
 
 À l'instant où ses yeux rencontrèrent le regard de Wang Lin, ce dernier sentit son esprit vaciller et entra en transe. L'âme de Xu Decai, qui était dans sa paume, s'envola au loin.
 
@@ -96,7 +96,7 @@ Plus il l'analysait, plus l'idée devenait limpide. Finalement, il conclut que c
 
 « Malheureusement, je n'ai pas d'âmes originelles supplémentaires... » songea Wang Lin tout en mémorisant et en assimilant pleinement l'Art Magique Rapide. Il se leva ensuite et agita la main droite. Le sol trembla et une gourde tomba dans ses mains. La plupart des 30 millions d'âmes Dao étaient encore là; ce trésor n'avait pas subi de pertes majeures.
 
-Wang Lin rangea également le parapluie bleu ainsi que le roi des moustiques. L'Yi Si qui fusionnait avec le bras de Xu Decai fut lui aussi replacé dans son espace de stockage.
+Wang Lin rangea également le parapluie bleu ainsi que le roi des moustiques. Yi Si, qui fusionnait avec le bras de Xu Decai, fut elle aussi replacée dans son espace de stockage.
 
 Après tout cela, un éclat de froideur passa dans les yeux de Wang Lin.
 
@@ -106,7 +106,7 @@ Plusieurs jours s'étaient écoulés, mais une intention meurtrière intense ré
 
 Dans la brume, les cultivateurs ordinaires étaient presque devenus fous, les yeux injectés de sang, lançant divers sorts de toutes parts. Deux cultivateurs du stade intermédiaire de la Tribulation du Vide se défendaient contre l'attaque combinée de Lu Wenran et de plusieurs cultivateurs du stade initial de la Tribulation du Vide.
 
-Non loin de là, les deux dernières femmes du stade initial de la Tribulation du Vide du Continent du Démon Vert affrontaient les Anciens Yan Lu et Xu Dongde de la Secte de la Grande Âme.
+Non loin de là, les deux dernières femmes du stade initial de la Tribulation du Vide du Continent du Démon Vert affrontaient les Anciens Yan Luan et Xu Dongde de la Secte de la Grande Âme.
 
 La puissance du Continent du Démon Vert avait été considérablement affaiblie par la perte de ses deux cultivateurs de stade initial. La pression sur les deux vieux monstres du stade intermédiaire devenait de plus en plus lourde, car ils devaient faire face à un nombre croissant d'adversaires.
 

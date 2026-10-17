@@ -32,7 +32,7 @@ Ces quatre scorpions étaient d'une férocité extrême. Dès leur apparition, i
 
 Immédiatement après, les quatre messagers se mordirent la langue et crachèrent leur sang tout en pressant leurs mains contre le sol. Ils fermèrent les yeux, et quatre filaments de gaz vert, aussi épais qu'un bras, jaillirent d'eux. Le gaz s'assembla dans le ciel pour former un miroir vert!
 
-Bien que ce miroir fût une illusion, il dégageait une puissante aura démoniaque. En le voyant, les yeux de Zhang Daozong et du vieil homme Zhao se remplirent de respect.
+Bien que ce miroir fût une illusion, il dégageait une puissante aura démoniaque. En le voyant, les yeux de Zhang Daozong et du vieil homme Zhao se remplirent d'une ferveur fanatique.
 
 Alors que le gaz vert balayait la surface du miroir, un continent apparut. Cette terre ne comptait que peu de montagnes, mais était parsemée de nombreux marais. Même certaines cités mortelles étaient bâties au-dessus de ces marécages, ce qui était très étrange.
 
@@ -78,7 +78,7 @@ Alors que la fissure s'ouvrait, un jet de gaz vert jaillit dans un cri misérabl
 
 L'un des quatre Messagers du Démon Vert pâlit et cracha du sang.
 
-Un seul « Déchirure du Ciel » avait suffi à tuer une âme de Scorpion Vert. Wang Lin observa le reste du combat et tourna la tête pour voir trois masses de gaz vert charger vers lui. Il s'agissait de trois autres scorpions identiques qui fonçaient avec férocité.
+Un seul « Déchirure du Ciel » avait suffi à tuer une âme de Scorpion Vert. Le visage féroce, Wang Lin se retourna brusquement dans les profondeurs de la terre. Derrière lui, de trois directions, trois traînées de gaz vert fonçaient vers lui. Chacune contenait un scorpion de même taille, approchant avec une flamme de férocité.
 
 « Je me demande si, avec mon niveau de culture actuel, l'usage de la Lance aux Sept Couleurs posséderait la puissance de plusieurs soleils, comme lorsqu'elle était maniée par le Souverain Céleste aux Sept Couleurs à son apogée? » pensa Wang Lin, l'intention de combat montant en lui.
 

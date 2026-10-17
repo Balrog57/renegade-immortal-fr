@@ -70,7 +70,7 @@ Wang Lin regarda le ciel au loin et resta pensif un long moment. La lumière qu'
 
 Le dragon tourna immédiatement un regard féroce vers Liu Jinbiao, poussant un grognement sourd avec un air de fierté.
 
-Liu Jinbiao fut sursauté. En voyant le dragon de mer, il eut un haut-le-cœur, mais son regard changea et un sourire apparut au coin de ses lèvres. On ignorait quelles pensées traversaient alors son esprit.
+Liu Jinbiao resta interdit. En voyant le dragon de mer, il inspira brusquement, mais son regard changea et un sourire apparut au coin de ses lèvres. On ignorait quelles pensées traversaient alors son esprit.
 
 Wang Lin ne prêta pas attention à cela. Il envoya une instruction mentale au dragon de mer: s'il arrivait quoi que ce soit de suspect, il devait l'extraire immédiatement du bassin. Puis, il ferma les yeux et s'immergea pour la troisième fois dans cet état étrange.
 
@@ -86,11 +86,11 @@ Sous l'interférence de ce vacarme, il fut incapable de s'immerger et ne put rie
 
 Une fois hors du bassin, la voix dans l'esprit de Wang Lin disparut. Il ouvrit les yeux et contempla l'eau, le visage sombre.
 
-« Il est bel et bien impossible de comprendre une troisième fois. Si je ne m'étais pas préparé à l'avance et si je n'avais pas été averti par l'ancêtre de la Secte Dong Lin, même sans danger immédiat, il m'aurait fallu un effort colossal pour m'en extraire. » Wang Lin fronça les sourcils en observant le peu d'eau restant dans le bassin et poursuivit sa réflexion.
+« Il est bel et bien impossible de comprendre une troisième fois. Si je ne m'étais pas préparé à l'avance et si je n'avais pas été averti par l'ancêtre de la Secte Dong Lin, même sans trop de conséquences, il m'aurait fallu dépenser un peu d'énergie pour m'en extraire. » Wang Lin fronça les sourcils en observant le peu d'eau restant dans le bassin et poursuivit sa réflexion.
 
 « Pourquoi les deux premières tentatives étaient-elles différentes de la troisième... Cette voix provenait de la force mystérieuse qui est entrée dans mon corps après un cycle... Serait-ce la clé? La force vérifie combien de fois je suis entré dans le bassin? »
 
-« Alors, comment juge-t-elle le nombre de tentatives de compréhension? Et aussi, ce Lian Yunjue, ce nom de famille Lian... Pourrait-il s'agir de l'ancêtre du fou, le nom de l'Ancêtre Céleste? » Les yeux de Wang Lin brillèrent. Tandis qu'il méditait, l'eau commença lentement à remplir le bassin jusqu'à ce que tout le niveau initial soit retrouvé.
+« Alors, comment juge-t-elle le nombre de tentatives de compréhension? Et aussi, ce Lian Yunjue, ce nom de famille Lian... Pourrait-il s'agir de l'ancêtre de Lian Daofei, le nom de l'Ancêtre Céleste de l'époque? » Les yeux de Wang Lin brillèrent. Tandis qu'il méditait, l'eau commença lentement à remplir le bassin jusqu'à ce que tout le niveau initial soit retrouvé.
 
 « Jinbiao, descends et essaie. » Wang Lin était certain de pouvoir protéger Liu Jinbiao même si celui-ci tentait une troisième fois. Il l'avertit des dangers auxquels il devait faire attention.
 
@@ -116,4 +116,4 @@ D'un pas assuré, Wang Lin s'immergea dans le bassin pour la quatrième fois. Lo
 
 Bientôt, il vit la lumière dans son œil gauche... La clarté se rapprochait de plus en plus de lui.
 
-Une voix basse murmura alors dans l'esprit de Wang Lin: « J'ai parcouru le monde, j'ai contemplé des centaines de millions de levers de soleil et j'ai saisi l'essence du commencement absolu... »
+Une voix basse murmura alors dans l'esprit de Wang Lin: « Moi, Du, j'ai parcouru la voûte céleste, j'ai contemplé des centaines de millions de levers de soleil et j'ai saisi l'essence du commencement absolu... »

@@ -66,7 +66,7 @@ Le corps de Luo Chen frémit; il sentit un flux brûlant émaner de Wang Lin pou
 
 Après un long moment, Wang Lin retira sa main. Il avait infusé une partie de son sang de l'âme en Luo Chen, permettant à la lignée de ce dernier d'atteindre un niveau suffisant pour prétendre au titre d'Empereur du Dao Antique.
 
-« Autrefois, tu m'as offert les étoiles de dieu antique... Aujourd'hui, tu protégeras les descendants de Ye Mo... Je te confère la lignée royale pour repayer ta dette! » Wang Lin agita sa manche et s'élança dans le ciel avec Song Zhi. Il disparut en un clin d'œil, laissant les membres du Dao Antique pétrifiés par le silence.
+« Autrefois, tu m'as offert les étoiles de dieu antique... Aujourd'hui, tu protégeras les descendants de Ye Mo... Je te confère la lignée royale pour payer ma dette d'autrefois! » Wang Lin agita sa manche et s'élança dans le ciel avec Song Zhi. Il disparut en un clin d'œil, laissant les membres du Dao Antique pétrifiés par le silence.
 
 Xuan Luo fixa longuement la direction prise par Wang Lin et poussa un soupir profond. Sans un mot pour Ye Wei, il tourna son regard vers Luo Chen.
 
@@ -122,4 +122,4 @@ La voix rauque continua de résonner lentement:
 
 Le cœur de Wang Lin tressaillit, mais son expression resta impassible. Il leva silencieusement la main; une fumée verte tourbillonna autour de ses doigts, formant des cercles qui furent projetés vers le brouillard.
 
-Simultanément, les Daos Extrêmes du Métal, du Bois, de l'Eau et de la Terre apparurent aux côtés du sixième Dao Extrême, celui de la Vie et de la Mort. Ils se matérialisèrent devant Wang Lin pour former un tatouage noir et blanc englobant ces six énergies. D'un geste de la main, il projeta ce tatouage des six Daos Extrêmes vers la brume aux dix couleurs.
+Simultanément, les Daos Extrêmes du Métal, du Bois, de l'Eau et de la Terre apparurent aux côtés du sixième Dao Extrême, celui de la Vie et de la Mort. Ils se matérialisèrent devant Wang Lin pour former un totem noir et blanc englobant ces six énergies. D'un geste de la main, il projeta ce totem des six Daos Extrêmes vers la brume aux dix couleurs.

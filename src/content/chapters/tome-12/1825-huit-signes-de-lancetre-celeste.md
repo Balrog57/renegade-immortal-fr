@@ -6,35 +6,35 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1825 - Eight Signs of the Celestial Ancestor!"
 slug: huit-signes-de-lancetre-celeste
 ---
-Ce rugissement résonna à l'intérieur du principal filon de feu terrestre, empreint d'une détermination farouche à résister. De loin, la jeune femme perçut ce cri et son expression changea. Derrière elle, le corps originel de Wang Lin suivait. Tous deux continuèrent de s'enfoncer l'un après l'autre dans les profondeurs de la terre.
+Ce rugissement résonna à l'intérieur de la veine de feu principale, empreint d'une détermination farouche à résister. De loin, la jeune femme perçut ce cri et son expression changea. Derrière elle, le corps originel de Wang Lin suivait. Tous deux continuèrent de s'enfoncer l'un après l'autre dans les profondeurs de la terre.
 
 Tout au long du chemin, la jeune femme ignora totalement Wang Lin et se déplaça à pleine vitesse. Le niveau de culture de Wang Lin était bien inférieur au sien, il ne pouvait donc pas l'arrêter. Cependant, il possédait toujours le sort d'Arrêt!
 
 Pourtant, il ne l'avait pas encore utilisé. Ce sort devait être déployé à l'instant crucial pour produire son plein effet.
 
-Alors que la jeune femme volait à toute allure, elle se rapprochait de plus en plus du corps véritable essentiel de Wang Lin. Son sens divin s'étendit, embrassant tout ce qui l'entourait. Lorsqu'elle aperçut le corps véritable essentiel de Wang Lin, son expression changea radicalement!
+Alors que la jeune femme volait à toute allure, elle se rapprochait de plus en plus du véritable corps d'essence de Wang Lin. Son sens divin s'étendit, embrassant tout ce qui l'entourait. Lorsqu'elle aperçut le véritable corps d'essence de Wang Lin, son expression changea radicalement!
 
-« Ceci... ceci est... c'est un corps véritable essentiel!!! Il emprunte en fait le filon de feu terrestre pour former un corps véritable essentiel de feu! »
+« Ceci... ceci est... c'est un véritable corps d'essence!!! Il emprunte en fait la veine de feu terrestre pour former un véritable corps d'essence de feu! »
 
-La jeune femme haleta et son corps trembla. Sa main droite, dissimulée dans sa manche, frémit inconsciemment. Ce tremblement n'était pas moins intense que lorsqu'il avait sorti le trésor du Grand Empyréen. En réalité, c'était bien pire! Après tout, elle n'avait jamais vu de Grand Empyréen, mais elle avait déjà contemplé un corps véritable essentiel à plusieurs reprises!
+La jeune femme haleta et son corps trembla. Sa main droite, dissimulée dans sa manche, frémit inconsciemment. Ce tremblement n'était pas moins intense que lorsqu'il avait sorti le trésor du Grand Empyréen. En réalité, c'était bien pire! Après tout, elle n'avait jamais vu de Grand Empyréen, mais elle avait déjà contemplé un véritable corps d'essence à plusieurs reprises!
 
-L'ancêtre de la Secte de la Grande Âme, le Très Respecté Taureau Vert, possédait également un corps véritable essentiel. Cette jeune femme savait parfaitement la difficulté de parvenir à une telle prouesse et la puissance qu'elle conférait. Elle pensait n'en voir qu'un seul dans sa vie. Elle ne s'attendait pas à en découvrir un second, totalement différent, ici même!
+L'ancêtre de la Secte de la Grande Âme, le Très Respecté Taureau Vert, possédait également un véritable corps d'essence. Cette jeune femme savait parfaitement la difficulté de parvenir à une telle prouesse et la puissance qu'elle conférait. Elle pensait n'en voir qu'un seul dans sa vie. Elle ne s'attendait pas à en découvrir un second, totalement différent, ici même!
 
-« Pas étonnant qu'il m'ait détournée... Pas étonnant qu'il ait voulu s'aventurer si profondément dans le filon de feu terrestre... Pas étonnant qu'il soit venu ici malgré la possession d'un trésor de Grand Empyréen... »
+« Pas étonnant qu'il m'ait détournée... Pas étonnant qu'il ait voulu s'aventurer si profondément dans la veine de feu terrestre... Pas étonnant qu'il soit venu ici malgré la possession d'un trésor de Grand Empyréen... »
 
-« Tout cela parce qu'il voulait former un corps véritable essentiel, une chose si difficile à créer que cela relève presque de la légende! » Le visage de la jeune femme pâlit et une froideur glaciale émana de ses yeux. Elle connaissait parfaitement les corps véritables essentiels pour en avoir rêvé elle-même. Elle comprit qu'une fois le corps véritable essentiel formé, le filon de feu terrestre s'effondrerait et disparaîtrait.
+« Tout cela parce qu'il voulait former un véritable corps d'essence, une chose si difficile à créer que cela relève presque de la légende! » Le visage de la jeune femme pâlit et une froideur glaciale émana de ses yeux. Elle connaissait parfaitement les véritables corps d'essence pour en avoir rêvé elle-même. Elle comprit qu'une fois le véritable corps d'essence formé, la veine de feu terrestre s'effondrerait et disparaîtrait.
 
-« Je ne peux pas le laisser réussir! » La jeune femme serra les dents. Que ce soit par crainte de la destruction du filon de feu terrestre ou par l'extrême jalousie qui lui rongeait le cœur, elle refusait de laisser ce corps véritable essentiel prendre forme. Elle cracha un jet de sang et fusionna son être avec lui. En un éclair, elle se déplaça dix fois plus vite qu'auparavant, fonçant vers le corps véritable essentiel de Wang Lin telle une ombre.
+« Je ne peux pas le laisser réussir! » La jeune femme serra les dents. Que ce soit par crainte de la destruction de la veine de feu terrestre ou par l'extrême jalousie qui lui rongeait le cœur, elle refusait de laisser ce véritable corps d'essence prendre forme. Elle cracha un jet de sang et fusionna son être avec lui. En un éclair, elle se déplaça dix fois plus vite qu'auparavant, fonçant vers le véritable corps d'essence de Wang Lin telle une ombre.
 
-Après que le corps véritable essentiel de Wang Lin eut poussé ce rugissement de volonté, la volonté de l'âme du dragon s'effondra. La volonté de Wang Lin prit le contrôle et la dernière résistance de l'âme du dragon fut balayée!
+Après que le véritable corps d'essence de Wang Lin eut poussé ce rugissement de volonté, la volonté de l'âme du dragon s'effondra. La volonté de Wang Lin prit le contrôle et la dernière résistance de l'âme du dragon fut balayée!
 
 Une fois la volonté du dragon brisée, celle de Wang Lin prit les commandes et commença à dévorer les vestiges de l'âme draconique. Un grondement tonitruant résonna dans l'esprit de Wang Lin.
 
-Tandis que ce fracas résonnait, le sens divin de Wang Lin se propagea dans toutes les directions. Il entendit vaguement un rugissement misérable provenant des profondeurs terrestres, sous le filon de feu.
+Tandis que ce fracas résonnait, le sens divin de Wang Lin se propagea dans toutes les directions. Il entendit vaguement un rugissement misérable provenant des profondeurs de la terre du Continent du Taureau Céleste, à l'extérieur de la veine de feu principale.
 
-Au moment où ce cri pénétra son esprit, il venait d'absorber les dernières flammes de l'âme du dragon. Le rugissement résonna comme le tonnerre dans son esprit, créant une véritable illusion!
+Au moment où ce cri pénétra son esprit, il venait d'absorber tous les derniers vestiges de la volonté effondrée de l'âme du dragon de feu. Le rugissement résonna comme le tonnerre dans son esprit, créant une véritable illusion!
 
-Sa vision se brouilla et, lorsqu'elle redevint claire, il se trouvait dans l'espace. Cet espace était d'une immensité telle qu'il semblait infini. Wang Lin n'avait plus de corps physique alors qu'il se tenait là, contemplant les alentours d'un regard vide.
+Sa vision se brouilla et, lorsqu'elle redevint claire, il se trouvait au milieu d'un ciel étoilé. Ce ciel étoilé était d'une immensité telle qu'il semblait infini. Wang Lin n'avait plus de corps physique alors qu'il se tenait là, contemplant les alentours d'un regard vide.
 
 Il ignorait où il se trouvait. Alors qu'il sombrait dans la confusion, un grondement tonitruant retentit au loin. Lorsqu'il se retourna, les pupilles de Wang Lin se rétractèrent.
 
@@ -48,7 +48,7 @@ Le corps de Wang Lin sembla se figer, et même ses pensées parurent ralentir. W
 
 « Le Taureau Céleste! » Ces deux mots surgirent soudainement dans l'esprit de Wang Lin, accompagnés des rumeurs et des légendes concernant le Continent du Taureau Céleste.
 
-L'Ancêtre Céleste avait tué un taureau étranger et transformé son corps en continent. Son âme fut scellée ici, donnant ainsi son nom au Continent du Taureau Céleste. Des mortels s'y installèrent et des cultivateurs y fondèrent des sectes. Après d'innombrables années, ce lieu devint l'un des 72 continents du clan céleste!
+L'Ancêtre Céleste avait tué un taureau venu d'au-delà des cieux et transformé son corps en continent. Son âme fut scellée ici, donnant ainsi son nom au Continent du Taureau Céleste. Des mortels s'y installèrent et des cultivateurs y fondèrent des sectes. Après d'innombrables années, ce lieu devint l'un des 72 continents du clan céleste, le Continent du Taureau Céleste du Continent de l'Est!
 
 Le cœur de Wang Lin trembla. À l'instant même où cette légende lui revint en mémoire, une lumière dorée brilla au-dessus du Taureau Céleste. Tandis que la clarté dorée enveloppait le ciel, une silhouette vêtue d'une robe impériale et portant une couronne apparut.
 
@@ -62,13 +62,13 @@ Dès l'apparition de cette figure, l'espace lui-même trembla. Une énergie cél
 
 Une fois la figure impériale apparue, le Taureau Céleste rugit à nouveau. Des craquements se firent entendre tandis que la glace se propageait rapidement sur lui.
 
-Cette force terrifiante était telle qu'un Souverain Céleste aux Sept Couleurs, même au sommet de sa puissance, ne pourrait y résister. Peut-être seul Xuan Luo pourrait tenter de l'affronter de plein fouet!
+Aux yeux de Wang Lin, cette force terrifiante était telle que, sans parler de lui, même un Souverain Céleste aux Sept Couleurs, au sommet de sa puissance, ne pourrait y résister. Peut-être seul Xuan Luo pourrait tenter de l'affronter de plein fouet!
 
-Alors que la glace scellait le ciel, l'homme à la robe impériale leva sa main, les cinq doigts tendus vers les cieux, puis il pressa vers le bas. Simultanément, une voix majestueuse retentit:
+Alors que la glace scellait le ciel, l'homme à la robe impériale leva sa main, les cinq doigts tendus vers les cieux, puis il pointa soudain vers le bas. Simultanément, une voix majestueuse retentit:
 
 « Huitième niveau du Dao Céleste, Dao du Feu Extrême! »
 
-Dès que ces mots furent prononcés, un gaz vert jaillit des doigts de l'être impérial. La fumée tourbillonna autour de ses doigts, formant neuf anneaux, avant de s'élancer vers le Taureau Céleste dans les cieux.
+Dès que ces mots furent prononcés, un filet de fumée verte jaillit des doigts de l'être impérial. La fumée tourbillonna autour de ses doigts, formant neuf anneaux, avant de s'élancer vers le Taureau Céleste dans les cieux.
 
 Les neuf anneaux de fumée grandirent durant leur ascension, atteignant bientôt une taille presque infinie. Ils percutèrent violemment le Taureau Céleste.
 
@@ -76,34 +76,34 @@ Le premier anneau heurta l'aura glaciale du taureau, la dissipant instantanémen
 
 Le Taureau Céleste se débattit et rugit, mais fut incapable de se libérer des cercles de fumée. Lorsque le neuvième anneau toucha sa cible, toute l'aura glaciale du taureau disparut sans laisser de trace. À la place, un feu monstrueux jaillit, transformant le Taureau Céleste en une créature de flammes!
 
-« Pour avoir osé envahir mon clan céleste, voici ton châtiment: que ton corps devienne la terre, que ton âme originelle nourrisse les esprits, que tes os deviennent des veines, et que ton âme soit supprimée pendant d'innombrables années sous le Continent Astral Immortel! »
+« Pour avoir osé envahir mon clan céleste, voici ton châtiment: que ton corps devienne la terre, que ton esprit nourrisse tous les êtres, que tes os deviennent des veines, et que ton âme soit réprimée à travers d'innombrables années, jusqu'à l'Astral Immortel! »
 
-Le Taureau Céleste poussa un rugissement déchirant et son corps descendit pour former un continent infini. D'innombrables montagnes surgirent soudainement du sol, les os de la bête se transformèrent en veines, et un feu sans fin apparut alors que ses restes devenaient le filon de feu terrestre!
+Le Taureau Céleste poussa un rugissement déchirant et son corps descendit pour former un continent infini. D'innombrables montagnes surgirent soudainement du sol, les os de la bête se transformèrent en veines, et un feu sans fin apparut tandis que ces veines devenaient des veines de feu terrestre!
 
-Au fond de la terre, l'âme du Taureau Céleste fut ainsi emprisonnée. Seul un rugissement de désespoir parvenait parfois des profondeurs, mais personne ne semblait pouvoir l'entendre!
+Au fond de la terre, l'âme du Taureau Céleste fut ainsi emprisonnée. Seul un rugissement de révolte parvenait parfois des profondeurs, mais personne ne semblait pouvoir l'entendre!
 
-Après avoir été témoin de tout cela, la vision de Wang Lin se brouilla. Lorsqu'elle redevint nette, il était de retour dans le filon de feu terrestre. Un instant, il eut encore l'impression d'entendre le cri du Taureau Céleste résonner sous terre.
+Après avoir été témoin de tout cela, la vision de Wang Lin se brouilla. Lorsqu'elle redevint nette, il était de retour dans la veine de feu terrestre. Un instant, il eut encore l'impression d'entendre le cri du Taureau Céleste résonner sous terre.
 
-La confusion n'avait pas encore quitté ses yeux que les plumes du corps véritable essentiel de Wang Lin changèrent brusquement pour devenir une chevelure noire. Son corps véritable essentiel était sur le point de s'achever.
+La confusion n'avait pas encore quitté ses yeux que les plumes du véritable corps d'essence de Wang Lin changèrent brusquement pour devenir une chevelure noire. Son véritable corps d'essence était sur le point de s'achever.
 
-À cet instant précis, une lumière sanguine monstrueuse jaillit devant lui. Au cœur de cette lueur se trouvait une jeune femme magnifique. En voyant que les cheveux du corps véritable essentiel de Wang Lin se formaient à vue d'œil, elle fut prise d'anxiété. Une intention meurtrière brilla dans ses yeux et elle lança un sort pour détruire ce corps véritable sur le point de naître!
+À cet instant précis, une lumière sanguine monstrueuse jaillit devant lui. Au cœur de cette lueur se trouvait une jeune femme magnifique. En voyant que les cheveux du véritable corps d'essence de Wang Lin se formaient à vue d'œil, elle fut prise d'anxiété. Une intention meurtrière brilla dans ses yeux et elle s'apprêta à lancer un sort pour détruire ce véritable corps d'essence sur le point de naître!
 
 Des ondulations se formèrent derrière la jeune femme alors que le corps originel de Wang Lin en émergeait. Au moment où elle allait déclencher son attaque, une lueur froide traversa les yeux de Wang Lin. Le sort d'Arrêt qu'il avait préparé tout au long du chemin et qu'il n'avait pas encore utilisé éclata soudainement.
 
 « Sort d'Arrêt! » Arrêter les cieux et la terre, arrêter tous les sorts, arrêter l'esprit, tout arrêter. C'était le sort d'Arrêt de Wang Lin. Il ne s'attaquait pas qu'au corps!
 
-Dès que le sort fut activé, le corps de la jeune femme se figea un instant et son incantation fut interrompue. À cet instant, Wang Lin cracha du sang et des craquements résonnèrent dans son propre corps alors qu'un immense nuage de brume sanguine jaillissait de lui. Cependant, il n'hésita pas à charger. Il n'attaqua pas la jeune femme directement, concluant qu'elle devait posséder un trésor protecteur.
+Dès que le sort fut activé, le corps de la jeune femme se figea un instant et son incantation fut interrompue. À cet instant, Wang Lin cracha du sang et des craquements résonnèrent dans son propre corps alors qu'un immense nuage de brume sanguine jaillissait de lui. Cependant, il n'hésita pas un instant. Il n'attaqua pas la jeune femme directement, concluant qu'elle devait posséder un trésor protecteur.
 
-Il se téléporta directement devant elle, là où se trouvait son corps véritable, et son âme originelle fut une fois de plus complète. Simultanément, la chevelure du corps véritable essentiel de Wang Lin finit sa métamorphose pour devenir une chevelure noire et dense!
+Il se téléporta directement devant elle, là où se trouvait son véritable corps d'essence, et son âme originelle fut une fois de plus complète. Simultanément, la chevelure du véritable corps d'essence de Wang Lin finit sa métamorphose pour devenir une chevelure noire et dense!
 
-Une aura puissante jaillit de son corps véritable essentiel. À cet instant précis, le corps véritable essentiel de feu de Wang Lin était enfin formé!
+Une aura puissante jaillit de son véritable corps d'essence. À cet instant précis, le véritable corps d'essence de feu de Wang Lin était enfin formé!
 
 Les yeux de la jeune femme se plissèrent tandis que son corps reprenait ses mouvements.
 
-« Même si votre avatar et votre corps originel ont fusionné, cela ne suffit pas! » Le cœur de la jeune femme trembla. Elle n'avait jamais vu un sort capable de l'immobiliser ainsi. Ce sort possédait des racines profondes; ce n'était pas quelque chose qu'elle pouvait connaître.
+« Même si ton avatar et ton corps originel ont fusionné, cela ne suffit pas! » Le cœur de la jeune femme trembla. Elle n'avait jamais vu un sort capable de l'immobiliser ainsi. Ce sort avait une origine insondable; ce n'était pas quelque chose qu'elle pouvait connaître.
 
 Alors qu'elle chargeait Wang Lin, celui-ci leva soudainement les yeux et tendit sa main droite.
 
 « Huitième niveau du Dao Céleste, Dao du Feu Extrême! »
 
-Il ne possédait pas le lignage de l'Ancêtre Céleste, mais il disposait d'autres méthodes!
+Il ne possédait pas le sang du clan céleste, mais il disposait d'autres méthodes!

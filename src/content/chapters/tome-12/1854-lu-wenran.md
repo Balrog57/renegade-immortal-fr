@@ -20,13 +20,13 @@ Alors que ses paroles résonnaient, des ondulations semblables à celles de l'ea
 
 Le Taureau Vert ne se retourna pas. Fixant les nuages au loin, il dit calmement: « L'avez-vous rencontré à la Mer des Pilules? »
 
-« Le disciple était aux côtés d'Ouyang Hui de la Secte Gui Yi et de l'Oncle-Maître Meng Zihai pour combattre les émissaires du Continent du Démon Vert. Conformément aux ordres du Maître, l'Oncle-Maître Meng a prétendu que nous n'étions pas de taille et s'est enfui à bord du Bateau Nuageux; je n'ai donc pas vu cette personne. »
+« Le disciple était aux côtés d'Ouyang Hui de la Secte Gui Yi et de l'Oncle-Maître Meng Zihai pour combattre les émissaires du Continent du Démon Vert. Conformément aux ordres du Maître, l'Oncle-Maître Meng nous a emmenés tous deux et, feignant de ne pas être de taille, s'est enfui à bord du Bateau Nuageux laissé par le premier ancêtre; je n'ai donc pas vu cette personne. »
 
-« Dans sept jours, rejoins-le au troisième Méridien du Taureau Céleste! » L'Illustre Taureau Vert ferma les yeux.
+« Dans sept jours, rends-toi avec lui au troisième Méridien du Taureau Céleste! » L'Illustre Taureau Vert ferma les yeux.
 
 « Le disciple obéit. » L'expression de l'homme d'âge moyen resta impassible, mais ses yeux brillèrent d'une lueur indéchiffrable. Des ondulations résonnèrent et il disparut.
 
-En un éclair, cinq des sept jours restants s'écoulèrent. Durant cette période, Wang Lin resta à son apogée, s'immergeant dans le sortilège d'illusion multicouche. Tous les matériaux furent utilisés selon la méthode inscrite dans le jade, et Wang Lin avait ainsi raffiné une Voile Fantôme noire.
+En un éclair, cinq des sept jours restants s'écoulèrent. Durant cette période, Wang Lin ne quitta pas sa montagne, s'immergeant dans le sortilège d'illusion multicouche. Tous les matériaux furent utilisés selon la méthode inscrite dans le jade, et Wang Lin avait ainsi raffiné une Voile Fantôme noire.
 
 Cette voile avait été tissée après avoir fait fondre d'innombrables matériaux. Bien qu'elle ressemblât à du tissu, ce n'était là qu'une apparence.
 
@@ -48,7 +48,7 @@ La Secte de la Grande Âme y avait rassemblé d'immenses quantités d'âmes mort
 
 Au fil des âges, bien que les âmes mortes fussent constamment renouvelées, les stocks restaient limités, car la demande de la Secte de la Grande Âme était immense.
 
-Beaucoup de ces âmes avaient été collectées il y a d'innombrables années par les membres de la secte dans le cadre de missions officielles. Cependant, comme peu d'entre elles pouvaient cultiver par elles-mêmes, elles devaient être raffinées avec le temps.
+Beaucoup de ces âmes avaient été collectées il y a d'innombrables années par les membres de la secte dans le cadre de missions officielles. Cependant, malgré les longues années écoulées, très peu d'entre elles avaient pu cultiver par elles-mêmes et se polir avec le temps.
 
 La grande majorité d'entre elles étaient directement scellées ici, en attendant qu'un disciple vienne les chercher.
 
@@ -110,7 +110,7 @@ Wang Lin réfléchit un instant et s'apprêta à poursuivre son ascension vers c
 
 « Oublié... » répondit la femme en secouant la tête tout en pleurant.
 
-« Désormais, vous vous appellerez Brillant Vide. » Après avoir prononcé ces mots, Wang Lin se retourna brusquement et agita sa main droite. La femme disparut, ne laissant derrière elle que la tombe et la stèle.
+« Désormais, vous vous appellerez Kun Xu. » Après avoir prononcé ces mots, Wang Lin se retourna brusquement et agita sa main droite. La femme disparut, ne laissant derrière elle que la tombe et la stèle.
 
 Peu après, Wang Lin repartit. Il n'avait pas choisi les âmes de haute qualité, mais il avait pris cette femme en blanc, bien que son âme ne puisse raffiner qu'une Voile Fantôme de qualité inférieure.
 
@@ -118,15 +118,15 @@ Mais lorsque la femme avait demandé où étaient sa maison et sa famille, le c�
 
 Le processus de fusion de l'âme morte dans la Voile Fantôme ne fut pas long; une journée suffit. Une fois l'âme de la femme en blanc fusionnée avec la voile de Wang Lin, celle-ci vira au blanc.
 
-Un son de pleurs s'échappait désormais de la voile blanche et pénétrait le cœur de celui qui l'écoutait, évoquant irrésistiblement la silhouette d'une femme vêtue de blanc en plein deuil.
+Un son de pleurs s'échappait désormais de la voile blanche et pénétrait le cœur de celui qui l'écoutait, évoquant irrésistiblement la silhouette, vue de dos, d'une femme aux cheveux blancs en train de pleurer.
 
 Le septième jour, un jade perça plusieurs couches de protection pour arriver devant Wang Lin, alors qu'il se trouvait dans sa grotte.
 
-« Wang Lin, écoute cet ordre: rends-toi au troisième point clé du Taureau Céleste et garde-le! » La voix de l'Illustre Taureau Vert résonna dans la grotte tandis que le jade flottait, immobile, devant lui.
+« Wang Lin, écoute cet ordre: rends-toi au troisième Méridien du Taureau Céleste et garde-le! » La voix de l'Illustre Taureau Vert résonna dans la grotte tandis que le jade flottait, immobile, devant lui.
 
 Wang Lin ouvrit les yeux, le regard serein. Son Sens Divin scruta le jade et les informations imprégnèrent son esprit.
 
-Des générations d'ancêtres de la Secte de la Grande Âme avaient consacré un temps incommensurable à créer sept points clés sur le Continent du Taureau Céleste. Ils étaient basés sur les sept méridiens du Taureau Céleste.
+Des générations d'ancêtres de la Secte de la Grande Âme avaient consacré un temps incommensurable à créer sept points clés sur le Continent du Taureau Céleste. Ils étaient issus des sept points d'essence du corps du taureau venu d'au-delà des cieux, devenu le Continent du Taureau Céleste.
 
 En ces sept méridiens, on pouvait emprunter la puissance du Taureau Céleste grâce à une formation puissante. Parallèlement, cela apportait de nombreux bénéfices mystérieux aux cultivateurs du continent.
 

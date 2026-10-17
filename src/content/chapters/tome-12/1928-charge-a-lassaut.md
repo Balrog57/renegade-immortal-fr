@@ -8,7 +8,7 @@ slug: charge-a-lassaut
 ---
 Neuf planètes semblèrent changer de trajectoire sous l'effet d'une force mystérieuse et foncèrent vers Wang Lin. Ces neuf astres ressemblaient à neuf géants qui se rapprochaient instantanément de lui.
 
-Ce changement soudain contra Wang Lin à quitter sa position actuelle, mais les neuf planètes modifièrent leur course pour converger vers lui.
+Ce changement soudain contraignit Wang Lin à quitter sa position actuelle, mais les neuf planètes modifièrent leur course pour converger vers lui.
 
 « Serait-ce le premier niveau de l'Épreuve de l'Empyréen? » Les yeux de Wang Lin s'illuminèrent et il cessa d'esquiver. Il fit un pas en avant vers les planètes approchantes, leva la main droite et lança un coup de poing!
 
@@ -82,7 +82,7 @@ Cette scène soudaine choqua certains de ces Exaltés Empyréens froids et orgue
 
 La silhouette de Wang Lin surgit du second palais dans un éclat de lumière dorée. Sans hésiter, il chargea vers le troisième palais.
 
-Ses actions captèrent l'attention d'un nombre croissant d'Exaltés Empyréens. La plupart se trouvaient déjà au niveau du troisième palais et, voyant son échec initial, doutaient de sa capacité à progresser.
+Ses actions captèrent l'attention d'un nombre croissant d'Exaltés Empyréens. La plupart avaient eux-mêmes été arrêtés au troisième palais et, voyant son échec initial, doutaient de sa capacité à progresser.
 
 « Au troisième palais, en plus de fusionner 27 sorts dans votre corps, il y a une planète dorée parmi elles. Cette planète est la clé! »
 
@@ -114,7 +114,7 @@ En un éclair, il disparut dans le quatrième palais.
 
 Même l'Exalté Empyréen Zhu Lin ouvrit les yeux et fixa le quatrième palais. Non seulement lui, mais presque tout le monde était aux aguets.
 
-Le quatrième palais constituait un seuil redoutable pour les Exaltés Empyréens. Moins de deux cents personnes avaient réussi à le franchir; la plupart s'étaient arrêtées là!
+Le quatrième palais constituait un seuil redoutable pour les Exaltés Empyréens. Parmi les plus d'un millier d'Exaltés Empyréens de tout le clan céleste, moins de deux cents avaient réussi à le franchir; la plupart s'étaient arrêtés là!
 
 Par conséquent, les prouesses de Wang Lin attiraient tous les regards. Ceux qui pouvaient surmonter le quatrième niveau étaient considérés comme d'élite parmi les Exaltés Empyréens!
 
@@ -138,4 +138,4 @@ Dans le ciel, Wang Lin se tenait au cœur de la lumière dorée entourant le qua
 
 « Le quatrième niveau comportait 36 planètes dont deux dorées. J'ai utilisé tous mes avatars, et sans l'armure de l'âme, le quatrième niveau est ma limite. »
 
-« Mais si je revêts l'armure de l'âme... Je me demande combien de niveaux je pourrais franchir! Malheureusement, je dois me rendre à la Mer de Montagnes pour obtenir l'Arbre, il serait peu opportun de montrer toute ma puissance ici. Une fois que j'aurai obtenu l'Arbre de la Mer de Montagnes, je reviendrai pour tenter à nouveau! »
+« Mais si je revêts l'armure de l'âme... Je me demande combien de niveaux je pourrais franchir! Malheureusement, je dois me rendre à la Mer Montagneuse pour obtenir l'Arbre, il serait peu opportun de montrer toute ma puissance ici. Une fois que j'aurai obtenu l'Arbre de la Mer Montagneuse, je reviendrai pour tenter à nouveau! »

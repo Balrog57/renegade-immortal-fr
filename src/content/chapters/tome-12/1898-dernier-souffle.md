@@ -62,7 +62,7 @@ Puisque c'était ainsi, il allait parier jusqu'au bout. Il attendait l'arrivée 
 
 L'âme du scorpion paraissait puissante, mais en vérité, elle était déjà gravement blessée et toujours supprimée. De plus, seul un fragment de son âme principale était présent ici. L'âme du scorpion ne se précipita pas immédiatement dans le corps de Wang Lin, mais déploya son sens divin à plusieurs reprises. Ce n'est qu'après cela qu'elle se détendit un peu et chargea dans le corps de Wang Lin!
 
-En un éclair, le scorpion vert entra lentement dans le corps de Wang Lin. Il ne choisit pas de posséder le corps immédiatement, mais commença par l'absorber avec précaution après y être entré.
+En un éclair, le scorpion vert entra lentement dans le corps de Wang Lin. Il ne choisit pas de posséder le corps immédiatement, mais commença par l'observer avec précaution après y être entré.
 
 Le temps passa lentement. En un instant, trois jours s'écoulèrent. Ce n'est qu'après avoir observé pendant trois jours qu'il pénétra un peu plus profondément dans le corps de Wang Lin. Sa prudence était telle qu'on aurait dit que la moindre chose pouvait le faire fuir immédiatement.
 
@@ -82,7 +82,7 @@ L'âme du scorpion sembla perdre patience après sept jours. Une grande partie d
 
 Elle sembla se détendre et commença la possession. Son âme, à l'intérieur de Wang Lin, se propagea comme une folie vers l'esprit de ce dernier. Lorsqu'elle pénétra dans l'esprit de Wang Lin, elle n'y trouva aucune trace d'âme originelle. Elle fut immédiatement transportée par l'excitation.
 
-Elle avait attendu si longtemps pour cette occasion parfaite. Elle pouvait enfin commencer la possession! Il faut dire que même si le corps d'un cultivateur du Continent Astral Immortel ne possédait pas d'âme originelle, le scorpion ne pourrait pas le posséder car il n'était pas né ici. Il ne pouvait posséder que le corps d'un cultivateur qui, comme lui, n'était pas originaire de ce monde.
+Elle avait attendu si longtemps pour cette occasion parfaite. Elle pouvait enfin commencer la possession! Il faut dire que même si le corps d'un cultivateur du Continent Astral Immortel ne possédait pas d'âme originelle, le scorpion ne pourrait pas le posséder car son propriétaire était né ici. Il ne pouvait posséder que le corps d'un cultivateur qui, comme lui, n'était pas originaire de ce monde.
 
 À cet instant, elle cessa de se retenir et une grande partie de son âme pénétra Wang Lin. La silhouette d'un scorpion commença lentement à se former dans l'esprit de Wang Lin. Une fois totalement formée, la possession serait achevée.
 
@@ -96,7 +96,7 @@ Bien que très faible, elle devint féroce lorsque Wang Lin commença à la dév
 
 Mais le scorpion n'était absolument pas préparé, tandis que Wang Lin s'était préparé pendant plus de cent ans. Wang Lin devint fou et dévora avec désespoir.
 
-Le temps passa en un instant. Après une heure d'encens, la bataille de dévoration entre Wang Lin et l'âme du scorpion atteignit un point critique. L'âme du scorpion continuait de hurler. Elle était faible et n'était venue qu'avec une partie de son âme. Face à Wang Lin, qui s'était préparé durant plus d'un siècle, elle perdait progressivement pied.
+Le temps passa en un instant. Après un bâton d'encens, la bataille de dévoration entre Wang Lin et l'âme du scorpion atteignit un point critique. L'âme du scorpion continuait de hurler. Elle était faible et n'était venue qu'avec une partie de son âme. Face à Wang Lin, qui s'était préparé durant plus d'un siècle, elle perdait progressivement pied.
 
 À l'extérieur, personne ne pouvait ressentir la bataille périlleuse qui se jouait dans le corps de Wang Lin. Le vieil homme aux robes vertes regardait avec impatience le four et l'âme du scorpion qui était en grande partie entrée à l'intérieur. L'âme du scorpion trembla, ce qui surprit le vieil homme.
 
@@ -106,7 +106,7 @@ Le temps passa en un instant. Après une heure d'encens, la bataille de dévorat
 
 Il sourit encore plus largement en contemplant l'âme du scorpion qui tremblait sur le four.
 
-À l'intérieur de Wang Lin, les deux entités s'étaient dévorées mutuellement pas moins de 10 000 fois. Wang Lin devenait de plus en plus fou. Il avait attendu et préparé ce moment pendant plus de cent ans. Comment pourrait-il laisser échapper l'âme du scorpion qui allait le dévorer?
+À l'intérieur de Wang Lin, les deux entités s'étaient dévorées mutuellement pas moins de plusieurs dizaines de milliers de fois. Wang Lin devenait de plus en plus fou. Il avait attendu et préparé ce moment pendant plus de cent ans. Comment pourrait-il laisser échapper l'âme du scorpion qui allait le dévorer?
 
 La folie de Wang Lin insuffla une terreur extrême à l'âme du scorpion. Déjà affaiblie, elle montrait des signes de retraite après cette dévoration sans fin. Il lui avait fallu d'innombrables années pour condenser ce fragment d'âme. Si ce fragment se dissipait, elle n'aurait plus aucune chance de s'éveiller.
 
@@ -124,7 +124,7 @@ Une fois l'âme du scorpion partie, l'âme originelle de Wang Lin enveloppa imm�
 
 « Corps véritable de l'essence du Feu! » rugit Wang Lin. Une mer de feu apparut dans son œil gauche et un corps véritable de l'essence du feu, identique à lui, se matérialisa derrière lui!
 
-« Corps véritable de l'essence du Tonnerre! » rugit Wang Lin, tandis que la foudre éclatait dans son œil gauche. Le corps véritable de l'essence du tonnerre, autrefois formé par le maître de la Secte du Démon, fusionnait désormais avec la volonté de Wang Lin et apparaissait derrière lui.
+« Corps véritable de l'essence du Tonnerre! » rugit Wang Lin, tandis que la foudre éclatait dans son œil droit. Le corps véritable de l'essence du tonnerre, autrefois formé par le maître de la Secte du Dao Démoniaque, fusionnait désormais avec la volonté de Wang Lin et apparaissait derrière lui.
 
 « Corps véritable de l'essence de la Terre! » Wang Lin poussa un rugissement vers le ciel. Une lumière jaune jaillit de ses 108 000 pores pour former son troisième corps véritable d'essence derrière lui!
 

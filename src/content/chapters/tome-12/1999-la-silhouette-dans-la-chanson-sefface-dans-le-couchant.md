@@ -106,7 +106,7 @@ L'expression de Wang Lin resta imperturbable alors qu'il se tournait vers elle. 
 
 « Merci... » Wang Lin joignit les mains et s'inclina devant le Grand Empyréen Gémeaux.
 
-« J'ai obtenu les yeux de l'Ancêtre Céleste, je vais donc retourner à la Secte du Yang Pourpre. Et vous? Partirez-vous, ou m'accompagnerez-vous à la Secte du Yang Pourpre? »
+« J'ai obtenu les yeux de l'Ancêtre Céleste, je vais donc retourner à la Secte du Yang Pourpre pour entrer en retraite. Et vous? Partirez-vous, ou m'accompagnerez-vous à la Secte du Yang Pourpre? »
 
 Wang Lin tourna son regard vers le Continent de l'Est avant de déclarer: « Je veux retourner à la Secte de la Grande Âme... Puis je quitterai le clan céleste... »
 

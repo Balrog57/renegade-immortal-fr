@@ -22,19 +22,19 @@ Alors qu'il retrouvait son calme, Wang Lin saisit vaguement cette méthode d'att
 
 « Ces méthodes sont très difficiles à contrer. Peut-être pourrais-je m'inspirer de cette intuition pour créer un nouveau sort qui m'appartienne! » Wang Lin ouvrit les yeux, lesquels brillaient intensément. Tout en absorbant l'aura du cœur, il déduisait la faisabilité de cette idée.
 
-« Le rythme cardiaque est comme un son, mais ce son a besoin d'un vecteur pour se propager... Mon origine tonnerre peut produire des grondements puissants et obtenir des effets similaires. Si je condense mon essence de tonnerre dans mon cœur pour aider mes battements à se propager hors de mon corps... » Les yeux de Wang Lin s'illuminèrent.
+« Le rythme cardiaque est comme un son, mais ce son a besoin d'un vecteur pour se propager... Mon origine tonnerre peut produire des grondements puissants et obtenir des effets similaires. Si je condense mon essence de tonnerre dans mon cœur pour amplifier mes battements d'innombrables fois et les propager hors de mon corps... » Les yeux de Wang Lin s'illuminèrent.
 
 « Il faudra encore l'aide de mon Dao du Rêve. Le son de mon rythme cardiaque et le Dao du Rêve entreront en jeu simultanément. Cela provoquera des illusions à mesure que leur rythme cardiaque changera, permettant d'atteindre certains effets! » Le regard de Wang Lin devint plus éclatant encore.
 
 « Si je combine cela avec mon Feu Éthéré, alors une fois que le rythme cardiaque aura provoqué une irritation dans leur cœur, le Feu Éthéré pourra s'enflammer... » Wang Lin ferma les yeux et continua d'explorer les possibilités.
 
-La Poupée Yi Si était assise derrière lui, et son regard devint plus violent encore. Elle commença à pousser des hurlements inconscients.
+La Poupée Yi Si était accroupie à ses côtés, et son regard devint plus violent encore. Elle commença à pousser des hurlements inconscients.
 
 Alors que le cœur de Wang Lin et celui de Ye Mo fusionnaient et que Wang Lin comprenait ce nouveau sort, la pénultième couche de la Tombe Antique trembla. À cet instant, une bataille féroce faisait rage.
 
-Un fracas tonitruant retentit, assez puissant pour donner l'impression que le monde se déchirait. Une rafale de vent projeta Tang Feng dans les airs, et elle s'écrasa sur la terre effondrée.
+Un fracas tonitruant retentit, assez puissant pour donner l'impression que le monde se déchirait. Une rafale de vent projeta la troisième concubine Tang Shan dans les airs, et elle s'écrasa sur la terre effondrée.
 
-Une immense quantité de poussière fut soulevée. Le visage de Tang Feng était pâle alors qu'elle luttait pour se relever. Du sang coulait au coin de sa bouche; son cœur tremblait et elle était gravement blessée.
+Une immense quantité de poussière fut soulevée. Le visage de Tang Shan était pâle alors qu'elle luttait pour se relever. Du sang coulait au coin de sa bouche; son cœur tremblait et elle était gravement blessée.
 
 Non loin d'elle, Yun Yifeng avait les yeux clos. Ses blessures étaient très graves. Lorsque le Vieux Fantôme Zhan avait agité la main, ses plaies s'étaient rouvertes et il avait frôlé la mort.
 
@@ -70,41 +70,41 @@ L'homme nommé Ma recula et pointa le ciel. Il était sur le point d'utiliser un
 
 Pourtant, que ce soit lui ou le Vieux Fantôme Zhan, ils avaient sous-estimé Rêve Bleu. Il était l'un des Cinq Maîtres du Système Stellaire Antique, un être que même le Souverain redoutait. Bien qu'il n'ait pas traversé les Tribulations Arcanes, il possédait ses propres méthodes!
 
-À cet instant, le Maître du Dao Rêve Bleu mordit la pointe de sa langue et cracha du sang. Son sang essentiel fusionna avec la lumière bleue défaillante pour former une harpe antique!
+À cet instant, le Maître du Dao Rêve Bleu mordit la pointe de sa langue et cracha du sang. Son sang essentiel fusionna avec la lumière bleue défaillante pour former une cithare antique!
 
-La harpe dégageait une aura millénaire, comme si elle avait existé depuis des éons. Elle était invisible, dissimulée dans le sang du Maître du Dao Rêve Bleu durant d'innombrables années. Maintenant qu'elle était révélée au monde, elle déployait toute sa puissance!
+La cithare dégageait une aura millénaire, comme si elle avait existé depuis des éons. Elle était invisible, dissimulée dans le sang du Maître du Dao Rêve Bleu durant d'innombrables années. Maintenant qu'elle était révélée au monde, elle déployait toute sa puissance!
 
-Cette harpe antique était le trésor le plus puissant et l'atout ultime du Maître du Dao Rêve Bleu. C'était la véritable raison pour laquelle le Souverain le craignait. Cette harpe n'avait été utilisée qu'une seule fois — lors de la bataille qui avait rendu Rêve Bleu célèbre. La mélodie de cet instrument avait enterré d'innombrables corps.
+Cette cithare antique était le trésor le plus puissant et l'atout ultime du Maître du Dao Rêve Bleu. C'était la véritable raison pour laquelle le Souverain le craignait. Cette cithare n'avait été utilisée qu'une seule fois — lors de la bataille qui avait rendu Rêve Bleu célèbre. Une seule note de cet instrument avait enterré dix mille ossements, et un regard en arrière révélait mille ans écoulés.
 
-Bien qu'il n'ait pas subi de Tribulations Arcanes, l'effort et le sacrifice consacrés à l'affinage de cette harpe surpassaient ceux requis pour traverser les Tribulations. L'instrument possédait également une origine mystérieuse.
+Bien qu'il n'ait pas subi de Tribulations Arcanes, l'effort et le sacrifice consacrés à l'affinage de cette cithare surpassaient ceux requis pour traverser les Tribulations. L'instrument possédait également une origine mystérieuse.
 
 On aurait dit qu'il n'appartenait pas à ce monde caverneux!
 
-À l'apparition de la harpe antique, les yeux de Rêve Bleu se remplirent de tristesse. Il songeait à sa femme. Bien qu'elle fût dans son espace de stockage, il était incapable de la ramener à la vie. Dans un soupir, Rêve Bleu s'assit derrière l'instrument et pinça délicatement les cordes.
+À l'apparition de la cithare antique, les yeux de Rêve Bleu se remplirent de tristesse. Il songeait à sa femme. Bien qu'elle fût dans son espace de stockage, il était incapable de la ramener à la vie. Dans un soupir, Rêve Bleu s'assit derrière l'instrument et pinça délicatement les cordes.
 
 *Zeng!*
 
-La musique de la harpe résonna. Le Vieux Fantôme Zhan, qui venait de dépasser Rêve Bleu, recula soudainement de trois pas et tourna la tête.
+La musique de la cithare résonna. Le Vieux Fantôme Zhan, qui venait de dépasser Rêve Bleu, s'écarta soudainement de trois pas sur le côté et tourna la tête.
 
-Au moment où il se retourna, les ondes musicales se propagèrent. Le son émanant de la harpe enveloppa le Vieux Fantôme Zhan, scellant sa voie de retraite.
+Au moment où il se retourna, les ondes musicales se propagèrent. Le son émanant de la cithare enveloppa le Vieux Fantôme Zhan, scellant toutes les directions autour de lui, devant, derrière, à gauche et à droite.
 
-Les yeux du vieil homme nommé Ma brillèrent d'une lueur étrange. Il regarda le Maître du Dao Rêve Bleu et ses pupilles se contractèrent. Il ne reconnut pas la harpe, mais il comprit qu'elle était extraordinaire.
+Les yeux du vieil homme nommé Ma brillèrent d'une lueur étrange. Il regarda le Maître du Dao Rêve Bleu et ses pupilles se contractèrent. Il ne reconnut pas la cithare, mais il comprit qu'elle était extraordinaire.
 
 Sans hésiter, il pointa le ciel de sa main droite.
 
-« Céleste des cinq éléments! Condense, ciel doré! » Une lumière dorée infinie émana du corps du vieil homme et se répandit dans les cieux. Le firmament effondré fut recouvert d'éclat doré!
+« Céleste du Métal des cinq éléments! Condense, ciel doré! » Une lumière dorée infinie émana du corps du vieil homme et se répandit dans les cieux. Le firmament effondré fut recouvert d'éclat doré!
 
 Tel les neuf chants et les trois signes!
 
-« Céleste de la terre des cinq éléments! Condense, terre noire! » L'homme pointa le sol de sa main gauche. La terre gronda et vira au noir. Ce phénomène se propagea furieusement jusqu'à ce que tout devienne sombre!
+« Céleste de la Terre des cinq éléments! Condense, terre noire! » L'homme pointa le sol de sa main gauche. La terre gronda et vira au noir. Ce phénomène se propagea furieusement jusqu'à ce que tout devienne sombre!
 
 Après avoir utilisé ces deux sorts élémentaires, le vieil homme nommé Ma était épuisé. Il ne voulait pas en déployer davantage, mais ses mains, tendues vers le ciel et la terre, bougèrent soudainement.
 
-À cet instant, la musique de la harpe du Maître du Dao Rêve Bleu devint plus intense encore, chargée d'une intention meurtrière qui emprisonna totalement le Vieux Fantôme Zhan. Les yeux de ce dernier s'illuminèrent et il agita sa main droite. Un caractère doré signifiant « bataille » apparut. Le mot s'effondra, faisant vaciller le sceau qui l'entourait.
+À cet instant, la musique de la cithare du Maître du Dao Rêve Bleu devint plus intense encore, chargée d'une intention meurtrière qui emprisonna totalement le Vieux Fantôme Zhan. Les yeux de ce dernier s'illuminèrent et il agita sa main droite. Un caractère signifiant « bataille » apparut. Le mot s'effondra, faisant vaciller le sceau qui l'entourait.
 
-La musique de la harpe redoubla d'intensité, ses ondulations résistant à l'effondrement du caractère « bataille ». Simultanément, le sort lancé par le vieil homme se rua vers le Vieux Fantôme Zhan.
+La musique de la cithare redoubla d'intensité, ses ondulations résistant à l'effondrement du caractère « bataille ». Simultanément, le sort lancé par le vieil homme se rua vers le Vieux Fantôme Zhan.
 
-Le ciel doré gronda et une main de lumière s'élança vers lui. Peu après, une main d'ébène surgit de la terre noire. À l'instar de la main dorée, elle se referma lentement sur le Vieux Fantôme Zhan.
+Le ciel doré gronda et une main de lumière s'élança vers lui. Peu après, une main d'ébène surgit de la terre noire. Avec la main dorée, l'une venant d'en haut et l'autre d'en bas, elles s'abattirent ensemble sur le Vieux Fantôme Zhan.
 
 Une lueur glaciale passa dans les yeux du Vieux Fantôme Zhan et, au moment où les sorts allaient l'atteindre, il toucha son front. Une ombre vague, semblable à une âme, apparut derrière lui. Cette silhouette portait une cape couvrant tout son corps sous les yeux, ne laissant apparaître qu'un regard ténébreux et de longs cheveux.
 
@@ -112,6 +112,6 @@ C'était l'âme du Souverain Céleste aux Sept Couleurs qui s'était détachée 
 
 L'âme capée ouvrit les bras, ses cheveux flottant au vent. Ses mains entrèrent en collision avec les mains dorée et noire.
 
-C'est précisément à ce moment qu'une aura de Dao antique se propagea depuis l'entrée de la dernière couche. Le son d'un cœur qui bat commence à résonner.
+C'est précisément à ce moment qu'une aura de Dao antique se propagea depuis l'entrée de la dernière couche. Le son d'un cœur qui bat se mit à résonner.
 
 C'était le rythme cardiaque de Wang Lin!

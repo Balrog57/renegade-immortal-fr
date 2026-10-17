@@ -6,7 +6,7 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1803 - The Earth Fire is Changing!"
 slug: le-feu-terrestre-change
 ---
-Ce serait la première fois que Wang Lin ouvrirait les yeux sur le Continent Astral Immortel avant de secouer l'intégralité du continent!
+C'était la première fois que Wang Lin ouvrait les yeux sur le Continent Astral Immortel, la première fois qu'il les ouvrait en ce lieu où il allait dominer les sommets!
 
 C'était la première fois qu'il voyait le Continent Astral Immortel de ses propres yeux. C'était la première fois qu'il ressentait lui-même l'aura de ce monde!
 
@@ -46,11 +46,11 @@ Le Sens Divin de Wang Lin s'étendit une nouvelle fois, et il fut stupéfait de 
 
 « Les veines de feu ressemblent à une gigantesque formation de feu... » Wang Lin retira son Sens Divin. Il venait de s'éveiller et ne connaissait pas encore parfaitement son environnement; il serait donc imprudent d'explorer davantage par la force.
 
-« Bien qu'il ne soit pas impossible d'aller plus loin, je peux extraire davantage de feu pour nourrir mon essence. » Wang Lin réfléchit, tandis que sa main droite frappait doucement la formation au sol.
+« Bien qu'il ne soit pas opportun d'aller plus loin, je peux extraire davantage de feu pour nourrir mon essence. » Wang Lin réfléchit, tandis que sa main droite frappait doucement la formation au sol.
 
 À cet instant, toute la Secte du Dragon Bleu trembla et le feu sous cette chaîne de montagnes sembla s'emballer. Il déferla comme un fou de toutes les directions pour s'engouffrer dans la grotte de Kang Ren.
 
-Ce changement soudain surprit Kang Ren qui, en plein travail de scellement, recula précipitamment en érigeant d'innombrables couches de protection autour de lui. Les neuf marionnettes gardant l'entrée et les deux marionnettes de bois se précipitèrent devant lui pour le protéger du brasier qui venait d'éclater.
+Ce changement soudain surprit Kang Ren qui allait et venait en traçant des sceaux, recula précipitamment en érigeant d'innombrables couches de protection autour de lui. Les neuf marionnettes gardant l'entrée et les deux marionnettes de bois se précipitèrent devant lui pour le protéger du brasier qui venait d'éclater.
 
 Dès que Kang Ren eut reculé, une mer de feu déferla dans la formation et s'éleva en un pilier ardent. Elle consuma toute la brume et obstrua toute visibilité dans un embrasement furieux.
 
@@ -68,27 +68,27 @@ Alors que le feu terrestre faisait rage, Nuage Virtuel et son maître arrivèren
 
 Tandis qu'ils s'éloignaient, l'entrée de la grotte de Kang Ren s'effondra, libérant une vague de chaleur étouffante.
 
-Tous les pavillons de la montagne disparurent dans un océan de flammes!
+Tous les pavillons de la vallée disparurent dans un océan de flammes!
 
 Les montagnes environnantes tremblèrent sous la poussée du feu, comme si elles étaient sur le point d'entrer en éruption! Ce bouleversement soudain terrifia les disciples de la Secte du Dragon Bleu. Tous sortirent de leurs grottes et regardèrent vers le bas avec effroi.
 
-« L'Ancien est sorti. Pourquoi le feu terrestre a-t-il changé ainsi? » Le maître de Nuage Virtuel affichait un visage sombre en contemplant l'embrasement. Il fixa la grotte où se trouvait Kang Ren.
+« L'Ancêtre est absent. Pourquoi le feu terrestre a-t-il changé ainsi? » Le maître de Nuage Virtuel affichait un visage sombre en contemplant l'embrasement. Il fixa la grotte où se trouvait Kang Ren.
 
 Simultanément, trois auras puissantes jaillirent de la Secte du Dragon Bleu. Elles se matérialisèrent sous la forme de trois individus aux côtés du maître de Nuage Virtuel.
 
 Parmi eux se trouvaient deux hommes et une femme. L'un des hommes et la femme étaient aux cheveux blancs, tandis que l'autre homme était d'âge moyen. Tous possédaient l'aura de cultivateurs du troisième pas.
 
-Leurs niveaux de culture étaient élevés. L'homme d'âge moyen se trouvait au stade intermédiaire du Vide Spirituel. Dès son apparition, il poussa un rugissement vers le ciel.
+Leurs niveaux de culture étaient élevés. L'homme d'âge moyen se trouvait au stade avancé du Vide Spirituel. Dès son apparition, il poussa un rugissement vers le ciel.
 
 « Disciples de la Secte du Dragon Bleu, écoutez mes ordres! Le feu terrestre subit une mutation tous les 10 000 ans. Cette fois, c'est prématuré, mais ne paniquez pas! Vite, déployez la Formation de l'Eau Céleste! » Ses paroles résonnèrent comme le tonnerre.
 
 L'esprit de tous les disciples qui entendirent cet ordre trembla, et ils s'assirent immédiatement dans les airs. Leurs mains tracèrent des sceaux tandis que d'innombrables nuages émanaient de leurs corps. Des dizaines de milliers de disciples créèrent rapidement une vaste formation!
 
-La formation gronda lors de son apparition. De loin, elle ressemblait à un immense nuage sombre couvrant des dizaines de milliers de kilomètres, englobant les milliers de disciples présents.
+La formation gronda lors de son apparition. De loin, elle ressemblait à un immense nuage sombre couvrant des dizaines de milliers de kilomètres, englobant les dizaines de milliers de disciples présents.
 
 Au même moment, outre l'homme d'âge moyen et le maître de Nuage Virtuel, les deux autres cultivateurs du troisième pas s'élancèrent dans le nuage sombre sans attendre d'ordres. Utilisant un sort inconnu, ils se transformèrent en deux longs dragons au sein de la masse nuageuse.
 
-Ces deux dragons mesuraient près de 100 000 pieds de long. Un instant plus tard, ils déployèrent leurs têtes gigantesques et ouvrirent les gueules vers la montagne en flammes. Une pluie torrentielle s'abattit du ciel, et d'immenses quantités d'eau jaillirent de la bouche des deux dragons.
+Ces deux dragons mesuraient plusieurs centaines de milliers de pieds de long. Un instant plus tard, ils déployèrent leurs têtes gigantesques et ouvrirent les gueules vers la montagne en flammes. Une pluie torrentielle s'abattit du ciel, et d'immenses quantités d'eau jaillirent de la bouche des deux dragons.
 
 « Ancien Li, vous êtes le premier arrivé. Que s'est-il passé? » Tandis que la pluie luttait contre l'incendie, l'homme d'âge moyen regarda sombrement le vieillard aux cheveux blancs à ses côtés.
 

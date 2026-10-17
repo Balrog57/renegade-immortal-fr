@@ -12,7 +12,7 @@ Se remémorant les trois phrases que Wang Lin avait prononcées avant de se reti
 
 De plus, il ne restait plus un seul cultivateur du Continent du Démon Vert sur la Prairie de l'Extrême Ciel. Les mots de Wang Lin résonnaient dans le cœur de chacun.
 
-Yan Lu arriva également à la surface et observa les environs, une profonde crainte dans le regard. Son niveau de culture étant élevé, elle pouvait percevoir ce que les autres ne voyaient pas: du point de vue de sa perception, une empreinte de paume gigantesque marquait la Prairie de l'Extrême Ciel! Cependant, un détail à l'intérieur de cette empreinte était facile à manquer.
+Yan Lu arriva également à la surface et observa les environs, une profonde crainte dans le regard. Son niveau de culture étant élevé, elle pouvait percevoir ce que les autres ne voyaient pas: du point de vue de sa perception, une empreinte de paume gigantesque marquait la Prairie de l'Extrême Ciel! Mais comme on se trouvait à l'intérieur de cette empreinte, on la négligeait facilement.
 
 « Un massacre d’une violence inouïe a eu lieu ici il y a sept jours... », songea silencieusement Yan Lu.
 
@@ -42,7 +42,7 @@ Le grondement ne provenait pas de la Prairie de l'Extrême Ciel, mais de bien pl
 
 Les centaines de cultivateurs furent saisis d'effroi. Ils ignoraient la cause de ce fracas. Certains aperçurent vaguement, à l'horizon du monde, un Taureau Céleste couvert de sang poussant un rugissement de détresse. Ce grondement qui ébranlait la terre était le cri du Taureau Céleste; s'il persistait, c'était parce que la créature semblait fuir dans la douleur.
 
-Toutefois, moins d'une douzaine de personnes purement capables de discerner cette image floue restèrent silencieuses.
+Toutefois, moins de quelques dizaines de cultivateurs avaient pu entrevoir confusément cette scène; parmi ces centaines de personnes, tous restèrent silencieux.
 
 Alors que le rugissement balayait les lieux, il enveloppa toute la Prairie de l'Extrême Ciel. Dans le palais souterrain, les cultivateurs ouvrirent les yeux, le visage transfiguré par l'inquiétude. Ils se précipitèrent tous à la surface pour scruter le ciel.
 

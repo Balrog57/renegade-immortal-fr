@@ -8,25 +8,25 @@ slug: speculations
 ---
 Wang Lin était perplexe face à une chose: ce sentiment étrange qu'il avait éprouvé en voyant les grues de papier. Qu'il s'agisse du Continent du Démon Vert ou du Continent du Taureau Céleste, tous appartenaient au Clan Céleste.
 
-Les sectes des deux continents s'étaient peut-être entretuées par le passé, mais l'idée de raffiner un Sceau de Pilule pour percer la barrière d'un autre continent et l'envahir laissait à Wang Lin d'autres réflexions.
+Les sectes des deux continents s'étaient peut-être entretuées par le passé, mais l'idée de raffiner la Mer des Pilules pour faire exploser de force la barrière d'un autre continent et l'envahir laissait à Wang Lin d'autres réflexions.
 
 Il ne s'agissait plus de querelles privées entre sectes, mais d'une véritable guerre!
 
 « Intéressant... J'espère que mes spéculations ne se réaliseront pas. Sinon, plus il y aura de morts, moins je ressentirai de liens avec le Clan Céleste. »
 
-« Si c'est réellement ce que je soupçonne, alors cela glace le sang! Que ce soit le Continent du Démon Vert ou le Continent du Taureau Céleste, peut-être que... » Wang Lin méditait silencieusement, assis sur le dos du Roi Moustique. Ses pensées étaient nombreuses: il songeait à la façon dont la Secte de la Grande Âme lui avait laissé trois cadeaux, et au fait que l'Illustre Grand Taureau avait affirmé que l'Ancêtre Premier avait diviné son arrivée.
+« Si c'est réellement ce que je soupçonne, alors cela glace le sang! Que ce soit le Continent du Démon Vert ou le Continent du Taureau Céleste, peut-être que... » Wang Lin méditait silencieusement, assis sur le dos du Roi Moustique. Ses pensées étaient nombreuses: il songeait à la façon dont la Secte de la Grande Âme lui avait laissé trois cadeaux, et au fait que l'Illustre Taureau Vert avait affirmé que l'Ancêtre Fondateur de la Secte de la Grande Âme avait diviné son arrivée.
 
 Tout cela avait un but immense. Un but crucial pour la Secte de la Grande Âme et le Continent du Démon Vert!
 
 C'est pourquoi le Continent du Démon Vert avait lancé d'innombrables petites incursions contre le Continent du Taureau Céleste. Mais cette fois, ils passaient à l'offensive majeure en raffinant la Mer des Pilules pour forcer le passage vers le Continent du Taureau Céleste!
 
-Ainsi, il y a des millénaires, la Secte de la Grande Âme s'était installée ici. L'Ancêtre Premier de la Secte de la Grande Âme avait diviné les bouleversements à venir, tout cela pour ce secret longtemps gardé!
+Ainsi, il y a de nombreuses années, la Secte de la Grande Âme s'était installée ici. L'Ancêtre Fondateur de la Secte de la Grande Âme avait diviné les bouleversements à venir, tout cela pour ce secret longtemps gardé!
 
 Wang Lin médita en silence et ouvrit sa paume. Une petite silhouette apparut dans sa main; il l'observa longuement. Finalement, il ne l'utilisa pas pour diviner l'avenir, mais referma sa main pour la ranger.
 
-« Et si je le savais à l'avance? Avec mon sort de Dao, je suis incapable de le diviner. L'Ancêtre m'a laissé trois cadeaux, et l'un d'eux était sa propre divination. Je suppose qu'il savait que je m'interrogerais et qu'il m'avait laissé une réponse. » Wang Lin sourit; il n'utilisa pas ce cadeau. Il n'avait pas besoin de savoir comment, car à partir des indices, ses spéculations commençaient à prendre forme. Désormais, il n'avait plus qu'à les confirmer jusqu'à trouver la vérité!
+« Que changerait de le savoir à l'avance? Avec mon sort de Dao, je suis incapable de le diviner. L'Ancêtre m'a laissé trois cadeaux, et l'un d'eux était sa propre divination. Je suppose qu'il savait que je m'interrogerais et qu'il m'avait laissé une réponse. » Wang Lin sourit; il n'utilisa pas ce cadeau. Il n'avait pas besoin de savoir comment, car à partir des indices, ses spéculations commençaient à prendre forme. Désormais, il n'avait plus qu'à les confirmer jusqu'à trouver la vérité!
 
-Wang Lin excellait dans ce genre d'exercice, sinon il aurait ignoré cette guerre pour partir bien plus tôt.
+Wang Lin excellait dans ce genre d'exercice. Il pouvait aussi ne pas se soucier de cette guerre et partir plus tôt.
 
 Dix jours plus tard, Wang Lin apparut aux abords de la Secte de la Grande Âme. À l'instant même de son arrivée, plusieurs rayons de lumière foncèrent vers lui. Il sentit que la Secte de la Grande Âme semblait plongée dans un brouillard et enveloppée de distorsions.
 
@@ -40,7 +40,7 @@ Cependant, dès que cette intention meurtrière identifia clairement Wang Lin, e
 
 Parmi elles se trouvaient deux Anciens de la Secte de la Grande Âme et cinq disciples.
 
-« Ancien Wang, pardonnez notre offense! » L'un des Anciens avait déjà parlé à Wang Lin par le passé; il avait observé son combat contre Yan Lu.
+« Ancien Wang, pardonnez notre offense! » L'un des Anciens avait déjà parlé à Wang Lin par le passé; il avait observé son combat contre Yan Luan.
 
 L'un des Anciens joignit les mains et déclara solennellement: « Le Continent du Démon Vert a brisé la barrière de mon Continent du Taureau Céleste, et l'Ancêtre a ordonné le scellement de la secte. Quiconque revient, qu'il soit Ancien ou disciple, quel que soit son statut, doit être rigoureusement inspecté avant d'entrer. »
 

@@ -37,7 +37,7 @@ Il protègerait les trois nations du clan Ancien, ainsi que toute existence capa
 
 Au centre de ces trois nations se trouvait la terre sainte du clan Ancien, là où résidait le plus puissant des Grands Empyréens.
 
-Wang Lin avait appris l'existence du clan Ancien par l'intermédiaire de Xuan Luo dans le monde caverneux et grâce aux archives de la Secte Yang Pourpre. Par conséquent, Wang Lin n'était pas aussi désemparé qu'à son arrivée dans le clan Céleste.
+Wang Lin avait appris l'existence du clan Ancien par l'intermédiaire de Xuan Luo dans le monde caverneux et grâce aux archives de la Secte du Yang Pourpre. Par conséquent, Wang Lin n'était pas aussi désemparé qu'à son arrivée dans le clan Céleste.
 
 Cependant, le clan Ancien était tout simplement trop vaste, et Wang Lin ne possédait aucune carte de l'Ancien Dao. Il lui fallait trouver un guide avant de pouvoir s'y rendre.
 
@@ -107,7 +107,7 @@ Wang Lin était intérieurement stupéfait, bien que son visage restât impassib
 
 « Je me demande quel titre est donné à celui qui possède neuf étoiles de chaque lignée... » Wang Lin songea à l'époque où il avait traversé la deuxième calamité de la troisième épreuve dans le monde caverneux et obtenu la reconnaissance de l'Ancêtre Ancien.
 
-Au fil des ans, bien qu'il ait cultivé son corps ancien par la force pour atteindre neuf étoiles dans les trois lignées, il les avait rarement révélées.
+Au fil des ans, bien qu'il n'ait pas cultivé son corps ancien par la force, il avait fini avec le temps par atteindre neuf étoiles dans les trois lignées, mais il les avait rarement révélées.
 
 « À en juger par leur réaction, peu de gens possèdent neuf étoiles au sein du clan Ancien... Ou peut-être que cet endroit est très reculé. » Wang Lin afficha un sourire discret.
 

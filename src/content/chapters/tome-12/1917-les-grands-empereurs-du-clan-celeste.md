@@ -12,7 +12,7 @@ Il se souvenait de la bonté que d'autres lui avaient témoignée!
 
 À l'époque, le fou lui avait montré de la gentillesse. Désormais, il devait se rendre à la cité impériale pour voir si le fou s'était complètement rétabli. Ainsi, il n'aurait aucun regret et pourrait dénouer ce nœud dans son cœur.
 
-« Peu importe sa personnalité, qu'elle ait changé ou non, même s'il me voit différemment, je dois y aller et le voir de mes propres yeux! » Wang Lin médita silencieusement, mais une pointe de mélancolie perçait dans ses yeux.
+« Peu importe sa personnalité, qu'elle ait changé ou non, même s'il nourrit à mon égard des pensées insondables, je dois y aller et le voir de mes propres yeux! » Wang Lin médita silencieusement, mais une pointe de mélancolie perçait dans ses yeux.
 
 Il ignorait ce qu'était devenu le fou. Il ne savait pas s'il continuerait à rugir et à s'agiter autour de lui.
 
@@ -30,7 +30,7 @@ Il ignorait ce qu'était devenu le fou. Il ne savait pas s'il continuerait à ru
 
 La voix du fou semblait résonner à ses oreilles. Dans l'obscurité des ruines de la Secte du Dao Démoniaque, Wang Lin soupira. Il se rappelait le moment où le fou était apparu lors de sa crise de vie ou de mort pour le sauver d'un coup fatal.
 
-Il se souvenait encore du troisième rêve, lorsqu'il était devenu un mortel et qu'il flottait avec le fou dans le vide. Dans le Dao des Rêves, il avait rencontré le fou et ils avaient passé une vie entière ensemble.
+Il se souvenait encore du troisième rêve, lorsqu'il était devenu un mortel et qu'il flottait avec le fou dans le vide. Dans le Dao des Rêves, il avait rencontré le fou et ils avaient traversé soixante années ensemble.
 
 « J'espère qu'il n'a pas trop changé... » Wang Lin soupira profondément. Il n'avait pas beaucoup d'amis, et le fou pouvait être considéré comme l'un d'eux.
 
@@ -38,7 +38,7 @@ En vérité, il n'avait pas grand-chose donné au fou; c'était plutôt le fou q
 
 « Je dois aller à la cité impériale, mais ce sera dangereux. Je dois faire quelques préparatifs avant de partir... » Wang Lin médita silencieusement et prit sa décision.
 
-« Les cinq Grands Empyréens du clan céleste... » Wang Lin agita sa main droite et la carapace de tortue que l'Ancêtre de la Secte de la Grande Âme, le Vieux Taureau Vert, lui avait donnée apparut. Outre la carte, il y avait des informations sur les Grands Empyréens. Xuan Luo lui avait également transmis quelques renseignements lorsqu'ils étaient dans le monde des grottes.
+« Les cinq Grands Empyréens du clan céleste... » Wang Lin agita sa main droite et le fragment de carapace de tortue que l'Ancêtre de la Secte de la Grande Âme, le Vieux Taureau Vert, lui avait donné apparut. Outre la carte, il y avait des informations sur les Grands Empyréens. Xuan Luo lui avait également transmis quelques renseignements lorsqu'ils étaient dans le monde des grottes.
 
 « L'Empereur Céleste du Continent Central a hérité des Huit Dao Extrêmes de l'Ancêtre Céleste et est le Grand Empyréen Huit Extrêmes! »
 
@@ -56,7 +56,7 @@ Les yeux de Wang Lin s'illuminèrent tandis qu'il analysait ces cinq Grands Empy
 
 Une fois qu'il aurait le soutien d'un Grand Empyréen, le danger de son voyage vers la cité impériale serait bien moindre. Après tout, même si un Grand Empyréen voulait tuer un Exalté Empyréen sous les ordres d'un autre Grand Empyréen, il devrait en justifier la raison! C'était parce que les Exaltés Empyréens surpassaient les Exalté Dorés et étaient extrêmement rares sur le Continent Astral Immortel!
 
-Chaque Grand Empyréen n'avait au plus que 100 Exaltés Empyréens sous ses ordres! Sur l'ensemble du Continent Astral Immortel, il n'y avait pas plus de 1 000 Exaltés Empyréens!
+Chaque Grand Empyréen avait moins de 100 Exaltés Empyréens sous ses ordres! Sur l'ensemble du Continent Astral Immortel, il n'y avait pas plus de 1 000 Exaltés Empyréens!
 
 S'il ne s'agissait que de tuer un Exalté Empyréen, cela resterait gérable. Cependant, si la cible était un Ascendant Empyréen, aucun Grand Empyréen ne le permettrait!
 
@@ -94,11 +94,11 @@ Bien que le fait qu'un cultivateur du monde des grottes puisse s'en extraire fû
 
 « Avec assez de renommée, les Grands Empyréens viendront d'eux-mêmes me chercher! » Les yeux de Wang Lin brillèrent, empreints d'une détermination accrue.
 
-« Au total, cinq Grands Empyréens. L'Empereur Céleste peut être ignoré. Quant aux quatre autres... Je ne sais que très peu de choses sur le Grand Empyréen Dao Yi, le Grand Empyréen Feng ou le Grand Empyréen Jiu Di. Je n'ai rencontré que le Grand Empyréen Gémeaux de la Secte Yang Pourpre du Continent de l'Est... » Wang Lin se remémora sa rencontre avec la Cupidité dans le monde des grottes et les deux charmantes petites filles nommées Wa Wa et Han Han.
+« Au total, cinq Grands Empyréens. L'Empereur Céleste peut être ignoré. Quant aux quatre autres... Je ne sais que très peu de choses sur le Grand Empyréen Dao Yi, le Grand Empyréen Wu Feng ou le Grand Empyréen Jiu Di. Je n'ai rencontré que le Grand Empyréen Gémeaux de la Secte Yang Pourpre du Continent de l'Est... » Wang Lin se remémora sa rencontre avec la Cupidité dans le monde des grottes et les deux charmantes petites filles nommées Wa Wa et Han Han.
 
 « Je dois attirer leur attention pour qu'ils viennent à ma rencontre. C'est la meilleure stratégie! » Les yeux de Wang Lin s'illuminèrent, puis il les ferma lentement.
 
-Il attendait l'arrivée de l'âme originelle de l'Ancien de la Secte du Dao Démoniaque. Il allait se maintenir dans une condition optimale pour tester l'étendue de sa puissance.
+Il attendait l'arrivée de l'Ancêtre de la Secte du Dao Démoniaque. Il allait se maintenir dans une condition optimale pour tester l'étendue de sa puissance.
 
 Les Exalté Dorés ne suffisaient plus pour qu'il puisse évaluer sa force. Seuls les Exaltés Empyréens pourraient l'aider à le faire.
 
@@ -108,13 +108,13 @@ Le temps s'écoulait lentement. Plusieurs heures plus tard, alors que l'aube poi
 
 À l'instant même où la seconde Veine Magique apparut, Wang Lin ouvrit brusquement les yeux. Il sentit qu'il pouvait désormais lancer ses sorts bien plus rapidement qu'auparavant!
 
-« La troisième Veine Magique est sur le point d'apparaître! » Wang Lin agita sa manche et sélectionna sept âmes originelles supérieures à cinq Tribulations Arcaniques parmi la dizaine d'âmes disponibles. Faute d'âmes originelles suffisantes au stade des Tribulations Arcaniques, il dévora une âme originelle de stade précoce des Tribulations du Vide. Son corps gronda et la troisième Veine Magique se manifesta!
+« La troisième Veine Magique est sur le point d'apparaître! » Wang Lin agita sa manche et sélectionna sept âmes originelles supérieures à cinq Tribulations Arcaniques parmi les dizaines d'âmes disponibles. Faute d'âmes originelles suffisantes au stade des Tribulations Arcaniques, il dévora une âme originelle de stade précoce des Tribulations du Vide. Son corps gronda et la troisième Veine Magique se manifesta!
 
 Une fois la troisième Veine Magique apparue, il pouvait instantanément projeter une multitude de sorts dès leur activation. Même la vitesse de son corps du Dao Ancien changea radicalement.
 
 Cela différait du cultivateur auprès duquel Wang Lin avait appris cette technique: ce dernier ne pouvait qu'augmenter sa vitesse d'incantation sans affecter son corps. La différence venait du fait que la première âme dévorée par le cultivateur appartenait à un expert du Vide du Nirvana, tandis que Wang Lin avait dévoré une âme originelle du Vide Arcanique!
 
-Plus de la moitié des âmes originelles dévorées par Wang Lin serviraient à d'autres desseins.
+Les dizaines d'âmes originelles, de niveaux inégaux, avaient été en grande partie dévorées; Wang Lin rangea le reste pour d'autres usages.
 
 « Je me demande combien de Veines Magiques l'âme originelle du Maître de la Secte du Dao Démoniaque pourra former... » Wang Lin ferma les yeux et commença à façonner les Veines Magiques avec l'âme du Maître de la Secte.
 

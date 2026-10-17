@@ -16,9 +16,9 @@ Le vieil homme nommé Zhang tremblait et ignora totalement Lu Wenran en battant 
 
 « Un cultivateur de la Tribulation du Vide est mort?! »
 
-« Li Zhiyuan! » Le vieil homme nommé Zhang recula précipitamment pour rejoindre l'endroit où Liu Zhiyuan avait péri. En voyant les restes de chair et de sang, ses pupilles se contractèrent. Il connaissait les liens unissant Liu Zhiyuan au Maître de la Secte de la Voie Démoniaque; cela fit trembler son cœur.
+« Liu Zhiyuan! » Le vieil homme nommé Zhang recula précipitamment pour rejoindre l'endroit où Liu Zhiyuan avait péri. En voyant les restes de chair et de sang, ses pupilles se contractèrent. Il connaissait les liens unissant Liu Zhiyuan au Maître de la Secte de la Voie Démoniaque; cela fit trembler son cœur.
 
-Le vieil homme nommé Zhao, qui combattait Yan Lu et ses compagnons, battit également en retraite sans hésiter. Tandis que Yan Lu et les autres étaient ébranlés par les cris lugubres, il atteignit le lieu du décès de Liu Zhiyuan.
+Le vieil homme nommé Zhao, qui combattait Yan Luan et ses compagnons, battit également en retraite sans hésiter. Tandis que Yan Luan et les autres étaient ébranlés par les cris lugubres, il atteignit le lieu du décès de Liu Zhiyuan.
 
 « Liu Zhiyuan... est mort? »
 
@@ -44,7 +44,7 @@ Le regard de Xu Dongde balaya la zone et il fronça les sourcils. Il ignorait qu
 
 « Tuer un cultivateur de la Tribulation du Vide en si peu de temps... Qui est cette personne?! »
 
-Seules les pupilles de Yan Lu se contractèrent. Elle entrevoyait vaguement des indices, et sa main droite tremblait sous ses manches.
+Seules les pupilles de Yan Luan se contractèrent. Elle entrevoyait vaguement des indices, et sa main droite tremblait sous ses manches.
 
 « C'est lui... »
 
@@ -72,7 +72,7 @@ Après tout, Wang Lin recelait trop de secrets et de méthodes qu'il ne souhaita
 
 À cet instant, chaque cultivateur sous terre spéculait sur l'identité du mystérieux tueur!
 
-Lu Wenran, Yan Lu et les quatre autres cultivateurs de la Tribulation du Vide se trouvaient dans le palais avec les trois vieillards qui avaient précédemment sous-estimé Wang Lin.
+Lu Wenran, Yan Luan et les quatre autres cultivateurs de la Tribulation du Vide se trouvaient dans le palais avec les trois vieillards qui avaient précédemment sous-estimé Wang Lin.
 
 Les expressions des trois anciens étaient empreintes de choc. Ils ne pouvaient croire qu'un individu ait pu tuer un cultivateur de la Tribulation du Vide. Si cela avait été Lu Wenran, cela aurait été acceptable. Même l'un des autres experts de ce niveau aurait été logique. Cependant, il était évident que le meurtrier du cultivateur du Continent du Démon Vert ne figurait pas parmi eux. Alors, qui était-ce?
 
@@ -94,7 +94,7 @@ En scrutant la multitude, une pensée traversa son esprit et ses pupilles se con
 
 « Ce ne peut pas être lui, il n'en est pas capable! » pensa Lu Wenran en évoquant Wang Lin.
 
-« Peu importe. Puisque cet individu refuse de se montrer, inutile de le chercher. Cela joue en notre faveur, et peut-être se révélera-t-il bientôt! » L'expression de Lu Wenran changea.
+« Peu importe. Puisque cet individu refuse de se montrer, inutile de le chercher. Cela joue en notre faveur, et peut-être se révélera-t-il bientôt! » Lu Wenran avait le visage sombre: ce qui lui déplaisait, c'était que, dans le troisième méridien qu'il gardait, se soit produit un événement qu'il ne pouvait ni maîtriser ni percevoir. Cela troublait quelque peu son humeur.
 
 Xu Dongde fronça les sourcils et lança soudain: « Et si l'assaillant n'était même pas présent, mais ne faisait que passer...? »
 

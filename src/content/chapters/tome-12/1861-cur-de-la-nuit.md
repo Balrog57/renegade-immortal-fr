@@ -94,7 +94,7 @@ En marchant sur la prairie, Wang Lin songea à Li Muwan. Ses yeux se remplirent 
 
 En effleurant sa main droite, il sentit sa chaleur. C'était comme s'il pouvait ressentir la présence de Li Muwan.
 
-Plus de deux mille ans, mais moins de trois mille ans. C'était une éternité, et pourtant si court. Tout comme ce vent qui continuait de souffler sur cette prairie depuis des temps immémoriaux.
+Plus de deux mille ans, mais moins de trois mille ans. C'était long, et pourtant si court. Comme l'herbe de cette Prairie de l'Extrême Ciel, qui se renouvelle de génération en génération et couvre toute la plaine, tandis que le vent, lui, reste immuable depuis des temps immémoriaux et souffle encore et encore.
 
 Un soupir résonna. Wang Lin marchait sur la prairie de ce continent étranger. Peut-être parce que ses blessures n'étaient pas encore guéries, une pointe de solitude pesait sur son cœur.
 
@@ -104,7 +104,7 @@ Un soupir résonna. Wang Lin marchait sur la prairie de ce continent étranger. 
 
 *J'ai parcouru des millions et des millions de kilomètres à travers les mondes, pour ne trouver que ton souffle.*
 
-*Je suis entré dans la voie démoniaque pour tuer, j'ai défié les cieux et terrassé des êtres célestes. Je subvertirai le ciel et la terre pour me tenir devant toi, seul et solitaire, simplement pour que tu ouvres les yeux.*
+*Je suis entré dans la voie démoniaque pour tuer, j'ai défié les cieux et tué des immortels. J'ai renversé le ciel et la terre, et mon dos désolé et solitaire se tient devant toi, simplement pour que tu ouvres ces yeux qui m'apaisent.*
 
 Wang Lin regarda l'obscurité au loin et continua sa marche silencieuse.
 
@@ -114,11 +114,11 @@ Le cœur de chaque être contient une boîte. Cette boîte renferme le souvenir 
 
 Certains perdent cette boîte en même temps qu'eux-mêmes et ne peuvent plus la retrouver.
 
-D'autres verrouillent la boîte et avalent le ciel tout entier; ils refusent de l'ouvrir et n'autorisent personne à la toucher.
+D'autres verrouillent la boîte et avalent la clé; ils refusent de l'ouvrir et n'autorisent personne à la toucher.
 
 Certains tiennent toujours cette boîte entre leurs mains, se répétant sans cesse de ne pas oublier.
 
-D'autres ont enterré la boîte profondément sous terre, attendant ce jour... où, lorsque les fleurs du printemps éclateront, cette belle fleur s'épanouira elle aussi.
+D'autres ont enterré la boîte profondément sous terre, attendant cette année-là... où, quand le printemps sera doux et les fleurs écloses, une belle fleur s'épanouira peut-être.
 
 La boîte contient l'amour pour une personne et une coupe d'eau douce-amère...
 

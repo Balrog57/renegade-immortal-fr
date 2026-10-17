@@ -20,7 +20,7 @@ Wang Lin cracha une bouchée de sang et recula. Le Taureau Céleste géant qui l
 
 Cette silhouette était floue, mais dégageait une pression terrifiante; d'après son apparence, il semblait s'agir de Ming Dao, sur le point de reformer son corps!
 
-« En suivant sa chair et son sang, ses os vont s'effondrer. S'il parvient à persévérer, alors il complétera le sort du Retour à l'Origine Ancestrale et son corps sera reconstitué par la lumière dorée! » Les paroles de l'Enseignant Impérial résonnèrent dans l'esprit de Wang Lin. Ses pupilles se contractèrent et il s'apprêtait à attaquer quand la voix antique de l'Enseignant Impérial retentit de nouveau dans son esprit.
+« Quand toute sa chair et son sang seront tombés, ses os s'effondreront. S'il parvient à persévérer, alors il complétera le sort du Retour à l'Origine Ancestrale et son corps sera reconstitué par la lumière dorée! » Les paroles de l'Enseignant Impérial résonnèrent dans l'esprit de Wang Lin. Ses pupilles se contractèrent et il s'apprêtait à attaquer quand la voix antique de l'Enseignant Impérial retentit de nouveau dans son esprit.
 
 « Wang Lin, ce vieil homme utilisera sa vie pour te transmettre l'héritage. Je ne peux me sacrifier qu'à une seule condition: que tu lèves le sceau sur mon clan! »
 
@@ -34,7 +34,7 @@ Avec ce coup, l'armure d'âme sur le corps de Wang Lin vola en éclats, mais son
 
 « Non!!! » Un message de sens divin, déchirant, émana de la lumière fantomatique. Le coup de poing de Wang Lin contenait le dernier vestige de l'armure du Taureau Céleste. Il créa un impact qui transperça les huit couches de lumière spectrale pour percuter la silhouette dorée!
 
-« Dans le clan céleste, tu n'es pas quelqu'un en qui je peux avoir confiance! » Que les paroles de l'Enseignant Impérial fussent vraies ou mensongères, Wang Lin s'en moquait. Il savait seulement que l'Enseignant Impérial avait participé au massacre dans la longue rue. Si son avatar de massacre n'était pas descendu, il serait sans aucun doute mort!
+« Parmi les membres du clan céleste, tu n'es pas quelqu'un en qui je peux avoir confiance! » Que les paroles de l'Enseignant Impérial fussent vraies ou mensongères, Wang Lin s'en moquait. Il savait seulement que l'Enseignant Impérial avait participé au massacre dans la longue rue. Si son avatar de massacre n'était pas descendu, il serait sans aucun doute mort!
 
 Dans son cœur, il nourrissait également une conjecture. Bien qu'il ne pût confirmer sa véracité, si elle s'avérait exacte, alors tout ce qui se présentait devant lui ne serait que mensonge!
 
@@ -58,7 +58,7 @@ La tête saignait de ses orifices, mais ses traits étaient très nets. Lorsque 
 
 Lors de l'Essai Empyréen, il avait vu l'ombre de cet être! Dans le palais, il avait vu sa statue. Il avait entendu parler de lui sans cesse au cours des derniers siècles!! Il avait même entendu son véritable nom dans le Bassin Dong Lin!!
 
-Il était l'ancêtre de l'Ancêtre Céleste, l'ancêtre de tout le Clan Céleste. Le légendaire membre le plus puissant du Clan Céleste!
+Il était l'ancêtre de l'Empereur Céleste, l'ancêtre de tout le Clan Céleste. Le légendaire membre le plus puissant du Clan Céleste!
 
 Il avait jadis scellé et supprimé 72 âmes étrangères pour former les 72 continents actuels!
 
@@ -82,7 +82,7 @@ Mais en voyant personnellement la tête de l'Ancêtre Céleste, le choc et l'hor
 
 Le cœur de Wang Lin trembla. Ce qu'il voyait aujourd'hui semblait ouvrir une porte sur le passé antique du clan céleste!! Que s'était-il passé à cette époque?
 
-Si l'Ancêtre Céleste était mort, alors qu'en était-il de l'Ancêtre Ancestral...
+Si l'Ancêtre Céleste était mort, alors qu'en était-il de l'Ancien Ancêtre...
 
 Toutes ces pensées résonnèrent instantanément dans son esprit. La lumière fantomatique de l'Enseignant Impérial laissa échapper un sifflement après avoir invoqué la tête de l'Ancêtre Céleste. Il ferma les yeux, puis sa main gauche couvrit son œil gauche tandis que son œil droit s'ouvrait soudainement!
 
@@ -96,7 +96,7 @@ Peu après, l'Enseignant Impérial, formé par la lumière fantomatique, regarda
 
 Le visage de Wang Lin pâlit instantanément et il recula sans hésiter. Cependant, alors que l'Enseignant Impérial pointait sa direction, une monstrueuse lumière dorée jaillit de l'œil droit de l'Ancêtre Céleste. Wang Lin sentit immédiatement une force colossale l'aspirer, et il fut involontairement entraîné dans l'œil droit de l'Ancêtre Céleste!
 
-Au moment où il fut aspiré, l'Enseignant Impérial, entouré de neuf lumières fantomatiques, se précipita dans l'œil droit de l'Ancêtre Céleste à la suite de Wang Lin!
+Au moment où il fut aspiré, l'Enseignant Impérial, entouré de neuf cercles de lumière spectrale, se précipita dans l'œil droit de l'Ancêtre Céleste à la suite de Wang Lin!
 
 « Tu n'as pas écouté les conseils de ce vieil homme et tu as interféré avec mon plan. Désormais, le plan qui avait 90 % de chances de réussir est réduit à seulement 30 %! »
 

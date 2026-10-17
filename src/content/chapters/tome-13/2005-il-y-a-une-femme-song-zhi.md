@@ -40,7 +40,7 @@ Cependant, le cœur de Kong Shi était en plein chaos. Au moment où Wang Lin é
 
 « Il... Qui est-il?! »
 
-Le jeune homme en noir fut le plus choqué. C'était un Seigneur Diable et il pensait avoir percé à jour Wang Lin. Pourtant, après avoir vu Wang Lin sortir si calmement de l'emprise des griffes, il prit une profonde inspiration, ses yeux brillant d'une intention de combat.
+Le jeune homme en noir fut le plus choqué. C'était un Seigneur Diable et il avait d'emblée méprisé Wang Lin. Pourtant, après avoir vu Wang Lin sortir si calmement de l'emprise des griffes, il prit une profonde inspiration, ses yeux brillant d'une intention de combat.
 
 Les sept personnes sur le diable ancien étaient venues du Dao Antique sur ordre de l'Empereur du Dao Antique. En voyant Wang Lin refuser de s'agenouiller, ils pensaient assister à un divertissement. Bien qu'ils fussent surpris par sa survie, ils n'y accordèrent pas d'importance; après tout, il ne s'agissait que d'une affaire interne au clan Antique qui ne les concernait pas.
 
@@ -70,7 +70,7 @@ Les yeux de ce diable étaient initialement rouges et empreints de folie, mais �
 
 Les sept personnes perchées sur lui étaient terrifiées en voyant Wang Lin s'approcher. À l'exception d'un vieil homme, les six autres reculèrent en déployant leurs pouvoirs respectifs du clan Antique.
 
-Parmi les sept, quatre avaient atteint le stade de neuf étoiles, et les deux autres avaient atteint un certain niveau de transcendance, de fusion et de raffinement.
+Parmi les sept, quatre avaient atteint le stade de neuf étoiles, et les deux autres avaient atteint un certain niveau de connexion, de fusion et de raffinement.
 
 Le plus puissant était le vieil homme qui ne recula pas alors que Wang Lin approchait. Son expression était extrêmement grave lorsqu'il poussa un rugissement: neuf étoiles apparurent entre ses sourcils ainsi que dans chacun de ses yeux!
 
@@ -92,9 +92,9 @@ Ces trois ombres restèrent là, fixant intensément Wang Lin qui avançait.
 
 Si le plus fort avait réagi ainsi, il n'était même pas nécessaire de mentionner les six autres qui reculèrent tous, le visage pâle.
 
-« Êtes-vous tous venus de la cité impériale du Dao Antique? » demanda Wang Lin d'un ton calme. Il dégageait l'aura d'un grand maître, exerçant une pression invisible qui asséchait la bouche du vieil homme et faisait accélérer son rythme cardiaque. Il n'avait ressenti cela que face à l'Empereur Antique, mais ce qui causait cette sensation était l'héritage de l'Empereur lui-même.
+« Êtes-vous tous venus de la cité impériale du Dao Antique? » demanda Wang Lin d'un ton calme. Il dégageait l'aura d'un grand maître, exerçant une pression invisible qui asséchait la bouche du vieil homme et faisait accélérer son rythme cardiaque. Il n'avait ressenti cela que face à l'Empereur du Dao Antique, mais ce qui causait cette sensation chez l'Empereur était le pouvoir impérial transmis depuis d'innombrables âges.
 
-L'homme devant lui répondit par sa propre force!
+Chez l'homme devant lui, c'était sa propre force!
 
 « Oui... L'Empereur Antique m'a donné le nom de Ye Hai, et c'est mon sixième voyage au sein du Shi Antique pour aider l'Empereur à trouver une concubine. » Le vieil homme prit une profonde inspiration et cessa de lutter contre la pression de Wang Lin, affichant plutôt un profond respect.
 

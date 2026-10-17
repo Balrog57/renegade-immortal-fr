@@ -12,9 +12,9 @@ Dans Luotian, le fourneau géant recouvert de gaz noirs au cœur du monde cavern
 
 Une fissure gigantesque apparut au milieu du fourneau, laissant jaillir une lumière dorée. Des grondements tonitruants résonnèrent à mesure que la faille s'agrandissait. Finalement, le fourneau se fendit en deux.
 
-Au moment de sa rupture, une porte dorée aussi vaste que le monde apparut. La porte s'ouvrit et des nuages emplirent l'espace intérieur. Par instants, on pouvait apercevoir un continent étrange, puis tout redevenait flou.
+Au moment de sa rupture, une porte dorée presque aussi haute que le ciel apparut. La porte s'ouvrit et des nuages emplirent l'espace intérieur. Par instants, on pouvait apercevoir un continent étrange, puis tout redevenait flou.
 
-Lorsque la porte se manifesta, les ruines à l'extérieur du fourneau se désintégrèrent pour devenir un espace connecté au reste du monde caverne.
+Lorsque la porte se manifesta, les ruines à l'extérieur du fourneau se désintégrèrent pour devenir un ciel étoilé relié à celui du monde caverne.
 
 Tous les cultivateurs présents ressentirent un tremblement qui se propagea dans tout le monde caverne. Tandis que l'écho de la secousse résonnait, l'entrée du cœur du monde caverne à Luotian disparut soudainement pour laisser place au fourneau!
 
@@ -102,7 +102,7 @@ Des ondulations résonnèrent dans l'espace. Le Général Tigre Blanc et l'autre
 
 Cependant, les Généraux Tortue Noire et Oiseau Vermillon furent stupéfaits.
 
-« Compagnons de la Planète des Cinq Éléments, je vous salue! » Tandis que Wang Lin parlait, le Général Tigre Blanc libéra le cultivateur de la Planète des Cinq Éléments. Ce dernier réfléchit un instant, puis retourna vers sa secte.
+« Compagnons de la Planète des Cinq Éléments, je vous salue! » Tandis que Wang Lin parlait, le Général Tigre Blanc libéra le cultivateur de la Planète des Cinq Éléments. Ce dernier, silencieux, rejoignit ses compagnons de secte.
 
 Un groupe de personnes se changea en un rayon de lumière et s'élança vers la porte dorée. Après un éclat de lumière, ils disparurent.
 
@@ -132,7 +132,7 @@ Tang Shan ouvrit la bouche comme pour dire quelque chose, mais resta silencieuse
 
 Wang Lin ne répondit pas. Le regard de Tang Shan s'obscurcit alors qu'elle était enveloppée par la lumière dorée. Personne, hormis elle, ne vit ses yeux s'éteindre tandis qu'elle disparaissait lentement dans la porte.
 
-À cet instant, tous ceux qui n'appartenaient pas au monde caverneux étaient partis un à un. Le regard de Wang Lin glissa au-delà du Maître du Dao Rêve Bleu et des autres pour se fixer sur le vide. Il joignit les mains face au néant.
+À cet instant, tous ceux qui n'appartenaient pas au monde caverneux étaient partis un à un. Le regard de Wang Lin glissa au-delà du Maître du Dao Rêve Bleu et des autres pour se fixer sur le vide, derrière lui. Il joignit les mains face au néant.
 
 Il n'y avait rien, rien ne semblait anormal. Aucune ondulation, aucun signe, mais les paroles de Wang Lin résonnèrent solennellement:
 

@@ -54,7 +54,7 @@ Les cultivateurs du Continent du Démon Vert manifestèrent leur respect. Ils sc
 
 Wang Lin était toujours assis sur la queue du scorpion, les yeux fixés sur le ciel. Les trois dernières Tribulations Arcaniques l'avaient déçu. Il attendait maintenant l'arrivée de la quatrième, espérant qu'elle soit à la hauteur.
 
-Avec un calme olympien, Wang Lin contemplait la beauté des Tribulations Arcaniques.
+Contempler depuis un belvédère la splendeur éphémère de cette Tribulation Arcanique ne relevait pas des paroles, mais de l'action. Avec un calme olympien, Wang Lin contemplait la beauté des Tribulations Arcaniques.
 
 « Quel genre de Tribulation Arcanique sera la quatrième... » murmura-t-il en prenant une gorgée de vin.
 
@@ -88,7 +88,7 @@ L'épée de brume était silencieuse, mais son intention meurtrière jaillissait
 
 Désormais, cette épée réapparaissait pour frapper Wang Lin!
 
-Wang Lin ignorait que la plupart des cultivateurs ayant survécu aux trois tribulations internes s'étaient préparés pendant très longtemps avant d'oser tenter l'aventure. Ils les affrontaient une à une, cherchant désespérément une infime chance de survie!
+Wang Lin l'ignorait, et n'avait pas besoin de le savoir: la plupart des cultivateurs ayant survécu aux trois tribulations internes s'étaient préparés pendant très longtemps avant d'oser tenter l'aventure. Ils les affrontaient une à une, cherchant désespérément une infime chance de survie!
 
 À cet instant, si le son du tambour paralysait le corps de Wang Lin, il ne pouvait stopper ses battements de cœur. Il ignorait comment les autres contrôlaient cette épreuve, mais il possédait sa propre méthode. Ses pulsations cardiaques s'accélérèrent et résonnèrent comme le tonnerre. Le rythme de son cœur contrecarra celui du tambour, lui rendant immédiatement la capacité de bouger.
 
