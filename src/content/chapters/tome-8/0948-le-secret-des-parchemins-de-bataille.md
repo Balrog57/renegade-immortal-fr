@@ -54,7 +54,7 @@ D'un revers de la main droite, il fit voler le parchemin vers Wang Lin et décla
 
 Wang Lin garda une expression impassible en saisissant le parchemin de bataille et regarda Lie Yunzi. Il n'entretenait aucun lien avec lui; Lie Yunzi devait donc avoir d'autres intentions en voulant qu'il observe ce second parchemin. En voyant l'état pitoyable de Xu Ting, sa certitude ne fit que croître.
 
-Plus important encore, Wang Lin avait clairement vu que la fraction d'origine source que Xu Ting avait obtenue du premier parchemin avait été ravisée par la bête lors de son assaut.
+Plus important encore, Wang Lin avait clairement vu que la fraction d'origine source que Xu Ting avait obtenue du premier parchemin avait été aspirée par la bête lors de son assaut.
 
 « Ce Parchemin de Bataille est intéressant! » Un sourire apparut sur les lèvres de Wang Lin alors qu'il saisissait le parchemin et l'ouvrait brusquement!
 
@@ -68,7 +68,7 @@ Pourtant, le spectacle qui se déroulait sous ses yeux changea radicalement l'op
 
 Comparé à Xu Ting, il attendait bien plus de la performance de Wang Lin.
 
-L'aura ancienne et féroce qui l'entourait ne modifia aucunement l'expression de Wang Lin. À ses yeux, cela n'était pas aussi puissant que son aura de Dieu Ancien! Ce n'était qu'une petite bête rugissant devant lui. Peu importe ses hurlements, elle restait faible!
+L'aura ancienne et féroce qui l'entourait ne modifia aucunement l'expression de Wang Lin. À ses yeux, cela n'était pas aussi puissant que son aura d'Ancien Dieu! Ce n'était qu'une petite bête rugissant devant lui. Peu importe ses hurlements, elle restait faible!
 
 Wang Lin ouvrit le parchemin avec calme. À mesure qu'il l'ouvrait, l'aura féroce redoublait de puissance et se mua en une rafale qui balaya Wang Lin. Cependant, ce vent ne parvint nullement à le faire bouger.
 
@@ -84,13 +84,13 @@ Le regard de Wang Lin devint glacial alors qu'il fixait la créature s'élançan
 
 Ce rugissement fut comme un coup de tonnerre fendant le ciel, résonnant à travers toute la planète de culture. Même le sommet de la montagne où se tenait Wang Lin trembla, menaçant de s'effondrer. Des fissures apparurent dans la terre environnante, formant de larges crevasses.
 
-S'il avait affronté un puissant cultivateur, Wang Lin n'aurait peut-être pas été assez fort pour l'emporter, mais ce simple esprit de bête antique n'était pas de taille pour ébranler son esprit. En cet instant, Wang Lin était un Dieu Ancien!
+S'il avait affronté un puissant cultivateur, Wang Lin n'aurait peut-être pas été assez fort pour l'emporter, mais ce simple esprit de bête antique n'était pas de taille pour ébranler son esprit. En cet instant, Wang Lin était un Ancien Dieu!
 
-Et il ne s'agissait pas d'un Dieu Ancien ordinaire, mais d'un Dieu Ancien Royal à 5 étoiles!!
+Et il ne s'agissait pas d'un Ancien Dieu ordinaire, mais d'un Ancien Dieu royal à 5 étoiles!!
 
-La féroce bête laissa échapper un rugissement, puis un gémissement, avant que son corps ne s'immobilise en pleine charge. La peur envahissait ses yeux. Elle avait été terrifiée par les paroles que Wang Lin avait prononcées devant le parchemin.
+La féroce bête laissa échapper un rugissement, puis un gémissement, avant que son corps, qui chargeait, ne soit renvoyé en arrière. La peur envahissait ses yeux. Elle avait été terrifiée par les paroles que Wang Lin avait prononcées devant le parchemin.
 
-À cet instant, elle ressentit une aura qui la fit trembler devant ce cultivateur. Elle se souvenait distinctement que cette aura était une chose qu'elle n'osait absolument pas provoquer!
+À cet instant, elle ressentit une aura qui la fit trembler devant ce cultivateur. Elle se souvenait distinctement que cette aura était une chose qu'elle n'osait absolument pas provoquer! Elle se rétracta aussitôt à l'intérieur du parchemin.
 
 Cette scène incroyable fit écarquiller les yeux de Lie Yunzi. Même avec son niveau de culture, il ne put s'empêcher d'être stupéfait, mais bientôt, son cœur fut rempli d'extase.
 
@@ -102,9 +102,9 @@ Wang Lin ouvrit le parchemin sans aucune hésitation après avoir poussé ce rug
 
 Un caractère « Bataille » extrêmement flamboyant apparut sur le parchemin, semblant prêt à s'envoler de l'intérieur. C'était prodigieux!
 
-Une aura ancienne émanait du mot « Bataille », et à cet instant, une ombre du Dao de la Bataille apparut dans chacun de ses yeux. La vision de Wang Lin se troubla et il sombra dans ce domaine étrange.
+Une aura ancienne émanait du mot « Bataille », et à cet instant, le reflet du caractère « Bataille » apparut dans chacune de ses pupilles. La vision de Wang Lin se troubla et il sombra dans ce domaine étrange.
 
-C'était toujours cet espace infini peuplé de ce vieil homme vêtu de blanc. Cependant, cette fois, le vieil homme était assis, et sa main droite continuait de tracer le mot « Bataille » dans le vide!
+C'était toujours ce ciel étoilé infini où se trouvait ce vieil homme vêtu de blanc. Cependant, cette fois, le vieil homme était assis, et sa main droite continuait de tracer le mot « Bataille » dans le vide!
 
 « Il y a trente mille ans, ce vieil homme a atteint le royaume du Vide et a saisi la limite du monde. Je n'ai laissé aucun descendant, et toute ma culture est consignée dans le mot "Bataille". En cet instant, avant de tenter de briser les confins du monde, je laisse derrière moi ces six Parchemins de Bataille au cas où j'échouerais et perdrais la vie. Si quelqu'un parvient à obtenir les six parchemins dans le futur, il deviendra l'héritier de ce vieil homme! »
 
@@ -112,7 +112,7 @@ Alors que le vieil homme murmurait, sa main droite s'arrêta soudainement. Des m
 
 « Bataille! » La voix du vieil homme était calme, mais au moment où il prononça le mot, le caractère « Bataille » trembla, se transforma en un rayon de lumière noire et disparut dans le vide...
 
-Le corps de Wang Lin frémit alors que l'ombre du Dao de la Bataille s'effaçait de ses yeux, le ramenant à la réalité.
+Le corps de Wang Lin frémit alors que le reflet du caractère « Bataille » s'effaçait de ses pupilles, le ramenant à la réalité.
 
 Lie Yunzi s'approcha rapidement, les yeux brillants d'excitation, et demanda avec urgence: « L'avez-vous vu?! »
 

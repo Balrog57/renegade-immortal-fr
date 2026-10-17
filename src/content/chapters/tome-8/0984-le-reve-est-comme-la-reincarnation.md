@@ -6,7 +6,7 @@ bookTitle: "Alliance's Secret"
 en: Chapter 984 - Dream is Like Reincarnation
 slug: le-reve-est-comme-la-reincarnation
 ---
-« Mon frère n'est pas très beau, alors il est probable que vous ne le connaissiez pas. » Situ Nan laissa échapper un rire tandis que sa main se tendait vers la taille de la charmante femme pour la pincer avec audace.
+« Mon frère n'aime pas les beautés, alors il est probable que vous ne le connaissiez pas. » Situ Nan laissa échapper un rire tandis que sa main se tendait vers la taille de la charmante femme pour la pincer avec audace.
 
 La femme, refusant de se laisser faire, s'apprêtait à résister quand Situ Nan la tira brusquement contre son torse. Il éclata de rire et s'élança directement vers la planète Tian Yun.
 
@@ -18,13 +18,13 @@ En entendant ces mots, le cœur de Situ Nan s'anima d'une pointe d'envie; il ne 
 
 « C'est bien dommage que le petit Lin soit un morceau de bois. Quel gaspillage pour mes centaines d'années d'enseignement! »
 
-Situ Nan s'amusait gaiement pour le moment. À cet instant précis, sur la lointaine planète Esprit d'Eau, l'œil droit de Wang Lin émit une lueur bleue. D'un revers de manche, il regagna aussitôt sa culture en méditation solitaire.
+Situ Nan s'amusait gaiement pour le moment. À cet instant précis, sur la lointaine planète Esprit d'Eau, l'œil droit de Wang Lin émit une lueur bleue. D'un revers de sa grande manche, il retourna aussitôt dans le palais où il résidait et se remit en retraite.
 
 Les passants se dispersèrent et le calme revint sur la planète Esprit d'Eau.
 
 Beaucoup ne connaîtraient pas de nuit paisible, et certains ne pourraient même plus cultiver. C'était le cas des trois frères Chen, du Maître Fu Fengzi, ainsi que de la jeune fille nommée Ling Er.
 
-Même accroupie, elle ne pouvait oublier cette silhouette qui transperçait les cieux. Incapable de cultiver, elle ne faisait que se retourner dans son lit, incapable de trouver le repos.
+Elle ne pouvait oublier cette silhouette qui, rien qu'à demi accroupie, transperçait déjà les cieux. Incapable de méditer, elle ne faisait que se retourner dans son lit, incapable de trouver le repos.
 
 « Pourquoi est-ce que, lorsque j'ai vu cette figure gigantesque, j'ai eu l'impression de rêver du cycle de la réincarnation? C'était comme si, à cet instant, je ressentais un respect que je n'avais jamais éprouvé auparavant. » Ling Er ne comprenait rien à tout cela. Ce n'est qu'au lever du jour qu'elle réussit enfin à s'endormir.
 
@@ -32,9 +32,9 @@ Son sommeil fut bref, mais elle eut la sensation d'avoir vécu une vie entière 
 
 Dans ce songe, elle semblait être devenue une autre personne, vêtue d'habits étranges. Elle se trouvait dans un monde à la fois familier et inconnu. Le ciel était d'un bleu si pur qu'il en était éblouissant.
 
-Elle se tenait sur un autel imposant qui s'élevait vers les cieux. Sous ses pieds, une multitude d'hommes et de femmes vêtus d'étranges parures entonnaient des incantations mystérieuses dont l'écho résonnait à travers le monde.
+Elle se tenait sur un autel imposant qui s'élevait vers les cieux. Sous l'autel, une multitude d'hommes et de femmes vêtus d'étranges parures, tous agenouillés sur le sol, entonnaient des incantations mystérieuses dont l'écho résonnait à travers le monde.
 
-Elle tendit le bras et, habitée par une profonde révérence, leva les yeux vers la voûte céleste. C'était comme si elle appelait le ciel, tentant de communiquer avec lui.
+Elle écarta les bras et, habitée par une profonde révérence, leva les yeux vers la voûte céleste. C'était comme si elle appelait le ciel, tentant de communiquer avec lui.
 
 Après un long moment, le vent se leva et les nuages s'amoncelèrent, changeant l'aspect du ciel. Les fidèles en bas entonnèrent leurs chants avec encore plus de ferveur, leurs visages rayonnants d'excitation et d'une extrême dévotion.
 
@@ -88,7 +88,7 @@ En contemplant la couronne, l'ombre rouge du passé réapparut progressivement d
 
 « Papillon Rouge... »
 
-À la mort de Papillon Rouge, celle-ci avait poussé Wang Lin à voyager jusqu'à sa terre natale. Là, il y avait trouvé une rose bleue dont l'arrogance égalait celle de Papillon Rouge.
+Avant de mourir, Papillon Rouge avait demandé à Wang Lin de voyager jusqu'à sa terre natale. Là, il y avait trouvé une rose bleue dont l'arrogance égalait celle de Papillon Rouge.
 
 Puis, après que Wang Lin eut obtenu la couronne, les deux avaient fusionné. Au début, il ignorait la fonction de cet objet et sentait simplement qu'une chose avait changé à l'intérieur, sans pouvoir en identifier la nature.
 
@@ -110,7 +110,7 @@ Lors de la grande bataille entre Luotian et l'Alliance, cette femme faisait part
 
 La femme portait une robe argentée qui soulignait ses courbes magnifiques. De son vivant, elle aurait été une femme enchanteresse. Mais à présent, son visage était livide et une terrifiante explosion d'énergie Yin émanait de son corps, emplissant la pièce.
 
-Deux chaînes entravaient encore son corps: l'une attachée à son humérus, l'autre à son bassin. Ces chaînes, d'un violet noirâtre, dégageaient une odeur fétide si puissante qu'un mortel en mourrait instantanément.
+Deux chaînes entravaient encore son corps: l'une attachée à sa clavicule, l'autre à son bassin. Ces chaînes, d'un violet noirâtre, dégageaient une odeur fétide si puissante qu'un mortel en mourrait instantanément.
 
 Même un cultivateur dont le niveau n'était pas assez élevé serait immédiatement empoisonné. Une seule inspiration suffirait à le blesser gravement; plusieurs inspirations, et il rendrait l'âme.
 

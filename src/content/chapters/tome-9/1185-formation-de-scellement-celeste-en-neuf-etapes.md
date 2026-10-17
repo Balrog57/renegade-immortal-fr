@@ -16,7 +16,7 @@ Ils continuèrent leur progression sur l'étroit sentier de montagne, Maître Pi
 
 Ils descendirent le sentier étroit pendant plusieurs jours. Après avoir évité diverses bêtes de brume, ils atteignirent les profondeurs de la chaîne de montagnes. Une dernière montagne se dressait devant eux; une fois ce passage franchi, ils découvriraient ce qui se cachait derrière elle.
 
-La vieille femme en vert restait calme et ne regardait pas à droite ou à gauche, telle une moine en méditation. Wang Lin l'avait observée à plusieurs reprises, mais il ne parvenait pas à percer ses pensées.
+La vieille femme en vert restait calme et ne regardait pas à droite ou à gauche, tel un moine en méditation. Wang Lin l'avait observée à plusieurs reprises, mais il ne parvenait pas à percer ses pensées.
 
 Wang Lin savait seulement que cette femme s'appelait Zhao, rien de plus. Cependant, il remarqua en chemin que, bien qu'elle suivît Maître Pin Cendré, chacun de ses pas était d'une précision chirurgicale.
 
@@ -64,9 +64,9 @@ L'esprit de Wang Lin tressaillit, mais il fit semblant de regarder avec une simp
 
 Dès que la restriction toucha la montagne, la surface du rocher sembla fondre et des ondulations apparurent, comme lorsqu'on jette un caillou dans un lac.
 
-Cependant, ce qui était étrange, c'était que ces ondulations étaient composées de chaînes de petits incantations. Une aura ancienne et décrépite émanait de la pierre.
+Cependant, ce qui était étrange, c'était que ces ondulations étaient composées de chaînes de petites incantations. Une aura ancienne et décrépite émanait de la pierre.
 
-La vieille femme recula encore quelques pas, forma de nouveaux sceaux et pointa plusieurs fois sa poitrine. Sept filaments de gaz s'échappèrent de ses orifices, chacun chargé d'une immense vitalité, pour l'entourer. Elle prit une profonde inspiration et fit un pas en avant.
+La vieille femme recula encore quelques pas, forma de nouveaux sceaux et pointa plusieurs fois sa poitrine. Sept filaments de gaz noir s'échappèrent de ses orifices, chacun chargé d'une immense vitalité, pour l'entourer. Elle prit une profonde inspiration et fit un pas en avant.
 
 Contre toute attente, la vieille femme sombra dans la roche en trois pas. Les ondulations s'intensifièrent et la pierre devint transparente, permettant à Maître Pin Cendré et aux autres de voir clairement le tunnel massif à l'intérieur.
 
@@ -106,7 +106,7 @@ Après ces trois pas, le visage du maître était pâle et son corps tremblait l
 
 C'était le huitième pas!
 
-Dès que le cinquième pas fut posé, des craquements furent entendus dans le corps de Maître Pin Cendré et du sang coula du coin de sa bouche. Ses yeux étaient injectés de sang. Mille ans de préparation, et il se retrouvait stoppé par une formation. Il refusait de céder!
+Dès que le huitième pas fut posé, des craquements furent entendus dans le corps de Maître Pin Cendré et du sang coula du coin de sa bouche. Ses yeux étaient injectés de sang. Mille ans de préparation, et il se retrouvait stoppé par une formation. Il refusait de céder!
 
 Rugissement!
 

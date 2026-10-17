@@ -14,7 +14,7 @@ D'un coup sec, le Fouet du Karma laissa échapper un sifflement aigu qui ressemb
 
 Le Fouet du Karma était à l'origine noir, mais après avoir détruit quatre géants dorés, il semblait muer, comme si des écailles commençaient à se détacher de sa surface.
 
-Des éclats de lumière dorée s'échappèrent du fouet. C'était comme si l'arme avait absorbé la puissance du soleil et de la lune! Le Fouet du Karma frappait en dégageant une lueur dorée semblable à celle d'un dragon. À chaque mouvement, une série de craquements retentissait, et les géants dorés restants s'effondrèrent tous!
+Des éclats de lumière dorée s'échappèrent du fouet. C'était comme si l'arme avait absorbé la puissance du soleil et de la lune: le soleil est d'or, la lune d'argent! Le Fouet du Karma frappait en dégageant une lueur dorée semblable à celle d'un dragon. À chaque mouvement, une série de craquements retentissait, et les géants dorés restants s'effondrèrent tous!
 
 Cette scène fit écarquiller les yeux de tous les spectateurs. Même les vieux monstres sur les tapis de prière devinrent intéressés.
 
@@ -104,7 +104,7 @@ Un son assourdissant, faisant bourdonner les oreilles des cultivateurs environna
 
 Wang Lin se déplaça comme un éclair. Dès que le tambour fut détruit, il bondit sur le dragon noir restant et chargea Luo Su, porté par une intention meurtrière implacable.
 
-Wang Lin savait que puisque le sort de sens divin de Luo Su avait été brisé, l'esprit de ce dernier était ébranlé et une faille s'était ouverte. S'il ne saisissait pas cette opportunité pour attaquer, en laissant à Luo Su le temps de se rétablir, la bataille s'éterniserait! Ce serait d'autant plus vrai si Luo Su commençait à utiliser des sorts d'origine. Dans ce cas, la moindre inattention de Wang Lin pourrait lui coûter la victoire. Bien qu'avec Qing Shui présent, sa mort soit peu probable, il perdrait toute chance de poursuivre le combat!
+Wang Lin savait que puisque le sort de sens divin de Luo Su avait été brisé, l'esprit de ce dernier était ébranlé et une faille s'était ouverte. S'il ne saisissait pas cette opportunité pour attaquer, en laissant à Luo Su le temps de se rétablir, la bataille s'éterniserait! Ce serait d'autant plus vrai si Luo Su commençait à utiliser des sorts d'origine. Dans ce cas, la moindre inattention de Wang Lin pourrait lui coûter la victoire. Bien qu'avec Qing Shui présent, sa mort soit peu probable, il perdrait sa qualification!
 
 En chargeant, Wang Lin leva la main et le Sceau Céleste s'élança. Il fonça sur Luo Su à une vitesse fulgurante. Le visage de Luo Su était pâle, mais ses yeux brillaient intensément. Il cessa de se soucier de son sort de sens divin brisé et sa main droite traça un sceau. L'énergie originelle convergea dans sa paume pour former un éclair de tonnerre enflammé.
 

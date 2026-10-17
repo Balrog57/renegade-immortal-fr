@@ -28,7 +28,7 @@ Par conséquent, s'il n'intervenait pas maintenant, cela serait déraisonnable. 
 
 L'expression du Maître Fu Fengzi était calme lorsqu'il dit lentement: « Confrère cultivateur, puisque vous avez déjà pris les personnes que vous convoitez, le mieux serait de partir! »
 
-Les yeux de Situ Nan se plissèrent, mais son expression était empreinte d'impatience et il cria: « Si tu n'étais pas blessé, tu ne serais même pas à la hauteur, mais en l'état actuel, tu n'es absolument pas qualifié pour me barrer la route! » Tout en parlant, Situ Nan leva sa main droite et pointa le doigt sans hésiter.
+Les yeux de Situ Nan se plissèrent, mais son expression était empreinte d'impatience et il cria: « Si tu n'étais pas blessé, tu serais à peine à la hauteur, mais en l'état actuel, tu n'es absolument pas qualifié pour me barrer la route! » Tout en parlant, Situ Nan leva sa main droite et pointa le doigt sans hésiter.
 
 Le Doigt des Enfers!
 
@@ -62,7 +62,7 @@ Situ Nan allait prendre la parole quand un sifflement strident retentit depuis l
 
 « Bon sang... » Situ Nan voulut reculer, mais les restrictions étaient trop nombreuses. Elles se ruaient sur lui comme si elles ne pouvaient s'arrêter avant de l'avoir scellé!
 
-Situ Nan esquissa un sourire amer et décida simplement de ne pas battir en retraite. Il ouvrit les bras et un vortex géant apparut devant lui. Ce vortex tournait à une vitesse vertigineuse; d'un mouvement des bras, Situ Nan fit s'effondrer le tourbillon, envoyant des ondes de choc successives.
+Situ Nan esquissa un sourire amer et décida simplement de ne pas battre en retraite. Il ouvrit les bras et un vortex géant apparut devant lui. Ce vortex tournait à une vitesse vertigineuse; d'un mouvement des bras, Situ Nan fit s'effondrer le tourbillon, envoyant des ondes de choc successives.
 
 Toutes les restrictions touchées par ces ondulations s'effondrèrent, et en un instant, elles furent toutes annihilées.
 

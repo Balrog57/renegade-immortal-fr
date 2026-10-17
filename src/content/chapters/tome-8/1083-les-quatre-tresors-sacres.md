@@ -6,7 +6,7 @@ bookTitle: "Alliance's Secret"
 en: Chapter 1083 - The Four Holy Treasures
 slug: les-quatre-tresors-sacres
 ---
-Dès l'instant où la goutte de sang rouge apparut, une flamme qui semblait ne pas appartenir à ce monde balaya le ciel. Le firmament fut alors enveloppé d'une lumière pourpre.
+Dès l'instant où la goutte de sang rouge apparut, une flamme qui semblait ne pas appartenir à ce monde balaya le ciel. Le firmament fut alors enveloppé d'une lumière rouge.
 
 Finalement, cette flamme, dont l'existence même défiait les lois de ce monde, convergea vers la partie sud du ciel pour prendre la forme d'un Oiseau Vermillon. Celui-ci poussa un cri et surplomba l'assemblée avec une aura de noblesse suprême.
 
@@ -18,11 +18,11 @@ C'était un morceau de bois vert!
 
 À l'apparition de ce bois sacré, des rugissements de dragons résonnèrent à travers le monde. D'innombrables Dragons Azure, longs de centaines de milliers de pieds, surgirent dans l'infini ciel étoilé. Leurs hurlements firent vibrer l'éther.
 
-Cela déclencha une ondulation phénoménale qui se propagea dans toutes les directions, soulevant un vent violent capable de rompre l'ordre naturel des choses.
+Cela déclencha une ondulation phénoménale qui se propagea dans toutes les directions, soulevant un vent violent qui semblait troubler jusqu'au monde des mortels.
 
 Enfin, ces Dragons Azure convergèrent vers l'est pour former un immense Dragon Azure. Enroulé sur lui-même, il fixa l'assistance d'un regard impitoyable.
 
-De la même manière, sept anciens de la Secte Divine du Tigre Blanc s'assirent en formation et entamèrent des incantations. Une lumière dorée jaillit de leurs sourcils, et sept fragments de métal brisé s'envolèrent de leurs fronts.
+De la même manière, sept anciens de la Secte Divine du Tigre Blanc s'assirent en formation et entamèrent des incantations. Une lumière dorée jaillit du sommet de leurs crânes, et sept fragments de métal brisé s'envolèrent de leurs têtes.
 
 Une fois apparus, ces sept fragments fusionnèrent pour former un bloc métallique de forme irrégulière. Cependant, un autre changement survint dans le ciel après la fusion des métaux.
 
@@ -30,7 +30,7 @@ Le rugissement soudain d'un tigre ébranla le monde. Une intention de meurtre in
 
 À la suite du cri du tigre, un Tigre Blanc d'une taille prodigieuse apparut!
 
-Ce Tigre Blanc semblait d'une férocité extrême, comme prêt à dévorer toute créature vivante. Tandis qu'il flottait dans les airs, ses yeux rouges balayèrent la foule avant de se fixer sur le côté ouest du ciel.
+Ce Tigre Blanc semblait d'une férocité extrême, comme prêt à dévorer toute créature vivante. Tandis qu'il flottait dans les airs, ses yeux rouges balayèrent la foule avant de se déplacer vers le côté ouest du ciel.
 
 La dernière secte à révéler son Trésor Sacré fut la Secte Divine de la Tortue Noire. Suite à la trahison de l'Empereur Divin de la Tortue Noire, la secte avait été scindée en deux et, après les assauts de l'Alliance, il n'en restait que peu d'âmes. Bien qu'ils se soient redressés, leur nombre demeurait infime.
 
@@ -83,13 +83,15 @@ L'Empereur Divin de l'Oiseau Vermillon secoua la tête et déclara calmement: «
 
 Ses paroles s'adressaient naturellement à Wang Lin. Bien que le corps de ce dernier soit extrêmement affaibli, il leva la tête pour contempler la scène.
 
-« Le Dragon Azure de l'est, bois Jia Yi; le Tigre Blanc de l'ouest, métal Geng Xin; l'Oiseau Vermillon du sud, feu Bing Ding; et la Tortue Noire du nord, eau Ren Kui! »
+« Le Dragon Azure de l'est, bois Jia Yi; le Tigre Blanc de l'ouest, métal Geng Xin; l'Oiseau Vermillon du sud, feu Bing Ding; et la Tortue Noire du nord, eau Ren Kui! Les trois styles de sceaux de ma Secte de l'Oiseau Vermillon, Ciel, Terre et Esprit, relèvent du feu Bing Ding! »
+
+L'Empereur Divin de l'Oiseau Vermillon forma un sceau de la main droite, l'agita vers l'avant et dit calmement: « Esprit Bing! »
 
 Simultanément, les trois autres sectes divines déclamèrent les mêmes mots:
 
 « Esprit Jia! » « Esprit Geng! » « Esprit Ren! »
 
-Aussitôt, les Quatre Bêtes Divines dans le ciel poussèrent des rugissements avant de se métamorphoser en armes! Le Dragon Azure devint une lance bleue, le Tigre Blanc une lame dorée, l'Oiseau Vermillon un long sabre rouge et la Tortue Noire une hache noire!
+Aussitôt, les Quatre Bêtes Divines dans le ciel poussèrent des rugissements avant de se métamorphoser en armes! Le Dragon Azure devint une lance bleue, le Tigre Blanc une lame dorée, l'Oiseau Vermillon une longue épée rouge et la Tortue Noire une hache noire!
 
 Les quatre armes formées par les bêtes divines chargèrent vers le bas. L'esprit du dragon invoqué par l'Omniscient fut transpercé sans résistance par la lance bleue et se désintégra.
 
@@ -109,9 +111,9 @@ Au même instant, les dirigeants des trois autres trésors hurlèrent:
 
 « Terre Yi! » « Terre Xin! » « Terre Kui! »
 
-Alors que leurs voix résonnaient, les Quatre Trésors Sacrés brillèrent et se regroupèrent sur le long sabre rouge de l'Oiseau Vermillon. En un instant, l'arme grandit de manière prodigieuse, comme si elle pouvait fendre les cieux et la terre. Simultanément, les armes formées par le Dragon Azure, le Tigre Blanc et la Tortue Noire apparurent derrière elle.
+Alors que leurs voix résonnaient, les Quatre Trésors Sacrés brillèrent et se regroupèrent sur la longue épée rouge de l'Oiseau Vermillon. En un instant, l'arme grandit de manière prodigieuse, comme si elle pouvait fendre les cieux et la terre. Simultanément, les armes formées par le Dragon Azure, le Tigre Blanc et la Tortue Noire apparurent derrière elle.
 
-Ce long sabre rouge s'abattit sur le démon ancien. La simple pression de sa descente, sur quelques dizaines de pieds seulement, fit trembler l'intégralité de la Terre des Esprits Démoniaques. Le sol s'affaissa, formant un immense bassin.
+Cette longue épée rouge s'abattit sur le démon ancien. La simple pression de sa descente, sur quelques dizaines de pieds seulement, fit trembler l'intégralité de la Terre des Esprits Démoniaques. Le sol s'affaissa, formant un immense bassin.
 
 Les yeux de l'Ancien Démon Ta Jia brillèrent d'un rouge sinistre, mais il ne put masquer la terreur qui les habitait.
 

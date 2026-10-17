@@ -14,9 +14,9 @@ Cependant, à cet instant précis, le ciel clair s'obscurcit et un cri déchiran
 
 En un instant, cette lumière dorée arriva, transportant un morceau de jade à son centre. Une fois arrivé, le jade plana au-dessus de la place de la Secte de l'Origine.
 
-Ce changement soudain provoqua un tollé parmi les disciples. Même les expressions de Lu Yanfei et de sa troupe changèrent, car l'aura qui s'en dégageait était de celles que seuls les vieux monstres du stade Brisant le Nirvana pouvaient libérer!
+Ce changement soudain provoqua un tollé parmi les disciples. Même les expressions de Lu Yanfei et de sa troupe changèrent, car l'aura qui s'en dégageait était de celles que seuls les vieux monstres du stade Briseur du Nirvana pouvaient libérer!
 
-Il ne s'agissait pas d'un simple cultivateur du stade Brisant le Nirvana, mais d'un être au sommet de ce stade. Un simple jade était capable de produire un tel effet retentissant: le ciel changea de couleur, les nuages tourbillonnèrent, et l'on percevait même de subtils signes de lois!
+Il ne s'agissait pas d'un simple cultivateur du stade Briseur du Nirvana, mais d'un être au sommet de ce stade. Un simple jade était capable de produire un tel effet retentissant: le ciel changea de couleur, les nuages tourbillonnèrent, et l'on percevait même de subtils signes de lois!
 
 « Ce vieil homme est Liu Jinbiao, son nom de Dao est: Maître Jin Biao! »
 
@@ -24,7 +24,7 @@ La voix majestueuse émana du jade et enveloppa toute la Secte de l'Origine. Mê
 
 Lu Yanfei, qui avait beaucoup vu au sein de la puissante Secte Éternelle du rang 8, n'était pas une simple cultivatrice du stade Scruteur du Nirvana. Ses yeux s'illuminèrent et elle joignit les mains en signe de respect. « Je ne sais pas pourquoi le Senior Jin Biao est venu dans ma Secte de l'Origine! »
 
-« Un désastre vous menace et vous n'en avez même pas conscience, alors je vais vous l'apprendre. Il y a trois jours, quelqu'un a trouvé ce vieil homme. Ils voulaient racheter la vie de tout votre Secte de l'Origine! »
+« Un désastre vous menace et vous n'en avez même pas conscience, alors je vais vous l'apprendre. Il y a trois jours, quelqu'un a trouvé ce vieil homme. Cette personne voulait acheter la vie de toute votre Secte de l'Origine! »
 
 La voix était chargée d'une pression inexplicable. Alors qu'elle résonnait, elle ressemblait au tonnerre et se transformait en une loi fusionnant avec le monde. Tout cela se mua en une pression écrasante qui pesait sur les esprits des disciples de la Secte de l'Origine!
 
@@ -34,9 +34,9 @@ L'expression de Lu Yanfei changea instantanément!
 
 Le regard de Lu Yanfei devint glacial alors qu'elle ricanait, mais les autres disciples de la Secte de l'Origine étaient pétris de peur.
 
-« Vous avez tous déjà fait vos bagages, prêts pour la dissolution. Peu importe, le maître de la Secte Éternelle a autrefois sauvé ce vieil homme et je lui suis redevable. Si vous me satisfaites, ce vieil homme enverra une lettre et empêchera la dissolution de votre Secte de l'Origine! »
+« Vous avez tous déjà fait vos bagages, prêts pour la dissolution. Peu importe, ce vieil homme est lié de longue date au maître de la Secte Éternelle, qui m'a autrefois dû une faveur. Si vous me satisfaites, ce vieil homme enverra une lettre et empêchera la dissolution de votre Secte de l'Origine! »
 
-« Ce vieil homme ne souhaite pas anéantir toute votre Secte. Si vous pouvez fournir suffisamment de cristaux d'origine ou une valeur équivalente, je mettrai fin à cette affaire! » La voix antique dégageait une aura indéniable doublée d'une intention menaçante. En raison de la puissance du stade Brisant le Nirvana, cette menace pouvait ébranler l'esprit de quiconque l'entendait.
+« Ce vieil homme ne souhaite pas anéantir toute votre Secte. Si vous pouvez fournir suffisamment de cristaux d'origine ou une valeur équivalente, je mettrai fin à cette affaire! » La voix antique dégageait une aura indéniable doublée d'une intention menaçante. En raison de la puissance du stade Briseur du Nirvana, cette menace pouvait ébranler l'esprit de quiconque l'entendait.
 
 Lu Yanfei réfléchit, mais son expression devint encore plus froide.
 
@@ -46,13 +46,13 @@ Lu Yanfei réfléchit, mais son expression devint encore plus froide.
 
 « Le temps de ce vieil homme est limité. Je ne vous donnerai que quinze minutes pour réfléchir. Après ces quinze minutes... »
 
-L'aura du sommet du stade Brisant le Nirvana se propagea avec fureur, mais il ne remarqua pas que Wang Lin l'observait d'un regard froid, son Sens Divin déjà déployé.
+L'aura du sommet du stade Briseur du Nirvana se propagea avec fureur, mais il ne remarqua pas que Wang Lin l'observait d'un regard froid, son Sens Divin déjà déployé.
 
 Wang Lin fusionna toute sa culture avec son Sens Divin et le projeta sur Mo Luo. En utilisant l'aura du jade comme guide, son Sens Divin convergea rapidement vers une capitale mortelle située dans la partie sud du continent!
 
-Cette capitale était bouillonnante et ses rues étaient bondées. Dans la partie sud de la ville, au sein d'une auberge, un vieil homme était assis dans une chambre close. Il dégageait l'aura d'un être céleste, avait les cheveux blancs et portait une robe blanche. Ses yeux étaient clos et un morceau de jade flottait devant lui!
+Cette capitale était bouillonnante et ses rues étaient bondées. Dans la partie sud de la ville, au sein d'une auberge, un vieil homme était assis dans une chambre close. Il dégageait l'aura d'un être céleste, avait les cheveux blancs et portait une robe de Daoïste. Ses yeux étaient clos et un pendentif de jade flottait devant lui!
 
-Ce jade était cristallin et semblait contenir le monde entier, mais étrangement, il ne dégageait aucune aura!
+Ce jade était cristallin; le soleil, la lune et les étoiles s'y dessinaient et il semblait contenir le monde entier, mais étrangement, il ne dégageait aucune aura!
 
 Même en l'examinant de près, on ne ressentait rien d'anormal. Ce n'était qu'en le regardant que l'on éprouvait ce sentiment de choc!
 
@@ -78,7 +78,7 @@ Cette voix apparut si soudainement qu'elle terrifia le vieil homme au point de l
 
 Cet individu avait les cheveux blancs, une robe blanche et un regard glacial. Lorsque le vieil homme croisa ce regard, son esprit trembla et il cracha immédiatement du sang.
 
-Les yeux du vieil homme furent remplis d'une terreur monstrueuse alors qu'il s'exclamait: « Un vieux monstre du stade Brisant le Nirvana! » Aussitôt, il se précipita vers la fenêtre pour s'enfuir.
+Les yeux du vieil homme furent remplis d'une terreur monstrueuse alors qu'il s'exclamait: « Un vieux monstre du stade Briseur du Nirvana! » Aussitôt, il se précipita vers la fenêtre pour s'enfuir.
 
 Wang Lin le fixa froidement, leva le pied et fit un pas. Une pression capable de faire trembler les cieux se propagea, faisant vaciller le vieil homme qui cracha à nouveau du sang.
 
@@ -86,9 +86,9 @@ Terrifié, le vieil homme hurla de terreur: « Jade, protège-moi! »
 
 Le jade flottant dans l'air brilla et fonça vers lui. Il fut si rapide que Wang Lin ne vit qu'un flou avant qu'il n'atteigne le vieil homme. Le jade émit un éclat aveuglant et enveloppa l'homme, avant de traverser la fenêtre pour s'élancer dans le ciel.
 
-Au moment où le vieil homme s'échappait, Wang Lin projeta sa main droite en avant. Une énergie d'origine infinie convergea de toutes les directions vers lui.
+Au moment où le vieil homme s'échappait, Wang Lin projeta sa main droite en avant. Une pression infinie convergea de toutes les directions vers lui.
 
-Cependant, alors que l'attaque allait l'atteindre, la lumière du jade brilla intensément et un grondement tonitruant retentit. L'assaut de Wang Lin, capable de tuer des cultivateurs Brisant le Nirvana, s'effondra inopinément!
+Cependant, alors que l'attaque allait l'atteindre, la lumière du jade brilla intensément et un grondement tonitruant retentit. L'assaut de Wang Lin, capable de tuer des cultivateurs Briseur du Nirvana, s'effondra inopinément!
 
 Grâce à la protection du jade, le vieil homme n'était pas blessé et s'engouffra dans le lointain.
 
@@ -104,9 +104,9 @@ Même si des centaines d'hommes de son espèce étaient réunis, ils ne pourraie
 
 Le vieil homme était livide et du sang coulait du coin de sa bouche. Ses yeux étaient empreints d'une panique inédite. Il avait escroqué des gens pendant de nombreuses années et, grâce au jade, il n'avait jamais été découvert. Il avait toujours été extrêmement prudent pour ne pas se faire prendre, mais voilà que quelqu'un l'avait trouvé et le traquait!
 
-« Un vieux monstre du stade Brisant le Nirvana! » Rien qu'à la pensée du niveau de culture de son poursuivant, le vieil homme était saisi d'effroi. Il ne pouvait que regretter de ne pas pouvoir s'échapper plus vite.
+« Un vieux monstre du stade Briseur du Nirvana! » Rien qu'à la pensée du niveau de culture de son poursuivant, le vieil homme était saisi d'effroi. Il ne pouvait que regretter de ne pas pouvoir s'échapper plus vite.
 
-« Jade, ah, jade, je compte sur toi pour traverser cette crise. Tu ne m'as jamais déçu jusqu'ici. Ma survie dépend de toi aujourd'hui. Tu dois m'aider! La plupart des cristaux d'origine que j'ai volés ont été absorbés par toi! » Le visage du vieil homme était encore plus pâle, mais ses paroles semblèrent avoir un effet. Le jade brilla à nouveau et la vitesse de l'homme augmenta.
+« Jade, ah, jade, je compte sur toi pour traverser cette crise. Tu ne m'as jamais déçu jusqu'ici. Ma survie dépend de toi aujourd'hui. Tu dois m'aider! La plupart des cristaux d'origine que j'ai escroqués ont été absorbés par toi! » Le visage du vieil homme était encore plus pâle, mais ses paroles semblèrent avoir un effet. Le jade brilla à nouveau et la vitesse de l'homme augmenta.
 
 Cependant, alors qu'il s'était échappé à des dizaines de milliers de kilomètres, des ondulations apparurent devant lui et Wang Lin en sortit. Il agita sa main droite.
 

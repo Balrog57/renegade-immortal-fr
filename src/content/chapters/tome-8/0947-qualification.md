@@ -16,11 +16,11 @@ Il agita sa main droite et traça des sillons du bout des doigts. Des éclairs d
 
 « Tombe de Sun Tai »
 
-« Pour nous, les cultivateurs, cent ans ou mille ans ne sont que l'espace d'un clin d'œil. La plupart des proches auront déjà disparu, et ceux qui restent se sentent étrangers... Une fois que l'on s'engage sur la voie de la culture, on est condamné à une vie de privations.
+« Pour nous, les cultivateurs, cent ans ou mille ans ne sont que l'espace d'un clin d'œil. La plupart des proches auront déjà disparu, et ceux qui restent se sentent étrangers... Une fois que l'on s'engage sur la voie de la culture, la vie et la mort deviennent imprévisibles et l'on est condamné à une vie de privations.
 
 « Lorsque l'on parcourt le chemin de la culture, quand l'on tourne la tête, on ne voit plus d'où l'on vient; et lorsque l'on regarde la route devant soi, elle est enveloppée de brume. »
 
-Wang Lin soupira en regardant la tombe de Sun Tai, les yeux emplis de regret.
+Wang Lin soupira en regardant la tombe de Sun Tai, les yeux emplis d'émotion.
 
 « Aujourd'hui, j'ai pu ramener tes cendres chez toi, bien que tu sois mort en terre étrangère... Si un jour je meurs, je ne sais pas s'il y aura quelqu'un pour me renvoyer sur la planète Suzaku... » Wang Lin resta plongé dans ses pensées avant de repartir.
 
@@ -30,15 +30,15 @@ Wang Lin soupira en regardant la tombe de Sun Tai, les yeux emplis de regret.
 
 « La culture, la culture, les mortels aspirent à devenir immortels et à entrer dans le monde de la culture. Pourtant, ils ignorent combien de cultivateurs envient la vie paisible d'un mortel.
 
-« Combien sont morts en terres étrangères comme Sun Tai, leurs cendres dispersées par le vent, incapables de rentrer chez eux... Cependant, beaucoup de parents et de proches n'ont pu revoir leurs enfants, même à l'instant de leur dernier souffle. Si l'on pouvait choisir à nouveau, prendrait-on encore ce chemin pour devenir un cultivateur... »
+« Combien sont morts en terres étrangères comme Sun Tai, leurs cendres dispersées par le vent, incapables de rentrer chez eux... Combien de parents et de proches n'ont pu revoir leurs enfants, même à l'instant de leur dernier souffle. Si l'on pouvait choisir à nouveau, prendrait-on encore ce chemin pour devenir un cultivateur... »
 
 « Cette comptine est née des amertumes de multiples générations. Les étrangers ne comprendront peut-être pas ce que chante l'enfant, mais les cultivateurs, eux, peuvent ressentir la tristesse qui habite son cœur. Le nom de cette comptine doit être... Ne cultivez pas... »
 
-La silhouette de Wang Lin s'effaça alors qu'elle fusionnait avec ces mots. Pourtant, la comptine et cette tristesse éternelle demeurèrent.
+La silhouette de Wang Lin s'effaça alors qu'elle fusionnait avec le vide. Pourtant, la comptine et cette tristesse éternelle demeurèrent.
 
-Wang Lin traversa les étoiles. Un puissant sentiment de regret pesait sur lui. Bien que le voyage fût court, l'humeur persistait en lui.
+Wang Lin traversa les étoiles. Une profonde émotion pesait sur lui. Bien que le voyage fût court, l'humeur persistait en lui.
 
-La zone située entre les régions occidentale et septentrionale était devenue une zone tampon pour les cultivateurs de Luotian. Une planète de culture se trouvait à proximité du champ de bataille. Cette planète était restée relativement intacte et, bien qu'il n'y eût plus beaucoup d'énergie spirituelle, Lie Yunzi s'en moquait peu.
+La zone située entre les régions occidentale et septentrionale était devenue une zone tampon pour les cultivateurs de Luotian. Une planète de culture se trouvait à proximité du champ de bataille. Cette planète était restée relativement intacte et, bien qu'il n'y eût plus beaucoup d'énergie spirituelle, Lie Yunzi s'en souciait peu.
 
 Lie Yunzi était assis au sommet d'une montagne sur la planète. À ses côtés se tenait un jeune homme à l'expression sombre. Bien qu'assis là, il regardait au loin comme s'il attendait quelque chose.
 
@@ -50,7 +50,7 @@ Il n'y avait que peu de cultivateurs de Luotian ici, seulement quelques individu
 
 Son sens divin était projeté à travers les treize Lou Fu, ce qui lui permettait de couvrir une zone bien plus vaste qu'à la normale. Par conséquent, rien dans le secteur ne pouvait échapper à son sens divin.
 
-La silhouette de Wang Lin apparut au milieu des ondulations de l'espace. Il était venu sur cette planète de culture pour chercher Lie Yunzi. C'était la seconde affaire qu'il devait traiter. Avant d'entrer dans le vide, Wang Lin avait reçu un message par sens divin, et l'expéditeur était Lie Yunzi.
+La silhouette de Wang Lin apparut au milieu des ondulations de l'espace. Il était venu sur cette planète de culture pour chercher Lie Yunzi. C'était la seconde affaire qu'il devait traiter. Après son retour du vide, juste avant de partir, Wang Lin avait reçu un message par sens divin, et l'expéditeur était Lie Yunzi.
 
 Lie Yunzi, assis au sommet de la montagne, ouvrit lentement les yeux. À l'instant même où il le fit, les treize sphères de sang tremblèrent et treize yeux rouges apparurent sur elles.
 
@@ -60,13 +60,13 @@ Lie Yunzi esquissa un léger sourire et dit lentement: « Tu es venu. » Grâce 
 
 Une lueur de froideur passa dans les yeux de Xu Ting. Il laissa échapper un grognement méprisant et ne cacha pas son intention meurtrière en fixant Wang Lin.
 
-La silhouette de Wang Lin apparut sous le regard des treize yeux rouges. Son expression était neutre, comme si la pression ne l'affectait nullement, et il ignora totalement Xu Ting. Il regarda Lie Yunzi et dit: « Xu Mu salue l'Senior Lie Yunzi. »
+La silhouette de Wang Lin apparut sous le regard des treize yeux rouges. Son expression était neutre, comme si la pression ne l'affectait nullement, et il ignora totalement Xu Ting. Il regarda Lie Yunzi et dit: « Xu Mu salue le Senior Lie Yunzi. »
 
 Lie Yunzi agita la main droite et les treize yeux rouges disparurent des sphères de sang, dissipant ainsi la pression. L'expression de Wang Lin ne changea pas alors qu'il atterrissait au sommet de la montagne, se tenant face à Xu Ting.
 
 Xu Ting s'écria: « Xu Mu!! Toi... »
 
-« Bruyant! » lança froidement Wang Lin en fixant Xu Ting. Son regard était comme une épée tranchante transperçant les yeux du jeune homme. Xu Ting ressentit une explosion dans son esprit et son expression changea radicalement. Choqué, il se sentit soudainement affaibli. Les paroles de Wang Lin semblaient contenir une sorte de loi qui inversait le flux sanguin de son corps et menaçait de faire s'effondrer son origine céleste.
+« Bruyant! » lança froidement Wang Lin en fixant Xu Ting. Son regard était comme une épée tranchante transperçant les yeux du jeune homme. Xu Ting ressentit une explosion dans son esprit et son expression changea radicalement. Choqué, il se sentit soudainement affaibli. Les paroles de Wang Lin semblaient contenir la volonté du ciel et de la terre, qui inversait le flux sanguin de son corps et menaçait de faire s'effondrer son origine céleste.
 
 BANG, bang, BANG, bang, BANG, bang...
 
@@ -82,7 +82,7 @@ Wang Lin ne regarda plus Xu Ting mais fixa Lie Yunzi en disant calmement: « Je 
 
 C'était l'effet recherché par Wang Lin: secouer la montagne pour alerter le tigre! Avec son intelligence, comment Lie Yunzi pouvait-il ignorer les raisons de sa recherche? Autrefois, il n'avait pas les qualifications pour exiger quoi que ce soit, mais désormais, il les avait!
 
-« Lors de l'attribution céleste, j'ai permis à ta famille de contempler le Parchemin de Bataille de la famille Zhan! Je t'avais promis alors de te laisser voir le second parchemin! Aujourd'hui, je vous ai appelés, toi et Xu Ting, pour l'observer! » Tandis qu'il parlait, Lie Yunzi leva la main gauche vers le vide. Un bruit de déchirure retentit, puis une fissure apparut.
+« Lors de l'attribution céleste, je t'ai montré le Parchemin de Bataille, trésor de ma famille Zhan! Je t'avais promis alors de te laisser voir le second parchemin! Aujourd'hui, je vous ai appelés, toi et Xu Ting, pour l'observer! » Tandis qu'il parlait, Lie Yunzi leva la main gauche vers le vide. Un bruit de déchirure retentit, puis une fissure apparut.
 
 Un rayon de lumière noire jaillit de la brèche. Un parchemin noir, entouré d'une aura obscure, vola vers la main de Lie Yunzi et y resta en lévitation.
 
@@ -104,7 +104,7 @@ Wang Lin l'attrapa avec précaution et la rangea dans son sac après l'avoir ins
 
 Lie Yunzi déclara: « Maintenant, tu peux le regarder! »
 
-« Puisque le Vice-Ciel de Tonnerre Xu Ting va m'accompagner pour tenter de saisir cette chance, alors Xu Ting devrait le regarder en premier. Après tout, c'est lui qui l'a contemplé le premier la dernière fois. » Wang Lin lança le parchemin vers Xu Ting.
+« Puisque le Vice-Céleste du Tonnerre Xu Ting va m'accompagner pour tenter de saisir cette chance, alors Xu Ting devrait le regarder en premier. Après tout, c'est lui qui l'a contemplé le premier la dernière fois. » Wang Lin lança le parchemin vers Xu Ting.
 
 Bien que son esprit soit encore chancelant, Xu Ting le saisit par réflexe. Il ouvrit le parchemin et, soudain, un rugissement de tonnerre en jaillit.
 

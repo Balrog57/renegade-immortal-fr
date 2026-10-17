@@ -38,7 +38,7 @@ Cependant, il devait reculer avec prudence et lenteur. S'il allait trop vite, la
 
 « Si cette bête pouvait devenir la bête de l'Ancien Dieu pour mon corps originel, cela augmenterait considérablement la force de ce dernier. Malheureusement... »
 
-Tandis que Wang Lin reculait lentement, les 18 têtes du Ji Qiong s'abaissèrent progressivement pour continuer à dévorer les corps, produisant de sinistres bruits de craquements.
+Tandis que Wang Lin reculait lentement, les têtes du Ji Qiong s'abaissèrent l'une après l'autre pour continuer à dévorer les corps, produisant de sinistres bruits de craquements.
 
 Ce son résonna dans le vide silencieux et parut particulièrement strident.
 
@@ -56,7 +56,7 @@ Au même moment, les 17 autres têtes se redressèrent soudainement et fixèrent
 
 L'expression de Wang Lin était sombre. Il était impossible de comprendre cette bête en raisonnant comme un cultivateur. À l'origine, il ne voulait pas s'en préoccuper, mais elle se rapprochait de plus en plus.
 
-Il ne pouvait pas utiliser la Courbure Spatiale à l'intérieur du corps de l'Ancien Dieu, mais il pouvait se téléporter. Le corps de Wang Lin vacilla et il disparut.
+Il ne pouvait pas utiliser la Courbure Spatiale dans la Terre de l'Ancien Dieu, mais il pouvait se téléporter. Le corps de Wang Lin vacilla et il disparut.
 
 Cependant, dès qu'il disparut, le Ji Qiong qui le poursuivait disparut également.
 
@@ -76,13 +76,13 @@ Le sang s'agita et se transforma en deux runes rouge sang. L'une s'envola vers l
 
 Toute tentative de téléportation reviendrait à percuter une plaque de métal dans cette zone scellée!
 
-Wang Lin était sur le point de se téléporter, son expression devint donc encore plus sombre. Sa main s'étendit pour ouvrir son espace de stockage. Alors que le Ji Qiong approchait, Wang Lin sortit un talisman jaune.
+Wang Lin avait voulu se téléporter; son expression devint encore plus sombre et il y renonça. Sa main s'étendit pour ouvrir son espace de stockage. Alors que le Ji Qiong approchait, Wang Lin sortit un talisman jaune.
 
-Il le plaça sur sa poitrine sans hésiter; le vent l'enveloppa et Wang Lin s'élança. Sa vitesse augmenta considérablement alors qu'il disparaissait dans un éclair de lumière spectrale.
+Il le plaça sur sa poitrine sans hésiter; le vent l'enveloppa et Wang Lin s'élança. Sa vitesse augmenta considérablement alors qu'il disparaissait sous la forme d'une lumière noire.
 
 Les 18 têtes du Ji Qiong parurent surprises, mais elles poussèrent immédiatement un rugissement unifié. L'une des têtes, celle d'une jeune fille, poussa un cri féroce et un vent noir apparut autour de la bête. Ce vent créa une tempête qui chargea avec le Ji Qiong. Un grondement retentit alors que la bête poursuivait à nouveau Wang Lin.
 
-Au même moment, des incantations sortirent de quatre autres têtes et d'innombrables runes noires apparurent. Elles brillèrent puis s'imprimèrent sur la tempête.
+Au même moment, des incantations sortirent de quatre autres têtes et d'innombrables sceaux noirs apparurent. Ils se pressèrent autour de la tempête, puis convergèrent et s'imprimèrent sur elle.
 
 En conséquence, la vitesse de la tempête fut multipliée par plusieurs. La distance que Wang Lin avait gagnée fut instantanément comblée.
 
@@ -106,12 +106,12 @@ Les yeux de Wang Lin s'illuminèrent. Ses sorts de feu et de tonnerre étaient p
 
 Pourtant, Wang Lin n'était pas disposé à partir ainsi!
 
-« Si vous osez me poursuivre, alors vous devrez en payer le prix! » Une froideur glaciale apparut dans ses yeux tandis que ses mains formaient un sceau. Puis son énergie originelle déferla et une sensation de fraîcheur envahit son corps.
+« Si vous osez me poursuivre, alors vous devrez en payer le prix! » Une froideur glaciale apparut dans ses yeux tandis que ses mains formaient un sceau. Puis son énergie originelle déferla et une fraîcheur monta peu à peu de son âme originelle.
 
-Une aura de massacre éclata soudainement de son corps, formant un réseau d'énergie de massacre. Il poussa un rugissement et pointa l'avant!
+Une aura de massacre éclata soudainement de son corps, formant un réseau d'énergie de massacre. D'un cri sourd, il pointa le doigt vers l'avant!
 
 En un instant, cette énergie de massacre se rassembla avec frénésie jusqu'à ne former qu'un seul fil rouge sombre. Elle chargea le Ji Qiong en créant un tonnerre assourdissant sur son passage.
 
 Tout cela se produisit en un éclair. Au moment où l'énergie de massacre rouge sombre fut projetée, le Ji Qiong trembla et le filet de foudre autour de son corps s'effondra.
 
-Dès que le filet de foudre disparut, l'énergie de massacre siffla dans les airs comme une météorite et apparut dans les 18 paires d'yeux des 18 têtes.
+Dès que le filet de foudre disparut, l'énergie de massacre siffla dans les airs comme une météorite et se refléta dans les 18 paires d'yeux des 18 têtes.

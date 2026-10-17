@@ -38,15 +38,15 @@ Xu Yun ne remarqua pas la présence de cet homme. Après avoir englouti la pilul
 
 Depuis l'arrière, Wang Lin pouvait clairement distinguer les courbes magnifiques de la femme. Le visage de Xu Yun s'empourpra davantage; elle avait les yeux clos et sentait un feu brûler en elle.
 
-Cette flamme consumait son âme originelle, et un singe d'or aux yeux noirs apparut au sein de celle-ci. Ce singe était colossal et féroce. Il poussa un rugissement et chargea l'âme originelle de la jeune femme.
+Cette flamme consumait son âme originelle, et un singe noir aux yeux d'or apparut au sein de celle-ci. Ce singe était colossal et féroce. Il poussa un rugissement et chargea l'âme originelle de la jeune femme.
 
-L'esprit de Xu Yun fut également envahi par les flammes. Son âme originelle étant déjà blessée, la brûlure était d'une douleur atroce, mais elle ne recula pas. Elle engagea le combat contre le singe aux yeux noirs. Son esprit devint un champ de bataille où s'engagea un duel à mort. Le singe rugissait, semblant vouloir déchirer son âme et sa chair pour s'échapper et échapper aux flammes dévorantes.
+L'esprit de Xu Yun fut également envahi par les flammes. Son âme originelle étant déjà blessée, la brûlure était d'une douleur atroce, mais elle ne recula pas. Elle engagea le combat contre le singe aux yeux d'or. Son esprit devint un champ de bataille où s'engagea un duel à mort. Le singe rugissait, semblant vouloir déchirer son âme et sa chair pour s'échapper et échapper aux flammes dévorantes.
 
 Pourtant, l'âme originelle de Xu Yun s'agrippait au singe noir. Tandis que les flammes la brûlaient, elles affinaient également la créature. Elle n'était pas prête à céder avant d'avoir raffiné ce singe.
 
 Toutefois, le singe noir était très puissant et son raffinage progressait plus lentement que la consommation de l'âme originelle de Xu Yun par les flammes. Cela força l'âme de la jeune femme à reculer, et son visage devint encore plus rouge tandis qu'elle tremblait de tout son être.
 
-Consommer une Pilule de Séparation de l'Âme et de la Mort revenait à marcher sur le fil tendu entre la vie et la mort. Xu Yun le savait parfaitement. Si elle n'avait pas été si impatiente de réaliser une percée pour mieux aider son maître, elle n'aurait jamais avalé une telle pilule aussi promptement.
+Consommer une Pilule de Mort de Séparation de l'Âme revenait à marcher sur le fil tendu entre la vie et la mort. Xu Yun le savait parfaitement. Si elle n'avait pas été si impatiente de réaliser une percée pour mieux aider son maître, elle n'aurait jamais avalé une telle pilule aussi promptement.
 
 Son maître l'avait tant aidée qu'elle était prête à tout pour lui!
 
@@ -54,7 +54,7 @@ Poussée dans ses retranchements par le singe qui n'avait encore été que parti
 
 À cet instant précis, Wang Lin leva sa main droite. Il souhaitait observer attentivement les effets de cette pilule; si Xu Yun mourait, il n'aurait plus l'occasion de mener son expérience.
 
-« Laisse tomber, je vais offrir une fortune à cette petite! » Wang Lin secoua la tête et pointa le doigt entre les sourcils de Xu Yun. Son sens divin pénétra directement dans l'esprit de la jeune femme.
+« Laisse tomber, je vais offrir une belle opportunité à cette petite! » Wang Lin secoua la tête et pointa le doigt entre les sourcils de Xu Yun. Son sens divin pénétra directement dans l'esprit de la jeune femme.
 
 Dans l'esprit de Xu Yun, son âme originelle continuait de reculer, submergée par le désespoir. Le singe se rapprochait et, au moment où il allait bondir, une silhouette blanche fit irruption.
 
@@ -72,11 +72,11 @@ Elle avait même vu l'Ancêtre, bien qu'il fût déjà mort, utiliser la magie, 
 
 L'homme sembla jeter un dernier regard vers Xu Yun avant de disparaître de son esprit. La seule trace subsistante était cette chevelure blanche, indélébile dans sa mémoire.
 
-Le singe fut totalement raffiné par les flammes et se transforma en une étrange force d'âme. Lorsque cette force pénétra l'âme originelle de Xu Yun, elle ne put plus penser à la silhouette blanche. En absorbant cette puissance, Xu Yun entra progressivement dans un état étrange, semblable au Royaume du Shi.
+Le singe fut totalement raffiné par les flammes et se transforma en une étrange force d'âme. Lorsque cette force pénétra l'âme originelle de Xu Yun, elle ne put plus penser à la silhouette blanche. En absorbant cette puissance, Xu Yun entra progressivement dans un état étrange, semblable au Royaume Shi.
 
 Dans cet état, la compréhension du Dao et des cieux émanait de cette mystérieuse force d'âme qui infusait son essence. Ce singe n'était pas une bête ordinaire, mais une bête spirituelle unique à la Mer des Nuages. Ces bêtes cultivaient également le Dao et comprenaient les lois célestes, tout comme les humains.
 
-Grâce à leur longévité naturelle, elles possédaient un avantage sur les cultivateurs pour atteindre l'illumination. Ce singe avait vécu plus de 3 000 ans. En capturant son âme et en la fusionnant avec des techniques d'alchimie, on avait créé cette Pilule de Séparation de l'Âme et de la Mort!
+Grâce à leur longévité naturelle, elles possédaient un avantage sur les cultivateurs pour atteindre l'illumination. Ce singe avait vécu plus de 3 000 ans. En capturant son âme et en la fusionnant avec des techniques d'alchimie, on avait créé cette Pilule de Mort de Séparation de l'Âme!
 
 Après un temps indéterminé, Xu Yun ouvrit lentement les yeux, dont le regard se mit à briller. L'aura d'une cultivatrice du Yang Corporel émanait de son corps. Bien qu'elle n'ait pas encore véritablement atteint ce stade, la porte était désormais ouverte. Il ne lui faudrait que du temps pour tout assimiler et devenir une véritable cultivatrice du Yang Corporel!
 
@@ -84,13 +84,13 @@ Xu Yun regarda soudainement derrière elle, mais il n'y avait personne. Elle ét
 
 Après avoir médité en silence, l'expression de Xu Yun devint sombre. Elle fixait le vide, hantée par cette image. Elle eut une sensation, non pas celle d'une cultivatrice, mais celle d'une femme: elle semblait... avoir déjà vu cette silhouette auparavant...
 
-« Était-ce une illusion... Cheveux blancs... Cheveux blancs... » Les yeux de Xu Yun s'illuminèrent soudainement. Elle se remémora ce que son maître lui avait dit concernant les derniers mots de l'Ancêtre après l'usage du Grand Sortilège de Bienveillance Spirituelle.
+« Était-ce une illusion... Cheveux blancs... Cheveux blancs... » Les yeux de Xu Yun s'illuminèrent soudainement. Elle se remémora ce que son maître lui avait dit concernant les derniers mots de l'Ancêtre après avoir utilisé son pouvoir divin de sélection des esprits.
 
 « Le Nord... Cheveux blancs... » La poitrine de Xu Yun se soulevait avec précipitation et sa respiration devint rauque. Elle s'élança immédiatement hors de sa demeure et s'envola vers son maître.
 
 Wang Lin, posté près de la fenêtre, vit le rayon de lumière disparaître dans la nuit. Une illumination traversa son cœur.
 
-« Je ne pensais pas... qu'une telle pilule puisse exister dans la Mer des Nuages... Cela signifie que plus la bête spirituelle est puissante, plus elle est utile pour aider l'âme à atteindre l'illumination... C'est très différent de Luotian et de l'Alliance. » En réfléchissant, Wang Lin se souvint soudainement de l'âme de bête que le maître de Mo Zhi avait raffinée et lui avait offerte en cadeau lorsqu'il était à la Secte Divine du Oiseau Vermillon...
+« Je ne pensais pas... qu'une telle pilule puisse exister dans la Mer des Nuages... Cela signifie que plus la bête spirituelle est puissante, plus elle est utile pour aider l'âme à atteindre l'illumination... C'est très différent des deux royaumes du Tonnerre et de la Pluie. » En réfléchissant, Wang Lin se souvint soudainement de l'âme de bête que le maître de Mo Zhi avait raffinée et lui avait offerte en cadeau lorsqu'il était à la Secte Divine du Oiseau Vermillon...
 
 À cet instant, dans la région de rang 5 non loin du Continent de Mo Luo, une créature au corps semblable à un têtard noir, large de mille pieds, volait lentement à travers les brumes stellaires.
 
@@ -102,6 +102,6 @@ Derrière le jeune homme se tenait un vieil homme. Il restait calme avec une exp
 
 « Non seulement je veux que Lu Yanfei devienne ma concubine de culture, mais je vais faire de la Secte de l'Origine mon palais intérieur! Oncle Song, quel est votre degré de confiance? »
 
-« Si ce vieux taoïste n'était pas mort, je n'en aurais aucune certitude, mais à présent, j'en suis sûr à cent pour cent! » Une lueur de froideur passa dans les yeux du vieil homme.
+« Si ce vieux Daoïste n'était pas mort, je n'en aurais aucune certitude, mais à présent, j'en suis sûr à cent pour cent! » Une lueur de froideur passa dans les yeux du vieil homme.
 
-Le jeune homme rit et se lécha les lèvres. Il semblait avoir eu une pensée soudaine et afficha un sourire maléfique.
+Le jeune homme rit et se lécha les lèvres. Il semblait avoir eu une pensée soudaine et afficha un sourire lubrique.

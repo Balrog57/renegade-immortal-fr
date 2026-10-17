@@ -8,9 +8,9 @@ slug: lintrus
 ---
 Cette épée brisée était d'un rouge éclatant et, dès son apparition, une monstrueuse énergie de massacre se manifesta. Cette énergie était si puissante qu'elle déferla instantanément hors de la planète, repoussant même les flammes qui l'entouraient.
 
-Cette épée brisée était la source de l'énergie de massacre de l'Omniscient en robe grise. Après la bataille dans le Domaine de l'Esprit Démon, la moitié brisée était restée dans le corps de Wang Lin. Durant ces trois années, tout en se soignant et en cultivant, il avait également affiné lentement son épée. La partie qui résidait dans son âme originelle s'était déjà dissipée, ne laissant que cette épée brisée dans son corps.
+Cette épée brisée était la source de l'énergie de massacre de l'Omniscient en robe grise. Après la bataille dans la Terre des Esprits Démoniaques, la moitié brisée était restée dans le corps de Wang Lin. Durant ces trois années, tout en se soignant et en cultivant, il avait également affiné lentement son épée. La partie qui résidait dans son âme originelle s'était déjà dissipée, ne laissant que cette épée brisée dans son corps.
 
-« Après trois ans d'affinage, j'ai acquis une certaine compréhension de base. Une fois cet affinage achevé, je pourrai cultiver l'Art Céleste du Massacre sans aucun problème. Il n'y aura aucun risque d'explosion tant que je n'atteindrai pas un million de brins d'énergie de massacre. »
+« Après trois ans d'affinage, j'ai acquis une certaine compréhension de base. Une fois cet affinage achevé, je pourrai cultiver l'Art Céleste du Massacre sans aucun problème. Il n'y aura plus aucun risque d'explosion lorsque j'atteindrai un million de brins d'énergie de massacre. »
 
 Wang Lin ne pouvait toujours oublier cette énergie de massacre. Après tout, il l'avait cultivée pendant de nombreuses années et avait atteint un stade avancé. À l'époque, c'était avec l'aide de l'Ancien Démon Bei Lou qu'il avait compris les dangers de l'Art Céleste du Massacre.
 
@@ -26,7 +26,7 @@ Ainsi, l'essence originelle du feu et du tonnerre fusionna. Dès qu'elle approch
 
 Un grondement de tonnerre résonna sans fin. Les bords de l'épée brisée commencèrent à fondre, mais à cet instant précis, une énergie de massacre glaciale surgit pour résister aux flammes.
 
-Wang Lin n'était pas étranger à ce phénomène, car cela se produisait systématiquement lorsqu'il affinait cette épée auparavant. Cependant, il n'avait pas de temps à perdre aujourd'hui; il devait affiner cette épée pour qu'elle lui appartienne pleinement. Il pourrait alors cultiver à nouveau l'Art Céleste du Massacre, car c'était un sort défensif extrêmement puissant.
+Wang Lin n'était pas étranger à ce phénomène, car cela se produisait systématiquement lorsqu'il affinait cette épée auparavant. Cependant, il n'avait pas de temps à perdre aujourd'hui; il devait affiner cette épée pour qu'elle lui appartienne pleinement. Il pourrait alors cultiver à nouveau l'Art Céleste du Massacre, car c'était un puissant sort à la fois offensif et défensif.
 
 S'il n'avait pas terminé sa première transformation, Wang Lin n'aurait pas été confiant, mais à présent, il en était sûr à 70 %!
 
@@ -92,9 +92,9 @@ Wang Lin adressa un signe de tête à Treize et dit doucement à la femme: « Li
 
 La culpabilité dans les yeux de Wang Lin s'intensifia. D'un mouvement de manches, il disparut avec Ling Er. Après leur départ, une paire d'yeux s'alluma à l'intérieur de la grotte au sommet de la montagne.
 
-Le corps originel de Wang Lin ouvrit les yeux, révélant lui aussi une profonde culpabilité. Le Sable Noir Marqué était sur son épaule et lui léchait occasionnellement le cou.
+Le corps originel de Wang Lin ouvrit les yeux, révélant lui aussi une profonde culpabilité. Le Blaireau Marqué d'Étoiles était sur son épaule et lui léchait occasionnellement le cou.
 
-Nul ne vit que Wang Lin était assis sur des ossements. C'était un spectacle sinistre...
+Nul ne vit qu'en dessous de la taille, le corps originel de Wang Lin n'était plus qu'un amas d'ossements dégageant une aura sinistre...
 
 Un vieil homme aux cheveux blancs, paraissant très âgé, buvait du vin sur les remparts d'une ville de la Secte Divine de l'Oiseau Vermillon. Un éclat de folie brillait dans ses yeux.
 

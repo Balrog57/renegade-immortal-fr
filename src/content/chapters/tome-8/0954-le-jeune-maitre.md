@@ -40,9 +40,9 @@ Wang Lin sourit et fit un signe de la main à Ta Shan. Ce dernier fit un pas, se
 
 Une silhouette massive se déplaçait parmi les étoiles, laissant derrière elle une traînée de sang. Son corps était couvert de blessures et, à chaque enjambée, une quantité considérable de sang s'en écoulait.
 
-Presque chaque pas faisait saigner ce géant. Plus effrayant encore, des cavités profondes se trouvaient entre les sept premières vertèbres de sa colonne. Chaque trou émettait une lueur verte et sinistre. De plus, des cavités similaires étaient parsemées sur toutes ses articulations; il y en avait au moins des dizaines!
+Presque chaque pas faisait saigner ce géant. Plus effrayant encore, des cavités profondes se trouvaient sur chacune des sept premières vertèbres de sa colonne. Chaque trou émettait une lueur verte et sinistre. De plus, des cavités similaires étaient parsemées sur toutes ses articulations; il y en avait au moins des dizaines!
 
-Un cultivateur pâle reposait sur son épaule. L'apparence de ce dernier était étrange: il avait une tête démesurée. Cependant, ce cultivateur était extrêmement affaibli.
+Un cultivateur pâle reposait sur son épaule. L'apparence de ce dernier était étrange: il avait une tête démesurée. Cependant, son corps était extrêmement maigre.
 
 Une empreinte noire, exhalant une odeur nauséabonde, marquait le dos du garçon à la grosse tête. Une fumée noire s'en échappait en produisant un sifflement de brûlure.
 
@@ -76,7 +76,7 @@ Un jeune homme vêtu d'une chemise bleue était assis sur l'un des géants. Il �
 
 Il ne siégeait pas en position de lotus; il était affalé en arrière, tenant une poignée de cerises rouges à la main. Parfois, il en mangeait une tout en observant Lei Ji d'un regard à la fois moqueur et possessif.
 
-« Aucun être de cette Alliance n'a jamais réussi à échapper à ce Jeune Maître. Je ne m'attendais pas à tomber sur le corps d'un membre de la lignée royale du Clan des Démons Géants alors que je venais simplement m'amuser. Pas mal, vraiment pas mal! »
+« Aucun corps convoité par ce Jeune Maître n'a jamais réussi à s'échapper dans cette Alliance. Je ne m'attendais pas à tomber sur le corps d'un membre de la lignée royale du Clan des Démons Géants alors que je venais simplement m'amuser. Pas mal, vraiment pas mal! »
 
 « Ce vieux fou de la famille disait que l'Alliance était en plein chaos à cause de la guerre et que je ne devrais pas sortir n'importe comment. Si je n'étais pas sorti, comment aurais-je pu rencontrer une telle proie? » Le jeune homme mangea une cerise avec un sourire et cracha immédiatement le noyau. Le noyau jaillit comme un rayon de lumière vers Lei Ji.
 

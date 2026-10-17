@@ -8,11 +8,11 @@ slug: reprimande-au-secte-everlasting-8
 ---
 « Merci, Compagnon Cultivateur Lu, pour votre clémence! » Le visage de Du Lin était livide alors qu'il joignait les mains. Le sang coulait du coin de sa bouche et il s'éclipsa rapidement sous la pluie, le dos empreint d'une profonde défaite.
 
-En tant que Grand Ancien de la Vallée des Pins Pourpres de rang 7 et l'une des figures centrales de la secte principale, une quantité immense de pilules lui avait été octroyée. Même de puissants cultivateurs étaient venus lui enseigner le Dao; il pensait avoir atteint les sommets. Pourtant, aujourd'hui, son adversaire ne s'était même pas pleinement déployé. Un seul sort capable d'extraire l'âme de la planète l'avait pourtant terrassé!
+En tant que disciple principal de la Vallée du Pin Pourpre de rang 7 et l'une des figures centrales de la secte principale, une quantité immense de pilules lui avait été octroyée. Même de puissants cultivateurs étaient venus lui enseigner le Dao; il pensait avoir atteint les sommets. Pourtant, aujourd'hui, son adversaire ne s'était même pas pleinement déployé. Un seul sort capable d'extraire l'âme de la planète l'avait pourtant terrassé!
 
 En vérité, lorsqu'il avait vu Wang Lin extraire l'âme de la planète, il avait su qu'il était perdu. Il espérait néanmoins pouvoir résister un instant ou deux. Mais la réalité était cruelle: ce fut une défaite totale.
 
-Ce coup d'estoc psychologique lui laissait un goût amer. Il retourna vers le secteur de la Vallée des Pins Pourpres sous la pluie et s'y assit en silence.
+Ce coup d'estoc psychologique lui laissait un goût amer. Il retourna vers le secteur de la Vallée du Pin Pourpre sous la pluie et s'y assit en silence.
 
 Yin Yue était également pâle; elle mordit sa lèvre inférieure et joignit les mains devant Wang Lin avant de se détourner, l'allure tout aussi défaite sous la pluie.
 
@@ -26,11 +26,11 @@ C'était cet homme qui était devenu progressivement célèbre sur la planète S
 
 Li Qianmei n'aurait pas non plus cru que Wang Lin pourrait la bouleverser ainsi après un siècle. Tuer les deux membres de la Secte de la Musique Céleste, éliminer Zhao Long, vaincre aisément Yun Shan, et enfin utiliser le sort d'extraction de l'âme planétaire pour écraser Du Lin et Yin Yue!
 
-Quant à Wang Shanshan, elle poussa un long soupir de stupeur. Elle connaissait parfaitement le sort d'extraction de l'âme planétaire pour l'avoir vu son maître l'utiliser. Son maître avait affirmé qu'il n'y avait pas plus de trois personnes dans la Mer des Nuages capables de réaliser une telle prouesse!
+Quant à Wang Shanshan, elle poussa un long soupir de stupeur. Elle connaissait parfaitement le sort d'extraction de l'âme planétaire pour avoir vu son maître l'utiliser. Son maître avait affirmé qu'il n'y avait pas plus de trois personnes dans la Mer des Nuages capables de réaliser une telle prouesse!
 
-Au-dessus de l'âme de la planète se trouvait l'âme du vide, représentant l'âme du système stellaire lui-même. Le sort permettant d'extraire l'âme d'un système stellaire appartenait au troisième niveau de culture. Son maître avait dit que parmi les cultivateurs du deuxième niveau, une légende des temps anciens existait.
+Au-dessus de l'âme de la planète se trouvait l'âme du vide, représentant l'âme du système stellaire lui-même. Le sort permettant d'extraire l'âme d'un système stellaire appartenait à la troisième étape de culture. Son maître avait dit que parmi les cultivateurs de la deuxième étape, une légende des temps anciens existait.
 
-Cette légende évoquait quatre grands sorts qu'un cultivateur du deuxième niveau pouvait acquérir en comprenant les lois célestes. Deux de ces quatre sorts étaient l'extraction de l'âme planétaire et la manipulation spatiale!
+Cette légende évoquait quatre grands sorts qu'un cultivateur de la deuxième étape pouvait acquérir en comprenant les lois célestes. Deux de ces quatre sorts étaient l'extraction de l'âme planétaire et la manipulation spatiale!
 
 Ces sorts ne s'apprenaient pas, ils se comprenaient par la seule grâce de la fortune et de l'éveil. Cependant, si peu de personnes étaient capables de les appréhender.
 
@@ -100,7 +100,7 @@ Les yeux du vieil homme en blanc brillèrent et il sourit. Alors qu'il s'apprêt
 
 Un grondement de tonnerre retentit tandis qu'un rayon de lumière surgissait de l'horizon. Ce rayon portait une aura dénuée d'émotion, et une voix grave descendit du ciel:
 
-« Osez-vous utiliser l'un de mes sorts? »
+« Oses-tu recevoir l'un de mes sorts? »
 
 « Grand Ancien! » Tous les membres de la Secte Éternelle se levèrent et joignirent les mains, leurs visages empreints d'un immense respect.
 

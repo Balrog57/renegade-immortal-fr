@@ -6,9 +6,9 @@ bookTitle: "Alliance's Secret"
 en: Chapter 1108 - Aura of the Ancient Celestial Realm
 slug: laura-du-royaume-celeste-antique
 ---
-De loin, on aurait dit que Wang Lin était dévoré par le brouillard de sang, puis tout s'apaisa. Les moustiques volaient nerveusement avec leurs compagnons. Ils observaient les nuages de la rétribution divine mais n'osaient pas s'en approcher, car cette rétribution n'était pas une épreuve qu'ils pouvaient endurer pour le moment.
+De loin, on aurait dit que Wang Lin était dévoré par le brouillard de sang, puis tout s'apaisa. Les bêtes-moustiques volaient nerveusement avec leurs compagnons. Ils observaient les nuages de la rétribution divine mais n'osaient pas s'en approcher, car cette rétribution n'était pas une épreuve qu'ils pouvaient endurer pour le moment.
 
-Le temps passa lentement. Juste au moment où l'impatience poussait les moustiques à charger vers les nuages de la rétribution divine, un rugissement tonitruant retentit de l'intérieur du brouillard rouge!
+Le temps passa lentement. Juste au moment où l'impatience poussait les bêtes-moustiques à charger vers les nuages de la rétribution divine, un rugissement tonitruant retentit de l'intérieur du brouillard rouge!
 
 Tandis que le brouillard rouge grondait, des éclairs jaillirent et une mer de flammes fit rage. Une silhouette écarlate surgit du brouillard de sang. C'était Wang Lin!
 
@@ -34,13 +34,13 @@ En y plongeant son Sens Divin, il découvrit un monde nouveau!
 
 Cet endroit possédait un ciel bleu et un océan, et était imprégné d'énergie spirituelle céleste. La terre s'étendait à perte de vue, mais Wang Lin aperçut immédiatement une statue gigantesque au sol.
 
-Cette statue de pierre colossale était un Dieu Antique! Ce Dieu Antique possédait huit étoiles, dont deux étaient scellées, et il se tenait là, immobile, comme s'il était mort.
+Cette statue de pierre colossale était un Dieu Antique! Ce Dieu Antique possédait huit points d'étoile entre les sourcils, dont deux étaient scellés, et il se tenait là, immobile, comme s'il était mort.
 
 Pourtant, Wang Lin ressentait clairement la puissante vitalité émanant de ce Dieu Antique.
 
 Si cela avait été tout, cela n'aurait pas suffi à bouleverser Wang Lin. Cependant, il ne vit pas un seul Dieu Antique. Au sol se trouvaient pas moins de dix Dieux Antiques, ainsi que près de cent démons et diables anciens!
 
-Un jeune homme était assis sur le dos de l'un des démons anciens. Il tenait un miroir à la main et fronçait les sourcils, plongé dans ses calculs.
+Un jeune homme vêtu d'une robe daoïste était assis en tailleur sur la tête de l'une des statues de démons anciens. Il tenait un miroir à la main et fronçait les sourcils, plongé dans ses calculs.
 
 « L'entrée de la rétribution divine dont l'oncle-maître Ma a parlé devrait se trouver ici... »
 
@@ -58,7 +58,7 @@ Pourtant, en regardant de près, on aurait vu que les nuages ne s'étaient pas d
 
 Dès l'apparition de cette lueur, une aura qui n'appartenait pas à ce monde se manifesta. L'isolement créé par la rétribution divine se dissipa instantanément.
 
-«... J'ai accidentellement aidé à dissiper la puissante rétribution divine à quatre formes... Peu importe, je suis enfin sorti de cet endroit maudit, alors il était juste de l'aider. » Des paroles exaltées s'échappèrent de la lumière vert-noir, avant qu'elle ne disparaisse sans laisser de trace.
+«... J'ai accidentellement aidé à dissiper les quatre formes restantes de la rétribution divine, les plus puissantes... Peu importe, je suis enfin sorti de cet endroit maudit, alors il était juste de l'aider. » Des paroles exaltées s'échappèrent de la lumière vert-noir, avant qu'elle ne disparaisse sans laisser de trace.
 
 Au même moment, dans la région occidentale lointaine de l'Alliance, un vieil homme était assis sur la prairie d'une planète de culture très commune. Vêtu de noir, il était d'un calme imperturbable, comme si rien au monde ne pouvait troubler sa sérénité.
 
@@ -106,7 +106,7 @@ Wang Lin réfléchit un instant avant de se lever et de prendre une profonde ins
 
 « Je me demande combien d'entre vous ont percé à jour mon stratagème! » Wang Lin, animé par une pointe de fierté, se dirigea vers la Secte Divine de l'Oiseau Vermillon.
 
-Il allait retrouver Wang Wei et Hu Juan, ainsi que l'Ancien Démon Ta Jia, qui était scellé par le trésor sacré.
+Il allait retrouver Wang Wei et Hu Juan, ainsi que l'Ancien Démon Ta Jia, qui était scellé par le sang du trésor sacré antique.
 
 À cet instant précis, un événement bouleversant secoua le quartier général de l'Alliance, dans sa zone centrale. Même la formation extérieure trembla violemment, comme sur le point de s'effondrer!
 

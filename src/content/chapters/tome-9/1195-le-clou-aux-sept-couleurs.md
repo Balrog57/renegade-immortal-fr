@@ -40,7 +40,7 @@ Après avoir réfléchi un instant, une lueur de froideur passa dans les yeux de
 
 « Il y a aussi Maître Nuage-Âme. Lorsqu'il a été téléporté ici, il l'a été vers un lieu aléatoire, mais j'ignore où. Cependant, cet endroit est rempli de dangers, et être transporté ici au hasard est périlleux. Il est probable qu'il ne puisse même pas se défendre pour le moment. »
 
-« Ces trois-là ont tous été mis en difficulté par moi, mais ce Chen Tianjun est parti tôt. Bien que nous ayons senti ses sorts se dissiper auparavant, il est difficile de prouver qu'il est mort... »
+« Ces trois-là ont tous été mis en difficulté par moi, mais ce Chen Tianjun de la Secte de la Bête de Bataille est parti tôt. Bien que nous ayons senti ses sorts se dissiper auparavant, il est difficile de prouver qu'il est mort... »
 
 Chacun ici complotait contre les autres, et personne ne voulait laisser autrui quitter cet endroit avec le trésor. C'était ce qu'on appelle: « même si un homme ne veut pas nuire au tigre, le tigre, lui, voudra toujours nuire à l'homme ». Si l'on reste passif, on finit inévitablement par être victime de complots. Les yeux de Wang Lin s'illuminèrent; il avait depuis longtemps percé à jour leurs intentions. C'est pourquoi il avait agi le premier en forçant Maître Nuage-Âme à se téléporter ailleurs, puis il avait piégé la vieille femme dans la restriction afin de pouvoir affronter Maître Pin Cendré.
 
@@ -52,7 +52,7 @@ Après une profonde inspiration, Wang Lin serra les dents, saisit le clou aux se
 
 Ce clou semblait fusionné avec son os; il était impossible de dire qu'il n'en faisait pas partie! Plus étrange encore, la lumière aux sept couleurs semblait avoir pénétré l'os lui-même. L'os de son épaule droite paraissait être devenu sept couleurs.
 
-Le visage de Wang Lin était livide. Au moment où la lumière aux sept couleurs pénétra son corps, son esprit devint vide. Une lueur de folie pointit le bout de son nez.
+Le visage de Wang Lin était livide. Au moment où la lumière aux sept couleurs pénétra son corps, son esprit devint vide. Une lueur de folie pointa le bout de son nez.
 
 Bien que cette sensation n'ait duré qu'un instant, elle fit haleter Wang Lin.
 
@@ -114,7 +114,7 @@ La moitié de son corps était recouverte de cette lueur. Avec la méthode de Wa
 
 Des éclairs de lumière noire déchiraient l'air tandis que les deux aigles continuaient d'attaquer le corps de Wang Lin. Ses blessures s'aggravèrent et du sang jaillit de sa bouche, mais son visage était empreint d'extase.
 
-Tant que la racine n'était pas touchée, un corps d'Ancien Dieu pouvait se rétablir instantanément. Même s'il subissait des blessures mortelles, Wang Lin s'en moquait, pourvu qu'il puisse expulser le clou aux sept couleurs. Il se précipita vers le sommet de la montagne.
+Tant que la racine n'était pas touchée, un corps d'Ancien Dieu pouvait se rétablir instantanément. Même s'il subissait des blessures mortelles, Wang Lin s'en moquait, pourvu qu'il puisse expulser le clou aux sept couleurs.
 
 À ce moment-là, le corps de Wang Lin avait atteint ses limites. La lumière aux sept couleurs sur son épaule droite s'était totalement condensée pour redevenir le clou aux sept couleurs.
 
@@ -122,4 +122,4 @@ Sous ces assauts continus, le clou semblait se desserrer et montrait des signes 
 
 C'est à cet instant qu'un autre rugissement retentit depuis le sommet de la montagne et qu'un troisième aigle surgit. Il se transforma en un rayon de lumière et percuta impitoyablement la poitrine de Wang Lin.
 
-Le corps de Wang Lin trembla; l'impact puissant donna à son corps déjà meurtri l'impression qu'il allait s'effondrer, mais ses yeux étaient remplis de joie. Il laissa échapper un rire alors que son épaule droite explosait dans une gerbe de sang. Le clou aux sept couleurs se trouvait là, au cœur de ce sang!
+Le corps de Wang Lin trembla; l'impact puissant donna à son corps déjà meurtri l'impression qu'il allait s'effondrer, mais ses yeux étaient remplis de joie. Il laissa échapper un rire alors que son épaule droite explosait dans une gerbe de sang. Dans la chair et le sang projetés, un éclat aux sept couleurs jaillit: c'était le clou aux sept couleurs!

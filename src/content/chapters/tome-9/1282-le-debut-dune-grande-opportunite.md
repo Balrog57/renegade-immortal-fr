@@ -14,7 +14,7 @@ Même le Seigneur du Royaume Scellé avait péri après avoir été transpercé 
 
 En cet instant, si ce clou aux sept couleurs ne s'était pas enfoncé complètement en Shui Daozi, il n'aurait pas été confronté à une telle crise de vie ou de mort.
 
-Cependant, l'avatar du vieil homme du Royaume Céleste du Vent était arrivé, et son doigt impétueux avait poussé le clou de cinq pouces. Cela rendit Shui Daozi presque fou, car il ne parvint pas à contenir la force en lui.
+Cependant, l'avatar du vieil homme du Royaume Céleste du Vent était arrivé, et son doigt impétueux avait enfoncé le clou jusqu'à cinq pouces de profondeur. Cela rendit Shui Daozi presque fou, car il ne parvint pas à contenir la force en lui.
 
 Mobilisant sa puissante culture du troisième niveau, Shui Daozi parvint de justesse à réprimer l'attaque par la force. Il comptait tuer Wang Lin pour ensuite entrer en méditation de porte close afin de guérir.
 
@@ -28,7 +28,7 @@ Cette découverte lui fit perdre la raison. Il n'eut même pas le temps de suppl
 
 À cet instant précis, alors que le clou s'était totalement enfoncé dans le crâne de Shui Daozi, celui-ci commença à fondre. Il dégagea une puissante lueur arc-en-ciel qui envahit son cerveau!
 
-Tous les orifices de Shui Daozi se mirent à irradier cette lumière aux sept couleurs! Sa tête ressemblait à un bouchon percé de sept trous d'où jaillissait cette lueur spectrale!
+Tous les orifices de Shui Daozi se mirent à irradier cette lumière aux sept couleurs! Sa tête ressemblait à une passoire percée de sept petits trous d'où jaillissait cette lueur spectrale!
 
 Poussant des cris de détresse, Shui Daozi sembla perdre la raison et recula précipitamment. Ses yeux étaient empreints d'une lutte monstrueuse alors qu'il tentait de résister à la lumière qui envahissait son esprit. Mais peu importait l'intensité de sa résistance, tout était vain. Le clou aux sept couleurs s'était transformé en liquide en un instant, inondant son esprit.
 
@@ -46,9 +46,9 @@ Les grondements tonitruants s'estompèrent progressivement après son départ. S
 
 Wang Lin ferma lentement les yeux. Il avait tout brisé. Même s'il ne s'était pas autodétruit pour entraîner Shui Daozi dans sa chute, ses blessures étaient bien plus graves que celles subies jadis dans la Terre des Esprits Démoniaques!
 
-Toute sa vitalité avait été consommée et il avait vieilli prématurément. Au moment où il ferma les yeux, les trois vortexes retournèrent dans son corps et les cinq essences se déplacèrent vers l'intérieur de celui-ci.
+Toute sa vitalité avait été consommée et ses cheveux avaient blanchi et il était devenu un vieillard. Au moment où il ferma les yeux, les trois vortexes retournèrent dans son corps et les cinq essences tournoyèrent en lui.
 
-Cependant, malgré cela, ils ne pouvaient restaurer la vitalité perdue.
+Cependant, malgré cela, elles ne pouvaient restaurer la vitalité perdue.
 
 Alors qu'il fermait les yeux, un vortex apparut entre ses sourcils et la Perle Défiant le Ciel s'envolait lentement. Dès son apparition, elle fondit et se répandit sur l'ensemble de son corps.
 
@@ -58,7 +58,7 @@ Simultanément, la pierre de jade qui flottait devant lui fondit également pour
 
 Peu après, non loin de là, là où le trident s'était effondré, apparut un nuage de lumière cristalline. Cette lueur convergea vers Wang Lin et disparut dans sa main droite.
 
-De même, à l'endroit où l'aile papillon du troisième Char de Guerre Divin s'était désintégrée, subsistait une faible lueur aux sept couleurs. Un vague papillon arc-en-ciel se forma et lutta pour battre des ailes. Il vola lentement vers Wang Lin avant de se dissiper en éclats de lumière qui pénétrèrent dans son corps.
+De même, à l'endroit où l'esprit d'artefact papillon du troisième Char de Guerre Divin s'était effondré, subsistait une faible lueur aux sept couleurs. Un vague papillon arc-en-ciel se forma et lutta pour battre des ailes. Il vola lentement vers Wang Lin avant de se dissiper en éclats de lumière qui pénétrèrent dans son corps.
 
 Il y eut aussi ces deux épées courtes, l'une noire et l'autre blanche. Elles se reformèrent sous forme de fantômes, comme si une force mystérieuse les avait ramenées à la vie. Elles se changèrent en cerfs noirs et blancs avant d'entrer dans le corps de Wang Lin.
 
@@ -66,11 +66,11 @@ Tout était fini.
 
 La conscience de Wang Lin fut plongée dans l'obscurité et il sombra lentement dans le sommeil.
 
-Sous le pouvoir mystérieux de la Perle Défiant le Ciel, son corps devint de pierre et flotta doucement parmi les étoiles.
+Sous le pouvoir mystérieux de la Perle Défiant le Ciel, son corps devint de pierre, privé de tout pouvoir magique, et flotta doucement parmi les étoiles.
 
 La région de rang 5 s'était effondrée. Elle était désormais criblée de fissures spatiales d'où s'engouffrait un vent glacial. De nombreux vortex cachés y jonchaient le vide. Wang Lin dérivait à travers cette région dévastée.
 
-Après une durée indéterminée — qu'il s'agisse d'un jour, de dix jours ou peut-être d'un mois... — Wang Lin, devenu une statue de vieillard, continuait de errer dans la région de rang 5. Parfois, il heurtait un vortex et se faisait projeter au loin. Parfois, il traversait une faille spatiale, provoquant l'apparition de fissures sur tout son corps de pierre.
+Après une durée indéterminée — qu'il s'agisse d'un jour, de dix jours ou peut-être d'un mois... — Wang Lin, devenu une statue de vieillard, continuait d'errer dans la région de rang 5. Parfois, il heurtait un vortex et se faisait projeter au loin. Parfois, il traversait une faille spatiale, provoquant l'apparition de fissures sur tout son corps de pierre.
 
 Une femme se trouvait également dans cette région de rang 5. Elle était arrivée depuis un temps indéterminé. Lorsqu'elle atteignit le champ de bataille où Wang Lin et Shui Daozi s'étaient affrontés, des larmes coulèrent sur son visage.
 
@@ -98,7 +98,7 @@ Dans la partie nord de ce continent sauvage, la femme descendit dans une vallée
 
 Chaque jour, la femme se tenait devant la statue, se mordait le bout du doigt et recouvrait l'idole de son sang. La pierre étant très rugueuse, la douleur au doigt était intense. Pourtant, la femme fixait les yeux de la statue comme si elle ignorait ce qu'était la souffrance.
 
-La statue de pierre était imposante, de la taille d'un homme. La recouvrir de sang demandait un temps considérable, et sa blessure guérissait souvent avant qu'elle n'ait terminé.
+La statue de pierre était imposante, de la taille d'un homme. La recouvrir de sang demandait un temps considérable, et sa blessure formait souvent une croûte avant qu'elle n'ait terminé; chaque fois, elle arrachait la croûte et pressait de nouveau son doigt pour en extraire du sang et continuer.
 
 Après avoir répété cela maintes fois, cette douleur devint une véritable torture!
 
@@ -108,7 +108,7 @@ Chaque fois qu'elle couvrait la statue de sang, celle-ci l'absorbait. Elle se me
 
 Un mois, deux mois... quatre mois... sept mois... un an!
 
-Une année entière s'était écoulée. La femme devait recouvrir chaque parcelle de la statue sans en oublier une seule. Elle paraissait d'une beauté sublime tout en accomplissant ce rituel méticuleux...
+Une année entière s'était écoulée. La femme devait, deux fois par jour, recouvrir chaque parcelle de la statue sans en oublier une seule. Elle paraissait d'une beauté sublime tout en accomplissant ce rituel méticuleux...
 
 Durant cette année, la statue de pierre était devenue de plus en plus éclatante. Son apparence changeait lentement, passant de celle d'un vieillard à celle d'un homme plus jeune. Seul le visage de la femme devenait de plus en plus pâle. La perte massive de sang, chargé d'énergie originelle, lui donnait l'aspect d'une fleur magnifique qui se fane.
 

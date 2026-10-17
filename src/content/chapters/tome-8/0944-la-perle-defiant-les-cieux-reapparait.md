@@ -8,9 +8,9 @@ slug: la-perle-defiant-les-cieux-reapparait
 ---
 La voix triste de Lou Chen résonna à travers le vide pour atteindre les oreilles de Wang Lin. L'esprit de Wang Lin trembla et il ressentit une forme de résonance!
 
-Lou Chen avait osé défier les cieux, sans crainte du ciel ni de la terre. Cependant, il n'avait pu inverser son propre destin: le Serpent Regardant la Lune!
+Lou Chen avait osé défier les cieux, sans crainte du ciel ni de la terre. Cependant, il n'avait pu inverser son propre destin: le Serpent aux yeux de lune!
 
-Il avait été assimilé par le Serpent Regardant la Lune et la majeure partie de son pouvoir d'Ancien Dieu en avait été absorbée. Cela l'avait contraint à régresser, passant du sommet d'un Ancien Dieu à 8 étoiles à une forme enfantine. Tout cela était un destin qu'il ne pouvait changer. Il avait été piégé à l'intérieur du Serpent Regardant la Lune pendant des dizaines de milliers d'années, vivant une existence pire que la mort. Fort de la fierté des Anciens Dieux, l'humiliation qu'il avait subie dans son cœur révélait sa désolation.
+Il avait été assimilé par le Serpent aux yeux de lune et la majeure partie de son pouvoir d'Ancien Dieu en avait été absorbée. Cela l'avait contraint à régresser, passant du sommet d'un Ancien Dieu à 8 étoiles à une forme enfantine. Tout cela était un destin qu'il ne pouvait changer. Il avait été piégé à l'intérieur du Serpent aux yeux de lune pendant des dizaines de milliers d'années, vivant une existence pire que la mort. Fort de la fierté des Anciens Dieux, l'humiliation qu'il avait subie dans son cœur révélait sa désolation.
 
 Le clan des Anciens Dieux était un clan extrêmement fier, et cette fierté refusait de laisser quoi que ce soit les piétiner. Tu Si en était tout aussi sujet, et Lou Chen également.
 
@@ -52,7 +52,7 @@ Une goutte de liquide noir apparut et disparut au sein du vortex.
 
 « C'est véritablement un Ancien Dieu royal! » Les yeux du vieil homme brillèrent intensément.
 
-« Un Ancien Dieu royal à 5 étoiles qui vient de s'éveiller! Je ne m'attendais pas à ce qu'il reste des dieux royaux dans le Domaine Scellé. Si le conseil des Anciens l'apprend, cela déclenchera une tempête mémorable! Heureusement, cet individu n'est qu'au stade de l'éveil. S'il s'était pleinement éveillé et avait atteint les six étoiles, même moi j'aurais dû battre en retraite! » Le vieil homme haleta, la cupidité brûlant ses yeux.
+« Un Ancien Dieu royal à 5 étoiles qui vient de s'éveiller! Je ne m'attendais pas à ce qu'il reste des dieux royaux dans le Royaume Scellé. Si le conseil des Anciens l'apprend, cela déclenchera une tempête mémorable! Heureusement, cet individu n'est qu'au stade de l'éveil. S'il s'était pleinement éveillé et avait atteint les six étoiles, même moi j'aurais dû battre en retraite! » Le vieil homme haleta, la cupidité brûlant ses yeux.
 
 « Si je peux absorber son pouvoir d'Ancien Dieu royal, je pourrai siéger au conseil des Anciens! » La marque en croissant de lune brilla entre les sourcils du vieil homme et il serra les dents. Ses mains formèrent un sceau, et la marque s'envola pour former une empreinte lunaire haute d'environ trois mètres!
 

@@ -16,7 +16,7 @@ La Secte de l'Origine était en déclin constant depuis d'innombrables années. 
 
 La Secte de l'Origine ne pouvait l'accepter, mais elle n'osait s'y opposer. Si elle le faisait, elle serait purement et simplement anéantie. Après tout, la Secte de l'Origine n'était qu'une simple branche.
 
-Cette méthode brutale servait à garantir que les sectes de rang 8 continuent de croître en puissance, jusqu'au jour où toutes leurs branches seraient devenues assez puissantes pour que la Secte Divine leur accorde le statut de secte de rang 9.
+Cette méthode brutale servait à garantir que les sectes de rang 8 continuent de croître en puissance, jusqu'au jour où la plupart de leurs branches seraient devenues assez puissantes pour que la Secte Divine leur accorde le statut de secte de rang 9.
 
 La rumeur disait que la Secte Brise-Ciel et la Secte Fantôme s'étaient élevées de cette manière même.
 
@@ -26,7 +26,7 @@ Ce festival sacré n'était pas une bataille chaotique et totale. Les sectes ét
 
 Chaque grande compétition des sectes de rang 8 se déroulait en présence d'un membre d'une secte de rang 9. Si des disciples les enchantaient, ils les recrutaient directement sur-le-champ. Bien que les sectes de rang 8 s'en sentent impuissantes, elles ne pouvaient rien refuser.
 
-Le paradoxe, à la fois chanceux et triste, était que très peu de personnes attiraient l'attention des sectes de rang 9. Au cours des 100 000 dernières années, seules trois personnes avaient captivé leur intérêt.
+Le paradoxe, à la fois chanceux et triste, était que très peu de personnes attiraient l'attention des sectes de rang 9. Au cours des 10 000 dernières années, seules trois personnes avaient captivé leur intérêt.
 
 Une fois la compétition des sectes de rang 8 terminée, les trois disciples les plus forts de chaque groupe s'affrontaient lors d'une véritable bataille contre les autres sectes de rang 8. Cette lutte était cruciale. Bien que les sectes de rang 8 ne puissent y participer personnellement et que la secte de rang 9 en assure la supervision, ce combat permettait de démontrer une partie de la force réelle des sectes de rang 8.
 
@@ -78,7 +78,7 @@ Leurs visages devinrent graves. Bien qu'ils n'eussent jamais entendu ce nom, le 
 
 Zhu Yunming prit une profonde inspiration pour réprimer le choc et demanda: « Senior, pourquoi êtes-vous venu ici...? »
 
-« Un grand désastre vous guette, et vous n'en avez même pas conscience. Il y a trois jours, quelqu'un est venu me voir avec l'intention de me verser 60 000 cristaux d'origine pour que je vous ôte la vie, à vous trois! »
+« Un grand désastre vous guette, et vous n'en avez même pas conscience. Il y a trois jours, quelqu'un m'a apporté vos biographies, prêt à me verser 60 000 cristaux d'origine pour que je vous ôte la vie, à vous trois! »
 
 À ces mots, leurs visages pâlirent instantanément.
 

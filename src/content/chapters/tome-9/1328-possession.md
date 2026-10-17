@@ -30,9 +30,9 @@ Même sans la présence d'un cultivateur du troisième pas, s'infiltrer dans le 
 
 Wang Lin se tenait calmement devant le domaine stellaire du Clan du Tonnerre Dispersé. Devant lui, le tonnerre fulminait et rugissait. C'était comme un océan de foudre où les éclairs dansaient tels des serpents d'argent!
 
-D'un seul regard, ce spectacle pouvait ébranler le cœur de la plupart des cultivateurs et leur interdire de faire le moindre pas en avant! Cet endroit était plusieurs fois plus puissant que le lac de tonnerre que Wang Lin avait rencontré à Luotian.
+D'un seul regard, ce spectacle pouvait ébranler le cœur de la plupart des cultivateurs et leur interdire de faire le moindre pas en avant! Cet endroit était d'innombrables fois plus puissant que le lac de tonnerre que Wang Lin avait rencontré à Luotian.
 
-Avant même de s'en approcher, il sentait distinctement chaque poil de son corps être attiré par une force magnétique. Même l'espace entourant ce lac de tonnerre était saturé de puissance électrique, capable d'exploser par intermittence en rafales tonitruantes.
+Avant même de s'en approcher, il sentait distinctement chaque poil de son corps être attiré par une force magnétique. Même l'espace entourant ce lac de tonnerre était saturé de puissance électrique, capable de projeter par intermittence des étincelles d'éclairs.
 
 À l'époque où Wang Lin se trouvait à Luotian, même après avoir dévoré la moitié d'un ancien dragon du tonnerre et obtenu l'âme originelle du dragon du tonnerre, l'entrée aurait été extrêmement difficile. Il aurait probablement dû battre en retraite, sans quoi le tonnerre l'aurait tué avant même que le Clan du Tonnerre Dispersé n'ait à intervenir.
 
@@ -64,7 +64,7 @@ C’est à cet instant qu'une vague colossale se propagea dans l'immense lac et 
 
 Dès son entrée, le lac de tonnerre rugit violemment et d'immenses quantités d'électricité nagèrent avec frénésie!
 
-Wang Lin marcha lentement. À mesure qu'il avançait, tout le tonnerre sous ses pieds semblait l'acclamer avant de pénétrer dans son corps. Wang Lin ressemblait à une divinité du tonnerre; la foudre se rassemblait dans son œil droit, rendant sa marque de tonnerre de plus en plus nette.
+Wang Lin marcha lentement. À mesure qu'il avançait, tout le tonnerre sous ses pieds semblait l'acclamer avant de pénétrer dans son corps. Wang Lin ressemblait à un Immortel du tonnerre; la foudre se rassemblait dans son œil droit, rendant sa marque de tonnerre de plus en plus nette.
 
 Il progressa durant un temps indéterminé jusqu'à atteindre les terres intérieures du Clan du Tonnerre Dispersé. Ici, le tonnerre rugissait avec une intensité encore plus sauvage, recouvrant tout. Dans cette zone, même le Sens Divin ne pouvait pénétrer, et la vision était déchirée!
 

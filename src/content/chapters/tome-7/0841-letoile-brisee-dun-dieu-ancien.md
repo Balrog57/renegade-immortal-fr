@@ -36,7 +36,7 @@ Lie Yunzi, de la famille Zhan, était tel un spectre blanc; sa vitesse était pr
 
 C'était là le sort qui permettait à Lie Yunzi de faire trembler le Système Stellaire de Luotian: le Sort Céleste du Mouvement du Cœur! Tant que sa volonté le dictait, rien ne pouvait l'arrêter!
 
-Le Daoïste aux Cinq Couleurs se transforma en cinq rayons de lumière. Cette luminescence semblait contenir une puissance immense alors qu'elle tournait pour former un vaste vortex. Le tourbillon emplissait le monde et continuait de s'étendre. Soudain, l'ombre de quatre-vingt-dix-neuf jeunes filles apparut. Elles affichaient toutes un air solennel et s'assirent en position du lotus au sein du vortex. Une aura extrêmement féminine émanait de leurs corps, se condensant violemment en un esprit maléfique hideux qui chargea le Serpent aux yeux de lune.
+Le Daoïste aux Cinq Couleurs se transforma en cinq rayons de lumière. Cette luminescence semblait contenir une puissance immense alors qu'elle tournait pour former un vaste vortex. Le tourbillon emplissait le monde et continuait de s'étendre. Soudain, l'ombre de quatre-vingt-dix-neuf jeunes filles apparut. Elles affichaient toutes un air solennel et s'assirent en position du lotus au sein du vortex. Une aura extrêmement féminine émanait de leurs corps, se condensant violemment en un esprit maléfique hideux de 330 mètres qui chargea le Serpent aux yeux de lune.
 
 Le visage du Dieu du Sang était empreint d'indifférence lorsqu'il explosa en une vaste brume sanguine. L'odeur du sang devint entêtante tandis que la brume enveloppait le corps du serpent. Il s'insinua par les tentacules et commença un carnage destructeur au cœur de la créature.
 
@@ -44,7 +44,7 @@ Des grondements incessants résonnaient dans l'intérieur du Serpent aux yeux de
 
 La main de Maître Yan Leizi traça un sceau, faisant apparaître d'innombrables fragments devant lui. Chaque fragment était un morceau du Royaume Céleste! Sous son contrôle, les fragments se mirent à pivoter, et une puissante force céleste créa une tempête parmi les étoiles!
 
-Pour cette opération, presque tout le Domaine Nord avait été évacué par le Temple Céleste du Tonnerre. Tout cela n'avait qu'un but: capturer ce Serpent aux yeux de lune!
+Pour cette opération, presque tout le Domaine Nord avait été évacué et entièrement occupé par le Temple Céleste du Tonnerre pendant plusieurs mois. Tout cela n'avait qu'un but: capturer ce Serpent aux yeux de lune!
 
 Le rugissement du serpent devint plus intense encore. Les impacts internes et externes lui infligeaient une douleur si aiguë qu'ils le rendaient presque fou. Cela faisait une éternité qu'il n'avait pas souffert ainsi. Hormis cette voix dans sa mémoire, il n'avait jamais connu une telle agonie!
 
@@ -74,7 +74,7 @@ Cette voix était encore plus faible qu'auparavant, comme si elle pouvait s'éte
 
 « N'attaquez pas... Je ne fais plus qu'un avec le Serpent aux yeux de lune. Si vous attaquez, il ripostera immédiatement. Membre de mon clan, partez vite et amenez ici celui qui peut accepter mon héritage... Je n'ai plus beaucoup de temps... » La voix devint de plus en plus ténue. Alors que les tentacules continuaient leur festin, elle devint presque inaudible.
 
-« Vous ne pouvez pas partir avec votre pouvoir... Je vais vous aider à fuir... »
+« Avec votre seule force, vous ne pourrez pas sortir d'ici... Je vais vous accompagner un bout de chemin... »
 
 L'enfant-dieu ancien, encerclé par d'innombrables tentacules, ouvrit soudainement les yeux. À l'instant où ses paupières s'ouvrirent, l'une des huit étoiles illusoires se brisa brusquement! Une étoile du dieu ancien venait de voler en éclats!
 

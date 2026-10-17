@@ -10,7 +10,7 @@ Bien que ce son ne fût pas assourdissant, il recelait une puissance capable de 
 
 Parmi ces cultivateurs figuraient des membres de la famille Yao ainsi que des individus issus d'autres lignées de culture. À cet instant, leurs corps tremblèrent et une terreur née au plus profond de leurs âmes se propagea comme une traînée de poudre.
 
-La première pensée qui traversa l'esprit de presque tous fut de fuir, et ils s'élancèrent tous vers le haut. Certains, proches de la surface, réussirent à s'échapper rapidement. Cependant, les tentacules à la surface les enveloppèrent aussitôt.
+La première pensée qui traversa l'esprit de presque tous fut de fuir, et ils s'élancèrent tous vers le haut. Certains, proches de la surface, jaillirent aussitôt hors du sol, prêts à partir. Cependant, les tentacules à la surface les enveloppèrent aussitôt.
 
 Ces longs tentacules formèrent un barrage impénétrable, faisant échouer quiconque tentait de s'extirper de là.
 
@@ -30,7 +30,7 @@ Ce qui la choqua davantage après l'intrusion du vent noir fut qu'en dépit de s
 
 Le visage de Yao Bingyun devint de plus en plus livide. Elle prit une profonde inspiration et s'élança hors du sol. Dès qu'elle apparut, elle vit les innombrables tentacules onduler et comprit que plus aucun cultivateur ne pouvait s'échapper.
 
-Lorsqu'elle avait aperçu ces tentacules auparavant, elle n'avait ressenti qu'une étrange sensation sans y accorder trop d'importance. Cependant, en les observant maintenant, son intelligence lui permit de reconnaître immédiatement que ces tentacules étaient exactement les mêmes que ceux des bêtes féroces qui l'avaient attaquée plus tôt!
+Lorsqu'elle avait aperçu ces tentacules auparavant, elle n'avait ressenti qu'une étrange sensation sans y accorder trop d'importance. Cependant, en les observant maintenant, son intelligence lui permit de reconnaître immédiatement que ces tentacules étaient exactement les mêmes que ceux de la bête féroce qui l'avait attaquée plus tôt!
 
 Les pupilles de Yao Bingyun se rétractèrent brusquement. Un frisson lui glaça le cœur et se propagea rapidement dans tout son corps, engourdissant son cuir chevelu. En fixant ces innombrables tentacules, son expression devint extrêmement affreuse, ses yeux trahissant une peur et une incrédulité extrêmes.
 
@@ -40,9 +40,9 @@ Les vibrations violentes persistèrent. Finalement, la terre commença à s'effo
 
 À ce moment précis, Wang Lin coupait sans relâche ces fils rouges. Chaque fois qu'un fil était sectionné, le Serpent aux yeux de lune tremblait violemment.
 
-Dans sa progression, Wang Lin s'enfonçait progressivement dans la faille. Plus il avançait, plus les fils rouges devenaient denses. Le regard de Wang Lin se fit glacial alors qu'il utilisait continuellement le Tranchant Céleste, faisant s'effondrer les fils rouges un à un.
+Dans sa progression, Wang Lin s'enfonçait progressivement dans la faille. Plus il avançait, plus les fils rouges devenaient denses. Le regard de Wang Lin se fit glacial alors qu'il utilisait continuellement le Coup Céleste, faisant s'effondrer les fils rouges un à un.
 
-Peu de temps après, il s'arrêta soudainement. Un fil rouge, aussi épais qu'un homme et s'étendant verticalement, apparut devant lui. Ce fil était plus massif que tous ceux qu'il avait vus jusqu'alors. Ses yeux brillèrent alors qu'il se précipitait pour le déchirer sans la moindre hésitation.
+Peu de temps après, il s'arrêta soudainement. Un fil rouge, plus épais qu'un homme et s'entrecroisant en s'étendant, apparut devant lui. Ce fil était plus massif que tous ceux qu'il avait vus jusqu'alors. Ses yeux brillèrent alors qu'il se précipitait pour le déchirer sans la moindre hésitation.
 
 Un rugissement de pure folie résonna à travers le Serpent aux yeux de lune lorsque Wang Lin déchira cette ligne rouge!
 
@@ -52,7 +52,7 @@ Une aura de rage se déversa. Le Serpent aux yeux de lune s'était réveillé!
 
 Dès l'éveil du Serpent aux yeux de lune, Wang Lin retira son aura et se cacha promptement. Il s'assit en position du lotus, les sens en alerte.
 
-ROAR!
+RUGISSEMENT!
 
 Un rugissement semblable à une tempête d'éclairs tonnantes jaillit du Serpent aux yeux de lune. C'était comme une succession de détonations soniques qui se propageaient sans cesse, forçant les cultivateurs environnants à reculer.
 

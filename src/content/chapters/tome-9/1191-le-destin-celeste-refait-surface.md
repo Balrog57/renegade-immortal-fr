@@ -10,7 +10,7 @@ La vieille femme en vert n'offrit aucune explication; elle fit simplement un pas
 
 Cependant, son expression retrouva aussitôt son calme. Il eut un ricanement méprisant et serra plus fermement le flacon de jade. S'il avait pu le placer dans son espace de stockage, il l'aurait déjà mis en sécurité.
 
-Ne perdant pas de temps avec la vieille femme, il utilisa sa puissante culture pour tenter de quitter les lieux. Bien que le sortilège ancestral Yang Yin l'ait surpris, il était confiant quant à sa fuite.
+Ne perdant pas de temps avec la vieille femme, il utilisa sa puissante culture pour tenter de quitter les lieux. Bien que le Sort Ancestral Yang Yin l'ait surpris, il était confiant quant à sa fuite.
 
 À cet instant, sa main gauche s'élança vers le vide et une lumière dorée apparut. Cette clarté se mua en des dizaines de milliers d'épées volantes qui, d'un geste de son doigt, foncèrent sur la vieille femme en vert.
 
@@ -22,13 +22,13 @@ En voyant cette créature, l'expression de la vieille femme changea instantaném
 
 Dès son apparition, le bol se mit à tournoyer et fonça sur la petite silhouette. Les yeux de celle-ci projetèrent une lumière sanguine aveuglante, tandis qu'un cri capable de briser le métal retentissait.
 
-Un grondement sourd résonna et le bol de cuivre vola en éclats. Au même moment, d'innombrables mots dorés s'élancèrent vers la vieille femme en vert, portés par la petite silhouette.
+Un grondement sourd résonna et le bol de cuivre vola en éclats. Au même moment, d'innombrables épées volantes dorées s'élancèrent vers la vieille femme en vert, tandis que la petite silhouette filait elle aussi à travers la pluie d'épées.
 
 Le temps pressait, et Maître Pin Cendré n'avait pas le loisir de s'occuper de la vieille femme. Des ondulations apparurent autour de lui alors qu'il s'apprêtait à s'échapper.
 
 Pourtant, alors qu'il franchissait à peine le premier pas dans les ondulations, un bras desséché surgit du vide et s'agrippa à sa main droite!
 
-« C'est donc le quatrième royaume ancestral! » Les pupilles de Maître Pin Cendré se contractèrent, mais il était déjà trop tard pour réfléchir. Sa main gauche s'abattit sur le bras flétri dans un fracas tonnerreux. Maître Pin Cendré poussa un gémissement et son visage devint instantanément livide.
+« C'est donc le niveau des quatre ancêtres! » Les pupilles de Maître Pin Cendré se contractèrent, mais il était déjà trop tard pour réfléchir. Sa main gauche s'abattit sur le bras flétri dans un fracas tonnerreux. Maître Pin Cendré poussa un gémissement et son visage devint instantanément livide.
 
 « Le stade de pointe du milieu du Briseur du Nirvana! »
 
@@ -48,7 +48,7 @@ Ils convergeaient vers la fissure de la restriction de lumière noire. À cet in
 
 Dès qu'il eut commencé, la lumière aux sept couleurs dans le ciel fulgura violemment avant de descendre vers eux. Ces sept rayons se muèrent en sept épées qui chargèrent la vieille femme en vert.
 
-L'expression de la vieille femme devint sombre; ses mains formèrent un sceau et un immense bouclier de lumière violent apparut devant elle. À son apparition, une aura antique l'accompagna, imprégnée d'une pointe d'énergie démoniaque!
+L'expression de la vieille femme devint sombre; ses mains formèrent un sceau et un immense bouclier de lumière violette apparut devant elle. À son apparition, une aura antique l'accompagna, imprégnée d'une pointe d'énergie démoniaque!
 
 La lumière aux sept couleurs percuta le bouclier dans un fracas encore plus violent. La vieille femme cracha du sang, mais son regard devint plus féroce encore. Elle frappa son propre front de la main droite, faisant frissonner tout son corps, et son âme originelle s'envola!
 

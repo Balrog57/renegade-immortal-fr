@@ -18,7 +18,7 @@ Son regard sembla fusionner avec les ombres d'épées environnantes pour en deve
 
 « Quatre sceaux suffisent déjà à produire une telle puissance. Il semble que j'aie sous-estimé ces deux courtes épées. Dans ce cas, je vais forcer l'ouverture des autres par ma culture. Je veux que celui qui cherche ma mort sache que moi, Wang Lin, ne suis pas si facile à tuer! » Les yeux de Wang Lin devinrent froids alors qu'il forma un sceau et pointa les deux courtes épées.
 
-Ces deux lames, l'une noire et l'autre blanche, lâchèrent un hurlement assourdissant qui rappelait le rugissement des dragons. C'était comme si deux divinités tonnaient vers le ciel. Les deux épées bougèrent soudainement et pointèrent vers Wang Lin, comme si elles s'apprêtaient à se rebeller!
+Ces deux lames, l'une noire et l'autre blanche, lâchèrent un hurlement assourdissant qui rappelait le rugissement des dragons. C'était comme si deux dragons antiques rugissaient vers le ciel. Les deux épées bougèrent soudainement et pointèrent vers Wang Lin, comme si elles s'apprêtaient à se rebeller!
 
 Wang Lin laissa échapper un reniflement froid et l'étoile de la loi apparut. Tandis qu'elle tournait, une nouvelle loi se manifesta. Le tonnerre résonna dans le ciel tandis qu'innombrables sphères de foudre apparaissaient et se rassemblaient. De plus, à cet instant précis, un feu bleu enveloppa les deux épées.
 
@@ -62,7 +62,7 @@ Deux cerfs illusoires poussèrent de longs sifflements et circulèrent autour de
 
 À cet instant, l'index de Wang Lin pouvait détruire le corps d'un cultivateur au stade du Briseur du Nirvana. Même un trésor ordinaire du stade Pseudo-Nirvana Vide ne ferait pas le poids; quiconque toucherait l'index de Wang Lin se désintégrerait instantanément!
 
-Plus effrayant encore, ce doigt contenait également les lois du tonnerre, du feu et de l'intention de combat. Il renfermait aussi la force de Wang Lin en tant que Dieu Ancien. Ce seul doigt pourrait terrasser même un Dieu Fantôme!
+Plus effrayant encore, ce doigt contenait également les lois du tonnerre, du feu et de l'intention de combat. Il renfermait aussi la force de Wang Lin en tant que Dieu Ancien. Ce seul doigt pouvait faire trembler les fantômes et les dieux!
 
 « Même un cultivateur du Fléau Céleste devrait esquiver ce doigt! » Les yeux de Wang Lin s'illuminèrent alors qu'il laissait échapper un souffle sur son index droit. Les deux tatouages se cachèrent et son doigt retrouva son aspect normal. Personne ne pouvait remarquer quoi que ce soit de spécial.
 
@@ -108,4 +108,4 @@ Si cela s'arrêtait là, la méthode de Wang Lin ne serait pas totalement révé
 
 À cet instant, il l'utilisa, et la Restriction du Temps commença à se manifester. Au cinquième jour, la Restriction du Temps couvrait également tous les continents!
 
-« La puissance de la Restriction du Temps dépend de la durée. Je possède le Sort de la Fleur Temporelle et peux inverser le temps pour aider la Restriction du Temps à atteindre un sommet en un laps de temps réduit! La fusion des trois grandes restrictions possède une puissance capable de secouer les cieux. Celui qui veut me tuer, même si vous êtes un cultivateur de la troisième étape, vous ne soupçonnez pas tout ce que j'ai préparé pour vous! » Un éclair de froideur passa dans les yeux de Wang Lin!
+« La puissance de la Restriction du Temps dépend de la durée. Je possède le sort du Temps qui s'écoule et peux inverser le temps pour aider la Restriction du Temps à atteindre un sommet en un laps de temps réduit! La fusion des trois grandes restrictions possède une puissance capable de secouer les cieux. Celui qui veut me tuer, même si vous êtes un cultivateur de la troisième étape, vous ne soupçonnez pas tout ce que j'ai préparé pour vous! » Un éclair de froideur passa dans les yeux de Wang Lin!

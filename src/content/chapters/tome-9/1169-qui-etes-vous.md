@@ -14,7 +14,7 @@ Wang Lin réfléchit silencieusement.
 
 Ce visage gracieux ressemblait à celui de Lu Yanfei, qui s'était tenue au sommet de son pavillon pour observer silencieusement Wang Lin lorsqu'il avait quitté le continent de Mo Luo. Sa voix douce aussi.
 
-« J'espère que Senior viendra à la compétition centenaire qui aura lieu dans la secte principale... » Avec l'intelligence de Lu Yanfei, elle pouvait comprendre que le continent de Mo Luo ne pourrait retenir Wang Lin. Après tout, ce n'était qu'un point d'appui, et il n'était qu'un passant...
+« J'espère que Senior viendra à la compétition centenaire qui aura lieu dans la secte principale, et qu'il n'oubliera pas la Secte de l'Origine... » Avec l'intelligence de Lu Yanfei, elle pouvait comprendre que le continent de Mo Luo ne pourrait retenir Wang Lin. Après tout, ce n'était qu'un point d'appui, et il n'était qu'un passant...
 
 Elle savait qu'il partirait une fois l'affaire avec la Secte de l'Origine réglée. Son départ avait eu lieu presque immédiatement après la résolution du désastre de la Secte du Dao Pourpre. Une fois parti... elle ne le reverrait probablement jamais.
 
@@ -32,7 +32,7 @@ Wang Lin réfléchit un instant avant de hocher la tête et de murmurer: « Je l
 
 Li Qianmei sourit. Lorsqu'elle souriait, ses yeux étaient comme des croissants de lune.
 
-Le deuxième jour de l'enchère, Wang Lin et Li Qianmei arrivèrent aux abords de Peng Lai. Li Qianmei utilisa son sortilège dao pour noircir ses cheveux.
+Le deuxième jour de l'ouverture du marché de Peng Lai, Wang Lin et Li Qianmei arrivèrent aux abords de Peng Lai. Li Qianmei utilisa son sortilège dao pour noircir ses cheveux.
 
 Cela lui permettait d'éviter d'être reconnue. La Li Qianmei aux cheveux noirs était encore plus élégante. Sa simple présence aux côtés de Wang Lin attira l'attention de nombreux cultivateurs environnants.
 
@@ -50,11 +50,11 @@ Les cultivateurs de la Secte du Jade Précieux affichaient une certaine fierté 
 
 Alors que chaque cultivateur payait ses pierres spirituelles pour entrer, ce fut enfin le tour de Wang Lin et Li Qianmei. Les cultivateurs postés ici étaient principalement au stade Yin et Yang. Cependant, celui qui les dirigeait était étonnamment au stade du Scruteur du Nirvana.
 
-« La Secte du Jade Précieux porte bien son nom pour avoir un cultivateur Scruteur du Nirvana chargé d'accueillir les gens. » Wang Lin secoua intérieurement la tête. Il voyait facilement clair dans les manœuvres de la secte; ils faisaient simplement une démonstration de puissance.
+« La Secte du Jade Précieux tient manifestement beaucoup à sa réputation, pour avoir un cultivateur Scruteur du Nirvana en guise de porte d'entrée et ainsi afficher la puissance de sa secte. » Wang Lin secoua intérieurement la tête. Il voyait facilement clair dans les manœuvres de la secte; ils faisaient simplement une démonstration de puissance.
 
 Après avoir payé les pierres spirituelles, Wang Lin et Li Qianmei pénétrèrent sur le continent de Peng Lai.
 
-Li Qianmei sourit et murmura: « Cette enchère est bien meilleure que la précédente. La dernière fois que je suis venue, ils avaient un cultivateur Purificateur du Nirvana pour accueillir les gens. J'ai cru que j'allais dans une autre secte de rang 9, oubliant que nous ne sommes que dans la région de rang 5. »
+Li Qianmei sourit et murmura: « Cette fois, ce n'est pas mal. Je me souviens que lorsque je suis venue ici autrefois avec mes condisciples, ils avaient un cultivateur Purificateur du Nirvana pour accueillir les gens. J'ai cru que j'allais dans une autre secte de rang 9, oubliant que nous ne sommes que dans la région de rang 5. »
 
 Wang Lin secoua silencieusement la tête.
 
@@ -90,7 +90,7 @@ De plus, si l'on utilisait un cristal originel pour créer une formation ou raff
 
 Cependant, les cristaux originels étaient aussi rares que les jades célestes. La seule différence résidait dans le fait que les jades célestes se trouvaient dans le Royaume Céleste du Vent, les rendant presque impossibles à obtenir. Quant aux cristaux originels, ils étaient principalement contrôlés par les sectes de rang 8 ou supérieur, et surtout par celles de rang 9.
 
-Tout cela était dû au mode de formation des cristaux originels. Ils ne pouvaient être extraits; ils se formaient grâce à des bêtes de rang 12 capables de se transformer en brume. Lorsqu'une telle bête vivait longtemps dans la brume stellaire, un cristal originel finissait par se former. Seules les sectes et les cultivateurs possédant des bêtes de rang 12 pouvaient donc récolter ces cristaux.
+Tout cela était dû au mode de formation des cristaux originels. Ils ne pouvaient être extraits; ils se formaient grâce à des bêtes de rang 12 capables de se transformer en brume. Lorsqu'une telle bête vivait longtemps dans la brume, un cristal originel finissait par se former. Seules les sectes et les cultivateurs possédant des bêtes de rang 12 pouvaient donc récolter ces cristaux.
 
 Toutefois, les bêtes de rang 12 étaient rares, et seules quelques-unes possédaient la capacité de se transformer en brume. Par conséquent, seules les sectes de rang 8 ou plus en étaient dotées.
 
@@ -120,7 +120,7 @@ Trois cultivateurs suivirent la voix. L'homme en tête avait environ trente ans.
 
 Li Qianmei fronça légèrement les sourcils mais se détendit rapidement en disant: « Ainsi, c'est le Compagnon Cultivateur Yang. »
 
-L'homme en vert s'approcha et, sans même accorder un regard à Wang Lin, sourit à Qianmei. « Nous ne nous sommes vus que quelques mois, mais tu me manques déjà. Heureusement que nous nous retrouvons aujourd'hui. Qianmei, cet endroit est bruyant; que dirais-tu d'aller dans la ville intérieure? » La voix de l'homme était douce et empreinte d'un certain charme.
+L'homme en vert s'approcha et, sans même accorder un regard à Wang Lin, sourit à Qianmei. « Depuis notre séparation il y a quelques mois, je n'ai cessé de penser à toi. Le ciel a été touché et me permet de te retrouver ici. Qianmei, cet endroit est bruyant; que dirais-tu d'aller dans la ville intérieure? » La voix de l'homme était douce et empreinte d'un certain charme.
 
 « Merci pour votre gentillesse, Compagnon Cultivateur Yang, mais je vous prie de m'excuser. » La voix de Li Qianmei était calme, mais glaciale.
 

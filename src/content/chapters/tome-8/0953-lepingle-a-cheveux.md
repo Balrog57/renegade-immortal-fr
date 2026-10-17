@@ -22,7 +22,7 @@ C'était là la puissance du Royaume Ji de Qing Shui!
 
 Wang Lin s'était déjà préparé à ouvrir son troisième œil et à utiliser l'énergie d'origine pour faire face à l'assaut du Maître Dieu Démon. Cependant, grâce à l'intervention de Qing Shui, il put immédiatement poursuivre le Maître Fantôme Vide.
 
-La brume pourpre tourbillonnait dans le ciel avant de se contracter rapidement en une sphère de la taille d'un poing qui flotta dans la main de Qing Shui. Il tenait également une épingle à cheveux pourpre sculptée dans son autre main.
+La brume pourpre tourbillonnait dans le ciel avant de se contracter rapidement en une sphère de la taille d'un poing qui flotta dans la main de Qing Shui. Près de lui flottait également une épingle à cheveux pourpre sculptée d'un phénix.
 
 Le regard que Qing Shui posa sur l'épingle contenait une pointe de tendresse. Pourtant, lorsqu'il tourna les yeux vers les cultivateurs du Royaume de la Boucherie, cette douceur disparut. Ses yeux ne reflétaient plus que l'indifférence alors qu'il descendait vers eux.
 
@@ -50,7 +50,7 @@ Des nappes de poussière empoisonnée recouvrirent le monde, donnant à l'horizo
 
 Des vagues de magma jaillirent du sommet de la montagne. Le Royaume de la Boucherie fut instantanément saturé d'une chaleur infinie et d'une aura destructrice.
 
-Ce magma portait en lui le pouvoir de dévorer tout ce qui existe!
+Ce magma portait en lui le pouvoir de détruire tout ce qui existe!
 
 Les cultivateurs du Royaume de la Boucherie dont la culture était insuffisante furent frappés par la poussière toxique. Ils poussèrent des cris alors que leurs corps se flétrissaient et se dissipaient dans le vide.
 
@@ -62,7 +62,7 @@ La fissure que l'homme aux cheveux violets avait ouverte s'effondra immédiateme
 
 Quant au Maître Fantôme Vide, son visage pâlit et il renonça à combattre Wang Lin. Voyant Wang Lin le poursuivre, il jura et projeta les neuf épées devant lui. Il savait que Wang Lin était attiré par ces armes et espérait s'en servir pour le distraire.
 
-Les yeux de Wang Lin s'illuminèrent et il cessa sa poursuite. Sa main droite s'étira et saisit instantanément les neuf épées, qui se mirent à lutter violemment entre elles.
+Les yeux de Wang Lin s'illuminèrent et il cessa sa poursuite. Sa main droite s'étira et saisit instantanément les neuf épées, qui se mirent à se débattre violemment.
 
 Le regard de Qing Shui révéla une intention meurtrière monstrueuse; il tendit ses mains vers le haut en criant: « Montagne, premier effondrement! »
 
@@ -140,6 +140,6 @@ Son regard doux et ému était empreint d'une forme de retenue. Son sourire, por
 
 C'est devant une telle scène que le Qing Shui de l'époque avait retrouvé la raison.
 
-« L'homme que j'ai en moi est un être à l'esprit indomptable. Il n'abandonnera pas son existence pour un instant d'égarement, ni ne gaspillera sa vie. Au contraire, il déploiera toute sa puissance pour persévérer... et découvrir la raison de tout cela! »
+« L'époux que j'ai dans mon cœur est un homme qui se tient droit entre le ciel et la terre. Il n'abandonnera pas son existence pour une faute passagère, ni ne vivra dans la confusion. Au contraire, il déploiera toute sa puissance pour persévérer... et découvrir la raison de tout cela! »
 
 Les yeux de Qing Shui étaient noyés de tristesse lorsqu'il murmura: « Sois tranquille, Han Yan, je découvrirai l'origine de tout ceci... »

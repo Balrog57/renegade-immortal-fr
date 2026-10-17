@@ -22,7 +22,7 @@ Ses yeux s'illuminèrent et il s'apprêta à s'avancer pour aider Wang Lin à r�
 
 Les Sept Étoiles descendirent avec une intention meurtrière monstrueuse et sept rayons de lumière s'abattirent sur Wang Lin. Un grondement de tonnerre retentit et il fut couvert de sang. Son âme originelle trembla et il fut repoussé. Il devint mortellement pâle par la suite, mais il se mit à rire.
 
-Au moment où les Sept Étoiles pénétrèrent dans son corps, elles se lièrent au Huit Diagrammes pour former une aura encore plus destructrice, destinée à faire s'effondrer son organisme!
+Au moment où les Sept Étoiles pénétrèrent dans son corps, elles se lièrent aux Huit Diagrammes pour former une aura encore plus destructrice, destinée à faire s'effondrer son organisme!
 
 Cependant, sous cette puissance, Wang Lin pressentit faiblement l'aura du Royaume Ji. Il connaissait extrêmement bien ce royaume; il l'avait accompagné pendant plusieurs centaines d'années!
 
@@ -42,7 +42,7 @@ Simultanément, les empreintes de métal, de bois, d'eau et de terre frappèrent
 
 « Feu et tonnerre du Huit Diagrammes, renforcez mon corps! » Alors que Wang Lin rugissait, le Huit Diagramme qui avait pénétré son corps surgit. Les diagrammes de feu et de tonnerre se libérèrent et commencèrent à résister aux empreintes de paumes!
 
-Après avoir introduit ces deux diagrammes dans son corps, il les avait cachés. En les faisant jaillir maintenant, il prit la rétribution divine au dépourvu! Grâce à la régénération du dieu ancien et aux deux diagrammes, il parvint à contrer l'effondrement des Cinq Éléments!
+Après avoir introduit ces deux diagrammes dans son corps, il les avait cachés. En les faisant jaillir maintenant, il prit la rétribution divine au dépourvu! Grâce à l'étonnante régénération du dieu ancien, à sa puissante culture et à l'aide des deux diagrammes et de l'empreinte de feu des Cinq Éléments, il parvint à contrer l'effondrement des Cinq Éléments!
 
 Il n'était pas mort après avoir subi les Neuf Palais, les Huit Diagrammes, les Sept Étoiles, les Six Directions et les Cinq Éléments!
 
@@ -96,7 +96,7 @@ La puissance qu'ils contenaient était inimaginable et pouvait tout détruire!
 
 « Deux Rites... Infini... » La voix vague résonna encore une fois. Alors que cet écho glacial se propageait, autre chose apparut dans le vide!
 
-Les Deux Rites représentaient le pouvoir du Yin et du Yang, de la vie et de la mort. C'était aussi le pouvoir du karma. Tout ce qui existe dans le monde y était inclus. Le Ciel et la Terre avaient engendré les Quatre Divins, et les Quatre Divins s'étaient transformés en Neuf Palais. Ils résonnaient également avec les Trois Talents pour créer une puissance capable d'ébranler les cieux. Ils formèrent un diagramme Yin et Yang gigantesque dans le vide.
+Les Deux Rites représentaient le pouvoir du Yin et du Yang, de la vie et de la mort. C'était aussi le pouvoir du karma. Tout ce qui existe dans le monde y était inclus. Les Deux Rites engendraient les Quatre Divins, et les Quatre Divins se transformaient en Neuf Palais. Ils résonnaient également avec les Trois Talents pour créer une puissance capable d'ébranler les cieux. Ils formèrent un diagramme Yin et Yang gigantesque dans le vide.
 
 Le diagramme se forma avec Wang Lin en son centre. Il tournait frénétiquement, et un rugissement tonnerreux retentit alors qu'il se contractait rapidement vers lui!
 
@@ -112,6 +112,6 @@ Les Neuf Palais, les Huit Diagrammes, les Sept Étoiles, les Six Directions, les
 
 C'était le Ji!
 
-Bien que Wang Lin fût gravement blessé, son cœur de Dao et ses domaines étaient toujours là. Puis, un changement soudain se produisit! Dans son corps, du Neuf Palais aux Deux Rites, tout apparut de manière inattendue... de manière inattendue également dans son être, à l'image de la rétribution divine!
+Bien que Wang Lin fût gravement blessé, son cœur de Dao et ses domaines étaient toujours là. Puis, un changement soudain se produisit! Dans son corps, du Neuf Palais aux Deux Rites, les formes apparurent de manière inattendue... de manière inattendue, elles apparurent aussi dans son corps, à l'image de la rétribution divine!
 
 Le Ji était lui aussi né à l'intérieur de son corps!

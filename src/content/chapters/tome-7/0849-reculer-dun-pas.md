@@ -26,7 +26,7 @@ La lampe flotta doucement pour se placer entre les deux jeunes filles et le viei
 
 « Ce trésor appartient à la famille Yao. Depuis la création du Royaume Céleste, il ne s'est jamais éteint. Il est le symbole même de la vie! Cependant, il y a cinq cents ans, il a montré des signes d'extinction. Ce vieil homme a calculé pendant longtemps avant d'en trouver enfin la raison. »
 
-« L'âme du trésor est sur le point de se dissiper et, une fois cette dissipation accomplie, le feu s'éteindra définitivement… Alors, ce vieil homme a passé trois cents ans à extraire une partie de l'âme du trésor pour l'insérer dans la membre la plus talentueuse du clan Yao. Après l'avoir nourrie pendant deux cents ans, elle a donné naissance à vous deux! »
+« L'âme du trésor est sur le point de se dissiper et, une fois cette dissipation accomplie, le feu s'éteindra définitivement… Alors, ce vieil homme a passé trois cents ans à extraire une partie de l'âme du trésor pour l'insérer dans le corps de la plus talentueuse des membres du clan Yao. Après l'avoir nourrie pendant deux cents ans, elle a donné naissance à vous deux! »
 
 « C'est votre destin, vous ne pouvez pas y échapper! Vous êtes nées pour devenir l'âme du trésor! » La voix du vieil homme était d'un calme absolu.
 
@@ -52,7 +52,7 @@ Les vêtements de l'aînée furent déchirés par la poigne désespérée de sa 
 
 La grande sœur s'effondra au sol, les larmes coulant sur son visage. Elle se mordit la lèvre inférieure jusqu'au sang, les yeux emplis de remords. Elle se redressa et se précipita vers le démon.
 
-« Petite sœur, petite sœur… Rendez-moi ma petite sœur! Dévorer-moi à la place!!! »
+« Petite sœur, petite sœur… Rendez-moi ma petite sœur! Dévorez-moi à la place!!! »
 
 Le corps du démon se tordit et retourna dans la lampe sans laisser de trace. La flamme à l'intérieur de la lampe brilla intensément, laissant entrevoir l'image claire d'une jeune fille se débattant au cœur des flammes.
 
@@ -64,7 +64,7 @@ Le vieil homme, témoin de la scène, afficha un regard mystérieux. D'un revers
 
 La grande sœur était comme une âme évidée. Ses yeux étaient vides alors qu'elle fixait la lampe à huile. Le remords qui marquait son visage était un déluge qui l'avait noyée.
 
-« Petite sœur… Grande sœur ne voulait pas, je ne le voulais vraiment pas… J'aurais dû être dévorée… Ce aurait dû être moi… Petite sœur… » Le visage de Yao Bingyun était baigné de larmes et son corps tremblait. À cet instant, elle ne ressentait plus de peur, mais seulement un regret infini.
+« Petite sœur… Grande sœur ne voulait pas, je ne le voulais vraiment pas… J'aurais dû être dévorée… Cela aurait dû être moi… Petite sœur… » Le visage de Yao Bingyun était baigné de larmes et son corps tremblait. À cet instant, elle ne ressentait plus de peur, mais seulement un regret infini.
 
 « Je n'aurais pas dû reculer… Avant que Mère ne parte, elle m'avait dit de prendre soin de ma petite sœur, mais je ne l'ai pas fait… Je n'aurais pas dû reculer… » Yao Bingyun regarda la lampe avec désespoir, se mordit la lèvre et s'agenouilla. Elle cria: « Ancêtre Grand-père, moi, Yao Bingyun, je suis prête à devenir l'âme du trésor. Même si cela dure toute une vie, j'accepterai sans la moindre plainte. Je vous en prie, Ancêtre Grand-père, laissez Mengyun sortir en échange de ma vie pour devenir l'âme du trésor. Je vous en supplie, Ancêtre Grand-père! Je vous en conjure! Je vous en conjure… »
 
@@ -82,7 +82,7 @@ Tout en parlant, il replaça la lampe dans la fissure. D'un mouvement de manches
 
 « Petite sœur!! » Yao Bingyun regarda la fissure disparaître et poussa un cri d'une tristesse absolue. Ce qui fut terrifiant, c'est que le Dao de Wang Lin en fut affecté, manquant de s'effondrer.
 
-« Petite sœur, tu dois être forte, sois forte et attends ta grande sœur. Je ne t'ai pas encore emmenée voir le marchand de bonbons, je ne t'ai pas encore emmenée trouver Mère… Petite sœur, sois forte et attends que je vienne te sauver! Petite sœur, je viendrai certainement te sauver. C'est ma promesse, c'est l'engagement de ta grande sœur! »
+« Petite sœur, tu dois être forte, sois forte et attends ta grande sœur. Je ne t'ai pas encore acheté de bonbons, je ne t'ai pas encore emmenée trouver Mère… Petite sœur, sois forte et attends que je vienne te sauver! Petite sœur, je viendrai certainement te sauver. C'est ma promesse, c'est l'engagement de ta grande sœur! »
 
 Accompagné de ce cri funèbre, tout ce que Wang Lin voyait se désintégra. Le hall ancestral disparut. La lampe à huile disparut. Le vieil homme disparut. La fissure disparut. Tout vola en éclats pour retourner au néant d'où cela venait!
 
@@ -110,7 +110,7 @@ Cette méthode de culture coupait court à toutes les émotions et à tout lien.
 
 « Utiliser un cœur rempli d'amour pour cultiver un Dao impitoyable… » Wang Lin soupira. Il avait parfaitement percé à jour le cœur du Dao de Yao Bingyun.
 
-« Son cœur du Dao est sa sœur, et son domaine est l'impitoyabilité, plutôt que la gloire ancestrale de la famille Yao… » La silhouette de Wang Lin apparut aux côtés de Yao Bingyun. Il la regarda et secoua la tête.
+« Son cœur du Dao est sa sœur, et ce qu'elle cultive est le Dao de l'impitoyabilité, plutôt que la gloire ancestrale de la famille Yao… » La silhouette de Wang Lin apparut aux côtés de Yao Bingyun. Il la regarda et secoua la tête.
 
 « Peu importe, je pourrais briser son cœur du Dao, mais… » Wang Lin jeta un dernier regard vers elle avant de disparaître.
 

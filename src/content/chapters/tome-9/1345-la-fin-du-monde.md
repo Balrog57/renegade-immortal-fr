@@ -12,7 +12,7 @@ Qu'il s'agisse de Papillon Rouge, de Li Qianmei ou de Situ Nan, aucun n'était a
 
 « J'ai franchi la cage et j'ai vu le monde extérieur pour la première fois... C'était le ciel étoilé, et c'était magnifique, si beau... Mes spéculations étaient devenues réalité... J'ai vu des cultivateurs comme moi, mais ils étaient très faibles... Le plus faible n'était qu'au stade de la Formation de l'Âme... »
 
-« Cependant, même ce cultivateur au stade de la Formation de l'Âme pouvait devenir un être céleste et venir massacrer les miens! J'étais en colère et j'ai commencé une boucherie. Et c'est dans le sang de mes victimes que j'ai appris la vérité! » Le jeune homme chauve rit bruyamment, tandis que des larmes coulaient de ses yeux.
+« Cependant, même ce cultivateur au stade de la Formation de l'Âme pouvait incarner le Dao céleste, se proclamer Céleste et descendre avec la tribulation pour massacrer les miens! J'étais en colère et j'ai commencé une boucherie. Et c'est dans le sang de mes victimes que j'ai appris la vérité! » Le jeune homme chauve rit bruyamment, tandis que des larmes coulaient de ses yeux.
 
 « La vérité est que l'endroit où je vis s'appelle les "7 Millions de Mondes", et c'est un lieu créé par le Clan du Tonnerre Dispersé. Nous ne sommes que du bétail en captivité, et dès que nous atteignons le stade de la Formation de l'Âme, ils arrivent avec une divine rétribution pour nous arracher notre Tonnerre Spirituel! »
 
@@ -40,7 +40,7 @@ Devant elle, les cultivateurs n'étaient que poussière.
 
 Le jeune homme murmura doucement: « Je me suis enfui jusqu'ici, au bout des 7 Millions de Mondes, à la fin du monde... Ici, mon désir d'évasion s'est effondré. Je devais affronter la réalité, la vérité! »
 
-« Je n'ai plus fui. J'ai choisi de les affronter, j'ai choisi de résister! Je suis retourné dans les 7 Millions de Mondes et j'ai fondé la Secte de l'Esprit Dispersé. Chaque avatar a déployé son esprit, et mes esprits dispersés contrôlent la majorité des cultivateurs des 7 Millions de Mondes! »
+« Je n'ai plus fui. J'ai choisi de les affronter, j'ai choisi de résister! Je suis retourné dans les 7 Millions de Mondes et j'ai fondé la Secte de l'Esprit Dispersé. Chaque avatar est un Daoïste Esprit Dispersé qui propage les idéaux de ma secte, et ils contrôlent la majorité des cultivateurs des 7 Millions de Mondes! »
 
 « Je leur ai enseigné la méthode de culture qui leur permettrait d'atteindre le stade de la Formation de l'Âme le plus rapidement possible. J'ai cultivé comme un fou, créant avatar après avatar. Des dizaines de milliers d'années plus tard, j'ai atteint le stade que vous, les êtres célestes, appelez la "Quatrième Fléau Céleste"! » Le jeune homme se tourna vers Wang Lin.
 
@@ -100,7 +100,7 @@ Il fit fi des regards des personnes alentour et son corps disparut. Lorsqu'il r�
 
 C'était le point de passage pour quitter les 7 Millions de Mondes et retourner vers le Clan du Tonnerre Dispersé!
 
-Un immense réseau de transfert se trouvait aux côtés du pavillon. À cet instant, la formation était activée et une douzaine de personnes se trouvaient à l'intérieur. Le transfert était sur le point de s'opérer, tandis que plusieurs membres du Clan du Tonnerre Dispersé surveillaient la formation à l'extérieur.
+Un immense réseau de transfert se trouvait aux côtés du pavillon. À cet instant, la formation était activée et des dizaines de personnes se trouvaient à l'intérieur. Le transfert était sur le point de s'opérer, tandis que plusieurs membres du Clan du Tonnerre Dispersé surveillaient la formation à l'extérieur.
 
 Wang Lin surgit soudainement. Sans même jeter un regard autour de lui, il se dirigea vers le réseau de transfert.
 
@@ -108,6 +108,6 @@ L'un des cultivateurs chargés de la garde cria immédiatement: « Arrêtez! La 
 
 Cependant, avant qu'il n'ait pu achever sa phrase, Wang Lin agita la main droite, déchira l'espace au sein du réseau de transfert et s'y engouffra.
 
-Cette scène provoqua une stupeur totale chez les cultivateurs extérieurs, qui furent horrifiés. Même les douzaines de personnes à l'intérieur du réseau furent sous le choc!
+Cette scène provoqua une stupeur totale chez les cultivateurs extérieurs, qui furent horrifiés. Même les dizaines de personnes à l'intérieur du réseau furent sous le choc!
 
 La formation s'illumina, et tout le monde à l'intérieur, Wang Lin inclus, disparut sans laisser la moindre trace.

@@ -8,7 +8,7 @@ slug: comprendre-la-vérité
 ---
 Maître Yi Chen semblait avoir atteint une certaine illumination. Il tenait sa coupe de vin sans la reposer pendant un long moment.
 
-« Le frère Wang fait-il référence au Système Stellaire de Luotian lorsqu'il évoque les familles cultivatrices? » Maître Yi Chen afficha un air d'intérêt. Après que Wang Lin eut acquiescé, Maître Yi Chen poursuivit: « En parlant du Système Stellaire de Luotian, ils sont en effet bien différents. Il est stupéfiant qu'ils aient pu progresser autant en se concentrant sur les familles cultivatrices. Si l'Alliance de la Culture ne me l'avait pas dit, je ne l'aurais pas cru. »
+« Le frère Wang fait-il référence au Système Stellaire de Luotian lorsqu'il évoque les familles cultivatrices? » Maître Yi Long afficha un air d'intérêt. Après que Wang Lin eut acquiescé, Maître Yi Long poursuivit: « En parlant du Système Stellaire de Luotian, ils sont en effet bien différents. Il est stupéfiant qu'ils aient pu progresser autant en se concentrant sur les familles cultivatrices. Si l'Alliance de la Culture ne me l'avait pas dit, je ne l'aurais pas cru. »
 
 « La bataille de Luotian contre l'Alliance au nord a contraint cette dernière à battre en retraite. Leur puissance ne doit pas être sous-estimée. »
 
@@ -34,7 +34,7 @@ Les réactions de Wang Lin firent se regarder les trois frères Chen. Ils ne pou
 
 Une fois que les paroles de Maître Yi Xing eurent dissipé le brouillard dans son esprit, les pensées de Wang Lin devinrent incroyablement claires. Il repensa au comportement de Bai Wei et sembla saisir la situation.
 
-« Il y avait un arbre blanc planté dans la montagne arrière; on disait qu'il ne fleurirait jamais, et pourtant, il a fleuri. Cependant, la couleur de la fleur n'était pas blanche, mais noire. Elle n'a duré que trois respirations avant de se dissiper en brume... Cela avait surpris beaucoup de gens à l'époque. J'y étais aussi; je pensais qu'il aurait été merveilleux de pouvoir sauver une fleur. »
+« Il y avait un arbre blanc planté dans la montagne arrière; on disait qu'il ne fleurirait jamais, et pourtant, il a fleuri. Cependant, la couleur de la fleur n'était pas blanche, mais noire. Elle n'a duré que trois respirations avant de se dissiper en brume... Si l'on pouvait sauver cette fleur, ce serait merveilleux. »
 
 « Il y avait un sens caché derrière ses paroles. Cet arbre blanc faisait référence à Bai Wei lui-même! Le fait que l'arbre blanc ne puisse pas fleurir signifie qu'il était initialement un homme, mais qu'il est devenu une femme... Puis il a dit que les fleurs blanches avaient inopinément fleuri, mais qu'au lieu d'être blanches, elles étaient noires. C'est encore plus explicite: il me disait que pour une raison quelconque, le noir et le blanc s'étaient inversés et qu'il était passé du masculin au féminin! »
 
@@ -82,7 +82,7 @@ Même la nouvelle pluie formée par les nuages ne tombait plus. Toutes les goutt
 
 Chaque goutte de pluie contenait une force étrange.
 
-Une énergie d'origine infinie se rassembla instantanément pour pénétrer chaque goutte. À cet instant, le monde s'illumina, et la poussée d'énergie d'origine choqua tous les puissants cultivateurs de la Ville de l'Œil Fantôme.
+Une énergie originelle infinie se rassembla instantanément pour pénétrer chaque goutte. À cet instant, le monde s'illumina, et la poussée d'énergie originelle choqua tous les puissants cultivateurs de la Cité aux Yeux Fantômes.
 
 Les trois frères Chen levèrent les yeux vers le ciel, stupéfaits.
 
@@ -94,7 +94,7 @@ Le fracas de la tempête résonna dans le ciel. Le Sens Divin de Wang Lin se pro
 
 Chaque avatar déployait son propre Sens Divin; bien que cela n'augmentât pas la portée globale, cela rendait sa recherche infiniment plus précise.
 
-Alors que son Sens Divin balayait la zone, les yeux de Wang Lin s'illuminèrent et se fixèrent sur une vallée située à des milliers de kilomètres de la Ville de l'Œil Fantôme.
+Alors que son Sens Divin balayait la zone, les yeux de Wang Lin s'illuminèrent et se fixèrent sur une vallée située à des milliers de kilomètres à l'ouest de la Cité aux Yeux Fantômes.
 
 Il fit un pas, provoquant un grondement puissant. Wang Lin se transforma en un éclair et chargea vers la vallée lointaine.
 

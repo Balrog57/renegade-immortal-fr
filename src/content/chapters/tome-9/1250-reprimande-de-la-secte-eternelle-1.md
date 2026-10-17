@@ -12,13 +12,13 @@ La femme nommée Wang Shanshan cligna des yeux et sourit. « Petite sœur veut v
 
 Mu Bingmei secoua la tête et dit doucement: « J'ai bien peur qu'il n'en soit rien. Après son départ, j'ignore où il est allé. Tout a changé depuis notre séparation. Les chances qu'il vienne dans la Mer des Nuages sont minimes. »
 
-L'homme d'âge moyen de la Secte Éternelle était manifestement un haut dignitaire, sans quoi il ne siégerait pas aux côtés du Maître de la Secte. Après l'avoir entendue, il déclara calmement: « En écoutant la cultivatrice Mu, ma curiosité est également piquée. Cet homme est-il vraiment aussi talentueux qu'elle le prétend? Je me demande quel est son nom. J'espère que la cultivatrice Mu pourra me le révéler afin que, si je le rencontre un jour, je ne sois pas irrespectueux envers lui. »
+L'homme d'âge moyen de la Secte Éternelle était manifestement un haut dignitaire, sans quoi il ne siégerait pas aux côtés du Maître de la Secte. Après l'avoir entendue, il déclara calmement: « En écoutant la cultivatrice Mu, ma curiosité est également piquée. Cet homme est-il vraiment aussi talentueux qu'elle le prétend? Je me demande quel est son nom. J'espère que la cultivatrice Mu pourra me le révéler afin que, si l'occasion se présente un jour, je ne la laisse pas passer. »
 
 Cette remarque était quelque peu impolie. Mu Bingmei fronça les sourcils et, lançant un regard froid à l'homme d'âge moyen, répondit avec calme: « Il n'est pas nécessaire de connaître son nom. Le rencontrer pourrait bien ne pas être une chance pour vous! »
 
-L'homme d'âge moyen rit, nullement offensé, et secoua la tête. « Un simple cultivateur du Purificateur du Nirvana... J'espérais seulement connaître son nom afin que, si je le croise, je puisse lui offrir une opportunité grandiose. Cependant, puisque la cultivatrice Mu refuse de le dire, passons! »
+L'homme d'âge moyen rit, nullement offensé, et secoua la tête. « Un simple cultivateur du début du stade Purificateur du Nirvana... J'espérais seulement connaître son nom afin que, si je le croise, je puisse lui offrir une opportunité grandiose. Cependant, puisque la cultivatrice Mu refuse de le dire, passons! »
 
-Le Maître de la Secte Éternelle, cet homme d'âge moyen, paraissait serein, mais son cœur n'était pas à la fête. Il jeta un regard à l'autre homme, mais finit par garder le silence.
+Le Maître de la Secte Éternelle, le vieil homme vêtu de blanc, paraissait serein, mais son cœur n'était pas à la fête. Il jeta un regard à l'homme d'âge moyen, mais finit par garder le silence.
 
 Wang Shanshan, faisant preuve de finesse, sourit pour détourner l'attention. « Maître de la Secte, j'ai entendu dire que Grande Sœur Li est également présente. Je me demande où elle se trouve. »
 
@@ -36,15 +36,15 @@ L'expression de Feng Hai devint étrange alors qu'il se levait pour saluer Wang 
 
 À vrai dire, il n'était pas étonnant qu'ils soient perplexes. Li Qianmei était célèbre, et il était inattendu qu'elle soit proche d'une secte de rang 5. Et ce n'étaient pas de simples connaissances, puisqu'elle était prête à tuer un cultivateur d'une secte de rang 7 pour eux.
 
-Après avoir lâché une toux sèche, Feng Hai esquissa un sourire amer. « Maître de la Secte, ce vieil homme ignore lui aussi les détails précis. Dès l'instant où la cultivatrice Li est arrivée, elle a interrogé le rang de la Secte de l'Origine, qui est de rang 5. À ce moment-là, Lu Yingjie de la Secte de la Musique Céleste et Zhao Long avaient des différends privés avec la Secte de l'Origine. La cultivatrice Li a alors attaqué, détruisant le corps du cultivateur Zhao et manquant de tuer Lu Yingjie. »
+Après avoir lâché une toux sèche, Feng Hai esquissa un sourire amer. « Maître de la Secte, ce vieil homme ignore lui aussi les détails précis. Dès l'instant où la cultivatrice Li est arrivée, elle a directement demandé à trouver la Secte de l'Origine de rang 5. À ce moment-là, Lu Yingjie de la Secte de la Musique Céleste et Zhao Long avaient des différends privés avec la Secte de l'Origine. La cultivatrice Li a alors attaqué, détruisant le corps du cultivateur Zhao et manquant de tuer Lu Yingjie. »
 
 « Tout cela semble lié à une personne nommée "Lu" au sein de la Secte de l'Origine! »
 
 Une fois ses paroles terminées, la curiosité s'empara de tous les membres de la Secte Éternelle. Wang Shanshan sourit: « Grande Sœur Li est une personne calme qui se met rarement en colère. Si elle a attaqué, c'est qu'il devait y avoir une raison. Ancien Feng, qui est cet homme nommé Lu? »
 
-Feng Hai hocha la tête et répondit: « Cet individu nommé Lu est effectivement mystérieux. Ce vieil homme a mené une enquête secrète et a découvert que cette personne appartient à la génération des aînés de la Secte de l'Origine et qu'elle est un parent de Lu Yanfei. En vérifiant les registres, j'ai effectivement trouvé quelqu'un nommé Lu Zihao au sein de la Secte de l'Origine! »
+Feng Hai hocha la tête et répondit: « Cet individu nommé Lu est effectivement mystérieux. Ce vieil homme a mené une enquête secrète et a découvert que cette personne appartient à la génération des aînés de la Secte de l'Origine et qu'il est un parent de Lu Yanfei. En vérifiant les registres, j'ai effectivement trouvé quelqu'un nommé Lu Zihao au sein de la Secte de l'Origine! »
 
-« Il était obsédé par l'alchimie et est parti il y a de nombreuses années en quête d'herbes médicinales. On n'a plus eu de nouvelles de lui depuis lors. J'ignore comment il a rencontré la cultivatrice Li et comment ils ont pu si bien s'entendre... »
+« Il était obsédé par l'alchimie et est parti il y a de nombreuses années en quête d'herbes médicinales. On n'a plus eu de nouvelles de lui depuis lors. J'ignore comment il a rencontré la cultivatrice Li, mais elle semble l'admirer grandement... »
 
 « Lu Yuncong semble également très proche de cet homme. Il s'est avancé pour défendre la Secte de l'Origine, prêt à offenser la Secte de la Musique Céleste et Zhao Long. À l'écouter, la compréhension du Dao de ce Lu Zihao serait bien supérieure à la sienne, et Lu Yuncong l'admire profondément. Il semblerait même qu'il ait déjà éclairé Lu Yuncong par le passé. »
 
@@ -94,7 +94,7 @@ Sur la plateforme où siégeait Mu Bingmei, le vieil homme en blanc fronça les 
 
 Sa voix était puissante et écrasa complètement les paroles de Lu Yuncong. Elle fut assourdissante.
 
-Le visage de Lu Yuncong pâlit légèrement. Avec son niveau de culture, il n'était qu'une insignifiance face à des vieux monstres comme Feng Hai. Cependant, il prit une grande inspiration et joignit les mains. « Le disciple connaît quelqu'un de la Secte de l'Origine. Cette personne possède un haut niveau de culture et une compréhension profonde du Dao. Si elle venait, le disciple serait inférieur! Si je combats la Secte de l'Origine avant son arrivée, ce sera injuste pour eux! Je, Lu Yuncong, suis venu pour l'affronter lui. Je veux éprouver la portée de mon propre Dao. Si je gagne, je veux une victoire véritable, ou perdre sans aucun regret! »
+Le visage de Lu Yuncong pâlit légèrement. Avec son niveau de culture, il n'était qu'une insignifiance face à des vieux monstres comme Feng Hai. Cependant, il prit une grande inspiration et joignit les mains. « Le disciple connaît quelqu'un de la Secte de l'Origine. Cette personne possède un haut niveau de culture et une compréhension profonde du Dao. S'il venait, le disciple serait inférieur! Si je combats la Secte de l'Origine avant son arrivée, ce sera injuste pour eux! Je, Lu Yuncong, suis venu pour l'affronter lui. Je veux éprouver la portée de mon propre Dao. Si je gagne, je veux une victoire véritable, ou perdre sans aucun regret! »
 
 À sa sortie, les cultivateurs environnants furent en émoi. L'homme mystérieux était déjà devenu le centre d'attention, mais avec les paroles de Lu Yuncong, sa renommée atteignit un nouveau sommet.
 

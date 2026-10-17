@@ -50,7 +50,7 @@ Lorsqu'il saisit l'épée, il ressentit l'aura d'un trésor de niveau Pseudo-Vid
 
 Après avoir répertorié ses nouveaux biens, les yeux de Wang Lin s'illuminèrent. Au vu des richesses du Maître Pin Cendré, il n'était pas difficile de deviner que ce Royaume aux Sept Couleurs regorgeait de trésors. La plupart des possessions du Maître Pin Cendré devaient provenir d'ici, notamment ces perles capables d'invoquer des sorts.
 
-« C'est une véritable mine d'or. Si le Maître Pin Cendré a pu obtenir de tels trésors, je le pourrai aussi... Les combats futurs dépendront de notre capacité à obtenir les trésors et les pilules les plus puissants pour élever notre niveau de culture! » Wang Lin se lécha les lèvres et s'élança dans la vallée.
+« C'est une véritable mine d'or. Si le Maître Pin Cendré a pu obtenir de tels trésors, je le pourrai aussi... Les combats futurs dépendront de celui qui obtiendra ici les armes et les pilules les plus puissantes pour élever son niveau de culture! » Wang Lin se lécha les lèvres et s'élança dans la vallée.
 
 Son premier objectif: la grotte de Sima Mo, telle que révélée par les souvenirs de Pang Decai!
 
@@ -58,7 +58,7 @@ Dans les souvenirs de Pang Decai, après avoir découvert la grotte de Sima Mo, 
 
 « Une grotte qui n'a pas été entièrement ouverte et qui est restée intacte! » Wang Lin se déplaça avec célérité en suivant les souvenirs de Pang Decai. Il traversa la vallée sans déclencher la moindre restriction.
 
-Le lieu était extrêmement vaste et la vallée regorgeait de pièges. La plupart des restrictions s'étaient effondrées, et même si la vallée abritait des grottes, elles étaient vides.
+Le lieu était assez vaste et parsemé de vallées. La plupart des restrictions s'étaient effondrées, et même si ces vallées abritaient des grottes, elles étaient vides.
 
 Après une journée, Wang Lin s'arrêta devant une vallée. Celle-ci paraissait très ordinaire, mais lorsqu'il ferma les yeux, il sentit une intention sinistre envahir son esprit.
 
@@ -88,7 +88,7 @@ Les yeux de Wang Lin pétillèrent. Il s'engagea dans l'ouverture et, une fois q
 
 Une illusion se réinstalla par-dessus. La vallée pourpre retrouva son aspect initial et la terre noire fut de nouveau recouverte de mauvaises herbes. Tout redevint comme avant l'arrivée de Wang Lin.
 
-Après avoir traversé la lumière noire, ce qui s'offrit au regard de Wang Lin fut une vallée verdoyante. Elle n'était pas vaste, mesurant à peine mille pieds de large. Neuf grottes étaient creusées dans les montagnes entourant la vallée, chacune scellée par un rocher.
+Après avoir traversé la lumière noire, ce qui s'offrit au regard de Wang Lin fut une vallée verdoyante. Elle n'était pas vaste, mesurant à peine mille pieds de large. Neuf grottes étaient creusées dans les montagnes entourant la vallée, chacune fermée par une porte de pierre.
 
 Un squelette reposait dans la prairie. Il était assis au sol, adossé à la paroi de la vallée, juste devant Wang Lin. Sa tête était baissée et son index droit pointait vers le sol.
 
@@ -106,4 +106,4 @@ Il s'approcha lentement, s'accroupit et l'examina avec soin. Puis il ramassa le 
 
 « Cependant, il était trop tard... Nous avons détruit notre propre espoir de nos propres mains... Nous sommes des pécheurs... Le Maître nous a expulsés de la secte. Je sais qu'il n'avait pas d'autre choix. Je suis parti avec mes compagnons et je me suis perdu dans les brumes de la Mer des Nuages. En contemplant ce brouillard, j'ai ressenti la peur... à cause de ce secret...
 
-« Je ne m'attendais pas à ce que cette calamité incommensurable revienne au moment même de notre désespoir. Nous avons échappé au destin une fois, pour revenir ici... Peut-être ne pourrai-je plus jamais quitter cet endroit... Est-ce là la justice? Je croyais au destin, et j'ai fini par lui céder... »
+« Je ne m'attendais pas à ce que cette calamité incommensurable revienne au moment même de notre désespoir. Nous avons échappé au destin une fois, pour revenir ici... Peut-être ne pourrai-je plus jamais quitter cet endroit... Est-ce là le destin? Je croyais au destin, et j'ai fini par lui céder... »

@@ -6,11 +6,11 @@ bookTitle: "Alliance's Secret"
 en: Chapter 1140 - Origin Secte
 slug: sect-dorigine
 ---
-La cour sud de la Secte de l'Origine. Bien que des pavillons couvraient le bassin, des bâtiments s'étendaient également sur la partie méridionale de la chaîne de montagnes. En particulier, au sein d'une forêt dont le feuillage restait rouge en toute saison, se dressait un pavillon écarlate. Il était orné de nombreuses sculptures de grues dansantes et s'avérait d'une grande beauté.
+La cour sud de la Secte de l'Origine. Bien que des pavillons couvraient le bassin, des bâtiments s'étendaient également sur la partie méridionale de la chaîne de montagnes. En particulier, au sein d'une forêt dont le feuillage restait rouge en toute saison, se dressait un pavillon écarlate. Il était orné de nombreuses sculptures de phénix dansants et s'avérait d'une grande beauté.
 
 Lu Yanfei aimait le rouge, et presque tout le monde à la Secte de l'Origine le savait. Non seulement sa demeure était rouge, mais Lu Yanfei éprouvait même une affection particulière pour les vêtements de cette couleur.
 
-À cet instant, Lu Yanfei portait une robe rouge, ses cheveux longs et libres dans son dos. Elle restait assise en silence, le visage encore pâle, empreint d'une tristesse qui ne s'était pas encore dissipée. Cela la rendait plus belle encore, soulignée par cette touche de pourpre.
+À cet instant, Lu Yanfei portait une robe rouge, ses cheveux longs et libres dans son dos. Elle restait assise en silence, le visage encore pâle, empreint d'une tristesse qui ne s'était pas encore dissipée. Cela la rendait belle, avec en plus une pointe de grâce touchante.
 
 Cependant, même ses trois frères aînés n'étaient pas dignes d'apprécier une telle scène, car leurs niveaux de culture étaient inférieurs à ceux de Lu Yanfei.
 
@@ -26,7 +26,7 @@ Lu Yanfei n'avait pris que trois disciples, toutes des femmes. La seconde, Xu Yu
 
 Peu de temps après, quatre jeunes aux visages pâles et tremblants firent leur entrée. En pénétrant dans la pièce, ils n'osèrent même pas respirer. La tête basse, ils semblaient ne plus savoir comment agir.
 
-Le regard de Lu Yanfei balaya les quatre jeunes alors qu'elle disait d'une voix feutrée: « Première disciple, troisième disciple, chacune de vous en prendra deux. Leur talent est très ordinaire; que leur destin de partenaire spirituel soit accompli ou non dépendra de la chance. Dans un mois, s'ils ne sont pas reconnus par l'enseignant aux yeux violets laissé ici, renvoyez-les chez eux. »
+Le regard de Lu Yanfei balaya les quatre jeunes alors qu'elle disait d'une voix feutrée: « Première disciple, troisième disciple, chacune de vous en prendra deux. Leur talent est très ordinaire; que leur destin de partenaire spirituel soit accompli ou non dépendra de la chance. Dans un mois, s'ils ne sont pas reconnus par le python aux yeux violets laissé par mon maître, renvoyez-les chez eux. »
 
 Les deux disciples féminines hochèrent respectueusement la tête, puis prirent les quatre jeunes et se retirèrent.
 
@@ -40,13 +40,13 @@ Ce n'est qu'une fois Xu Yun partie que l'intention de tuer envahit le regard de 
 
 « Lu Di, même si moi, Lu Yanfei, je devais mourir, je ne deviendrai jamais ton partenaire de culture! »
 
-À l'extérieur du pavillon rouge se trouvaient trois personnes. Outre Wang Lin, il y avait deux autres jeunes. L'un d'eux paraissait simple, vêtu de vêtements modestes. L'autre affichait un air légèrement malicieux et portait une chemise bleue avec une certaine élégance.
+À l'extérieur du pavillon rouge se trouvaient trois personnes. Outre Wang Lin, il y avait deux autres jeunes. L'un d'eux paraissait simple, vêtu de vêtements modestes. L'autre, d'allure imposante, avait dans le regard une lueur lubrique et portait une chemise bleue avec une certaine élégance.
 
 Xu Yun sortit, l'inquiétude au cœur, et les regarda tous les trois. En voyant le jeune en bleu, elle fronça les sourcils.
 
-« Vous trois, ne bougez pas. Je vais vous ramener au sein du secteur. » Xu Yun agita ses mains délicates, et des nuages apparurent pour transporter les trois jeunes vers le bas de la chaîne de montagnes, dans la zone sud.
+« Vous trois, ne bougez pas. Je vais vous ramener à la secte. » Xu Yun agita ses mains délicates, et des nuages apparurent pour transporter les trois jeunes vers le bas de la chaîne de montagnes, dans la zone sud.
 
-Ils arrivèrent rapidement devant une cour complexe, parsemée de nombreuses plantes et de plusieurs habitations.
+Ils arrivèrent rapidement devant une cour raffinée, parsemée de nombreuses plantes et de plusieurs habitations.
 
 Dès que le nuage se dissipa, le jeune en bleu pâlit et son corps trembla; il commença aussitôt à vomir sur le côté. Il était évident que la vitesse avait été trop rapide pour lui; c'était sa première expérience du vol, et il avait perdu tout courage. Quant au jeune d'apparence simple, son visage était également blême et son corps tremblait, mais il ne vomit pas.
 

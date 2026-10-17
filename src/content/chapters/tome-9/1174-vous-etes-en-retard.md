@@ -30,13 +30,13 @@ Un vieil homme au visage balafré marchait lentement dans la rue, les mains derr
 
 « Si Maître Pin Cendré ne continuait pas à m'inviter, je crains que je ne remette jamais les pieds à Peng Lai... » Il laissa échapper un soupir en regardant au loin, puis ses yeux s'illuminèrent.
 
-« Quel magnifique exemple de la loi de la jungle, où le fort opprime le faible! Il tente ouvertement de tuer quelqu'un pour ses trésors! » Le vieil homme éclata de rire et apparut sur un toit avant de s'y asseoir. Son sens divin se propagea avec une vitalité manifeste.
+« Quel magnifique exemple de la loi de la jungle, où le fort opprime le faible! Il tente ouvertement de tuer quelqu'un pour ses trésors! » Le vieil homme éclata de rire et apparut sur un toit avant de s'y asseoir. Son sens divin se propagea, prêt à assister au spectacle.
 
 Dans l'auberge d'une petite ville, loin de la cité principale, un vieillard maigre vêtu de noir tenait deux sphères entre ses mains. Debout près de la fenêtre, il contemplait le ciel radieux. Son sens divin s'était déjà propagé très loin.
 
 « J'ai laissé Wu Qing prendre l'avantage... Quel malheur... »
 
-Tous les vieux monstres ayant participé aux enchères de Maître Pin Cendré pensaient que Wang Lin mourrait sans aucun doute. Tous, sauf le lettré en blanc! Bien qu'il fût quelque peu sceptique, il savait au fond de lui que les cultivateurs du stade de Purificateur du Nirvana n'avaient aucune chance face à un Briseur du Nirvana!
+Tous les vieux monstres ayant participé aux enchères de Maître Pin Cendré pensaient que Wang Lin mourrait sans aucun doute. Même le lettré en blanc n'avait que de légers doutes: au fond de lui, il savait que les cultivateurs du stade de Purificateur du Nirvana n'avaient aucune chance face à un Briseur du Nirvana!
 
 Non seulement eux, mais d'autres Briseurs de Nirvana présents dans la ville furent alertés par le départ de Wu Qing, et leurs sens divins se déployèrent. L'un d'eux était Tang Lihai!
 
@@ -60,7 +60,7 @@ Les deux volaient l'un après l'autre, se rapprochant sans cesse.
 
 Ils atteignirent enfin la frontière entre les parties ouest et est de Peng Lai. C'était une plaine rocailleuse, un terrain idéal pour un massacre.
 
-Wang Lin ne devait pas seulement gagner; il devait remporter ce combat de manière éclatante, juste et rapide! Ce n'était que ainsi qu'il pourrait dissuader les autres cultivateurs de Peng Lai et leur faire comprendre que lui, Wang Lin, était un être qu'on ne pouvait point provoquer!
+Wang Lin ne devait pas seulement gagner; il devait remporter ce combat de manière éclatante, juste et rapide! Ce n'était qu'ainsi qu'il pourrait dissuader les autres cultivateurs de Peng Lai et leur faire comprendre que lui, Wang Lin, était un être qu'on ne pouvait point provoquer!
 
 S'il se contentait de cela, son intention ne serait pas pleinement exprimée. Non seulement il allait tuer Wu Qing, mais il ferait en sorte que les membres de la Secte de la Collection des Démons n'oseraient plus jamais l'attaquer ou chercher à se venger! Il devait inspirer la crainte et l'inquiétude! Avant d'apprendre l'existence de la région de rang 9, il avait été préoccupé, mais après les explications de Li Qianmei, ses doutes s'étaient envolés.
 
@@ -102,7 +102,7 @@ Sans son corps original, Wang Lin pouvait tuer un Briseur du Nirvana au stade in
 
 Après l'impact des trois doigts, la main droite de Wang Lin s'abattit, projetant son énergie originelle sur Wu Qing. Les pupilles de ce dernier se contractèrent. En cet instant de vie ou de mort, il n'eut même pas le temps de regretter. Des trésors jaillirent précipitamment de son espace de stockage pour tenter d'endiguer cette force.
 
-Cependant, Wang Lin avait appris ce sort auprès de Maître Lufu. Bien qu'il n'en maîtrisât pas encore l'essence, la puissance de ce sort, compte tenu du niveau de culture de Maître Lufu, était une chose que même les anciens empereurs célestes devaient redouter. Comment les trésors de Wu Qing pouvaient-ils arrêter un tel pouvoir?
+Cependant, Wang Lin avait appris ce sort auprès de Maître Lu Fu. Bien qu'il n'en maîtrisât pas encore l'essence, la puissance de ce sort, compte tenu du niveau de culture de Maître Lu Fu, était une chose que même les anciens empereurs célestes devaient redouter. Comment les trésors de Wu Qing pouvaient-ils arrêter un tel pouvoir?
 
 Wu Qing n'était pas digne de posséder un trésor capable de contrer ce sort! Il ne méritait pas une telle qualification!
 
@@ -110,7 +110,7 @@ Un grondement tonnerre retentit et tous les trésors de Wu Qing explosèrent, ta
 
 « Tu n'es pas un cultivateur du stade Purificateur du Nirvana!! » hurla Wu Qing d'une voix erratique.
 
-« Wu Qing, je ne te ferai pas de funérailles! » Wang Lin ferma les yeux et leva une nouvelle fois sa main droite. L'immense empreinte de la paume du Royaume Céleste de la Pluie apparut dans son esprit. L'empreinte grandit jusqu'à occulter tout le reste!
+« Wu Qing, je ne te raccompagne pas! » Wang Lin ferma les yeux et leva une nouvelle fois sa main droite. L'immense empreinte de la paume du Royaume Céleste de la Pluie apparut dans son esprit. L'empreinte grandit jusqu'à occulter tout le reste!
 
 Il avait d'abord appréhendé cette technique dans le Royaume Céleste de la Pluie. Il l'avait utilisée sans véritable compréhension, forçant le génie Papillon Rouge à battre en retraite!
 
@@ -170,11 +170,11 @@ Un fracas apocalyptique remplaça tout autre son au monde. La paume pénétra la
 
 Une seule paume pour percer les cieux! Elle brisa la barrière protectrice de Peng Lai et s'engouffra dans l'espace. De vastes quantités de brume furent aspirées par la paume, augmentant considérablement sa puissance.
 
-Non loin de Peng Lai se trouvait un continent sauvage. C'était une terre interdite de la Secte de Jade Précieux, où aucun cultivateur extérieur n'était admis. La paume se dirigeait droit sur lui.
+Non loin de Peng Lai se trouvait un continent sauvage. C'était une terre interdite de la Secte du Jade Précieux, où aucun cultivateur extérieur n'était admis. La paume se dirigeait droit sur lui.
 
 En un instant, la paume absorba une brume infinie pour devenir une main gigantesque dont on ne percevait plus les limites. Elle ressemblait à la paume d'un Dieu Ancien lorsqu'elle percuta le continent sauvage.
 
-Rumble, rumble, rumble, rumble!
+Boum, boum, boum, boum!
 
 Des fluctuations inimaginables émanèrent du ciel étoilé. Le continent sauvage trembla violemment avant de se fragmenter en d'innombrables morceaux et de s'effondrer!
 
@@ -194,11 +194,11 @@ Les yeux de Maître Pin Cendré s'agrandirent et il broya le jade qu'il tenait e
 
 Le lettré en blanc et la belle femme quittèrent également le restaurant lorsque l'immense empreinte balaya la ville, détruisant la moitié de celle-ci.
 
-La jeune femme était livide, ses pupilles rétractées. Son esprit était bouleversé et elle restait sans voix. Elle qui venait de qualifier Wang Lin de « petit cultivateur » ressentait désormais une incrédulité infinie et un froid glacial.
+La jeune femme était livide, ses pupilles rétractées. Son esprit était bouleversé et elle restait sans voix. Elle qui venait de qualifier Wang Lin de « petit gars » ressentait désormais une incrédulité infinie et un froid glacial.
 
 « Tuer Wu Qing et utiliser l'Empreinte de l'Esprit Guerrier. Cet homme... Cet homme est intouchable! »
 
-Le lettré en blanc eut un haut-le-cœur, mais ses yeux brillèrent d'un éclat vif. Cependant, cette lumière ne pouvait masquer le choc qui ébranlait son âme.
+Le lettré en blanc inspira brusquement, mais ses yeux brillèrent d'un éclat vif. Cependant, cette lumière ne pouvait masquer le choc qui ébranlait son âme.
 
 Non loin de là, le vieil homme balafré restait pétrifié. Il n'arrivait toujours pas à croire ce qu'il venait de voir.
 

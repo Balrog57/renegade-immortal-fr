@@ -56,11 +56,11 @@ Le Daoïste Esprit Dispersé esquissa un sourire, révélant une pointe d'excita
 
 Sa haine envers le Royaume Céleste et le Clan du Tonnerre Dispersé le fit éclater d'un rire tonitruant!
 
-« Aujourd'hui, moi, Esprit Dispersé, je vengerai les générations de mon clan mortes par votre faute. Je veux... tuer les cieux! » Il fit un pas en avant, ses mains traçant des sceaux qu'il projeta sur le côté.
+« Aujourd'hui, moi, Esprit Dispersé, je vengerai les générations de mon clan mortes par votre faute. Je veux... tuer les immortels! » Il fit un pas en avant, ses mains traçant des sceaux qu'il projeta sur le côté.
 
 « Ce vieil homme a parcouru les 7 Millions de Mondes durant des dizaines de milliers d'années. J'ai fait le tour du monde et j'ai laissé mes empreintes dans chacun de ces 7 Millions de Mondes. Cela m'a permis d'atteindre l'illumination à travers un sortilège que j'ai créé moi-même! »
 
-« Sceau du Massacre Céleste des 7 Millions! »
+« Sceau du Massacre des Immortels des 7 Millions! »
 
 Alors que la voix lugubre du Daoïste Esprit Dispersé résonnait, les 7 Millions de Mondes tremblèrent comme s'ils s'éveillaient. D'innombrables illusions apparurent autour de lui!
 
@@ -84,7 +84,7 @@ L'Ancien ne pouvait se permettre la moindre distraction. Ses yeux brillaient de 
 
 Une fois sa décision prise, ses mains formèrent rapidement un sceau et ses vêtements se gonflèrent. Ses longs cheveux ondulaient sans qu'aucun vent ne souffle, et une culture extrêmement puissante jaillit de son corps!
 
-« Je vais vous montrer la véritable puissance du cinquième Fléau Céleste! Je sacrifie mille ans de ma vie en échange des nuages de tonnerre célestes. Formation des Nuages de Tonnerre! » Le marquage de l'Ancien brilla intensément et, dans un fracas, le compas géant réapparut dans les 7 Millions de Mondes!
+« Je vais vous montrer la véritable puissance du cinquième Fléau Céleste! Je sacrifie mille ans de ma vie en échange des nuages de tonnerre célestes. Formation des Nuages de Tonnerre! » La marque de clan entre les sourcils de l'Ancien brilla intensément et, dans un fracas, le compas géant réapparut dans les 7 Millions de Mondes!
 
 Le compas pivota silencieusement, puis le visage de l'Ancien devint instantanément livide et hideux. Il leva la main et des nuages commencèrent à émerger du vide. En un instant, d'innombrables nuages envahirent l'espace!
 
@@ -100,7 +100,7 @@ Le visage du Daoïste Esprit Dispersé pâlit également; il agita sa manche et 
 
 Les ondulations de la Formation des Nuages de Tonnerre devinrent encore plus intenses lorsqu'elles rencontrèrent les 7 Millions de Mondes en pleine contraction, provoquant un fracas capable de briser le ciel.
 
-Rumble, rumble, rumble!
+Fracas, fracas, fracas!
 
 Alors que l'illusion des 7 Millions de Mondes se rétractait brutalement, elle s'effondra, créant une onde de choc surpuissante. Cela plongea la Formation des Nuages de Tonnerre dans le chaos, et une grande partie d'elle se désintégra!
 

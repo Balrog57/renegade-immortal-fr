@@ -40,21 +40,21 @@ Le vieil homme hésita un instant avant de murmurer: « Selon les enquêtes, c'e
 
 Le vieil homme fut interdit. Après une réflexion approfondie, il questionna: « Pourrait-il y avoir quelqu'un d'autre? »
 
-« Si c'était vraiment la Vieille Poisonneuse, pourquoi la Secte des Cinq Poisons existe-t-elle encore? » Les yeux de l'homme d'âge moyen brillèrent de sagesse. Il reprit lentement: « Comment cette Vieille Poisonneuse pourrait-elle résister à Shi Luoxing sans être découverte, compte tenu de son niveau de culture? Et comment aurait-elle pu tuer le Noble Argent de la Secte de la Fleur Claire tout en s'échappant? »
+« Si c'était vraiment la Vieille Poisonneuse, pourquoi la Secte des Cinq Poisons existe-t-elle encore? » Les yeux de l'homme d'âge moyen brillèrent de sagesse. Il reprit lentement: « Comment cette Vieille Poisonneuse pourrait-elle résister à l'autodestruction de Shi Luoxing, compte tenu de son niveau de culture, et ne laisser aucune trace sous de telles recherches? Et comment aurait-elle pu tuer le Noble Argent de la Secte de la Fleur Claire tout en s'échappant? »
 
 « Le Noble Argent de la Secte de la Fleur Claire était un cultivateur au stade Briseur du Nirvana. Qui aurait pu le tuer dans le court laps de temps précédant l'arrivée de la seconde vague de cultivateurs de la Secte de la Fleur Claire? »
 
-Le vieil homme eut un haut-le-cœur et son esprit vacilla. Il lui fallut un long moment pour reprendre ses esprits, les yeux empreints de terreur.
+Le vieil homme inspira brusquement et son esprit vacilla. Il lui fallut un long moment pour reprendre ses esprits, les yeux empreints de terreur.
 
 « Le Noble Argent de la Secte de la Fleur Claire a été tué! » Il ignorait manifestement cette affaire.
 
-« La Vieille Poisonneuse ne peut pas avoir fait ça. Seule la personne qui a réellement obtenu le jade et la recette pourrait posséder une telle force. Cette personne a dû être contrainte de tuer le Noble Argent. On peut supposer qu'en quittant les terres sauvages, elle a croisé le Noble Argent; celui-ci a éveillé ses soupçons, et elle a été forcée d'attaquer. » L'homme d'âge moyen afficha un regard mêlant admiration et pitié.
+« La Vieille Poisonneuse ne peut pas avoir fait ça. Seule la personne qui a réellement obtenu le jade et la recette pourrait posséder une telle force. Cette personne a dû être contrainte de tuer le Noble Argent. On peut supposer qu'en quittant les terres sauvages, elle a croisé le Noble Argent; celui-ci a éveillé ses soupçons, et elle a été forcée d'attaquer. » L'homme d'âge moyen afficha un regard mêlant admiration et estime.
 
 « Il possède des méthodes cruelles, une détermination implacable, et il a exécuté le Noble Argent avec une précision chirurgicale. De plus, avant cela, cette personne a rapidement rejeté la suspicion sur la Vieille Poisonneuse, créant ainsi un voile de confusion pour gagner du temps. En agissant ainsi, il a suffi de tromper les sectes de rang 6 pour s'échapper avant que leur blocus ne soit établi. Même si j'avais été à sa place, je crains que je n'aurais pu accomplir tout cela. »
 
-« Plus important encore, le stratagème de cette personne est d'une profondeur abyssale. J'ignore s'il a une autre raison de discréditer la Vieille Poisonneuse. S'il a réellement percé la vérité avant de lui faire porter le chapeau, alors l'esprit de cet individu est celui d'un démon! » La pitié dans les yeux de l'homme d'âge moyen s'intensifia.
+« Plus important encore, le stratagème de cette personne est d'une profondeur abyssale. J'ignore s'il a une autre raison de discréditer la Vieille Poisonneuse. S'il a réellement percé la vérité avant de lui faire porter le chapeau, alors l'esprit de cet individu est celui d'un démon! » L'estime dans les yeux de l'homme d'âge moyen s'intensifia.
 
-Le cœur de l'homme d'âge moyen battait la chamade. Après réflexion, il restait pourtant perplexe.
+Le cœur du vieil homme battait la chamade. Après réflexion, il restait pourtant perplexe.
 
 Sans même se retourner, l'homme sembla lire clairement le doute sur le visage du vieil homme. Il dit doucement: « Si la région de rang 6 parvient à obtenir le jade et la recette, ce sera un bon présage. En revanche, s'ils les trouvent mais qu'ils les perdent, alors ce sera un désastre pour eux. »
 
@@ -102,7 +102,7 @@ C'était comme un lac paisible et enivrant. Quiconque croisait son regard, aussi
 
 « Qianmei salue le Frère Lu, » dit la femme avec un sourire en s'inclinant légèrement vers lui.
 
-Lu Yuncong sourit et joignit les mains. « La Camarade Li est trop aimable. »
+Lu Yuncong sourit et joignit les mains. « La Daoïste Li est trop aimable. »
 
 « Frère Lu, Qianmei a trois questions à poser. J'espère que le Frère Lu pourra dissiper mes doutes, » dit la femme avec un sourire gracieux, paraissant encore plus sereine en parlant. Tout au long de son périple, elle avait posé ces mêmes questions à de nombreuses personnes. Tous ceux qui avaient répondu faisaient partie de l'élite, mais aucun n'avait pu lui apporter les réponses qu'elle cherchait. Elle n'avait posé que la première des trois questions, car personne n'avait été capable de l'amener à poser la seconde, et encore moins la troisième.
 

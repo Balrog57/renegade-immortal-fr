@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1311 - The First Predestined Battle (1)
 slug: la-première-bataille-predestinee-1
 ---
-Ce coup de poing unique fit trembler les cieux, portant en lui l'impact d'une planète entière de culture s'écrasant sur le monde. Parmi les trois cultivateurs du troisième niveau, l'un se trouvait au stade du Vide Spirituel, tandis que les deux autres étaient au stade du Nirvana Vide. Ayant pris l'habitude de combattre Tuo Sen, ils restèrent calmes face à cette attaque. Ils ne se dispersèrent pas, mais chacun porta la main à son front.
+Ce coup de poing unique fit trembler les cieux, portant en lui l'impact d'une planète entière de culture s'écrasant sur le monde. Parmi les trois cultivateurs du troisième niveau, l'un se trouvait au stade du Vide Spirituel, tandis que les deux autres étaient au début du Vide du Nirvana. Ayant pris l'habitude de combattre Tuo Sen, ils restèrent calmes face à cette attaque. Ils ne se dispersèrent pas, mais chacun porta la main à son front.
 
 En un instant, une force puissante émana de leurs corps et se mua en trois rayons de lumière démoniaque qui s'élancèrent pour intercepter le coup de poing de Tuo Sen.
 
@@ -28,9 +28,9 @@ Il n'hésita pas à briser une étoile pour empêcher les trois cultivateurs du 
 
 L'étoile de l'Ancien Dieu dégaga une désolation infinie et explosa avec la puissance de celles qui détruisent le monde. L'explosion s'étendit jusqu'à former une tempête balayant les environs.
 
-Rumble, rumble, rumble, rumble!
+Boum, boum, boum, boum!
 
-Ce grondement assourdissant donnait l'impression que le monde allait s'effondrer et que l'espace lui-même se déchirait. De vastes fissures spatiales apparurent, couvrant des zones de 5 000, 50 000, puis 500 000 kilomètres.
+Ce grondement assourdissant donnait l'impression que le monde allait s'effondrer et que l'espace lui-même se déchirait. De vastes fissures spatiales apparurent, couvrant des zones de 5 000, 50 000, 500 000, puis 5 000 000 kilomètres.
 
 D'innombrables planètes de culture, d'innombrables cultivateurs et d'innombrables créatures furent réduits en cendres!
 
@@ -42,13 +42,13 @@ Les mains du vieil homme au stade du Vide Spirituel formèrent des sceaux. Bien 
 
 Cependant, l'homme et la femme crachèrent du sang et reculèrent frénétiquement. Des grondements tonitruants résonnèrent devant eux et, par conséquent, les trois furent séparés!
 
-« Ils sont enfin dispersés! » Tuo Sen était prêt à détruire une étoile entière pour les diviser. Maintenant qu'ils étaient isolés, il n'avait plus rien à craindre. Il fit un pas en avant avec un sourire carnassier. Son corps devint incroyablement colossal, provoquant un grondement sourd. Il arriva immédiatement aux côtés de l'homme au stade du Nirvana Vide, tandis que les étoiles restantes entre ses sourcils tournèrent pour former un vortex projeté vers ce dernier!
+« Ils sont enfin dispersés! » Tuo Sen était prêt à détruire une étoile entière pour les diviser. Maintenant qu'ils étaient isolés, il n'avait plus rien à craindre. Il fit un pas en avant avec un sourire carnassier. Son corps devint incroyablement colossal, provoquant un grondement sourd. Il arriva immédiatement aux côtés de l'homme au stade du Vide du Nirvana, tandis que les étoiles restantes entre ses sourcils tournèrent pour former un vortex projeté vers ce dernier!
 
 L'expression du vieil homme au stade du Vide Spirituel changea radicalement et il rugit promptement: « Maître Simo, reculez! » Des ondulations semblables à celles de l'eau apparurent dans l'espace autour de lui alors qu'il fonçait vers Maître Simo, lequel était encerclé par le vortex formé par les étoiles de l'Ancien Dieu.
 
 Maître Simo était un homme d'âge moyen dont les yeux brillaient. Au moment où les étoiles se refermèrent sur lui, sa main forma un sceau et il commença à murmurer: « Prisonnier du Dao du Ciel. Tous les êtres sensibles doivent endurer d'innombrables calamités. Une seule pensée suffit pour quitter la prison profonde. Toute vie doit marcher éternellement vers l'avant et résoudre l'ère moderne. Échapper à la volonté céleste et obtenir le chemin de la vie. Sceller la volonté des cieux. Graver les jours sombres. Attendre le chemin de la culture... »
 
-Sa voix était étrange, et dès qu'il commença ses incantations, celle de Tuo Sen changea. Sa main droite forma un poing qu'il lança vers le vieil homme du Vide Spirituel qui approchait. Contre toute attente, Tuo Sen laissa passer ce dernier pour s'élancer vers l'autre cultivateur du troisième niveau.
+Sa voix était étrange, et dès qu'il commença ses incantations, l'expression de Tuo Sen changea. Sa main droite forma un poing qu'il lança vers le vieil homme du Vide Spirituel qui approchait. Contre toute attente, Tuo Sen laissa passer ce dernier pour s'élancer vers l'autre cultivateur du troisième niveau.
 
 Il s'agissait d'une femme. Elle avait été blessée par l'onde de choc de l'étoile brisée de Tuo Sen. Alors qu'elle reculait, ses pupilles se rétractèrent en percevant l'arrivée imminente de l'adversaire.
 
@@ -62,11 +62,11 @@ Le vieil homme du Vide Spirituel regarda Maître Simo. Un étrange sourire appar
 
 « Cette personne pourchassée par Tuo Sen dégageait également l'aura d'un Ancien Dieu. C'est aussi un Ancien Dieu royal... »
 
-« Je crains qu'ils ne soient les deux seuls Anciens Dieux restants. Tuo Sen n'est pas un problème, mais quant à l'autre, ce n'est pas quelqu'un que nous pouvons chasser... »
+« Je crains qu'ils ne soient les deux seuls Anciens Dieux royaux restants. Tuo Sen n'est pas un problème, mais quant à l'autre, ce n'est pas quelqu'un que nous pouvons chasser... »
 
 « Je me demande quel usage ils peuvent faire d'un Ancien Dieu royal pour qu'ils déploient tant d'efforts... et qu'ils changent même de plan en cours de route... »
 
-« Cette affaire est strictement confidentielle. J'en ai entendu parler, mais j'ignore quelle part de vérité elle contient. On dit que les Anciens Dieux royaux possédaient la divinité nécessaire pour ouvrir le Ciel Antique et permettre... »
+« Cette affaire est strictement confidentielle. J'en ai entendu parler, mais j'ignore quelle part de vérité elle contient. On dit que les Anciens Dieux royaux possédaient la divinité de l'ouverture originelle du ciel et de la terre, et pouvaient permettre... »
 
 Alors qu'ils galopaient, ils envoyaient tous deux des messages par Sens Divin, mais avant que le vieil homme du Vide Spirituel n'ait pu achever sa phrase, son expression changea et il se tut.
 
@@ -104,7 +104,7 @@ La voix de Tuo Sen tonna comme le tonnerre: « Tu ne peux pas échapper! » Ses 
 
 Il se retourna soudainement, le regard froid. Des bruits de craquements retentirent tandis que son corps grandissait pour devenir un géant de 10 000 pieds de haut. Ses six étoiles d'Ancien Dieu tournèrent rapidement, et une puissante vague d'aura divine jaillit de lui.
 
-D'un mouvement de la main droite, une lumière sanglante flascha, se transformant en une épée gigantesque de plusieurs milliers de pieds de long! Il abattit cette arme pour contrer le coup de poing de Tuo Sen!
+D'un mouvement de la main droite, une lumière sanglante scintilla, se transformant en une épée gigantesque de 1 000 pieds de long! Il abattit cette arme pour contrer le coup de poing de Tuo Sen!
 
 Il se tint près des statues d'Anciens Dieux et inspira profondément. L'aura divine s'engouffra dans son corps avec frénésie, se précipitant vers la blessure sur sa poitrine. Après y avoir ajouté son propre pouvoir d'Ancien Dieu, un grondement tonitruant éclata.
 

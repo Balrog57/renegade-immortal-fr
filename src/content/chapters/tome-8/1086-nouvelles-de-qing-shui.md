@@ -50,7 +50,7 @@ Au moment où le tonnerre rugissant passa, la tempête s'arrêta soudainement, r
 
 Le corps de cet homme était immense, comme une véritable montagne de chair. En ce moment, il était couvert de sueur, mais cette montagne de chair ne semblait nullement diminuer de volume.
 
-Après avoir essuyé la sueur sur son visage, le vieil homme leva les yeux vers le ciel avec un sourire amer et secoua la tête. « Depuis qu'il a rencontré ce Wang Lin, ce vieil homme est frappé par la malchance. J'ai même été gravement blessé à la Terre des Esprits Démoniaques, hélas... Heureusement, ce Wang Lin n'est pas un homme sans scrupules. Être au sein de la Secte Divine du Oiseau Vermillon est bien plus sûr que l'extérieur. »
+Après avoir essuyé la sueur sur son visage, le vieil homme leva les yeux vers le ciel avec un sourire amer et secoua la tête. « Depuis qu'il a rencontré ce Wang Lin, ce vieil homme est frappé par la malchance. J'ai même été gravement blessé à la Terre des Esprits Démoniaques, hélas... Heureusement, ce Wang Lin n'est pas un homme dénué de bonté. Être au sein de la Secte Divine du Oiseau Vermillon est bien plus sûr que l'extérieur. »
 
 « Le sceau de Wang Lin a été levé il y a deux ans, mais après la bataille à la Terre des Esprits Démoniaques, même sans ce sceau, je n'oserais pas chercher querelle à Wang Lin. Ses sorts sont trop terrifiants! » Lorsque Maître Fu Fengzi songea aux sorts que Wang Lin avait utilisés sur la Terre des Esprits Démoniaques, il fut saisi de crainte. *Nuit Brisée* suffisait déjà à l'effrayer, alors ne parlons même pas du *Rêve des Temps Anciens*.
 
@@ -88,7 +88,7 @@ Le vieil homme sourit. Durant ces deux années, il avait développé une très b
 
 « Attends un peu! » Situ Nan leva les yeux au ciel. En vérité, il savait au fond de lui que le vieil homme agissait pour son bien, mais la chaleur était parfois insupportable. Plus important encore, sa liberté avait été limitée durant ces deux dernières années. Chaque fois qu'il pensait à son mode de vie princier d'autrefois, il ne pouvait s'empêcher de soupirer.
 
-« Petits manants de la planète Feng Luan, attendez le retour de ce vieil homme! »
+« Petites garces de la planète Feng Luan, attendez le retour de ce vieil homme! »
 
 Le tonnerre rugissant traversa le ciel et disparut progressivement.
 

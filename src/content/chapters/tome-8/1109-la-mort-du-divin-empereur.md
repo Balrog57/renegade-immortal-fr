@@ -20,9 +20,9 @@ Une aura de mort émanait de l'ancien Divin Empereur. Wang Lin n'avait même pas
 
 L'ancien Divin Empereur leva la tête. Une lueur subsistait dans ses yeux qui ne crachaient plus que du sang noir.
 
-« Ton Senior Frère, Qing Shui, est bel et bien au siège de l'Alliance de Culture. L'activation de la formation devant le siège était directement liée à lui... Il n'est pas mort... mais... il est devenu fou! »
+« Ton Senior Frère, Qing Shui, est bel et bien au siège de l'Alliance de Culture. Il y a quelques années, l'activation de la grande formation de l'Alliance de Culture était directement liée à lui... Il n'est pas mort... mais... il est devenu fou! »
 
-« L'Alliance de Culture cache un secret capable de faire trembler les cieux depuis d'innombrables années. Lorsque Maître Zhong Xuan et les autres se sont rendus dans le Royaume Céleste de la Pluie à l'époque, ils n'ont pas seulement obtenu la plupart des héritages, ils ont aussi découvert des choses mystérieuses. Ils les étudient depuis toutes ces années... »
+« L'Alliance de Culture cache un secret capable de faire trembler les cieux depuis d'innombrables années. Lorsque Maître Zhong Xuan et les autres se sont rendus dans le Royaume Céleste de la Pluie pour la première fois, ils n'ont pas seulement obtenu la plupart des héritages, ils ont aussi découvert des choses mystérieuses. Ils les étudient depuis toutes ces années... »
 
 « Je crains que même le Royaume du Vide Brillant n'ait connaissance de cette affaire. Ces choses mystérieuses sont trop importantes; elles pourraient affecter les quatre Royaumes Célestes! »
 
@@ -46,9 +46,9 @@ Privé de son âme originelle, le corps commença à brûler jusqu'à se transfo
 
 Sa main droite pointait toujours vers l'espace entre ses sourcils.
 
-Wang Lin recula de quelques pas, s'agenouilla sur la pierre et effectua trois prosternations. Il ne rendait pas hommage aux cieux, mais l'ancien Empereur Divin de l'Oiseau Vermillon reçut là trois kowtows de la part de Wang Lin!
+Wang Lin recula de quelques pas, s'agenouilla sur la pierre et effectua trois prosternations. Wang Lin ne se prosternait de toute sa vie ni devant les cieux ni devant la terre, mais l'ancien Empereur Divin de l'Oiseau Vermillon reçut là trois kowtows de la part de Wang Lin!
 
-Au moment où le vieil Empereur Divin mourut, tous les Anciens de la Secte Divine de l'Oiseau Vermillon ressentirent une immense tristesse. Ils s'envolèrent silencieusement depuis les planètes qu'ils occupaient pour s'agenouiller face au corps de l'ancien Divin Empereur. Des larmes coulèrent de leurs yeux.
+Au moment où le vieil Empereur Divin mourut, presque tous les Anciens de la Secte Divine de l'Oiseau Vermillon ressentirent une immense tristesse. Ils s'envolèrent silencieusement depuis les planètes qu'ils occupaient pour s'agenouiller face au corps de l'ancien Divin Empereur. Des larmes coulèrent de leurs yeux.
 
 « Je salue respectueusement le départ du Divin Empereur. Puisse votre voyage être serein... »
 
@@ -82,11 +82,11 @@ Ces mouvements attirèrent immédiatement l'attention des diverses forces de l'A
 
 De l'autre côté, dans la région orientale des Quatre Sectes Divines, un groupe d'Anciens menait également les membres de leur secte vers la planète Suzaku, afin de masquer les véritables mouvements des Quatre Sectes Divines!
 
-Presque au moment même où toutes les forces arrivèrent sur la planète Suzaku, les 35 Anciens restants du Briseur du Nirvana se rassemblèrent dans la Secte Divine de l'Oiseau Vermillon. Ils étaient assis en formation, le visage grave et le regard empreint d'attente.
+Presque au moment même où toutes les forces arrivèrent sur la planète Suzaku, les 35 Anciens Briseurs du Nirvana des trois autres sectes se rassemblèrent dans la Secte Divine de l'Oiseau Vermillon. Ils étaient assis en formation, le visage grave et le regard empreint d'attente.
 
-Ils formèrent un cercle, chacun disposant d'une formation sous lui. Entre les 35 individus, un espace circulaire restait vide. Cependant, 35 branches reliaient ce centre aux formations situées sous chaque Ancien.
+Ils formèrent un cercle, chacun disposant d'une formation sous lui. Au milieu des 35 individus se trouvait une formation circulaire de dix pieds de large, vide pour l'instant. Cependant, 35 branches reliaient ce centre aux formations situées sous chaque Ancien.
 
-Autour de ces 35 Anciens se trouvait une multitude de membres des Quatre Sectes Divines, pas moins de 10 000 personnes! Ils étaient tous assis, et chacun possédait une formation sous lui reliée à celles des 35 Anciens.
+Autour de ces 35 Anciens se trouvait une multitude de membres des Quatre Sectes Divines, pas moins de plusieurs dizaines de milliers de personnes! Ils étaient tous assis, et chacun possédait une formation sous lui reliée à celles des 35 Anciens.
 
 Ils attendaient tous l'ordre. Une fois celui-ci donné, ils libéreraient sans réserve toute l'énergie originelle de leurs corps pour ouvrir la formation!
 
@@ -98,7 +98,7 @@ Wang Lin s'arrêta à l'extérieur de la tempête de feu et cria: « Xu Liguo! �
 
 En entendant la voix de Wang Lin, Xu Liguo eut un réflexe de flatterie qu'il réprima de force, laissant place à une colère contenue.
 
-« Espèce de démon assassin, tu te souviens enfin de ton Grand-père Xu! Aujourd'hui, je vais t'en donner! » Xu Liguo avait été confronté à d'innombrables situations de vie ou de mort qui l'avaient forcé à comprendre l'intention d'épée antique. Son niveau de culture avait progressé par bonds prodigieux, au point qu'il osait désormais défier des cultivateurs ordinaires du niveau Scruteur du Nirvana.
+« Espèce de démon assassin, tu te souviens enfin de ton Grand-père Xu! Aujourd'hui, je n'en ai pas fini avec toi! » Xu Liguo avait été confronté à d'innombrables situations de vie ou de mort qui l'avaient forcé à comprendre l'intention d'épée antique. Son niveau de culture avait progressé par bonds prodigieux, au point qu'il osait désormais défier des cultivateurs ordinaires du niveau Scruteur du Nirvana.
 
 Rempli de colère, il chargea et se transforma en une épée géante. Il ressemblait trait pour trait à une épée céleste et dégageait une aura de Richesse.
 

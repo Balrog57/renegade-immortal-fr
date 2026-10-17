@@ -14,7 +14,7 @@ Cependant, le dragon de vent aux sept couleurs étant composé de vent, il n'ava
 
 Par conséquent, les deux bêtes étaient d'une force égale. Les impacts dévastateurs qu'elles généraient n'étaient en rien inférieurs à ceux de deux puissants cultivateurs en plein combat!
 
-Wang Lin se tenait sur le fragment céleste. D'un geste du pied, celui-ci rétrécit et commença à graviter autour de lui pour lui servir de protection. En réponse aux paroles de Ling Tianhou, Wang Lin dit calmement: « Merci, Aîné, pour vos éloges. Je suis également perplexe face aux événements d'aujourd'hui. J'ignore ce que j'ai pu faire pour offenser Maître au point qu'il lance un sort pour me tuer ici même! »
+Wang Lin se tenait sur le fragment céleste. D'un geste du pied, celui-ci rétrécit et commença à graviter autour de lui pour lui servir de protection. En réponse aux paroles de Ling Tianhou, Wang Lin dit calmement: « Merci, Senior, pour vos éloges. Je suis également perplexe face aux événements d'aujourd'hui. J'ignore ce que j'ai pu faire pour offenser Maître au point qu'il lance un sort pour me tuer ici même! »
 
 Ling Tianhou rit et répondit: « Ce vieil homme a vu de telles choses se produire maintes fois. Autrefois, cela... »
 
@@ -26,7 +26,7 @@ Ling Tianhou roula des yeux, laissa échapper un renâclement froid et cria: « 
 
 Wang Lin écoutait attentivement leur échange. Bien qu'il n'y eût aucune trace de l'Omniscient, avec ses capacités, il ne lui faudrait qu'un instant pour apparaître!
 
-Wang Lin avait toujours été troublé par une question. À l'époque, il était trop faible pour s'y attarder, mais pourtant, il était aussi considéré comme un cultivateur puissant. Comment pouvait-il ne pas percevoir la différence entre Ling Tianhou et l'Omniscient!
+Wang Lin avait toujours été troublé par une question. À l'époque, il était trop faible pour s'y attarder, mais désormais, il comptait lui aussi parmi les cultivateurs puissants. Comment pouvait-il ne pas percevoir la différence entre Ling Tianhou et l'Omniscient!
 
 Ling Tianhou était bien plus fort que l'Ancêtre Sanguin, mais comparé à Maître Yan Leizi, Qing Shui et aux autres, il était bien plus faible. Il n'était pas exagéré de dire que la différence entre lui et l'Omniscient était aussi vaste que celle entre le ciel et la terre.
 
@@ -40,7 +40,7 @@ Pourtant, Ling Tianhou avait osé s'opposer à l'Omniscient pendant des dizaines
 
 Le soleil qui s'élevait progressivement à l'est sembla être totalement occulté par un sortilège surpuissant. En un instant, le monde fut plongé dans les ténèbres!
 
-L'expression de Ling Tianhou devint grave; il agita ses larges manches et les épées d'origine derrière lui s'enfoncèrent dans le vide, libérant une énergie d'épée monstrueuse!
+L'expression de Ling Tianhou devint grave; il agita ses larges manches et les épées d'âme originelle derrière lui s'enfoncèrent dans le vide, libérant une énergie d'épée monstrueuse!
 
 « Et alors si je ne respecte pas l'accord? Omniscient, même si tu fais sortir la robe grise, crois-tu que je te craindrai? » Ling Tianhou laissa échapper un grognement froid, puis sa main droite traça un sceau pointé vers l'énergie d'épée. Cette dernière s'effondra soudainement et se propagea à travers le monde.
 
@@ -72,11 +72,11 @@ Alors qu'il était plongé dans cette pensée, le corps de Wang Lin trembla comm
 
 « Attends!
 
-Ce n'est pas que l'Omniscient ne se soit jamais trompé auparavant. Il y avait une signification profonde derrière l'enseignement de l'Art du Massacre Céleste. C'était le premier signe qu'il comptait me faire subir ce qu'il avait fait à Bai Wei!
+Ce n'est pas que l'Omniscient ne se soit jamais trompé auparavant. Il y avait une signification profonde derrière l'enseignement de l'Art du Massacre Céleste. C'était la première fois qu'il plaçait en moi une amorce, comme le jour de l'Extrême Yang lors de la naissance de Bai Wei!
 
 Dans le passé, l'Omniscient était une existence parfaite qui ne pouvait commettre d'erreur! Cependant, dans la Terre des Esprits Démoniaques, grâce à l'aide de l'ancien démon, j'ai pu découvrir la faille de l'Art du Massacre Céleste! Cela a causé une légère déviation dans le plan de l'Omniscient!
 
-Puis, le Diable Dispersé est apparu et a une fois de plus perturbé ses desseins. Finalement, j'ai pu percer le karma de l'Art du Massacre Céleste et j'ai résolument renoncé à cette puissante énergie de massacre!
+Puis, le Démon Dispersé est apparu et a une fois de plus perturbé ses desseins. Finalement, j'ai pu percer le karma de l'Art du Massacre Céleste et j'ai résolument renoncé à cette puissante énergie de massacre!
 
 C'était la première fois que l'Omniscient se trompait en complotant contre moi! » Les yeux de Wang Lin s'illuminèrent d'une compréhension soudaine alors qu'il fixait l'homme à la robe grise. Bien que cela semblât complexe, tout défila dans son esprit en un éclair.
 
@@ -86,9 +86,9 @@ C'était la première fois que l'Omniscient se trompait en complotant contre moi
 
 L'expression de l'Omniscient à la Robe Grise demeurait calme, presque indifférente. Les dix filaments d'énergie de massacre fonçaient à une vitesse prodigieuse vers Ling Tianhou.
 
-Ling Tianhou laissa échapper un grognement froid, leva la main et hurla: « Sacrifice, Trou, Brise! Deuxième style de la Brise, la lame sur le dos du garçon! » Sa main droite s'éleva vers le ciel. Aussitôt, les quatre épées d'origine derrière lui pivotèrent rapidement pour fusionner en une seule.
+Ling Tianhou laissa échapper un grognement froid, leva la main et hurla: « Clarté, Percée, Brisure! Deuxième style du Brise-Ciel, l'Enfant-Épée porte la lame! » Sa main droite s'éleva vers le ciel. Aussitôt, les quatre épées d'âme originelle derrière lui pivotèrent rapidement pour fusionner en une seule.
 
-En un instant, les quatre épées ne formèrent plus qu'une, émettant un éclat fulgurant. Un garçon d'environ sept ou huit ans surgit de cette énergie d'épée, portant une immense épée violette dans le dos!
+En un instant, les quatre épées ne formèrent plus qu'une, émettant un éclat fulgurant. Un garçon aux yeux clos, d'environ sept ou huit ans, surgit de cette énergie d'épée, portant une immense épée violette dans le dos!
 
 La forme de l'arme était singulière, courbée telle un serpent! Une puissante énergie spirituelle céleste s'en dégageait, dessinant vaguement la silhouette d'un dragon.
 

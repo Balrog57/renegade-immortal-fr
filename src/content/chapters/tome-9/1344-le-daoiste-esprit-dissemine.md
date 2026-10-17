@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1344 - Daoist Scattered Spirit
 slug: le-daoiste-esprit-dissemine
 ---
-Le jeune homme chauve esquissa un sourire, mais au plus profond de ses yeux brillait un regard solennel. Une pointe d'horreur traversa son regard lorsqu'il fixa Wang Lin. Il avait suivi ce dernier et avait été le témoin direct de tout ce qu'il avait accompli. Il avait vu Wang Lin utiliser ce cultivateur comme appât et massacrer près de cent personnes en seulement trente minutes!
+Le jeune homme chauve esquissa un sourire, mais au plus profond de ses yeux brillait un regard solennel. Une pointe d'horreur traversa son regard lorsqu'il fixa Wang Lin. Il avait suivi ce dernier et avait été le témoin direct de tout ce qu'il avait accompli. Il avait vu Wang Lin utiliser ce cultivateur comme appât et massacrer plus de cent personnes en seulement trente minutes!
 
 Ce qui le bouleversait le plus, c'est que ce puissant cultivateur du Briseur du Nirvana n'avait même pas pu encaisser un seul coup!
 
@@ -14,9 +14,9 @@ Ce qui le bouleversait le plus, c'est que ce puissant cultivateur du Briseur du 
 
 Le choc provoqua une onde de choc immense dans l'esprit du jeune homme chauve, mais comparé à cela, le fait que Wang Lin l'ait démasqué était encore plus stupéfiant. D'après les paroles de Wang Lin, celui-ci savait depuis longtemps qu'il était suivi. Cela dépassait toutes ses espérances!
 
-Bien que son niveau de culture ne fût pas au sommet, sa technique de dissimulation, héritée d'une époque immémoriale, l'était. Aucun des anciens Célestes n'avait pu le détecter lors de ses déplacements à travers les 7 Millions de Mondes, même ceux possédant un niveau de culture bien supérieur.
+Bien que son niveau de culture ne fût pas au sommet, sa technique de dissimulation, héritée d'une époque immémoriale, l'était. Aucun Céleste n'avait pu le détecter lors de ses déplacements à travers les 7 Millions de Mondes, même ceux possédant un niveau de culture bien supérieur.
 
-Même lorsqu'un cultivateur du quatrième Fléau Céleste était apparu, le jeune homme chauve avait pu le suivre avec aisance sans jamais être détecté.
+Même lorsqu'un cultivateur du quatrième Fléau Céleste était apparu, le jeune homme chauve avait pu le suivre avec aisance pendant plusieurs mois sans jamais être détecté.
 
 À cet instant, sa gorge était sèche. L'éclair rouge devant lui lui inspirait la plus intense sensation de crise de sa vie. Chaque fois que l'éclair vacillait, il sentait sa peau se hérisser. Il savait qu'il ne pourrait pas esquiver; dès que l'éclair frapperait, il mourrait sans aucun doute!
 
@@ -82,13 +82,13 @@ Le jeune homme hocha la tête.
 
 « 971 était la limite de la technique de l'Esprit Dispersé; on ne pouvait pas la dépasser. J'ai donc trouvé un moyen de contourner cette règle. Chaque avatar agit comme un corps principal et utilise à son tour la technique de l'Esprit Dispersé. Chacun de mes 971 avatars possède ses propres 971 avatars!
 
-« Grâce à ce cycle perpétuel, mon niveau de culture a lentement progressé jusqu'à atteindre le stade du Scruteur du Nirvana... » En arrivant à ce point, le jeune homme laissa échapper un soupir.
+« Grâce à ce cycle perpétuel, mon niveau de culture a lentement progressé jusqu'à atteindre le stade du Purificateur du Nirvana... » En arrivant à ce point, le jeune homme laissa échapper un soupir.
 
 Lui et Wang Lin étaient tous deux de puissants cultivateurs. Ils traversaient les mondes, s'éloignant de plus en plus.
 
-« Après avoir atteint le stade du Purificateur du Nirvana, j'ai commencé à poursuivre le doute qui m'habitait depuis longtemps. Je voulais savoir si ce ciel était véritablement le ciel. Si cette terre était réellement la terre. Si ce Royaume Céleste était vraiment le Royaume Céleste!
+« Après avoir atteint le stade du Purificateur du Nirvana, j'ai commencé à poursuivre le doute qui m'habitait depuis longtemps. Je voulais savoir si ce ciel était véritablement le ciel. Si cette terre était réellement la terre. Si ce Royaume Céleste était vraiment le Royaume Céleste. Si ces Célestes étaient vraiment des Célestes!
 
-« Je voulais percer le mystère de la légende transmise par nos ancêtres depuis l'Antiquité, leur description et leur désir ardent du Royaume Céleste! Cependant, bien que j'eusse atteint le stade du Purificateur du Nirvana et possédais une culture puissante, je ne pouvais quitter les 7 Millions de Mondes. Je ne pouvais que voyager en son sein; il existait une barrière invisible que ma culture ne parvenait pas à briser!
+« Je voulais percer le mystère de la légende transmise par nos ancêtres depuis l'Antiquité, leur description et leur désir ardent du Royaume Céleste! Cependant, bien que j'eusse atteint le stade du Purificateur du Nirvana et que mes avatars eux-mêmes possédaient une culture non négligeable, je ne pouvais quitter les 7 Millions de Mondes. Je ne pouvais que voyager en son sein, sans pouvoir entrer dans la voûte étoilée; il existait une barrière invisible que ma culture ne parvenait pas à briser!
 
 « J'ai donc conçu une méthode pour contrôler mes innombrables avatars afin qu'ils franchissent tous le stade de la Formation de l'Âme et déclenchent la rétribution divine! À ce moment-là, j'ai provoqué moi-même une infime partie de cette rétribution!
 

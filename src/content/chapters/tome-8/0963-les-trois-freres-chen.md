@@ -16,7 +16,7 @@ Bai Wei ne sembla pas remarquer que le sens divin de Wang Lin l'avait balayé, e
 
 « Vous n'étiez pas là depuis longtemps. Dans quelques mois, la météo sur la planète Tian Yun changera. Ce passage brusque entre les cieux couverts et le soleil radieux est considéré comme un spectacle unique de cette planète.
 
-Pendant ces centaines d'années, la Secte du Destin Céleste est restée calme; il ne s'est pas passé grand-chose. Si l'on devait retenir un événement, ce serait celui d'un arbre blanc planté par quelqu'un dans la montagne à l'arrière et que l'on disait incapable de fleurir. Pourtant, il a fleuri. Cependant, les fleurs n'étaient pas blanches, mais noires. Cela n'a duré que trois respirations avant qu'elles ne tombent en poussière... Cela a surpris beaucoup de gens à l'époque. J'étais là aussi; je me disais que ce serait merveilleux si j'avais pu sauver une fleur. »
+Pendant ces centaines d'années, la Secte du Destin Céleste est restée calme; il ne s'est pas passé grand-chose. Si l'on devait retenir un événement, ce serait celui d'un Bois Yang Blanc, planté je ne sais par qui dans la montagne à l'arrière et dont on disait qu'il ne fleurirait jamais. Pourtant, il a fleuri. Cependant, la fleur n'était pas blanche, mais noire. Elle n'a duré que trois respirations avant de mourir et de se changer en brume... Cela a surpris beaucoup de gens à l'époque. J'étais là aussi; je me disais que ce serait merveilleux si j'avais pu sauver une fleur. »
 
 « Rien de suspect... » Wang Lin fronça les sourcils, mais ce léger pressentiment le tourmentait. Son expression resta toutefois neutre tandis qu'il suivait la conversation de Bai Wei.
 
@@ -28,7 +28,7 @@ Bai Wei reprit avec un sourire: « Il y a aussi la Cité aux Yeux Fantômes. Cet
 
 Wang Lin réfléchit un instant et laissa Bai Wei parler tout en ouvrant la voie, mais son esprit était ailleurs.
 
-Après une demi-heure, Wang Lin demanda soudain: « Junior Sister Bai, quelle méthode de culture pratiquez-vous? »
+Après une demi-heure, Wang Lin demanda soudain: « Junior Sœur Bai, quelle méthode de culture pratiquez-vous? »
 
 Bai Wei sursauta et son expression changea brusquement. Elle s'arrêta et recula de quelques pas, fixant Wang Lin d'un regard altéré: « Le frère Wang me méprise-t-il? Si je vous ennuie, alors je partirai et ne vous dérangerai plus jamais! »
 
@@ -88,7 +88,7 @@ L'individu face à lui ne leur témoignait manifestement aucun respect. À quoi 
 
 « Je vous donne trois secondes pour réfléchir! » lança doucement Maître Yi Chen. Il serait trop facile pour eux de s'occuper d'un cultivateur au début du stade Scruteur du Nirvana! Même si cet homme venait réellement de la Secte du Destin Céleste, l'Omniscient ne s'abaisserait pas à s'en occuper. De plus, ils n'avaient pas l'intention de tuer. Puisqu'ils lui avaient offert une chance, même s'ils détruisaient son sens divin, personne ne pourrait rien leur reprocher.
 
-S'il s'était agi d'un membre de la Secte de l'Épée Da Lou, Maître Yi Chen aurait pensé différemment. Après tout, le Saint de l'Épée, Ling Tianhou, était célèbre pour protéger les siens.
+S'il s'était agi d'un membre de la Secte de l'Épée Da Luo, Maître Yi Chen aurait pensé différemment. Après tout, le Saint de l'Épée, Ling Tianhou, était célèbre pour protéger les siens.
 
 Trois respirations passèrent en un instant. Maître Yi Chen poussa un reniflement froid et le dragon de sens divin formé par les trois rugit face au sens divin de Wang Lin. Ils s'apprêtaient à l'anéantir.
 

@@ -42,7 +42,7 @@ Une aura dense d'Ancien Dieu emplit la zone alors que Wang Lin saisissait le tri
 
 Tenant le trident, Wang Lin se dressait tel un dieu au sommet de la montagne. Il frappa la restriction de son arme.
 
-La restriction se referma et se divisa instantanément en trois segments. Elle s'apprêtait à charger Wang Lin, mais à cet instant précis, le trident balaya l'air. La puissance d'Ancien Dieu contenue dans le corps de Wang Lin jaillit dans l'arme. Le trident libéra une lumière noire qui balaya la restriction.
+L'énergie de restriction fondit sur lui en rugissant et se divisa instantanément en trois flux. Elle s'apprêtait à charger Wang Lin, mais à cet instant précis, le trident balaya l'air. La puissance d'Ancien Dieu contenue dans le corps de Wang Lin jaillit dans l'arme. Le trident libéra une lumière noire qui balaya la restriction.
 
 Un rugissement de tonnerre retentit alors que les trois parties de la restriction étaient tranchées en deux. La lumière noire du trident devint encore plus intense et se mua en trois dragons qui dévorèrent la restriction. Une fois celle-ci consumée, le trident trembla et trois marques apparurent sur lui.
 
@@ -54,7 +54,7 @@ Le regard de Wang Lin se posa sur les deux poursuivants. Lorsqu'il les balaya du
 
 Cette scène fit suffoquer Maître Pin Cendré et la vieille femme en vert!
 
-« Ceci... ceci est... » L'esprit de Maître Pin Cendré trembla et ne put retrouver son calme pendant un long moment. Il avait cultivé durant des éons et connaissait de nombreuses techniques de raffinement corporel, mais aucune n'avait jamais produit un corps d'une telle ampleur. Ce qui le choquait le plus, c'est que ce corps ne semblait pas être une illusion; il était d'un réalisme absolu!
+« Ceci... ceci est... » L'esprit de Maître Pin Cendré trembla et ne put retrouver son calme pendant un long moment. Il cultivait depuis fort longtemps et connaissait de nombreuses techniques de raffinement corporel, mais aucune n'avait jamais produit un corps d'une telle ampleur. Ce qui le choquait le plus, c'est que ce corps ne semblait pas être une illusion; il était d'un réalisme absolu!
 
 Le visage de la vieille femme en vert était livide alors qu'elle fixait la silhouette gigantesque sur le point de disparaître par-delà la montagne. Elle serra les dents et poursuivit sa course.
 
@@ -76,7 +76,7 @@ Au moment précis où celle-ci entra dans la restriction, Wang Lin se retourna b
 
 Peu après, d'innombrables lumières de restrictions s'allumèrent dans la vallée où elle se trouvait. Ces lueurs étaient aveuglantes, et le grondement tonitruant était suffisant pour faire trembler les cœurs!
 
-Des milliers de restrictions jaillirent du sol pour encercler immédiatement la vieille femme. On en comptait des dizaines de milliers! Elles dégageaient une lumière spectrale. Après avoir fusionné la Restriction de Vie et de Mort et la Restriction d'Annihilation, leur puissance était apocalyptique. Dès que Wang Lin les activa, elles se précipitèrent toutes sur elle.
+Des sceaux de restrictions jaillirent du sol pour encercler immédiatement la vieille femme. On en comptait des dizaines de milliers! Elles dégageaient une lumière spectrale. Après avoir fusionné la Restriction de Vie et de Mort et la Restriction d'Annihilation, leur puissance était apocalyptique. Dès que Wang Lin les activa, elles se précipitèrent toutes sur elle.
 
 Le vortex noir enveloppa également la zone, rendant toute visibilité impossible. Cependant, on pouvait entendre distinctement les rugissements tonitruants et les gémissements étouffés de la vieille femme.
 
@@ -100,6 +100,6 @@ Les pupilles de Wang Lin se rétractèrent.
 
 Son premier véritable combat contre un cultivateur du stade intermédiaire du Briseur du Nirvana excitait Wang Lin. Il ne recula pas, mais fit plutôt avancer son trident. Les trois dragons s'envolèrent soudainement de l'arme pour tenter d'engloutir l'épée de cristal.
 
-Plus étrange encore: les trois marques formées après avoir dévoré la Restriction de Vie et de Mort se mirent à briller. Elles s'élancèrent et fusionnèrent avec les trois dragons noirs, faisant soudainement apparaître l'aura de la Restriction de Vie et de Mort.
+Plus étrange encore: les trois marques formées après avoir dévoré la Restriction de Vie et de Mort se mirent à briller. Elles s'élancèrent et fusionnèrent avec les trois dragons noirs, faisant soudainement flotter l'aura de la Restriction de Vie et de Mort dans un rayon de dix mille pieds alentour.
 
 C'était là le véritable pouvoir du trident!

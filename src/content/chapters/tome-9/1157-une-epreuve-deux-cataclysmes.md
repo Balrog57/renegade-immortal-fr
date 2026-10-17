@@ -58,7 +58,7 @@ C’était comme un tonnerre résonnant sous la terre. Chaque craquement corresp
 
 Les veines de son visage étaient gonflées et d'énormes gouttes de sueur s'en échappaient.
 
-La catastrophe osseuse descendait ainsi, impitoyable. Grâce à la puissante vitalité des anciens dieux, même sans chair ni sang, ils pouvaient se régénérer tant qu'une trace de vitalité subsistait. La première épreuve consistait justement en cette vitalité!
+La catastrophe osseuse descendait ainsi, impitoyable. Grâce à la puissante vitalité des anciens dieux, même sans chair ni sang, ils pouvaient se régénérer tant qu'une trace de vitalité subsistait. La première épreuve effaçait justement cette vitalité!
 
 Une fois la vitalité effacée, la catastrophe osseuse arrivait pour tenter de détruire les os qui ne pourraient plus se régénérer sans elle. Si tous les os étaient détruits, le résultat serait la mort.
 
@@ -86,7 +86,7 @@ Wang Lin n'était pas certain de pouvoir tenir jusqu'à cet instant ultime. Cepe
 
 Il n'y eut ni cri ni rugissement; ce seul regard indomptable suffisait à exprimer la nature rebelle de Wang Lin. C'était une force invisible qui faisait trembler les cieux!
 
-Des craquements retentirent avec fracas alors que sa jambe droite entière s'effondrait et que tout, jusqu'au genou de sa jambe gauche, se changeait en cendres. Le bruit des os qui s'écrasaient se propagea progressivement vers la surface.
+Des craquements retentirent avec fracas alors que sa jambe droite entière s'effondrait et que tout ce qui se trouvait sous le genou de sa jambe gauche se changeait en cendres. Le bruit des os qui s'écrasaient se propagea progressivement vers la surface.
 
 Durant cette demi-lune, tout le continent de Mo Luo put entendre les grondements tonitruants émanant du sol. Au début, ils étaient faibles, puis ils devinrent de plus en plus assourdissants. Désormais, même la terre tremblait légèrement.
 
@@ -110,7 +110,7 @@ Elles tentèrent de charger à plusieurs reprises, mais furent repoussées. C'é
 
 Parmi elles se trouvaient des bêtes de rang 5 et même de rang 6! Ce qui terrifiait encore plus Li Xiangdong, c'est qu'il aperçut même une bête de rang 7. Une bête de rang 7 suffisait à combattre un cultivateur de stade intermédiaire du Purificateur du Nirvana!
 
-« Jeune sœur Lu, je ne sais pas pourquoi tu nous as arrêtés, mais aujourd'hui, nous devons aller voir. Nous devons savoir exactement ce qui provoque cette poussée inattendue d'énergie d'origine et attire toutes ces bêtes féroces cachées dans le brouillard stellaire! » Li Xiangdong pensa à la bête de rang 7 et son esprit trembla. Il fixa Lu Yanfei avec une expression très sérieuse.
+« Junior Sœur Lu, je ne sais pas pourquoi tu nous as arrêtés, mais aujourd'hui, nous devons aller voir. Nous devons savoir exactement ce qui provoque cette poussée inattendue d'énergie d'origine et attire toutes ces bêtes féroces cachées dans le brouillard stellaire! » Li Xiangdong pensa à la bête de rang 7 et son esprit trembla. Il fixa Lu Yanfei avec une expression très sérieuse.
 
 Les deux autres Anciens regardèrent également Lu Yanfei en silence.
 

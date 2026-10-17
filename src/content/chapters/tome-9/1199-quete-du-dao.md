@@ -16,7 +16,7 @@ Il ouvrit soudainement les yeux, révélant un éclat sombre et lugubre.
 
 « C'est lui qui a forcé ce vieil homme à agir ainsi. Si je ne me venge pas, je ne suis plus humain! » Il bondit en avant, se transformant en un éclair fulgurant. Il perça la brume et s'élança vers les montagnes.
 
-« Ce cultivateur nommé Lu a été blessé par mon ongle aux sept couleurs; même s'il n'est pas mort, il est à l'agonie. J'ignore simplement où il se cache... Cependant, peu importe. Si je le veux, je peux le découvrir sans peine! » Maître Pin Cendré ricana et tendit la main droite vers le vide. Une faille s'ouvrit dans son espace de stockage et une perle en jaillit.
+« Ce cultivateur nommé Lu a été blessé par mon clou aux sept couleurs; même s'il n'est pas mort, il est à l'agonie. J'ignore simplement où il se cache... Cependant, peu importe. Si je le veux, je peux le découvrir sans peine! » Maître Pin Cendré ricana et tendit la main droite vers le vide. Une faille s'ouvrit dans son espace de stockage et une perle en jaillit.
 
 « Invoque, Défieur! » Maître Pin Cendré mordit l'extrémité de sa langue et cracha du sang sur la perle. Celle-ci commença à absorber la lumière aux sept couleurs avant de s'effondrer. Au moment de son effondrement, une aura puissante surgit et une ombre floue se manifesta dans le monde.
 
@@ -30,13 +30,13 @@ La silhouette ferma les yeux et, après un long moment, les rouvrit pour fixer M
 
 Dans la vallée où se trouvait la grotte de Sima Mo, Wang Lin n'avait pas consacré toute son énergie à l'alchimie. Il avait également nettoyé la première grotte. Après avoir disposé un grand nombre de restrictions et agrandi la cavité, il libéra la bête moustique.
 
-La reine des moustiques était plus féroce encore. En sortant, ses yeux froids fixèrent Wang Lin avec détermination. Son esprit étant lié à celui de Wang Lin, elle connaissait déjà son plan. Elle émit un léger sifflement.
+Le roi des moustiques était plus féroce encore. En sortant, ses yeux froids fixèrent Wang Lin avec détermination. Son esprit étant lié à celui de Wang Lin, il connaissait déjà son plan. Il émit un léger sifflement.
 
-Après une courte méditation silencieuse, Wang Lin agita la main droite et la reine des moustiques fut aspirée dans les restrictions de la grotte.
+Après une courte méditation silencieuse, Wang Lin agita la main droite et le roi des moustiques fut aspiré dans les restrictions de la grotte.
 
-« Avec suffisamment de cristaux d'origine, tout ira bien! » Wang Lin sortit une grande quantité d'âmes de bêtes qu'il avait rassemblées, ainsi que l'âme de la bête mutée qu'il avait créée dans la grotte de la Secte de l'Origine. Il y injecta ensuite des dizaines de milliers de cristaux d'origine et scella le tout.
+« Avec suffisamment de cristaux d'origine, tout ira bien! » Wang Lin sortit une grande quantité d'âmes de bêtes qu'il avait rassemblées tout au long de sa route dans le Système Stellaire de la Mer des Nuages, ainsi que l'âme de la bête mutée qu'il avait cultivée sur le continent de Mo Luo. Il y injecta ensuite des dizaines de milliers de cristaux d'origine et scella le tout.
 
-« J'utiliserai les méthodes de la Secte aux Cinq Poisons pour raffiner ces âmes de bêtes mutées, afin d'augmenter artificiellement la force de la bête moustique et qu'elle puisse se transformer en une reine des moustiques plus puissante. Ce n'est qu'ainsi qu'elle pourra commander l'immense essaim dans le Royaume Céleste du Vent! » Le sens divin de Wang Lin s'étendit dans la grotte. Il vit clairement la bête moustique pourpre se précipiter avec agressivité vers chaque âme de bête, les combattant et les dévorant.
+« J'utiliserai les méthodes de la Secte des Cinq Poisons pour raffiner ces âmes de bêtes mutées, afin d'augmenter artificiellement la force de la bête moustique et qu'elle puisse se transformer en un roi des moustiques plus puissant. Ce n'est qu'ainsi qu'elle pourra commander l'immense essaim dans le Royaume Céleste du Vent! » Le sens divin de Wang Lin s'étendit dans la grotte. Il vit clairement la bête moustique pourpre se précipiter avec agressivité vers chaque âme de bête, les combattant et les dévorant.
 
 Simultanément, grâce aux restrictions, les cristaux d'origine se transformaient en une énergie d'origine dense qui pénétrait le corps de la bête moustique.
 
@@ -82,7 +82,7 @@ Soudain, une voix vague apparut dans son esprit. Cette voix semblait murmurer et
 
 « Éveillé, prisonnier du Dao des cieux. Tous les êtres sensibles doivent endurer d'incommensurables calamités. Une seule pensée suffit pour quitter la profonde prison. Toute vie doit avancer éternellement et résoudre l'ère moderne. Échapper à la volonté céleste et obtenir le chemin de la vie. Sceller la volonté des cieux. Graver les jours sombres. Attendre le chemin de la culture... »
 
-« Aucune vie ne connaît le vrai Dao. L'abîme amer déforme éternellement le vrai Dao... » Cette phrase continuait de résonner en lui. Progressivement, les intentions du Dao se répandirent jusqu'à couvrir 100 000 pieds, puis un million de pieds. Finalement, elles enveloppèrent une partie du Royaume aux Sept Couleurs.
+« Les êtres qui n'obtiennent pas le vrai Dao sombrent toujours dans la mer d'amertume et perdent à jamais le vrai Dao... » Cette phrase continuait de résonner en lui. Progressivement, les intentions du Dao se répandirent jusqu'à couvrir 100 000 pieds, puis un million de pieds. Finalement, elles enveloppèrent une partie du Royaume aux Sept Couleurs.
 
 Maître Pin Cendré se trouvait à 10 000 pieds de la grotte de Sima Mo. Son visage était extrêmement pâle tandis qu'il fixait l'horizon, restant pourtant immobile. Il était arrivé là il y a deux jours, mais avant même d'avoir pu faire un pas de plus, il avait ressenti ces intentions du Dao chaotiques et infinies.
 

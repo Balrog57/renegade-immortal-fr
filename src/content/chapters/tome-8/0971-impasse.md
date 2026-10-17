@@ -18,7 +18,7 @@ En jetant un regard vers le doigt géant, il vit encore plus de lueurs rouges ja
 
 Après avoir fait quelques pas, Wang Lin s'élança impitoyablement, frappant le sol de son pied droit pour charger le doigt.
 
-Rumble, rumble, rumble, rumble! Wang Lin asséna quatre coups de poing consécutifs. La puissance de l'Ancien Dieu jaillit de son corps et frappa l'artifice.
+Boum, boum, boum, boum! Wang Lin asséna quatre coups de poing consécutifs. La puissance de l'Ancien Dieu jaillit de son corps et frappa l'artifice.
 
 Après un instant, le doigt se désintégra complètement dans un grand fracas, se dispersant en filaments d'énergie d'origine. Cela souleva une quantité immense de poussière et créa des tempêtes de sable lors de sa dispersion.
 
@@ -62,7 +62,7 @@ Sa main droite se posa sur son sac, prêt à sortir la couronne. Cependant, à c
 
 Ce Qilin était d'une férocité extrême et ses yeux brillaient d'un éclat vif. Sur son dos siégeait un vieil homme maigre: c'était le Saint de l'Épée, Ling Tianhou!
 
-Les quatre épées d'origine encerclaient Ling Tianhou. L'énergie tranchante qu'elles dégageaient était capable de percer les cieux!
+Les quatre épées d'âme originelle encerclaient Ling Tianhou. L'énergie tranchante qu'elles dégageaient était capable de percer les cieux!
 
 Le regard féroce du Qilin balaya la scène sans même accorder un regard à Wang Lin; il fixait le dragon de vent enveloppé de lumière arc-en-ciel. Si ce n'était pour Ling Tianhou, il aurait déjà chargé pour affronter le dragon!
 

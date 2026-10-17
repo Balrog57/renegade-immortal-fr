@@ -6,7 +6,7 @@ bookTitle: "Alliance's Secret"
 en: Chapter 1004 - The Existence in the Depths of the Celestial Cave
 slug: letre-dans-les-profondeurs-de-la-grotte-celeste
 ---
-À cet instant, même les trois frères Chen ouvrirent les yeux. Tandis qu'ils cultivaient, l'énergie spirituelle céleste pénétrait leurs corps. Après un léger froncement de sourcils, Maître Yi Chen se leva et déclara: « Cher cultivateur Wang, cette affaire est inappropriée! Bien que je ne connaisse pas grand-chose aux restrictions, même moi, je peux percevoir l'intention meurtrière qui s'en dégage. Si nous devons les forcer, il nous faudra agir ensemble pour avoir quelque chance de réussir. »
+À cet instant, même les trois frères Chen ouvrirent les yeux. Tandis qu'ils cultivaient, l'énergie spirituelle céleste pénétrait leurs corps. Après un léger froncement de sourcils, Maître Yi Chen se leva et déclara: « Daoïste Wang, cette affaire est inappropriée! Bien que je ne connaisse pas grand-chose aux restrictions, même moi, je peux percevoir l'intention meurtrière qui s'en dégage. Si nous devons les forcer, il nous faudra agir ensemble pour avoir quelque chance de réussir. »
 
 « Aucun problème! » Wang Lin d'un geste de la main interrompit Maître Yi Chen. L'ordre de Wang Lin était absolu pour la femme en argent; elle n'hésita pas et s'avança dans cette zone des cent pas.
 
@@ -16,7 +16,7 @@ Dès que son dixième pas toucha le sol, des ondulations se propagèrent dans la
 
 De plus, sous les yeux de l'assistance, la zone des cent pas devant eux se tordit comme si une force tentait de la déchirer.
 
-Les yeux de Wang Lin parcoururent l'espace à une vitesse fulgurante tandis qu'il effectuait des calculs frénétiques en son esprit. Il ordonna calmement: « Attaque avec un sort vers la gauche, puis recule! »
+Les yeux de Wang Lin parcoururent l'espace à une vitesse fulgurante tandis qu'il effectuait des calculs frénétiques en son esprit. Il ordonna calmement: « Attaque avec un sort sur la position Qian, à gauche, puis recule! »
 
 La femme en argent obéit instantanément. Sa main droite étincela et se mua en une rune qui se posa brusquement sur la gauche. Un fracas retentit, comme si une tempête avait balayé la zone. Le brouillard fut totalement dissipé et même les ondulations disparurent.
 
@@ -40,7 +40,7 @@ Ayant cultivé jusqu'à présent, Wang Lin avait tout compris. Le talent d'un in
 
 Cependant, les restrictions n'avaient rien à voir avec cette sensibilité. Elles reposaient entièrement sur la capacité de calcul et de déduction d'un individu. Tout dépendait de l'esprit!
 
-Wang Lin ne manquait pas d'esprit, et sa progression en la matière était presque surhumaine. Autrement, il n'aurait pu progresser autant au cours de ses mille ans de culture.
+Wang Lin ne manquait pas d'esprit, et sa progression en la matière était presque surhumaine. Autrement, il n'aurait pu progresser autant au cours de ses plus de mille ans de culture.
 
 Il se tint au dixième pas et regarda devant lui. La lumière des restrictions dans ses yeux déferla comme une tempête et, en un éclair, tout ce qui l'entourait changea!
 
@@ -86,7 +86,7 @@ Les yeux de Wang Lin brillèrent. Il attendait ce moment! Alors que les vagues d
 
 C'était la Boussole du Cœur, l'attribut indispensable à l'héritier de la restriction du Cœur!
 
-Tenant la boussole, Wang Lin se tint droit. Les vagues cinglaient ses vêtements et ses longs cheveux flottaient en arrière, lui donnant l'allure d'un être céleste! Sa main gauche parcourut la boussole dans un crépitement de foudre, puis celle-ci commença à pivoter.
+Tenant la boussole, Wang Lin se tint droit. Les vagues cinglaient ses vêtements et ses longs cheveux flottaient en arrière, lui donnant l'allure d'un être céleste! Sa main gauche parcourut la boussole dans un cliquetis, puis celle-ci commença à pivoter.
 
 La main gauche de Wang Lin devint une ombre tandis qu'il continuait son mouvement, ses yeux étincelant de détermination. Sans hésiter, il fit un pas de côté, se déplaça de plusieurs mètres en une seule enjambée et plongea dans les flots tumultueux.
 
@@ -94,7 +94,7 @@ Cependant, au moment où il s'approcha des vagues, une lueur glaciale passa dans
 
 « Brise! » hurla Wang Lin. La boussole libéra un éclat noir. Les restrictions environnantes grondèrent en se repoussant vers l'extérieur.
 
-En un instant, les vagues furieuses s'effondrèrent, comme si elles étaient devenues dociles, se brisant pouce par pouce devant lui.
+En un instant, les vagues furieuses s'effondrèrent, comme une peinture de vagues, se déchirant pouce par pouce devant lui jusqu'à disparaître entièrement.
 
 Dès que les vagues disparurent, un cri retentit de l'intérieur de la grotte céleste, résonnant dans toute la cavité tel un écho sonore.
 
@@ -118,6 +118,6 @@ Quatre pavillons sculptés dans le jade bordaient les côtés, tandis qu'un imme
 
 De plus, dix statues dorées montaient la garde devant le palais. Ces dix statues portaient des armures, telles des sentinelles célestes!
 
-« Or Xuan! » Les yeux de Wang Lin se rétrécirent; ces dix soldats étaient entièrement façonnés en or Xuan. Cet alliage était l'un des composants essentiels pour renforcer le corps d'une garde céleste!
+« Or Xuan! » Les yeux de Wang Lin se rétrécirent; ces dix soldats étaient entièrement façonnés en or Xuan. Ce métal était l'un des principaux matériaux, consignés dans la tablette de jade de l'Empereur Céleste Qing Lin, pour renforcer le corps d'une garde céleste!
 
 Une aura terrifiante émanait des profondeurs du palais sombre et enveloppa toute la zone.

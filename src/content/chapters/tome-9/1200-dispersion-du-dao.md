@@ -34,7 +34,7 @@ Au fil des éons, ce n'était pas que des cultivateurs n'avaient jamais atteint 
 
 Ce que Wang Lin recherchait était le Grand Dao. Bien que cela puisse sembler identique pour tous, en raison de sa compréhension unique, le chemin qu'il percevait surpassait largement les objectifs d'autrui.
 
-Le liquide formé par les trois pilules de rang 11 fut consommé par Wang Lin. Sa compréhension ne s'interrompit pas et continua de croître. Son espace de stockage s'ouvrit devant lui et des flacons de pilules en jaillirent. Il y avait là des pilules de rang 8, 9 et 10.
+Le liquide formé par les trois pilules de rang 11 fut consommé par Wang Lin. Sa compréhension ne s'interrompit pas et continua de croître. Son espace de stockage s'ouvrit devant lui et des flacons de pilules en jaillirent. Il y avait là des pilules de rang 8, 9 et 10, obtenues à Peng Lai.
 
 Il en oublia le temps. Tout en accédant à l'illumination, il ramassa les pilules une à une. Il ne les dévorait pas; elles s'effondraient toutes lorsqu'elles approchaient de sa bouche. Les innombrables intentions Dao issues des âmes bestiales fusionnèrent avec le vortex et furent confirmées par Wang Lin.
 
@@ -76,7 +76,7 @@ Son esprit traversa la porte de pierre et aperçut des orbes de lumière aux sep
 
 Dans cette grotte, il vit une jeune fille qui ressemblait à la vieille femme. Son visage était livide, elle semblait morte, mais son corps tremblait.
 
-Wang Lin vit également qu'un espace caché existait au sommet, et à l'intérieur, il retrouva la tablette. Il vit aussi le squelette qui était cloué contre la tablette par deux ongles aux sept couleurs.
+Wang Lin vit également qu'un espace caché existait au sommet, et à l'intérieur, il retrouva la tablette. Il vit aussi la moitié d'un squelette clouée sous la tablette par deux clous aux sept couleurs.
 
 À cet instant, son esprit fut attiré par le squelette et se fixa sur les innombrables mots gravés sur celui-ci.
 
@@ -88,7 +88,7 @@ L'esprit de Wang Lin fluctua pendant une durée indéterminée avant de quitter 
 
 La brume y était également présente, mais encore plus dense. Pourtant, cela ne put toujours pas arrêter l'esprit de Wang Lin. Il vit trois jeunes gens vêtus d'habits étranges. Le jeune homme portant la marque en forme de croissant de lune... il l'avait déjà vu...
 
-Le jeune homme marqué par la foudre dit doucement: « Cet endroit est très mystérieux. Ce qui est encore plus étrange, c'est que je peux ressentir l'aura de l'ancêtre de mon Clan du Tonnerre Fulgurant. »
+Le jeune homme marqué par la foudre dit doucement: « Cet endroit est très mystérieux. Ce qui est encore plus étrange, c'est que je peux ressentir l'aura de l'ancêtre de mon Clan du Tonnerre Dispersé. »
 
 Derrière lui, le jeune homme avec la marque de flamme entre les sourcils se frotta les tempes. L'expression sombre, il murmura: « C'est en effet très étrange. Depuis que nous sommes entrés ici, je sens quelque chose m'appeler dans mon cœur. De plus, j'ai l'impression que ma marque ancestrale est sur le point de quitter mon corps. »
 

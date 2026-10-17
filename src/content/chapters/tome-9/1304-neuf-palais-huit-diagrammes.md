@@ -90,7 +90,7 @@ La douleur intense dans le corps de Wang Lin manqua de faire s'effondrer son âm
 
 Des grondements tonnerreux retentirent et les neuf points de sang sur son corps bougèrent. Les météorites à l'intérieur de lui s'arrêtèrent brusquement, incapables de converger vers le dernier palais!
 
-Cependant, la rétribution divine n'en avait pas fini. La foudre violette, les quatre épées colorées, l'Invocation du Paramita, la montagne de nuages... tout cela n'était que le début. La rétribution divine était infinie et ne s'arrêterait qu'à la mort!
+Cependant, la rétribution divine n'en avait pas fini. La foudre violette, les quatre épées colorées, l'Invocation du Paramita, la montagne de nuages... tout cela n'était que le début. La rétribution divine était infinie, sans commencement ni fin, jusqu'à ce que la rétribution infinie s'achève!
 
 Après les neuf palais vinrent les Huit Diagrammes!
 
@@ -98,11 +98,13 @@ Après les neuf palais vinrent les Huit Diagrammes!
 
 Ces runes étaient l'empreinte des Huit Diagrammes!
 
-Ciel, Eau, Montagne, Tonnerre, Feu, Vent, Terre, Marais! Les Huit Diagrammes tournoyaient, formant leur propre monde!
+Qian, Kun, Kan, Li, Zhen, Gen, Xun, Dui! Les Huit Diagrammes tournoyaient, formant leur propre monde!
 
-Dès l'apparition des Huit Diagrammes, les éléments Ciel, Eau, Montagne, Tonnerre, Feu, Vent, Terre et Marais surgirent tous. Ils formèrent une roue gigantesque. Tandis que la roue tournait, elle franchit la brèche, s'engouffra dans la fissure spatiale et entra dans le vide. Elle transportait une pression écrasante alors qu'elle descendait sur Wang Lin!
+Qian représentait le Ciel, Kun la Terre, Kan l'Eau, Li le Feu, Zhen le Tonnerre, Gen la Montagne, Xun le Vent et Dui le Marais.
 
-Le visage de Wang Lin était pâle car son énergie originelle devait constamment maintenir actif le Sortilège du Temps Fluide sur Li Qianmei. Son pouvoir de Dieu Ancien devait sans relâche repousser les neuf palais!
+Dès l'apparition des Huit Diagrammes, le Ciel, la Terre, l'Eau, le Feu, le Tonnerre, la Montagne, le Vent et le Marais se transformèrent tous. Ils formèrent une roue gigantesque. Tandis que la roue tournait, elle franchit la brèche, s'engouffra dans la fissure spatiale et entra dans le vide. Elle transportait une pression écrasante alors qu'elle descendait sur Wang Lin!
+
+Le visage de Wang Lin était pâle car son énergie originelle devait constamment maintenir actif le Sortilège du Temps Fluide sur Li Qianmei. Son pouvoir de Dieu Ancien devait sans relâche chasser de son corps les marques d'étoiles des neuf palais!
 
 À cet instant, face aux Huit Diagrammes bien plus puissants que les neuf palais, ses pupilles ne purent s'empêcher de se rétracter!
 

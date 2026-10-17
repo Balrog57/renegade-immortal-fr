@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 860 - I Want First Place
 slug: je-veux-la-première-place
 ---
-Wang Lin ne fusionna pas avec le monde lorsqu'il se trouva à 50000 kilomètres de la planète Flamme Terrestre. Au lieu de cela, il avança pas à pas, gagnant en vitesse à chaque mouvement. S'il n'avait pas utilisé la manipulation spatiale pour fusionner avec les éléments, c'était parce que cette bataille était d'une importance capitale pour lui!
+Wang Lin ne fusionna pas avec le monde lorsqu'il se trouva à 50000 kilomètres de la planète Terre Flamme. Au lieu de cela, il avança pas à pas, gagnant en vitesse à chaque mouvement. S'il n'avait pas utilisé la manipulation spatiale pour fusionner avec les éléments, c'était parce que cette bataille était d'une importance capitale pour lui!
 
 À chacun de ses pas, son cœur s'apaisait et son regard devenait d'une tranquillité terrifiante. Une intention de combat croissait en lui à chaque foulée alors qu'il progressait avec détermination!
 
@@ -28,19 +28,19 @@ Non seulement Wang Lin devait gagner, mais il devait remporter une victoire tota
 
 Il se souvenait encore de l'illusion du monde entier s'effondrant autour de lui lorsque la dernière larme de Li Muwan avait coulé. Ce sentiment d'isolement, de tristesse et de solitude absolue...
 
-Il ne pourrait jamais oublier cela. Lorsqu'il atteindrait le stade Ascendant, il serait prêt à défier les cieux pour l'once d'émotion qu'il refusait d'abandonner!
+Il ne pourrait jamais oublier cela. Lorsqu'il avait atteint le stade Ascendant, il avait accepté de défier les cieux et de cultiver à contre-courant pour l'attachement qu'il refusait d'abandonner!
 
 Arriver dans le Système Stellaire Tout-Ciel et traverser toutes ces batailles n'avait qu'un seul but: la résurrection de Wan Er! Les paroles de la femme de la famille Xiang résonnaient comme d'innombrables coups de tonnerre dans son esprit. C'était la raison fondamentale de sa présence dans le Système Stellaire Tout-Ciel!
 
 Il ne pouvait pas perdre!
 
-Il y avait aussi le test de Qing Shui. Wang Lin ne se permettrait jamais de faillir!
+Il y avait aussi l'accord conclu avec Qing Shui. Wang Lin ne se permettrait jamais de faillir!
 
 Porté par cette conviction inébranlable et cette intention de combat invincible, l'énergie originelle de Wang Lin circulait avec frénésie. La tempête derrière lui s'amplifia et les poissons yin et yang tournèrent encore plus vite!
 
-Cette puissante intention de combat se propagea sauvagement, résonnant dans un rayon de 10 000 kilomètres autour de la planète Flamme Terrestre! Wang Lin avançait pas après pas, sa vitesse augmentant de façon exponentielle. Il devint plusieurs fois plus rapide que le tonnerre, qu'une météorite, et même qu'un rayon de lumière!
+Cette puissante intention de combat se propagea sauvagement, résonnant dans un rayon de 10 000 kilomètres autour de la planète Terre Flamme! Wang Lin avançait pas après pas, sa vitesse augmentant de façon exponentielle. Il devint plusieurs fois plus rapide que le tonnerre, qu'une météorite, et même qu'un rayon de lumière!
 
-À cette allure, Wang Lin chargea directement dans une zone située à 15 000 kilomètres de la planète Flamme Terrestre!
+À cette allure, Wang Lin chargea directement dans une zone située à 15 000 kilomètres de la planète Terre Flamme!
 
 À cet instant, les deux cultivateurs qui se livraient bataille pâlirent immédiatement, envahis par la terreur; ils en oublièrent même de s'entretuer. Ils tournèrent la tête vers la source de cette effroi!
 
@@ -88,7 +88,7 @@ Diverses tempêtes formées par l'intention de combat chargèrent et entrèrent 
 
 Un rugissement retentit alors que Tang Yanfeng chargeait. Une épée rouge émettant une énergie tranchante et terrifiante apparut dans sa main. Tandis que son énergie originelle circulait frénétiquement, divers sorts se manifestèrent autour de lui, se transformant en lotus écarlates qui foncèrent sur Wang Lin!
 
-Derrière lui, certains cultivateurs qui ne furent pas opprimés par l'intention de combat chargeaient également vers Wang Lin!
+Derrière lui, certains cultivateurs qui ne purent résister à la pression de l'intention de combat chargeaient également vers Wang Lin!
 
 Une lueur froide passa dans les yeux de Wang Lin et il fit un pas. Il leva sa main droite et son énergie originelle jaillit comme une tempête. Sa culture de stade initial de Scruteur du Nirvana s'échappa de son corps et balaya la zone!
 

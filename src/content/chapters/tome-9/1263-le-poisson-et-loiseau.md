@@ -8,7 +8,7 @@ slug: le-poisson-et-loiseau
 ---
 Ce silence était identique à celui de leurs adieux, lorsqu'ils s'éloignaient de Peng Lai. Cent ans avaient passé, mais la scène restait la même.
 
-Wang Lin gardait le silence car il ne savait que dire. Que ce soit à cause des paroles qu'il avait prononcées, suggérant qu'il valait mieux qu'ils s'oublient, ou de la manière dont il avait retrouvé le bracelet de Li Qianmei, Wang Lin était incapable de dire un mot.
+Wang Lin gardait le silence car il ne savait que dire. Que ce soit à cause des paroles qu'il avait prononcées, suggérant qu'il valait mieux qu'ils s'oublient, ou du bracelet que Li Qianmei avait laissé avant leur séparation, Wang Lin était incapable de dire un mot.
 
 Ce bracelet avait sauvé la vie de Wang Lin dans le Royaume aux Sept Couleurs. Il lui rendrait cette faveur, mais ce remboursement ne serait empreint d'aucun sentiment particulier.
 
@@ -90,13 +90,13 @@ En entendant cela, Wang Lin sentit une pointe de douleur poindre dans son cœur.
 
 Li Qianmei esquissa un sourire, mais empreint d'une pointe de tristesse. Elle regarda Wang Lin comme si elle voulait l'inscrire à jamais dans sa mémoire, ou… l'effacer totalement de ses souvenirs...
 
-Il y avait une distance semblable à celle de l'absence et de l'oubli, incommensurable et tout aussi vaste. Tel le poisson au fond du lac voyant l'oiseau s'envoler: il se débat pour jaillir de l'eau afin de ne plus être entravé par cette barrière, mais il n'obtient qu'un bref aperçu avant de retomber dans les profondeurs du lac…
+Il y avait une distance semblable à celle de l'absence et de l'oubli, incommensurable et tout aussi vaste. Tel le poisson au fond de l'eau voyant l'oiseau s'envoler: il se débat pour jaillir de l'eau afin de ne plus être entravé par cette barrière, mais il n'obtient qu'un bref aperçu avant de retomber dans les profondeurs…
 
 Wang Lin regarda Li Qianmei, et l'amertume dans son cœur s'intensifia… Il se souvint vaguement du moment où il avait ouvert la porte de la Perle Défiant le Ciel pour y pénétrer. C'était comme s'il revoyait sa vie antérieure. À la fin, il s'était vu devenir un oiseau.
 
-Dans ses souvenirs flous, il semblait se rappeler qu'en tant qu'oiseau, il avait été attiré par un poisson aux couleurs vives dans le lac. Il s'était posé au bord de l'eau et avait observé attentivement ce poisson…
+Dans ses souvenirs flous, il semblait se rappeler qu'en tant qu'oiseau, il avait été attiré par un poisson aux couleurs vives dans une rivière. Il s'était posé au bord de l'eau et avait observé attentivement ce poisson…
 
-À cet instant précis, le poisson du lac l'avait également regardé.
+À cet instant précis, le poisson, au fond de l'eau, l'avait également regardé.
 
 Porté par la lune, le soupir de Li Qianmei fut comme une brise légère. Il se répandit dans la cour et disparut progressivement avec sa silhouette.
 

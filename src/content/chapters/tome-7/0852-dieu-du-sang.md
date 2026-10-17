@@ -46,7 +46,7 @@ Les yeux de Wang Lin brillèrent et il cracha un gaz blanc. Un objet se trouvait
 
 Face à ces centaines de milliers de sceaux et aux éclairs de la rétribution divine, les yeux de l'ancien démon s'illuminèrent. Il murmura quelques mots silencieux et, en un instant, son corps déjà flou devint presque évanescent.
 
-Ces centaines de milliers de sceaux dorés semblèrent perdre leur cible. Les éclairs de la rétribution divine s'arrêtèrent tous comme s'ils avaient perdu leur direction, avant de se détourner vers Wang Lin.
+Ces centaines de milliers de sceaux dorés semblèrent perdre leur cible. Les éclairs de la rétribution divine, qui étaient dispersés, se rassemblèrent étrangement, changèrent de direction et se tournèrent tous vers Wang Lin.
 
 Tandis que des grondements assourdissants résonnaient, l'ancien démon esquissa un sourire. En ce moment critique, Wang Lin ne montra aucune trace de panique. Sa main droite s'élança vers le vide et tous les sceaux dorés convergèrent rapidement vers lui.
 
@@ -54,7 +54,7 @@ On aurait dit que Wang Lin allait se sceller lui-même. Les éclairs de la rétr
 
 À cet instant précis, une lueur jaillit devant Wang Lin et un fourneau illusoire apparut. Dès son apparition, une puissante aura d'ancien dieu se propagea. L'ancien démon eut un hoquet de surprise, ses yeux s'ouvrirent en grand, emplis d'incrédulité.
 
-« Un simple petit démon, tu n'es pas digne de mon attention! Changeons de place! » Wang Lin afficha un sourire étrange alors qu'une force mystérieuse émanait du fourneau de l'ancien dieu. En un instant, le corps de Wang Lin disparut, et l'ancien démon, dont l'expression était pétrifiée par le choc, disparut également.
+« Un simple petit démon, tu n'es pas digne de mon attention! Changeons de place! » Wang Lin eut un sourire froid alors qu'une force mystérieuse émanait du fourneau de l'ancien dieu. En un instant, le corps de Wang Lin disparut, et l'ancien démon, dont l'expression était pétrifiée par le choc, disparut également.
 
 Les deux avaient totalement échangé leurs positions!
 

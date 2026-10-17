@@ -48,7 +48,7 @@ Le singe noir ignorait tout cela. En courant, il tordait parfois son corps pour 
 
 Un sourire apparut sur les lèvres de Wang Lin alors que sa main droite plongeait dans le vide pour ouvrir son espace de stockage. Il en sortit un talisman jaune et le plaça sur l'épaule du singe noir.
 
-En un instant, une tempête jaune éclata autour du singe noir et celui-ci s'élança vers le ciel. Le corps du singe trembla et ses yeux se remplirent de joie. Sa vitesse augmenta soudainement; il bondit dans les airs et retomba juste devant l'armée de bêtes.
+En un instant, une tempête d'un jaune terreux jaillit du corps du singe noir et monta droit vers le ciel. Le corps du singe trembla et ses yeux se remplirent de joie. Sa vitesse augmenta soudainement; d'un seul pas, il distança l'armée de bêtes et se retrouva loin devant elle.
 
 Cependant, il ne s'enfuit pas immédiatement; il poussa un rugissement face à la horde. Puis, il chargea au milieu d'elles, se frayant un chemin par ses coups de poing et de pieds avant de resurgir de l'autre côté.
 
@@ -92,7 +92,7 @@ Les pupilles de la vieille femme se contractèrent. Le brouillard limitait sa vi
 
 À cet instant, elle ne put s'empêcher de haleter de surprise. Toutefois, avec son niveau de culture, son intelligence était aiguisée. En voyant le singe noir, elle comprit immédiatement que cette multitude de bêtes poursuivait l'animal et le cultivateur aux cheveux blancs sur son dos.
 
-Une lueur d'intention meurtrière apparut dans ses yeux. Elle ne croyait pas à une coïncidence. Soit la Secte de la Fleur Claire envoyait des renforts, soit l'une des six autres sectes était arrivée prématurément.
+Une lueur d'intention meurtrière apparut dans ses yeux. Elle ne croyait pas à une coïncidence. Soit la Secte de la Fleur Claire envoyait des renforts, soit des cultivateurs des autres sectes de la région de rang 6 étaient arrivés prématurément.
 
 « Ils sont venus si vite! » La vieille femme fit un pas en avant et chargea vers le singe noir. Un brouillard empoisonné commença à se répandre devant elle.
 
@@ -116,4 +116,4 @@ La troisième scintilla de sept couleurs avant de se transformer en une statue h
 
 Dès l'apparition du sceau, celui-ci chargea Wang Lin. S'il touchait son corps, outre la transformation de sa chair en sang, même son Âme Originelle mourrait instantanément sous l'effet du poison!
 
-La vieille femme était d'une cruauté extrême. Afin de s'approprier la pierre de jade et la recette de la pilule du Vide de Nirvana, elle avait utilisé son sort le plus dévastateur pour éliminer Wang Lin. Craignant qu'il n'esquive ses attaques, elle agita sa manche et un petit serpent apparut tel un éclair. Ce petit serpent était sa bête liée à sa vie; il était entièrement noir, coiffé d'une petite crête ressemblant à celle d'un coq. Dès son apparition, une odeur fétide emplit l'air.
+La vieille femme était d'une cruauté extrême. Afin de s'approprier la pierre de jade et la recette de la pilule du Nirvana Vide, elle avait utilisé son sort le plus dévastateur pour éliminer Wang Lin. Craignant qu'il n'esquive ses attaques, elle agita sa manche et un petit serpent apparut tel un éclair. Ce petit serpent était sa bête liée à sa vie; il était entièrement noir, coiffé d'une petite crête ressemblant à celle d'un coq. Dès son apparition, une odeur fétide emplit l'air.

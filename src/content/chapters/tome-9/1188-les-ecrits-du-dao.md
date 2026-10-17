@@ -32,7 +32,7 @@ Wang Lin déploya son Sens Divin et scanna méticuleusement l'herbe, centimètre
 
 Lorsqu'il avait vu la restriction de la vieille femme, il l'avait trouvée étrange, mais ne pouvant l'observer trop près, il n'avait pu percer son mystère. Cependant, face à cette restriction, sa réflexion lui apporta une illumination.
 
-« Former de la vitalité à partir d'une aura de mort infinie... cette méthode est similaire à l'une des quatre grandes restrictions anciennes, la Restriction de la Vie et de la Mort... » Wang Lin médita un instant en s'accroupissant. Sa main droite s'activa et il arracha lentement quelques brins d'herbe du sol. Ses yeux se plissèrent.
+« Transformer la vitalité de tous les êtres en une restriction de mort... cette méthode est similaire à l'une des quatre grandes restrictions anciennes, la Restriction de la Vie et de la Mort... » Wang Lin médita un instant en s'accroupissant. Sa main droite s'activa et il arracha lentement quelques brins d'herbe du sol. Ses yeux se plissèrent.
 
 Les racines de l'herbe étaient déjà en décomposition; il n'en restait que peu de vitalité. Dans quelques heures seulement, elle serait totalement épuisée et la restriction s'activerait pleinement.
 
@@ -74,7 +74,7 @@ Une statue gigantesque et floue se dessinait dans le brouillard. Elle semblait m
 
 Ils échangèrent un regard avant d'avancer lentement. Peu de temps après, ils arrivèrent au pied de l'énorme monument et levèrent les yeux.
 
-Il s'agissait d'un rocher colossal de plus de mille pieds de haut, dans lequel était sculpté un homme. Il contemplait le ciel, plongé dans la méditation, et une marque semblable à un éclair marquait son front, entre les sourcils.
+Il s'agissait d'un rocher colossal d'environ mille pieds de haut, dans lequel était sculpté un homme. Il contemplait le ciel, plongé dans la méditation, et une marque semblable à un éclair marquait son front, entre les sourcils.
 
 « C'est... » La vieille femme en vert fut saisie de stupeur en fixant la marque sur la statue, son expression changeant radicalement.
 

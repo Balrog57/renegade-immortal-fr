@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 863 - I, Your Father, Give Up
 slug: moi-ton-pere-jabandonne
 ---
-C'était comme s'il était redevenu ce garçon qui, face à l'Empereur Céleste Bai Fan, avait levé la main pour invoquer neuf dragons noirs. Les cieux et la terre en avaient changé de couleur, et toutes les créatures auraient dû périr devant ces neuf dragons rugissants.
+C'était comme s'il était redevenu ce garçon qui avait vu de ses propres yeux l'Empereur Céleste Bai Fan lever la main pour invoquer neuf dragons noirs. Les cieux et la terre en avaient changé de couleur, et toutes les créatures auraient dû périr devant ces neuf dragons rugissants.
 
 Les yeux de Wang Lin révélèrent une lueur mystérieuse tandis que ses mains traçaient un sceau. Le regard des deux dragons noirs laissa échapper un éclat démoniaque!
 
@@ -70,7 +70,7 @@ Les rugissements du dragon noir résonnaient encore, mais son corps avait dispar
 
 L'homme à la robe noire recula promptement, le visage pâle. La destruction des cinq lames célestes avait ébranlé son esprit, mais aucune trace de peur ne lisait dans ses yeux; ils étaient au contraire empreints d'une intention de combat décuplée.
 
-Après un rire dément, il fit un pas en avant, puis s'immobilisa net. Lorsque son pied toucha le sol, un fracas retentit dans l'espace derrière lui et de nombreuses fissures apparurent.
+Après un rire dément, il planta son pied droit derrière lui pour stopper son recul. Lorsque son pied toucha le sol, un fracas retentit dans l'espace derrière lui et de nombreuses fissures apparurent.
 
 « Magnifique! Depuis que moi, Nangong Han, j'ai perfectionné mes lames, à part les aînés, personne à mon niveau n'a pu être mon adversaire. À l'étape Ascendant, j'étais le premier sous l'étape Yin Illusoire. À l'étape Corporel Yang, j'étais le premier sous l'étape Scruteur du Nirvana. Tu es digne de devenir mon opposant! »
 
@@ -94,7 +94,7 @@ Une lueur froide traversa les yeux de Wang Lin. Loin de reculer, il fit un pas e
 
 Voyant Wang Lin disparaître une fois de plus, les pupilles de Nangong Han se rétractèrent brusquement. Ses mains formèrent un sceau rapide et il hurla: « Formation des Neuf Lames! » Instantanément, les deux lames illusoires effondrées reprirent forme pour s'unir aux sept autres dans une formation de lames. Ces dernières tournèrent avec frénésie, créant d'innombrables fils argentés qui encerclèrent Nangong Han avant de se disperser rapidement.
 
-La silhouette de Wang Lin apparut à environ dix mètres de Nangong Han alors que la formation de lames approchait. L'os de bête sur le dos de sa main droite s'illumina et se manifesta aussitôt. Les fils argentés émettent une lueur grise. Profitant de cet instant, Wang Lin réprima ses blessures et disparut sans laisser de trace.
+La silhouette de Wang Lin apparut à environ dix mètres de Nangong Han alors que la formation de lames approchait. L'os de bête sur le dos de sa main droite s'illumina et se manifesta aussitôt. Les fils argentés émirent une lueur grise. Profitant de cet instant, Wang Lin réprima ses blessures et disparut sans laisser de trace.
 
 Nangong Han prit une inspiration glacée et recula précipitamment en criant: « Arrête! Arrête! J'abandonne! Je ne me bats plus. Tu maîtrises la Manipulation Spatiale, comment suis-je censé lutter contre ça?! Arrête! » Il fit volte-face et s'enfuit.
 

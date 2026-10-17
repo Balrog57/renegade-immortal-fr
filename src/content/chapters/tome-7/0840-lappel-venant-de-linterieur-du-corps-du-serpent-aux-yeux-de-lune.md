@@ -62,7 +62,7 @@ Une lueur de froideur passa dans les yeux du Maître Yan Leizi, qui sourit: « C
 
 Chaque messager traça un sceau lui permettant de communiquer par une méthode secrète. Rapidement, des éclairs denses apparurent entre eux, érigeant une barrière de foudre autour du Serpent aux yeux de lune.
 
-À quelque 5 000 kilomètres derrière ces messagers, des cultivateurs en robes noires et rouges formaient un second périmètre pour s'assurer que rien ne puisse s'échapper!
+À quelque 5 000 kilomètres derrière ces messagers, des cultivateurs en robes noires et rouges formaient deux autres cercles de blocus pour s'assurer que rien ne puisse s'échapper!
 
 Wang Lin ignorait tout de ce déploiement. L'appel venant de son âme devint plus impérieux; alors que son âme tremblait, son sang se mit à bouillir.
 
@@ -122,4 +122,4 @@ Les plus petits serpents situés à l'extérieur du vortex s'élancèrent dans l
 
 Ils étaient trop nombreux. Sous la conduite de huit grands spécimens de 33 kilomètres de long, ils se mirent en mouvement avec célérité.
 
-Une bataille d'une ampleur inouïe, rarement vue dans n'importe quel système stellaire, venait de s'engager à l'extérieur du Serpent aux yeux de lune!
+Une bataille d'une ampleur inouïe, rarement vue même dans les quatre grands domaines stellaires relevant des Royaumes Célestes du Vent, de la Pluie, du Tonnerre et de la Foudre, venait de s'engager à l'extérieur du Serpent aux yeux de lune!

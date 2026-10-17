@@ -18,25 +18,25 @@ Le soleil se coucha et la terre fut enveloppée par les ténèbres. Il n'y avait
 
 Le temps passa lentement, et le soleil apparut à l'est, dissipant l'obscurité. Au bord de la rivière, Wang Lin était entouré de cruches de vin vides.
 
-L'homme d'âge moyen regarda les cruches et murmura: « Seigneur Bei Lou sait déjà l'arrivée de Frère Wang. Il m'a envoyé ici pour lui transmettre un message. »
+L'homme d'âge moyen regarda les cruches et murmura: « Seigneur Bei Luo sait déjà l'arrivée de Frère Wang. Il m'a envoyé ici pour lui transmettre un message. »
 
-L'expression de Wang Lin resta neutre. Lorsque l'Empereur Démon était arrivé, il s'y était déjà attendu. Après tout, la Terre des Esprits Démoniaques était désormais gouvernée par Bei Lou. Chaque fois qu'il dévorait un autre esprit démoniaque ancien, sa puissance se trouvait multipliée.
+L'expression de Wang Lin resta neutre. Lorsque l'Empereur Démon était arrivé, il s'y était déjà attendu. Après tout, la Terre des Esprits Démoniaques était désormais gouvernée par Bei Luo. Chaque fois qu'il dévorait un autre esprit démoniaque, sa puissance se trouvait multipliée.
 
 Wang Lin vida le reste de la demi-cruche d'un seul trait.
 
-« Si Frère Wang accepte de laisser une place libre pour entrer dans la cinquième grotte, quatre des neuf pays seront offerts à la Secte de l'Affinement de l'Âme! De plus, Seigneur Bei Lou ne s'immiscera dans aucune affaire concernant la Secte de l'Affinement de l'Âme, pas même en ce qui concerne les vestiges du sens démoniaque du Nuage Démon! »
+« Si Frère Wang accepte de laisser une place libre pour entrer dans la cinquième grotte, quatre des neuf pays seront offerts à la Tribu du Raffinement des Âmes! De plus, Seigneur Bei Luo ne s'immiscera dans aucune affaire concernant le Raffinement des Âmes, pas même en ce qui concerne les vestiges du sens démoniaque du Démon des Nuages! »
 
-L'existence de la pierre noire pouvait tromper bien des gens, mais elle ne pouvait duper l'Ancien Démon Bei Lou. Si celui-ci n'avait rien fait pendant des centaines d'années, laissant la Tribu de l'Affinement de l'Âme se développer, c'était précisément pour ce jour.
+L'existence de la pierre noire pouvait tromper bien des gens, mais elle ne pouvait duper l'Ancien Démon Bei Luo. Si celui-ci n'avait rien fait pendant des centaines d'années, laissant la Tribu du Raffinement des Âmes se développer, c'était précisément pour ce jour.
 
 Wang Lin regarda au loin et dit calmement: « D'accord! »
 
-L'homme d'âge moyen se leva, joignit ses mains et déclara: « Frère Wang, j'ai accompli la tâche que le Seigneur Bei Lou m'a confiée. À présent, j'aimerais solliciter votre aide pour une affaire personnelle.
+L'homme d'âge moyen se leva, joignit ses mains et déclara: « Frère Wang, j'ai accompli la tâche que le Seigneur Bei Luo m'a confiée. À présent, j'aimerais solliciter votre aide pour une affaire personnelle.
 
 « L'esprit de mon Épée Impériale est la fille d'un bon ami. Cependant, en raison de certaines difficultés, elle ne pouvait échapper à la mort qu'en devenant l'esprit de mon épée. Elle est piégée ici depuis d'innombrables années et n'a jamais quitté la Terre des Esprits Démoniaques.
 
-« J'aimerais demander à Wang Lin de sortir cet esprit de la Terre des Esprits Démoniaques, afin qu'elle puisse entrer dans le cycle de la réincarnation ou rencontrer d'autres opportunités... »
+« J'aimerais demander à Frère Wang de sortir cet esprit de la Terre des Esprits Démoniaques, afin qu'elle puisse entrer dans le cycle de la réincarnation ou rencontrer d'autres opportunités... »
 
-L'expression de l'homme d'âge moyen était sombre alors que sa main droite pointait vers le vide. Un rayon d'énergie d'épée jaillit en direction de la capitale impériale, et l'Épée Impériale se trouvait au cœur de cette énergie!
+L'expression de l'homme d'âge moyen était sombre alors que sa main droite pointait vers le vide. Un rayon d'énergie d'épée jaillit de la direction de la capitale impériale, et l'Épée Impériale se trouvait au cœur de cette énergie!
 
 Wang Lin réfléchit un instant avant de dire lentement: « Pourquoi ne cherchez-vous pas quelqu'un d'autre? »
 
@@ -64,7 +64,7 @@ La jeune fille contempla la capitale impériale d'un regard chargé de chagrin. 
 
 Envahie par la mélancolie, son corps se mua en une fumée verte et retourna dans l'Épée Impériale. Elle émit un triste chant d'épée et suivit Wang Lin.
 
-L'Épée Impériale ressemblait à un rayon de lumière argentée suivant Wang Lin. Alors qu'il avançait, il fit un geste de la main pour ranger l'épée dans son sac. Puis, déployant son Sens Divin, il sortit le jeton de la grotte céleste et disparut dans un éclair de lumière dorée.
+L'Épée Impériale ressemblait à un rayon de lumière argentée suivant Wang Lin. Alors qu'il avançait, il fit un geste de la main pour ranger l'épée dans son sac. Puis, déployant son Sens Divin, il activa la tablette de jade de la grotte céleste et disparut dans un éclair de lumière dorée.
 
 Dans la quatrième grotte, sous la direction de Situ Nan, ils continuaient à briser les restrictions intérieures. Les entraves étaient si nombreuses que, tandis qu'ils les rompaient, des objets appartenant aux êtres célestes apparaissaient devant eux.
 
@@ -96,13 +96,13 @@ Une petite rivière coulait à cent pas de là, enveloppée d'une fine couche de
 
 L'expression de Wang Lin resta neutre tandis que son regard se posait sur le pont de pierre; il ne dit mot.
 
-« Cette grotte céleste est à double couche, et nous nous trouvons à la jonction entre les couches intérieure et extérieure. Une fois la rivière franchie, nous pénétrerons dans la partie interne de la grotte. Les restrictions ici sont trop complexes pour être surmontées rapidement. Da Tou a suggéré de ne pas traverser le pont, mais plutôt de briser le flanc pour entrer par la rivière. » Maître Fu Fengzi parlait tout en jetant un regard à Da Tou, dont les yeux brillaient alors qu'il ordonnait à Lei Ji de porter des coups aux restrictions qui les séparaient du passage.
+« Cette grotte céleste a la forme du caractère « 回 », et nous nous trouvons à la jonction entre les couches intérieure et extérieure. Une fois la rivière franchie, nous pénétrerons dans la partie interne de la grotte. Les restrictions ici sont trop complexes pour être surmontées rapidement. Da Tou a suggéré de ne pas traverser le pont, mais plutôt de briser les restrictions par le bord pour franchir la rivière. » Maître Fu Fengzi parlait tout en jetant un regard à Da Tou, dont les yeux brillaient alors qu'il ordonnait à Lei Ji de porter des coups aux restrictions qui les séparaient du passage.
 
-Maître Fu Fengzi fronça les sourcils en observant la rivière et ajouta: « Les trois frères Chen sont trop épuisés et se rétablissent. Le plan du cultivateur Situ était d'attendre leur récupération pour briser l'obstacle de concert. Mais je reste réservé sur cette méthode. »
+Maître Fu Fengzi fronça les sourcils en observant la rivière et ajouta: « Les trois frères Chen sont trop épuisés et se rétablissent. Le plan du Daoïste Situ était d'attendre leur récupération pour briser l'obstacle de concert. Mais je reste réservé sur cette méthode. »
 
-De son point de vue, Wang Lin ne pouvait pas avoir pratiqué la culture pendant si longtemps. Il avait appris quelques choses sur lui.
+De son point de vue, Wang Lin ne pouvait pas avoir pratiqué la culture pendant si longtemps. Il avait même déjà entendu certaines choses à son sujet.
 
-« Atteindre un tel niveau de culture en seulement un millénaire est inconcevable. Je crains que ce Wang Lin ne connaisse rien aux restrictions. Après tout, il n'a pas eu le temps de les maîtriser! Tout reposera sur moi et Da Tou. » Maître Fu Fengzi soupira intérieurement. Il savait que ses propres capacités n'étaient pas exceptionnelles; s'il gérait les restrictions de la couche extérieure, il sentait déjà perdre le contrôle à ce point de jonction.
+« Atteindre un tel niveau de culture en un peu plus d'un millénaire est inconcevable. Je crains que ce Wang Lin ne connaisse pas grand-chose aux restrictions. Après tout, il n'a pas eu le temps de les maîtriser! Tout reposera sur moi et Da Tou. » Maître Fu Fengzi soupira intérieurement. Il savait que ses propres capacités n'étaient pas exceptionnelles; s'il gérait les restrictions de la couche extérieure, il sentait déjà perdre le contrôle à ce point de jonction.
 
 Wang Lin observa le pont de pierre et ne put s'empêcher de froncer les sourcils. Il comprenait pourquoi Maître Fu Fengzi était bloqué. C'était exactement comme il l'avait dit: si la barrière était brisée par la force, la réaction en chaîne serait catastrophique.
 
@@ -114,7 +114,7 @@ Bien que les cent pas devant eux semblassent ordinaires, outre les avertissement
 
 La femme en argent plissa les yeux et se tint aux côtés de Wang Lin. Son regard intelligent fixait l'homme, attendant ses ordres.
 
-Wang Lin ne la regarda pas. Ses yeux restèrent fixés sur le pont de pierre alors qu'il disait calmement: « Avancez de dix pas! »
+Wang Lin ne la regarda pas. Ses yeux restèrent fixés sur le pont de pierre alors qu'il disait calmement: « Avance de dix pas! »
 
 Maître Fu Fengzi ne put s'empêcher de froncer les sourcils. À ses yeux, c'était l'acte le plus imprudent qui soit. La restriction pourrait être activée précisément de cette manière.
 

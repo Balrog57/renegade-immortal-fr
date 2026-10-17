@@ -76,7 +76,7 @@ Tout le tonnerre du lac sembla s'agiter pour se concentrer en un seul point. Un 
 
 C'était l'esprit du tonnerre!
 
-*Roar!* L'esprit de la foudre prit forme et poussa un rugissement fulgurant. Ce cri résonna et se mua en un tonnerre ancestral qui semblait remonter aux origines du monde. Il secoua les cieux et l'esprit de tous les cultivateurs!
+*Grooaar!* L'esprit de la foudre prit forme et poussa un rugissement fulgurant. Ce cri résonna et se mua en un tonnerre ancestral qui semblait remonter aux origines du monde. Il secoua les cieux et l'esprit de tous les cultivateurs!
 
 Même la brume noire entourant Xu Ting faillit s'effondrer. Ses yeux trahirent une pointe de choc, tandis qu'une brume plus épaisse s'échappait de ses sourcils.
 
@@ -94,7 +94,7 @@ Zhan Konglie prit une grande inspiration et serra les dents pour résister à la
 
 Le cultivateur aux six doigts et le garçon à la grosse tête subissaient le même sort. Cependant, ils n'utilisaient manifestement pas toute leur puissance et paraissaient plus détendus; toutefois, leur calme était dérisoire face à celui de Wang Lin.
 
-Assis là, Wang Lin laissait d'immenses quantités de tonnerre pénétrer son corps pour nourrir son esprit originel. Ses blessures antérieures étaient totalement guéries. Non seulement cela, mais les séquelles cachées laissées par Yao Bingyun s'étaient également évanouies!
+Assis là, Wang Lin laissait d'immenses quantités de tonnerre pénétrer son corps pour nourrir son esprit originel. Ses blessures antérieures étaient totalement guéries. Non seulement cela, mais les séquelles cachées laissées par son ancien combat contre Yao Bingyun s'étaient également évanouies!
 
 Quant au rugissement de l'esprit, chargé de toute la puissance de la foudre, lorsqu'il atteignit les oreilles de Wang Lin, il lui fit l'effet d'un simple enfant qui poussait un cri. Bien que cela fût étrange, c'était précisément ce qu'il ressentait.
 
@@ -102,7 +102,7 @@ Bien que cet être soit d'une puissance terrifiante aux yeux des autres, pour Wa
 
 L'expression de Wang Lin resta impassible, ignorant tout ce qui l'entourait. Il ferma les yeux et se concentra sur l'absorption de la foudre, renforçant ainsi progressivement son esprit originel de dragon de tonnerre antique.
 
-Après les quinze coups de tambour, la restriction pesant sur l'esprit de la foudre fut levée. Il poussa un rugissement et son corps balaya la zone, déclenchant des ondes de choc électriques. Plus de dix cultivateurs furent frappés; leurs visages pâlirent avant qu'ils ne tombent inconscients.
+Après les quinze coups de tambour, la restriction pesant sur l'esprit de la foudre fut levée. Il poussa un rugissement et son corps balaya la zone, déclenchant des ondes de choc électriques. Plus de dix cultivateurs furent frappés; leurs visages pâlirent et ils furent emportés.
 
 L'esprit de la foudre sembla ivre de joie en poussant un cri et commença une nouvelle déferlante. Cette fois, Wang Lin fut lui aussi emporté par le mouvement!
 

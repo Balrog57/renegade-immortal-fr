@@ -8,9 +8,9 @@ slug: le-mystérieux-champ-detoiles-derriere-la-region-de-rang-9
 ---
 Le continent de Peng Lai était extrêmement célèbre dans la région de rang 5. La majeure partie de cette renommée provenait de la Secte du Jade Précieux!
 
-La Secte du Jade Précieux était la secte numéro un de la région de rang 5. Il comptait de nombreux cultivateurs et, naturellement, une multitude de vieux monstres. Le continent sur lequel il se trouvait s'appelait Peng Lai, mais on l'appelait aussi le Royaume Céleste de Peng Lai.
+La Secte du Jade Précieux était la secte numéro un de la région de rang 5. Elle comptait de nombreux cultivateurs et, naturellement, une multitude de vieux monstres. Le continent sur lequel il se trouvait s'appelait Peng Lai, mais on l'appelait aussi le Royaume Céleste de Peng Lai.
 
-La taille de Peng Lai était bien plus vaste que celle de Mo Luo; elle était au moins une douzaine de fois plus grande. Il était un peu inapproprié de l'appeler un continent, car il s'agissait en réalité de la moitié d'une planète de culture!
+La taille de Peng Lai était bien plus vaste que celle de Mo Luo; elle était plusieurs dizaines de fois plus grande. Il était un peu inapproprié de l'appeler un continent, car il s'agissait en réalité de la moitié d'une planète de culture!
 
 Dans la Mer des Nuages, les planètes de culture étaient très rares. Seules les sectes les plus puissantes pouvaient en posséder.
 
@@ -18,17 +18,17 @@ Même la Secte du Jade Précieux n'était pas qualifiée pour occuper une planè
 
 Jusqu'à ce jour, aucun autre cultivateur de rang supérieur n'avait osé convoiter cette planète, permettant ainsi à la Secte du Jade Précieux de la conserver.
 
-À travers la brume stellaire, Peng Lai ressemblait à une dent incisive. Des couches de barrières protectrices luisaient autour d'elle, repoussant la brume pour faire rayonner le continent.
+À travers la brume stellaire, Peng Lai ressemblait à un croissant de lune. Des couches de barrières protectrices luisaient autour d'elle, repoussant la brume pour faire rayonner le continent.
 
-Outre le prestige de la Secte du Jade Précieux, la renommée de Peng Lai reposait également sur l'enchère qu'il organisait tous les 30 ans. À chaque édition, une foule immense de cultivateurs convergeait, incluant des figures célèbres venues des régions supérieures. L'événement était d'une effervescence extrême.
+Outre le prestige de la Secte du Jade Précieux, la renommée de Peng Lai reposait également sur le marché et l'enchère qu'il organisait tous les 30 ans. À chaque édition, une foule immense de cultivateurs convergeait, incluant des figures célèbres venues des régions supérieures. L'événement était d'une effervescence extrême.
 
-L'enchère se déroulait sur trois mois, proposant une liste exhaustive de trésors, de pilules, de recettes de pilules et de bêtes spirituelles. Elle offrait aux cultivateurs une immense variété de ressources, incluant l'échange de jade céleste et de cristaux d'origine, ainsi que le commerce de corps et de fours de culture.
+Le marché se déroulait sur trois mois, proposant une liste exhaustive de trésors, de pilules, de recettes de pilules et de bêtes spirituelles. Il offrait aux cultivateurs une immense variété de ressources, incluant l'échange de jade céleste et de cristaux d'origine, ainsi que le commerce de corps et de fours de culture.
 
-Il y avait même des paris consistant à faire combattre ses propres bêtes spirituelles. Bien sûr, les activités les plus fascinantes étaient le Chaos de Peng Lai et la mise aux enchères de ses propres biens.
+Il y avait même des paris consistant à faire combattre ses propres bêtes spirituelles. Bien sûr, les activités les plus fascinantes étaient le Chaos de Peng Lai et la vente aux enchères d'objets précieux.
 
 Le Chaos de Peng Lai était un lieu au sein de la Secte du Jade Précieux où les cultivateurs pouvaient librement parier lors de combats à mort. Le vainqueur s'emparait des trésors du perdant.
 
-L'enchère sur Peng Lai était sur le point d'ouvrir, et de nombreux rayons de lumière convergeaient vers elle. En raison de l'affaire du jade et de la recette de pilule, de nombreux cultivateurs de la région de rang 6 étaient présents cette fois-ci. Des cultivateurs des régions de rang 7 ou 8 étaient également venus.
+Le marché de Peng Lai était sur le point d'ouvrir, et de nombreux rayons de lumière convergeaient vers elle. En raison de l'affaire du jade et de la recette de pilule, de nombreux cultivateurs de la région de rang 6 étaient présents cette fois-ci. Des cultivateurs des régions de rang 7 ou 8 étaient également venus.
 
 Parmi les étoiles, deux rayons de lumière se distinguaient: un homme et une femme. L'homme, vêtu de blanc, dégageait un calme olympien. Même si une montagne s'effondrait devant lui, son expression resterait imperturbable. C'était Wang Lin.
 
@@ -78,7 +78,7 @@ Li Qianmei entendit Wang Lin et, après un instant de réflexion, lui répondit.
 
 « Il y a au total quatre sectes dans la région de rang 9: la Secte Divine, la Secte Fantôme, la Secte Démon et la Secte Brise-Ciel. La Secte Brise-Ciel, à laquelle j'appartiens, est la plus faible, tandis que la Secte Divine est la plus puissante! La Secte Fantôme est la plus mystérieuse! Quant à la Secte Démon... » Li Qianmei marqua une hésitation et murmura:
 
-« La Secte Démon est située dans la partie la plus profonde de la région de rang 9, et il est extrêmement difficile pour les cultivateurs d'y pénétrer. Toutes les bêtes féroces les plus puissantes s'y rassemblent. Mon Maître disait qu'il existe là-bas des bêtes terrifiantes capables de prendre forme humaine... Cependant, avec la présence de la Secte Divine, la Secte Démon ne peut guère agir! »
+« La Secte Démon est située dans la partie la plus profonde de la région de rang 9, et il est extrêmement difficile pour les cultivateurs d'y pénétrer. Toutes les bêtes féroces les plus puissantes s'y rassemblent. La Secte Démon ne se mêle presque pas des affaires du monde et rares sont ceux qui en sortent. Mon Maître disait qu'il existe là-bas des bêtes terrifiantes capables de prendre forme humaine... Cependant, avec la présence de la Secte Divine, la Secte Démon ne peut guère agir! »
 
 « Oh? » L'expression de Wang Lin changea légèrement. « Des bêtes féroces capables de prendre forme humaine? »
 
@@ -102,4 +102,4 @@ La voix de Li Qianmei était mélodieuse, mais le contenu de ses paroles était 
 
 Wang Lin resta silencieux un instant avant de hocher la tête. Il fixa ensuite l'horizon, comme si son regard pouvait percer le vide pour atteindre la région de rang 9. Il crut voir la fissure spatiale que la Secte Démon contenait depuis des millénaires, et entrevoir le mystérieux système stellaire inconnu qui s'y cachait...
 
-« Tout dans ce monde a une raison d'être... Si les paroles de Li Qianmei sont vraies, alors où se trouve donc ce système stellaire mystérieux... »
+« Les affaires de ce monde sont changeantes, mais il y a forcément une cause... Si les paroles de Li Qianmei sont vraies, alors où se trouve donc ce système stellaire mystérieux... »

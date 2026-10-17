@@ -16,7 +16,7 @@ L'Omniscient ignora tout cela, fixant Ta Shan couvert de tatouages, et dit lente
 
 Ta Shan réfléchit en silence. Il s'était effectivement caché là-dessous depuis longtemps. Il n'avait pas besoin d'intervenir dans ce combat; après tout, cela ne le concernait guère.
 
-En vérité, c’était son intention. Cependant, à l'instant même où Wang Lin fut confronté à un moment de vie ou de mort, il avait laissé échapper un rugissement. Son corps sembla perdre le contrôle et il s'était précipité hors de sa cachette.
+En vérité, c’était son intention. Cependant, à l'instant même où il vit Wang Lin en péril de mort, une voix rugit et hurla dans le cœur de Ta Shan. Sous ce rugissement, son corps sembla perdre le contrôle et il s'était précipité hors de sa cachette.
 
 « Ta Shan... » L'expression de Wang Lin était hagarde, mais son regard devint plus acéré encore. À cet instant, Ta Shan l'aidait à se redresser, tandis que du sang coulait du coin de sa bouche.
 
@@ -24,9 +24,9 @@ Wang Lin prit une profonde inspiration et dit: « Lâche-moi et va aider Da Tou!
 
 Il semblait être redevenu celui qu'il était sur la planète Suzaku: un démon à l'intention meurtrière terrifiante!
 
-« Moi, Wang Lin, je suis un cultivateur qui défie le ciel. Même si je meurs, je mourrai avec un esprit indomptable! Il n'y a rien à craindre dans la vie, la mort n'est rien de plus!! » Le fourreau dans la main de Wang Lin vola en mille morceaux, ne laissant que l'épée de fer rouillée!
+« Moi, Wang Lin, je suis un cultivateur qui défie le ciel. Même si je meurs, je mourrai la tête haute, dressé entre ciel et terre! Il n'y a rien à craindre dans la vie, la mort n'est rien de plus!! » Le fourreau dans la main de Wang Lin vola en mille morceaux, ne laissant que l'épée de fer rouillée!
 
-Ta Shan hésita un instant avant de se retirer silencieusement. Il regarda Wang Lin et, pendant un court instant, une lueur de vie revint dans les yeux de ce dernier.
+Ta Shan hésita un instant avant de se retirer silencieusement. Dans son regard posé sur Wang Lin, on retrouvait vaguement le même éclat qu'autrefois.
 
 Puis, Ta Shan fit brusquement volte-face et chargea vers Da Tou et Maître Fu Fengzi.
 
@@ -62,7 +62,7 @@ Les lueurs d'épée sifflèrent autour de l'Omniscient et, en un clin d'œil, le
 
 Avec un sourire misérable, Wang Lin leva à nouveau son épée. Le vingt-sixième coup apparut et balaya l'Omniscient.
 
-À cet instant, l'Omniscient fut touché. Il fixa Wang Lin et réfléchit:
+À cet instant, l'expression de l'Omniscient changea. Il fixa Wang Lin et réfléchit:
 
 « Ce que tu fais est inutile... Avec ma culture du Premier Fléau Céleste, il te faudrait au moins trente coups avec ce trésor du Pseudo-Nirvana du Vide pour m'empêcher d'avancer. »
 
@@ -98,13 +98,13 @@ Une tempête d'épées surgit là où se trouvaient Wang Lin et l'Omniscient, un
 
 Tandis que des grondements tonnants résonnaient, le firmament fut déchiré, révélant l'espace infini au-delà!
 
-Lorsque la tempête d'épées balaya tout sur son passage, le Domaine de l'Esprit Démon s'effondra. Alors que le ciel s'écroulait, une énergie originelle infinie s'engouffra dans le vide.
+Lorsque la tempête d'épées balaya tout sur son passage, le Domaine de l'Esprit Démon s'effondra. Alors que le ciel s'écroulait, les forces infinies du ciel et de la terre se déversèrent.
 
 Cet impact féroce provoqua une onde de choc titanesque. Une fois l'impact dissipé, l'Omniscient se tenait là, calme. Dans sa main, il tenait un trident exhalant une aura antique!
 
 Cependant, la plupart de ses vêtements avaient été réduits en lambeaux par le vent. Même une grande partie de sa chevelure s'était désintégrée.
 
-Une trace d'infortune émanait du corps de Wang Lin alors qu'il retombait lentement en arrière. Il chuta du pilier imposant, plongeant vers la terre qui se dérobait sous lui...
+Le corps de Wang Lin, avec une pointe de refus d'abdiquer, retomba lentement en arrière. Il chuta du pilier imposant, plongeant vers la terre qui se dérobait sous lui...
 
 « Je vais bientôt... rejoindre mon père et ma mère... » Tandis que son corps chutait, son regard embrumé s'éleva vers le ciel déchiré. Il pouvait distinguer, faiblement, ses parents lui faisant signe. Ils affichaient ces sourires de bonté qu'il n'avait pas vus depuis plus de mille ans.
 
@@ -128,7 +128,7 @@ Mu Bingmei fut comme un papillon gracieux lorsqu'elle atteignit Wang Lin et le p
 
 Pour être exacte, c'était la première fois qu'elle lui faisait face...
 
-Dans un soupir, Mu Bingmei agita sa main de jade et une faille apparut devant elle. Une fiole de jade contenant une unique pilule s'en échappa. Cette fiole, façonnée dans le meilleur jade céleste, était gravée de nombreuses restrictions pour préserver les propriétés du remède. Vu la rareté de l'objet, la valeur de la pilule qu'il contenait allait de soi.
+Dans un soupir, Mu Bingmei agita sa main de jade et une faille apparut devant elle. Elle en sortit une fiole de jade contenant une unique pilule. Cette fiole, façonnée dans le meilleur jade céleste, était gravée de nombreuses restrictions pour préserver les propriétés du remède. Vu la rareté de l'objet, la valeur de la pilule qu'il contenait allait de soi.
 
 Mu Bingmei prit la pilule et la plaça sans hésiter contre les lèvres de Wang Lin.
 

@@ -30,13 +30,13 @@ L'Omniscient fronça les sourcils en reculant et dit calmement: « Sainte du Vid
 
 Cependant, il n'y en avait que huit!
 
-« Verrouiller l'âme par l'esprit, raffiner le ciel pour l'énergie! » La voix de Mu Bingmei était calme et, dès qu'elle eut fini de parler, les huit avatars formèrent immédiatement des sceaux de leurs mains. Une puissante vague d'énergie originelle se rassembla, formant un pilier qui s'abattit soudainement du ciel.
+« Vide spirituel, verrouille l'énergie originelle! Raffine le ciel en énergie! » La voix de Mu Bingmei était calme et, dès qu'elle eut fini de parler, les huit avatars formèrent immédiatement des sceaux de leurs mains. Une puissante vague d'énergie originelle se rassembla, formant un pilier qui s'abattit soudainement du ciel.
 
 Les yeux de l'Omniscient révélèrent une lueur étrange et il murmura quelques mots. Le pilier d'énergie originelle descendant des cieux commença à trembler.
 
 Mu Bingmei secoua la tête et dit doucement: « Votre sort de destin céleste est inutile contre moi! » Tandis qu'elle parlait, sa main droite plongea dans le vide et une énergie originelle infinie se rassembla pour former un parchemin de bambou. À l'instant où le parchemin s'ouvrit, une lumière aux sept couleurs fut libérée. De nombreuses runes s'envolèrent et entourèrent le corps de Mu Bingmei.
 
-« Bien que je ne sois qu'au premier niveau du Fléau Céleste, aucune des énergies originelles au sein du Vide Brillant ne peut échapper à mon contrôle. Si je refuse que vous possédiez de l'énergie originelle, vous n'en récupérerez pas même une parcelle! » La main de jade de Mu Bingmei pointa les runes qui l'entouraient. Celles-ci se dispersèrent soudainement et disparurent dans le monde.
+« Bien que je ne sois qu'au premier niveau du Fléau Céleste, aucun sort au sein de ce système stellaire du Vide Brillant ne peut échapper à mon contrôle. Quant à l'énergie originelle du ciel et de la terre de ce système stellaire, si je refuse que vous la possédiez, vous n'en récupérerez pas même une parcelle! » La main de jade de Mu Bingmei pointa les runes qui l'entouraient. Celles-ci se dispersèrent soudainement et disparurent dans le monde.
 
 À cet instant précis, toute l'énergie originelle du monde entier changea radicalement pour converger vers le pilier d'énergie originelle.
 
@@ -106,8 +106,8 @@ Tant que l'étoile du Dieu Ancien ne se brisait pas, elle pouvait être restaur�
 
 Cependant, le bouclier exigeait trop d'énergie. Alors que la lumière de l'œil droit de Wang Lin devenait plus éclatante, davantage d'énergie y pénétra et la quatrième étoile pâlit à son tour.
 
-La lumière bleue émanant de la main droite de Wang Lin explosa, enveloppant toute la zone. Même Mu Bingmei et l'Omniscient, en plein combat, remarquèrent cette étrange lueur azurée.
+La lumière bleue de l'œil droit de Wang Lin explosa, enveloppant toute la zone. Même Mu Bingmei et l'Omniscient, en plein combat, remarquèrent cette étrange lueur azurée.
 
-Les étoiles entre ses sourcils tournèrent de plus en plus vite. La troisième étoile faiblit, suivie de la deuxième. Enfin, la dernière étoile restante s'éteignit lentement elle aussi.
+Les étoiles entre ses sourcils tournèrent de plus en plus vite. La troisième étoile faiblit, suivie de la deuxième. Enfin, la dernière étoile restante perdit rapidement son éclat elle aussi.
 
-Mais à cet instant précis, la lumière bleue jaillit de l'œil droit de Wang Lin comme une épée fendant le ciel. Il fixa le pilier de cinquante kilomètres de large qui s'était élevé par le sort de l'Omniscient. Le pilier gronda instantanément, incapable de résister au regard de Wang Lin, avant de s'effondrer!
+Mais à cet instant précis, la lumière bleue jaillit de l'œil droit de Wang Lin comme une épée fendant le ciel. Il fixa le pilier de terre de cinquante kilomètres qui s'était élevé par le sort de l'Omniscient. Le pilier gronda instantanément, incapable de résister au regard de Wang Lin, avant de s'effondrer!

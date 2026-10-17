@@ -8,7 +8,7 @@ slug: scryer-du-nirvana
 ---
 Wang Lin ouvrit soudainement les yeux après sa culture. Son regard brillait d'une lueur intense et une fine couche de gaz noir, invisible à l'œil nu, l'entourait. À l'intérieur de son corps, son énergie originelle se transformait en gaz blanc et circulait à des vitesses plusieurs fois supérieures à la normale.
 
-Wang Lin murmura: « Le Dao entre dans le Dao! » Après avoir atteint l'illumination, il n'était plus confus quant à son état actuel, mais pleinement conscient.
+Wang Lin murmura: « L'état du Dao entre dans le corps! » Après avoir atteint l'illumination, il n'était plus confus quant à son état actuel, mais pleinement conscient.
 
 Il avait déjà expérimenté l'entrée du Dao dans son corps il y a longtemps, mais c'était au sein du domaine de la vie et de la mort. Désormais, il avait condensé le domaine karmique en une forme corporelle qui pénétrait son propre être.
 
@@ -62,7 +62,7 @@ Yao Yun progressait rapidement à travers l'espace, l'expression impassible. Sou
 
 « Ceci... Ceci est un nuage de tribulation divine! » Ses pupilles se rétractèrent brusquement. Il avait atteint le stade initial du Purificateur du Nirvana il y a des milliers d'années, mais pour une raison inconnue, sa culture avait régressé au milieu du stade Scruteur du Nirvana. Non seulement cela, mais il semblait avoir perdu la mémoire. En particulier, ses souvenirs de son départ de la Planète de Sang, des millénaires plus tôt, étaient totalement embrumés.
 
-Aussi s'efforçait-il, il ne parvenait à rien se remémorer.
+Il avait beau s'efforcer, il ne parvenait à rien se remémorer.
 
 Il se souvenait vaguement qu'il avait commis un acte qui avait profondément irrité l'Ancêtre. Pourtant, finalement, ce dernier lui avait pardonné sans le punir.
 
@@ -82,11 +82,11 @@ Il avait obtenu tous les détails sur cette cible auprès de l'Ancêtre afin de 
 
 À cet instant précis, face au nuage de tribulation divine, une onde de choc frappa son esprit. Ce choc ne venait pas seulement de lui, mais d'une part immense de son âme. C'était comme si la foudre de la tribulation était son ennemi naturel.
 
-Le sentiment fut si violent qu'il devint une douleur atroce, comme si un pieu avait été planté dans son cerveau. Cette souffrance fit injecter du sang dans ses yeux.
+Le sentiment fut si violent qu'il devint une douleur atroce, comme si un pieu avait été planté dans son cerveau. Cette souffrance injecta ses yeux de sang.
 
 Un rugissement de rage s'échappa de sa bouche, se propageant comme le tonnerre. Une puissante vague d'énergie originelle jaillit de Yao Yun.
 
-Ses cheveux volèrent et son visage vira au bleu. Une lumière verte enveloppa son corps, et un second visage apparut au sein de cette lueur.
+Ses cheveux volèrent et les veines de son visage saillirent, féroce. Une lueur verte apparut sur son visage, et un second visage apparut au sein de cette lueur.
 
 C'était un visage démoniaque doté de deux cornes. Une fois apparu, il fixa les nuages de tribulation qui s'accumulaient et laissa échapper un rugissement silencieux.
 

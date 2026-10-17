@@ -10,7 +10,7 @@ Les yeux du Daoïste Esprit Dispersé étaient empreints de tristesse, comme s'i
 
 « Le monde dans lequel nous vivons est une illusion. Le Royaume Céleste dont on nous a parlé est un mensonge. Nous devons briser ce monde ensemble pour découvrir la vérité, pour sortir de cette existence et devenir de véritables... êtres humains! Tel est mon Dao! »
 
-La Formation de Vie des Cent Millions d'Êtres des 7 Millions de Mondes utilisait les vies des cent millions d'habitants des 7 Millions de Mondes comme racine. Alors que les paroles du Maître Tonnerre Dispersé résonnaient, les gens quittèrent leurs foyers à travers les cités mortelles des 7 Millions de Mondes.
+La Formation de Vie des Cent Millions d'Êtres des 7 Millions de Mondes utilisait les vies des cent millions d'habitants des 7 Millions de Mondes comme racine. Alors que les paroles du Daoïste Esprit Dispersé résonnaient, les gens quittèrent leurs foyers à travers les cités mortelles des 7 Millions de Mondes.
 
 Jeunes et vieux, hommes et femmes, tous sortirent et s'assirent. Ils ne pouvaient pas utiliser de sorts, mais une volonté puissante embrasait leurs esprits. La volonté de briser le monde!
 
@@ -40,7 +40,7 @@ Il était impossible de la percevoir du regard, mais si l'on utilisait son Sens 
 
 Cette tempête était forgée par la volonté et la vie de chaque habitant des 7 Millions de Mondes, et elle était partout! Elle formait un mur gigantesque empêchant toute force extérieure d'entrer!
 
-Tout cela semble lent, mais cela se produisit en un instant. À l'instant même où la tempête de volonté et de vie prit forme, l'éclair éternel du Clan Tonnerre Dispersé perça le vide et arriva. Il s'écrasa contre la tempête dans une tentative de pénétration!
+Tout cela semble lent, mais cela se produisit en un instant. À l'instant même où la tempête de volonté et de vie prit forme, l'éclair éternel du Clan du Tonnerre Dispersé perça le vide et arriva. Il s'écrasa contre la tempête dans une tentative de pénétration!
 
 Un grondement tonnerre résonna, ébranlant le monde entier. La tempête commença à trembler et des rugissements empreints de résistance en jaillirent. C'étaient les cris d'innombrables cultivateurs et de millions de mortels. Ces rugissements fusionnèrent pour former un son capable de défier le ciel lui-même!
 
@@ -52,7 +52,7 @@ Sous la pression de cette force, l'éclair éternel fut repoussé de plusieurs m
 
 Des tonnerres sourds retentirent. L'éclair éternel jaillit à nouveau, semblant se connecter au ciel lui-même, et redescendit immédiatement!
 
-Cette scène terrifiante remplit les yeux du Grand Ancien de peur. Pour la première fois, il tremblait! Il n'avait jamais imaginé qu'un tel événement puisse survenir dans les 7 Millions de Mondes! Ni lui, ni même le premier ancêtre du Clan Tonnerre Dispersé n'auraient pu concevoir une telle chose!
+Cette scène terrifiante remplit les yeux du Grand Ancien de peur. Pour la première fois, il tremblait! Il n'avait jamais imaginé qu'un tel événement puisse survenir dans les 7 Millions de Mondes! Ni lui, ni même le premier ancêtre du Clan du Tonnerre Dispersé n'auraient pu concevoir une telle chose!
 
 « Fous... vous êtes tous devenus fous. Tous les cultivateurs des 7 Millions de Mondes sont devenus fous. Même tous les mortels aussi... tous sont devenus fous! »
 
@@ -66,7 +66,7 @@ Les cultivateurs crachaient également du sang, mais libérant une volonté enco
 
 Ils n'avaient aucune voie de retraite!
 
-Les yeux du Maître Esprit Dispersé étaient remplis d'une tristesse infinie alors qu'il s'asseyait et fermait les yeux. En fermant les paupières, il sembla se dissoudre dans le monde pour ne faire qu'un avec les 7 Millions de Mondes.
+Les yeux du Daoïste Esprit Dispersé étaient remplis d'une tristesse infinie alors qu'il s'asseyait et fermait les yeux. En fermant les paupières, il sembla se dissoudre dans le monde pour ne faire qu'un avec les 7 Millions de Mondes.
 
 À cet instant, une lumière immense émana du Daoïste Esprit Dispersé. Il devint le centre de la tempête des 7 Millions de Mondes et gagna en puissance!
 
@@ -78,7 +78,7 @@ Une épée cristalline commença à se condenser au cœur de cette tempête. Dè
 
 Cette épée mesurait sept pieds de long pour trois pouces de large. Elle était radieuse et dégageait une lueur éblouissante!
 
-« Cher compagnon cultivateur, ce vieil homme a utilisé les vies des 7 Millions de Mondes et le monde lui-même pour créer cette formation. Elle scellera ce monde tout en condensant cette épée qui tranche le ciel. Prends cette épée et porte sept coups pour terrasser le Grand Ancien. C'est là que réside mes 70 % de certitude! »
+« Cher compagnon cultivateur, ce vieil homme a utilisé les vies des 7 Millions de Mondes et le monde lui-même pour créer cette formation. Elle scellera ce monde tout en condensant cette épée qui tranche le ciel. Prends cette épée et porte sept coups pour terrasser le Grand Ancien. C'est là que résident mes 70 % de certitude! »
 
 L'épée de sept pieds brilla et vola vers Wang Lin. Ce dernier leva la main et l'épée vint se loger dans sa paume. En la tenant, Wang Lin sentit clairement la folie inimaginable qui l'habitait!
 
@@ -104,7 +104,7 @@ Les rugissements incessants étaient nichés au cœur de la lumière de l'épée
 
 L'esprit du Grand Ancien trembla violemment et il battit en retraite précipitamment. L'armure de tonnerre autour de lui s'étendit pour former un bouclier. Le premier coup d'épée percuta l'armure de tonnerre.
 
-Un fracas assourdissant secoua les cieux et un cri plaintif s'éleva de la lumière. Les yeux du Grand Ancien étaient remplis d'incrédulité et une terreur profonde s'y installa. Cette armure de tonnerre avait été raffinée par l'ancêtre du troisième stade du Clan Tonnerre Dispersé et pouvait résister aux Flammes Joss de Wang Lin. Pourtant, sous le choc de l'épée, il cracha un flot de sang et fut projeté en arrière de dix mille pieds.
+Un fracas assourdissant secoua les cieux et un cri plaintif s'éleva de la lumière. Les yeux du Grand Ancien étaient remplis d'incrédulité et une terreur profonde s'y installa. Cette armure de tonnerre avait été raffinée par l'ancêtre de la troisième étape du Clan du Tonnerre Dispersé et pouvait résister aux Flammes de Joss de Wang Lin. Pourtant, sous le choc de l'épée, il cracha un flot de sang et fut projeté en arrière de dix mille pieds.
 
 La lumière de l'épée disparut: le premier coup était porté!
 

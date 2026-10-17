@@ -42,7 +42,7 @@ D'un geste sec, il écrasa la chaîne!
 
 La femme morte s'effondra, se retrouvant à moitié assise sur le sol. Wang Lin cracha une bouffée de son âme originelle qui pénétra dans la boussole. Il s'assit ensuite sur le côté et ses mains commencèrent à former des sceaux. La boussole tourna lentement tandis que les restrictions s'insinuaient dans le corps de la femme.
 
-« L'Empereur Céleste Qing Lin possédait un sort appelé "Garde de Corps". Il nécessitait le corps d'ennemis vaincus et divers autres matériaux pour créer un cadavre maléfique qui ne ressent aucune douleur et peut protéger son maître. Bien que je ne puisse trouver ces matériaux disparus pour raffiner une marionnette cadavérique, je peux utiliser cette méthode pour contrôler ce Garde de Corps. »
+« L'Empereur Céleste Qing Lin possédait un sort appelé "Garde Cadavre". Il nécessitait le corps d'ennemis vaincus et divers autres matériaux pour créer un cadavre maléfique qui ne ressent aucune douleur et peut protéger son maître. Bien que je ne puisse trouver ces matériaux disparus pour raffiner une marionnette cadavérique, je peux utiliser cette méthode pour contrôler ce Garde Cadavre. »
 
 Wang Lin ferma les yeux, ses mains continuant de tracer des restrictions qui pénétraient le corps de la femme morte.
 
@@ -68,7 +68,7 @@ Ainsi, de plus en plus de femmes rejoignaient le Palais Rose, et l'on pouvait di
 
 Il avait appris par des sources anonymes que les trois frères Chen possédaient deux disciples d'une beauté époustouflante. L'une possédait une racine spirituelle aquatique et l'autre était d'une froideur glaciale. Cela fit frémir le cœur de Situ Nan qui, après avoir mûrement réfléchi, entreprit de mener un grand groupe de cultivatrices vers la planète Esprit d'Eau, guidé par un subalterne.
 
-Ce groupe imposant était presque exclusivement composé de femmes vêtues de rose. Au milieu d'elles se trouvait un lit d'une centaine de mètres de long. Situ Nan était allongé sur le plus luxueux, entouré de nombreuses cultivatrices, l'air extrêmement satisfait.
+Ce groupe imposant était presque exclusivement composé de femmes vêtues de rose. Au milieu d'elles se trouvait un immense lit de jade blanc d'une centaine de mètres de long. Situ Nan y était allongé, entouré de nombreuses cultivatrices, l'air extrêmement satisfait.
 
 Plusieurs centaines de femmes entouraient ce lit alors qu'elles progressaient vers la planète Esprit d'Eau.
 
@@ -106,6 +106,6 @@ Sans aucune inquiétude, Situ Nan décida de s'amuser un peu pour dissiper le st
 
 Ce jour-là, guidé par l'homme en bleu, Situ Nan, entouré de centaines de femmes, aperçut la planète Esprit d'Eau au loin!
 
-« Hehe, ce vieux bonhomme est vraiment généreux de venir jusqu'ici pour trouver une concubine à Little Lin. Je me demande quelle expression il fera quand il s'en rendra compte! » En contemplant la planète Esprit d'Eau, Situ Nan éclata de rire.
+« Hehe, je suis vraiment loyal de venir jusqu'ici pour choisir des concubines au petit Lin. Je me demande quelle expression il fera quand il s'en rendra compte! » En contemplant la planète Esprit d'Eau, Situ Nan éclata de rire.
 
 Ce rire soudain fut interprété par l'homme d'âge moyen et toutes les cultivatrices environnantes comme un ricanement érotique.

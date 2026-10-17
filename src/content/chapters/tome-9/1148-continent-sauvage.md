@@ -24,13 +24,13 @@ Après quinze échecs, presque toutes les herbes du jardin avaient été consum�
 
 Wang Lin regarda la pilule dans sa main avec un certain regret. La fusion d'une âme de bête avec une pilule exigeait une attention méticuleuse à de nombreux détails. Ces subtilités n'étaient pas expliquées dans le jade; il devait les découvrir par l'expérience.
 
-À cet instant, en entendant les paroles de Xu Yun, Wang Lin toucha inconsciemment son nez. Son regard passa du corps gracieux de la jeune femme au jardin presque stérile et, malgré ses mille ans de culture, il ressentit une pointe d'embarras.
+À cet instant, en entendant les paroles de Xu Yun, Wang Lin toucha inconsciemment son nez. Son regard passa du corps gracieux de la jeune femme au jardin presque stérile et, malgré ses plus de mille ans de culture, il ressentit une pointe d'embarras.
 
 D'un revers de la main droite, Wang Lin lança la pilule vers Xu Yun. Alors qu'il s'apprêtait à parler, il fut interrompu par un cri.
 
 Les yeux de Xu Yun s'écarquillèrent en fixant la pilule, incapable de contenir plus longtemps la colère qui lui déchirait le cœur. À cet instant, toutes les pensées de silhouette blanche, de doigt gracieux ou de puissant senior furent balayées. Durant ces trois jours, elle avait regardé impuissante les herbes qu'elle avait mis tant de temps à cultiver — des herbes qu'elle n'aurait même pas osé utiliser elle-même — être arrachées une à une.
 
-Au final, il n'avait raffiné qu'une pilule de rang 3. Une pilule de rang 3 était précieuse et nécessaire à un cultivateur du Corps Yang, mais toutes les herbes de son jardin auraient dû suffire à raffiner une pilule de rang 4. Si l'Oncle-Maître Li avait été là, il y aurait même eu une chance de produire une pilule de rang 5.
+Au final, il n'avait raffiné qu'une pilule de rang 3. Une pilule de rang 3 était précieuse et nécessaire à un cultivateur du Corps Yang, mais toutes les herbes de son jardin auraient dû suffire à raffiner une pilule de rang 4. Si l'Oncle-Maître Li s'en était chargé, il y aurait même eu une chance de produire une pilule de rang 5.
 
 « Ceng Niu!!! Rends-moi mes herbes!!! » Les yeux de Xu Yun étaient injectés de sang et elle s'apprêtait à demander justice à Wang Lin. Cependant, lorsqu'elle leva la tête, elle découvrit que la pièce était vide: Ceng Niu avait disparu.
 
@@ -40,7 +40,7 @@ La silhouette de Wang Lin apparut dans le ciel au-dessus du continent de Mo Luo.
 
 Après avoir franchi la barrière lumineuse entourant le continent, la mer de nuages apparut devant lui. Dans le jade contenu au sein du temple taoïste, outre les informations sur l'alchimie et les âmes de bêtes, figurait une carte stellaire de la région de rang 5 à laquelle appartenait le continent de Mo Luo. Après avoir étudié cette carte, Wang Lin découvrit qu'en plus des continents habités, il existait un autre type de territoires appelés « continents sauvages ».
 
-Ils ressemblaient aux planètes abandonnées de l'Alliance ou de Luotian. Cependant, dans la mer de nuages, ces continents sauvages ne possédaient pas de tours noires et restaient donc enveloppés par le brouillard stellaire. Ils servaient de repaires à de nombreuses bêtes féroces.
+Ils ressemblaient aux planètes sauvages des deux domaines du Tonnerre et de la Pluie. Cependant, dans la mer de nuages, ces continents sauvages ne possédaient pas de tours noires et restaient donc enveloppés par le brouillard stellaire. Ils servaient de repaires à de nombreuses bêtes féroces.
 
 C'est sur ces continents que poussaient souvent les herbes les plus précieuses.
 
@@ -50,19 +50,19 @@ Sur le continent sauvage proche de Mo Luo, les bêtes s'étaient peu à peu rar�
 
 Ce n'était pas le choix de Wang Lin. Il comptait viser un continent sauvage plus lointain, là où les bêtes féroces régnaient et où peu de cultivateurs s'étaient aventurés, garantissant ainsi une abondance d'herbes.
 
-Wang Lin accéléra. Des éclats de lumière fendaient régulièrement le brouillard tandis qu'il s'enfonçait dans l'immensité. Bien que son sens divin ne puisse sonder qu'à 10 000 pieds, un cultivateur du Scruteur du Nirvana n'atteignait que 1 000 pieds, tandis que seuls les cultivateurs du Purificateur du Nirvana pouvaient atteindre les 10 000 pieds.
+Wang Lin accéléra. Des éclats de lumière fendaient régulièrement le brouillard tandis qu'il s'enfonçait dans l'immensité. Bien que son sens divin ne puisse sonder qu'à moins de 10 000 pieds, un cultivateur du Scruteur du Nirvana n'atteignait que 1 000 pieds, tandis que seuls les cultivateurs du Purificateur du Nirvana pouvaient atteindre les 10 000 pieds.
 
 En chemin, diverses créatures étranges apparurent dans son champ de perception. Ces bêtes étaient toutes lugubres; l'une d'elles était un long poisson écailleux qui, lorsqu'il ouvrait la gueule, révélait d'innombrables dents acérées et dégageait une odeur fétide.
 
-D'autres ressemblaient à des dragons, mais ne mesuraient que quelques centaines de pieds de long. Ces bêtes rouges se déplaçaient avec la rapidité de l'éclair en vivant en troupeaux; des centaines de milliers d'entre elles traversaient la mer de nuages.
+D'autres ressemblaient à des dragons, mais ne mesuraient que quelques centaines de pieds de long. Ces bêtes rouges se déplaçaient avec la rapidité de l'éclair en vivant en troupeaux; elles apparaissaient par dizaines, voire par centaines, et traversaient la mer de nuages.
 
-Il y avait également des créatures semblables aux Bêtes des Limbes qu'il avait vues, mais beaucoup plus petites, ne dépassant pas quelques milliers de pieds de large. Elles étaient lentes, mais même les bêtes rouges les évitaient.
+Il y avait également des créatures semblables aux Bêtes des Limbes qu'il avait vues à Luotian, mais beaucoup plus petites, ne dépassant pas quelques milliers de pieds de large. Elles étaient lentes, mais même les bêtes rouges les évitaient.
 
 On trouvait aussi des bêtes noires semblables à des têtards, comme celle que possédait Lu Di. Elles se dissimulaient dans la brume, dégageant une pression occulte. Cependant, dès qu'elles percevaient le sens divin de Wang Lin, elles se retiraient promptement.
 
 Alors qu'il progressait dans la brume, les yeux de Wang Lin s'illuminèrent et sa main droite plongea dans le vide. Une faille d'espace de stockage s'ouvrit dans un bourdonnement, laissant s'échapper des bêtes moustiques.
 
-Ces douzaines de créatures volèrent tout autour en émettant des cris tonitruants de joie. En particulier, la bête moustique violette de Wang Lin voltigeait avec enthousiasme.
+Plus d'une dizaine de ces créatures volèrent tout autour en émettant des cris tonitruants de joie. En particulier, la bête moustique violette de Wang Lin voltigeait avec enthousiasme.
 
 Le corps de Wang Lin vacilla et il s'assit sur la bête moustique. Sans attendre d'ordre, celle-ci s'élança en avant, plongeant dans le brouillard stellaire avec ses congénères.
 
@@ -82,13 +82,13 @@ Le sol était recouvert de sable noir. Wang Lin marcha lentement et finit par ar
 
 Soudain, une ombre noire jaillit d'une maison en ruines. Elle poussa un rugissement accompagné d'un souffle fétide et chargea Wang Lin. Bien que l'ombre ne mesurât que quelques dizaines de pieds, elle se déplaçait avec la célérité de la foudre.
 
-Wang Lin resta impassible. Il n'eut même pas besoin d'agir: la bête moustique s'élança et percuta l'ombre de plein fouet. Dans un fracas sourd, le corps de l'ombre trembla tandis que la bouche du moustique lui transperçait la tête. Le moustique aspira alors toute la créature, faisant rétrécir l'ombre noire jusqu'à sa disparition.
+Wang Lin resta impassible. Il n'eut même pas besoin d'agir: la bête moustique s'élança et percuta l'ombre de plein fouet. Dans un fracas sourd, le corps de l'ombre trembla tandis que la bouche du moustique lui transperçait la tête. Le moustique aspira alors toute la créature, faisant se flétrir l'ombre noire jusqu'à ce qu'elle se change en une flaque de sang.
 
 La bête moustique revint vers lui avec un air dédaigneux.
 
-Wang Lin tapota la tête de sa monture et pointa l'horizon. La reine des moustiques s'envola aussitôt, entraînant plus d'une dizaine de ses semblables dans les ruines.
+Wang Lin tapota la tête de sa monture et pointa l'horizon. Le Roi Moustique violet s'envola aussitôt, entraînant plus d'une dizaine de ses semblables dans les ruines.
 
-Dès leur entrée, de nombreuses ombres jaillirent des décombres. Elles étaient au moins une douzaine, rugissant toutes en chargeant les moustiques.
+Dès leur entrée, de nombreuses ombres jaillirent des décombres. Elles étaient au moins plusieurs dizaines, rugissant toutes en chargeant les moustiques.
 
 Grâce à sa perspicacité et à son sens divin, Wang Lin identifia immédiatement qu'il s'agissait de singes noirs. Ils étaient exactement identiques à ceux qui se trouvaient dans la pilule que Xu Yun avait consommée.
 
@@ -96,7 +96,7 @@ Grâce à sa perspicacité et à son sens divin, Wang Lin identifia immédiateme
 
 Plus de dix bêtes moustiques revinrent vers Wang Lin. Elles poussèrent des cris et recrachèrent les âmes de bête, que Wang Lin rangea aussitôt.
 
-L'odeur du sang attira l'attention: les rugissements au loin devinrent plus stridents et le sol commença à vibrer. Même des rafales de vent apparurent, repoussant la brume devant lui.
+L'odeur du sang attira l'attention: les rugissements au loin se multiplièrent et le sol commença à vibrer. Même des rafales de vent apparurent, repoussant la brume devant lui.
 
 L'expression de Wang Lin resta sereine tandis qu'il pénétrait dans la ruine. Il l'explora avec son sens divin et repartit après n'avoir trouvé aucune herbe.
 

@@ -26,7 +26,9 @@ Des rayons de lumière emplissaient le ciel, semblant tracer un chemin à traver
 
 Quant aux mortels, ils restaient pour la plupart près de leur foyer, profitant de la chaleur de leur demeure. Ils jetaient parfois un regard par la fenêtre; c'était une existence monotone, mais chaleureuse.
 
-Le Village de l'Eau du Nord portait bien son nom. Situé dans la partie nord du continent de Mo Luo, il se trouvait à moins de 500 kilomètres de la jungle. Les habitants survivaient principalement grâce à l'agriculture, bien que des équipes de chasseurs s'activent dans la vallée voisine.
+Le Village de l'Eau du Nord portait bien son nom. Situé dans la partie nord du continent de Mo Luo, il se trouvait à moins de 500 kilomètres de la jungle. Les habitants survivaient principalement grâce à l'agriculture, bien que des équipes de chasseurs s'activent aux abords de la jungle.
+
+La saison des pluies était aussi celle où apparaissaient les crapauds d'eau. Pour les mortels du continent de Mo Luo, c'était un mets d'une saveur exquise; dans les grandes cités, leur prix était souvent élevé, mais la demande dépassait toujours l'offre.
 
 Chaque saison des pluies, les villageois de l'Eau du Nord organisaient un groupe d'hommes expérimentés pour se rendre dans la jungle afin de capturer des crapauds d'eau. Durant ces mois de pluie, ils s'y rendaient quatre ou cinq fois. À chaque retour, ils transportaient de grands sacs remplis de crapauds vivants.
 
@@ -44,11 +46,11 @@ La femme qui se tenait aux côtés de l'homme regarda Wang Lin avec un sourire. 
 
 Cet homme jouissant d'une grande influence dans le village, de nombreux voisins vinrent durant la nuit. Naturellement, on y but beaucoup de vin. Wang Lin restait assis sur le côté, tenant une coupe. Il observait les mortels avec un sourire tout en buvant; son cœur était apaisé.
 
-Après quelques verres, les hommes corpulents éclatèrent de rire. L'un d'eux, âgé de plus de quarante ans, tendit une coupe à Wang Lin et déclara: « Frère Ceng, le troisième frère de notre famille dit que sans vous, il ne serait pas sorti indemne de cette morsure de serpent. Ce vieil homme n'oubliera jamais votre geste salvateur! » Sur ces mots, il vida sa coupe d'un trait.
+Après quelques verres, les hommes corpulents éclatèrent de rire. L'un d'eux, âgé de plus de quarante ans, tendit une coupe à Wang Lin et déclara: « Frère Ceng, le troisième frère de notre famille dit que sans vous, il n'aurait pas survécu à cette morsure de serpent venimeux. Ce vieil homme n'oubliera jamais votre geste salvateur! » Sur ces mots, il vida sa coupe d'un trait.
 
 Wang Lin sourit, saisit le pichet sur la table et prit une longue gorgée avant d'essuyer sa bouche en disant: « Ce vin n'est pas assez fort. »
 
-Les hommes autour applaudirent à cette remarque. L'hôte qui permettait à Wang Lin de loger chez lui rit de bon cœur. « Femme, va chercher les trois pichets de vin du Village de l'Eau du Nord! Je veux que le frère Ceng sache que nous avons du vin de caractère! »
+Les hommes autour applaudirent à cette remarque. L'hôte qui permettait à Wang Lin de loger chez lui rit de bon cœur. « Femme, va chercher les trois pichets de vin du Village de l'Eau du Nord que le vieux a laissés autrefois! Je veux que le frère Ceng sache que nous avons du vin de caractère! »
 
 La femme de l'homme corpulent secoua la tête et rentra dans la maison. Deux jeunes suivirent, et bientôt, trois pichets furent apportés.
 
@@ -62,7 +64,7 @@ Si le temps continuait de passer et qu'il pouvait oublier la menace de Tuo Sen, 
 
 Il aimait cette existence paisible et appréciait la joie de vivre du village. Pourtant, Wang Lin savait que ce genre de vie n'était qu'un bref éclat de soleil au milieu de la saison des pluies: elle allait bientôt disparaître.
 
-Les cultivateurs de la Secte de l'Origine arrivèrent dans la partie nord du continent de Mo Luo. Ils cherchèrent sans relâche des mortels aptes à la culture. Certains étaient jeunes, d'autres d'âge mûr. Quant aux anciens aux cheveux blancs, ils les examinèrent également, mais la plupart n'étaient pas qualifiés. Même ceux qui l'étaient ne pourraient rien accomplir avant de mourir.
+Les cultivateurs de la Secte de l'Origine arrivèrent dans la partie nord du continent de Mo Luo. Ils cherchèrent sans relâche des mortels aptes à la culture. Certains étaient jeunes, d'autres d'âge mûr. Quant aux anciens aux cheveux blancs, ils les examinèrent également, mais aucun n'était qualifié. Même s'il y en avait eu, à cet âge ils ne pourraient rien accomplir avant de mourir.
 
 Ce jour-là, un cultivateur arriva au Village de l'Eau du Nord. Il paraissait n'avoir pas plus de vingt ans, mais il se trouvait déjà au stade de l'Établissement des Fondations. À son âge et avec un tel niveau de culture, il pouvait être considéré comme un prodige parmi la jeune génération.
 
@@ -88,6 +90,6 @@ Les villageois furent stupéfaits. Ils saisirent rapidement leurs enfants et se 
 
 Dans la nuit pluvieuse, Wang Lin marchait en tête et Zhao Yu suivait derrière. Ce dernier n'était plus confus, mais il semblait avoir perdu son âme.
 
-Les activités de la Secte de l'Origine durèrent près d'un mois, et ils rassemblèrent 31 mortels de la partie nord du continent de Mo Luo. Parmi eux, 17 étaient des adolescents et les autres des jeunes adultes. Tous furent envoyés à la Secte de l'Origine pour s'installer dans le Grand Bassin.
+Les activités de la Secte de l'Origine durèrent près d'un mois, et ils rassemblèrent 31 mortels de la partie nord du continent de Mo Luo. Parmi eux, 17 étaient des adolescents et les autres des jeunes adultes. Tous furent envoyés à la Secte de l'Origine dans l'est du continent de Mo Luo, pour s'installer dans le bassin entouré d'une chaîne de montagnes circulaire.
 
 Les quatre Grands Anciens de la Secte de l'Origine accordèrent une grande importance à ces 31 individus, qui furent répartis entre eux. Parmi les sept personnes choisies par la seule femme de l'ordre, la Grande Ancienne Lu Yanfei, se trouvait un jeune homme nommé Ceng Niu, originaire du Village de l'Eau du Nord.

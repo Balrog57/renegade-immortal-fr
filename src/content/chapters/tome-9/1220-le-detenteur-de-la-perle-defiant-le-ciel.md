@@ -34,7 +34,7 @@ Sous cette absorption frénétique, Wang Lin sembla sombrer dans d'innombrables 
 
 Des réincarnations similaires se succédèrent dans l'esprit de Wang Lin. Chacune représentait l'illumination du feu par un être. Ce cycle continua, et ces compréhensions du Dao du feu fusionnèrent avec la conscience de Wang Lin, s'inscrivant profondément en lui pour ne faire qu'un avec lui!
 
-Toutes les compréhensions du feu, de l'Antiquité à nos jours, du Royaume Céleste aux quatre systèmes stellaires, devinrent les nutriments de Wang Lin. La compréhension tirée de leurs vies avait été aspirée pour devenir une forme de nutriment du Dao. Désormais, tout était absorbé par lui.
+Toutes les compréhensions du feu, de l'Antiquité à nos jours, du Royaume Céleste aux quatre royaumes, devinrent les nutriments de Wang Lin. La compréhension tirée de leurs vies avait été aspirée pour devenir une forme de nutriment du Dao. Désormais, tout était absorbé par lui.
 
 « Le Tonnerre... Parmi les lois, c'est le Dao qui punit toute vie... »
 
@@ -48,9 +48,9 @@ Il devint ces anciens cultivateurs, à la fois inconnus et familiers, obtenant l
 
 Toutes les intentions du Dao contenant le domaine de la bataille se ruèrent dans la conscience de Wang Lin. Elles se transformèrent en une volonté capable de bouleverser le monde, gravée à jamais dans son esprit.
 
-Le fruit rétrécit davantage. À mesure que Wang Lin absorbait plus de liquide, même cette plante cramoisie de plusieurs milliers de pieds de large commença à trembler.
+Le fruit rétrécit davantage. À mesure que Wang Lin absorbait plus de liquide, même cette plante cramoisie d'environ mille pieds de large commença à trembler.
 
-C'est alors qu'une voix terrifiante résonna dans le système stellaire où se trouvaient ces sept fleurs de couleurs différentes.
+C'est alors qu'une voix stupéfaite résonna dans le système stellaire où se trouvaient ces sept fleurs de couleurs différentes.
 
 « Le fruit du Dao est sur le point d'apparaître, mais pourquoi se fane-t-il?! » À peine la voix eut-elle retenti qu'un puissant sens divin chargea vers le fruit. Cependant, dès que ce sens divin s'en approcha, la Perle Défiant le Ciel libéra une lumière douce qui entra en collision avec lui.
 
@@ -76,7 +76,7 @@ Ce n'est qu'en fusionnant toutes ces innombrables intentions du Dao avec son dom
 
 Cependant, ce n'était pas fini! Sous la protection de la Perle Défiant le Ciel, et sans que personne ne s'en aperçoive, l'esprit de Wang Lin fut aspiré par la perle. Alors qu'il comprenait et absorbait continuellement les innombrables intentions du Dao, son niveau de culture commença à tendre vers le sommet du stade Purificateur du Nirvana! Il semblait que même le sommet du Purificateur du Nirvana ne soit pas une limite, tant il absorbait le fruit du Dao!
 
-Une telle chose ne s'était jamais produite auparavant. Wang Lin se rapprochait infiniment du sommet du Purificateur du Nirvana et, par extension, du Briseur du Nirvana. L'écart entre ces deux stades était immense et nécessitait souvent des dizaines de milliers d'années de culture pour être comblé. Pourtant, après avoir absorbé l'un des sept fruits, cet écart se réduisait à une vitesse fulgurante.
+Une telle chose ne s'était jamais produite auparavant. Wang Lin se rapprochait infiniment du sommet du Purificateur du Nirvana et, par extension, du Briseur du Nirvana. L'écart entre ces deux stades était immense et nécessitait souvent dix mille ans de culture pour être comblé. Pourtant, après avoir absorbé l'un des sept fruits, cet écart se réduisait à une vitesse fulgurante.
 
 Sans cette opportunité sans pareille, même avec d'innombrables pilules, il lui aurait fallu une éternité pour passer du Purificateur au Briseur du Nirvana!
 

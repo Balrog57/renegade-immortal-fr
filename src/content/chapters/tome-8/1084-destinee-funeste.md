@@ -38,7 +38,7 @@ Le vieil homme du Vide Brillant plissa les yeux, observant l'Omniscient avec une
 
 Même l'Ancien Démon Ta Jia sembla percevoir un indice et laissa échapper un halètement. Ses yeux étaient empreints de choc alors qu'il fixait l'Omniscient.
 
-Wang Lin contemplait l'aura émanant des trois fragments de bois. Il se souvenait parfaitement de cette sensation. Dans son sac, il possédait des cristaux extraits du crâne de l'Ancien Dieu à huit étoiles. L'aura de ces cristaux était rigoureusement identique à celle des morceaux de bois!
+Wang Lin contemplait l'aura émanant des trois fragments de bois. Il se souvenait parfaitement de cette sensation. Dans son sac, il possédait des cristaux extraits de la blessure à la tête de l'Ancien Dieu à huit étoiles, dans l'abîme d'enterrement des immortels de sa demeure. L'aura de ces cristaux était rigoureusement identique à celle des morceaux de bois!
 
 Voyant l'aura des fragments s'intensifier, les yeux de l'Empereur Divin de l'Oiseau Vermillon se plissèrent. Sans hésiter, il pointa sa main droite en avant et activa lui-même le troisième style du Trésor Sacré de l'Oiseau Vermillon. Il rugit: « Ciel de Feu! »
 
@@ -94,7 +94,7 @@ Avec sa puissance, s'il décidait d'agir, la seule chose dont il devrait craindr
 
 Le vieil homme soupira en s'élançant vers le ciel. Là-haut, il se retourna pour regarder Mu Bingmei.
 
-Mu Bingmei hésita un instant. Elle mordilla sa lèvre inférieure et murmura: « Laissez-moi... le regarder une dernière fois. Est-ce possible... Juste une fois! »
+Mu Bingmei hésita un instant. Elle mordilla sa lèvre inférieure et murmura: « Laissez-moi... le regarder. Est-ce possible... Un seul regard! »
 
 L'Empereur Divin de l'Oiseau Vermillon fut surpris. Son regard balaya Wang Lin, mais il garda le silence.
 
@@ -114,7 +114,7 @@ Sur ces mots, les disciples de la Secte des Quatre Divinités se dispersèrent p
 « La Secte des Quatre Divinités les aidera à reconstruire leurs corps! »
 « Mon frère, Situ, est empoisonné par un venin de la Secte des Cadavres... »
 « Je m'en chargerai! »
-« Mon bienfaiteur, Zhou Yi, exige la résurrection de Qing Lin! »
+« Mon bienfaiteur, Zhou Yi, a besoin de Qing Lin pour ressusciter! »
 « Je vous donnerai le corps de Qing Lin! Si vous avez besoin de l'aide de la Secte des Quatre Divinités, nous vous apporterons tout notre soutien! »
 « Dans la Terre des Esprits Démoniaques, j'ai un disciple direct... »
 « J'enverrai quelqu'un pour les escorter jusqu'à la Secte de l'Oiseau Vermillon! »
@@ -141,7 +141,7 @@ L'Empereur Divin agita sa manche et le corps de Wang Lin s'éleva dans les airs.
 
 Déjà gravement blessé, ce rugissement chargé de siècles de souffrance refoulée affecta son esprit. Il cracha une bouchée de sang et sa vision s'obscurcit...
 
-La Secte des Quatre Divinités... était parti. Ils avaient emmené tout le monde...
+La Secte des Quatre Divinités... était partie. Ils avaient emmené tout le monde...
 
 Deux larmes coulèrent des yeux de Mu Bingmei, une douleur déchirante lui broyant le cœur. Elle cracha du sang à son tour et s'effondra.
 

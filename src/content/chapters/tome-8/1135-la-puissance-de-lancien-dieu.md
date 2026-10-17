@@ -24,7 +24,7 @@ Comparés à l'Ancien Dieu, ces cultivateurs n'étaient que des fourmis.
 
 « Ceci... ceci est un dieu... » L'expression de Maître Yan Leizi devint livide alors qu'il contemplait le corps inimaginablement colossal de la divinité. Même avec son niveau de culture, il ne ressentait qu'un profond sentiment d'impuissance.
 
-Wang Lin possédait le niveau de culture le plus bas. Bien qu'il n'ait pas craché de sang, des craquements sinistres résonnaient dans son corps. De nouvelles fissures apparurent, et celle sur sa poitrine perça son buste. Son regard devint vacant, son âme originelle était blessée, et son corps montrait des signes de pétrification.
+Wang Lin possédait le niveau de culture le plus bas. Bien qu'il n'ait pas craché de sang, des craquements sinistres résonnaient dans son corps. De nouvelles fissures apparurent, et celle sur sa poitrine perça son buste. Son visage devint noir comme le fer, son âme originelle était gravement blessée, et son corps montrait des signes de pétrification.
 
 Les cultivateurs au stade du Briseur du Nirvana avaient également pénétré le vortex. Grâce à leur niveau de culture, ils n'étaient pas affectés par la loi du temps, mais leurs esprits étaient sur le point de s'effondrer. La voix provoquait l'instabilité de leurs âmes originelles tandis que le grondement tonnerreux résonnait dans leurs oreilles.
 
@@ -34,7 +34,7 @@ Il observa les cultivateurs flottant devant lui et leva la main pour les chasser
 
 C'était comme si la distance n'avait aucune existence pour l'Ancien Dieu. Il ne lui fallut qu'un instant pour lever son bras droit et l'agiter. Pourtant, pour tous les cultivateurs, cette main occupa soudainement tout leur champ de vision.
 
-Rumble, rumble, rumble, rumble!
+Boum, boum, boum, boum!
 
 Avant même que le rugissement assourdissant ne parvienne à leurs oreilles, la main était déjà là. La vitesse du mouvement était indescriptible. Le cultivateur au stade du Briseur du Nirvana situé devant lui ne pouvait s'échapper; il activa donc toute sa puissance et déploya des couches de protection. Au moment même où des dizaines de milliers de couches de protection apparurent, il recula, tentant d'encaisser un dommage sérieux pour espérer résister à cette main de la taille d'une planète de culture.
 
@@ -42,7 +42,7 @@ Le bras s'approcha et percuta la couche protectrice du cultivateur. Ces dizaines
 
 Toutes les couches de protection autour du cultivateur s'effondrèrent instantanément. En vérité, il y eut un infime intervalle entre l'effondrement de chaque couche, mais la différence était si ténue qu'elle en était dérisoire. Le bras ne ralentit pas et balaya simplement tout sur son passage.
 
-Le cultivateur qui avait passé d'innombrables années pour atteindre le début du stade de Briseur du Nirvana afficha un sourire misérable alors que son corps explosait en une brume de sang qui éclaboussa le bras de l'Ancien Dieu.
+Le cultivateur qui avait cultivé plus de dix mille ans pour atteindre péniblement le début du stade de Briseur du Nirvana afficha un sourire misérable alors que son corps explosait en une brume de sang qui éclaboussa le bras de l'Ancien Dieu.
 
 Son âme originelle se dissipa également, se transformant en énergie originelle qui fut absorbée par une fissure sur la peau rugueuse de l'Ancien Dieu.
 
@@ -52,7 +52,7 @@ Le corps du vieil homme était insignifiant comparé à ce bras colossal; il ét
 
 Ce fut comme si d'innombrables éclairs avaient explosé entre le vieil homme et le bras de l'Ancien Dieu. Un coup de tonnerre terrassant résonna dans le vide. Le bras qui semblait invincible s'arrêta brusquement lorsqu'il entra en collision avec la paume du vieil homme!
 
-À cet instant, le vent finit par rattraper le mouvement du bras et souffla sur le vieil homme. Ce vent, capable de briser les corps et de pulvériser les âmes originelles, ne fit que rejeter les cheveux du vieil homme en arrière. Une seule mèche se fendit et fut emportée.
+À cet instant, le vent finit par rattraper le mouvement du bras et souffla sur le vieil homme. Ce vent, capable de briser les corps et de pulvériser les âmes originelles, ne fit que soulever les cheveux du vieil homme. Un ruban de soie noué dans ses cheveux blancs se fendit net en deux et vola vers l'arrière.
 
 Les vêtements noirs du vieil homme furent violemment projetés, et des bruits de déchirure s'élevèrent de ses manches alors que sept fentes apparurent. Le bas de sa robe se transforma en poussière...
 
@@ -68,7 +68,7 @@ Tout cela se produisit en un éclair. C'était si rapide que les cultivateurs en
 
 Alors qu'un grondement tonnerreux retentissait, le bras de l'Ancien Dieu fut inopinément repoussé par le vieil homme. La main de l'homme se sépara du bras divin, mais laissa derrière elle une empreinte noire très nette.
 
-« Tu es digne de ce nom d'Ancien Dieu Royal à 8 étoiles, celui qui transcende les lois et que seuls les cultivateurs du Vide de Nirvana peuvent combattre. J'ai autrefois participé à la mort d'un Ancien Dieu ordinaire à 8 étoiles, et la différence est celle du ciel et de la terre! »
+« Tu es digne de ce nom d'Ancien Dieu Royal à 8 étoiles, celui qui transcende les lois et que seuls les cultivateurs du Vide du Nirvana peuvent combattre. J'ai autrefois participé à la mort d'un Ancien Dieu ordinaire à 8 étoiles, et la différence est celle du ciel et de la terre! »
 
 Le vieil homme recula, et la rougeur de son visage s'effaça pour laisser place à une pâleur extrême. Cependant, ses yeux brillaient comme la lune et étaient empreints d'une intention de combat féroce.
 
@@ -78,7 +78,7 @@ Les yeux de Tuo Sen restaient froids, affichant un mépris arrogant. D'un léger
 
 Ce mouvement le fit dominer tout le monde, et une puissance semblable à celle des cieux descendit sur l'assemblée. Après que les deux étoiles entre les sourcils de Tuo Sen se furent illuminées, la troisième s'alluma également avec lenteur. Pourtant, quelque chose se cachait au plus profond de cette troisième étoile... une présence qu'on ne pouvait ni voir, ni ressentir clairement.
 
-Seul Wang Lin fixait Tuo Sen, et plus particulièrement l'étoile située sur son front. Son cœur était saisi par le choc, car il connaissait les sorts des Anciens Dieux Royaux à 8 étoiles; il en connaissait les noms, mais n'avait aucun souvenir de la manière de les pratiquer.
+Seul Wang Lin fixait Tuo Sen, et plus particulièrement l'étoile située sur son front. Son cœur était saisi par le choc, car il connaissait un sort des Anciens Dieux Royaux à 8 étoiles; il n'en connaissait que le nom, mais n'avait aucun souvenir de la manière de le pratiquer.
 
 « Enterrer le vide pour affiner les étoiles! »
 

@@ -10,9 +10,9 @@ L'ensemble du continent de Mo Luo s'était apaisé. Wang Lin passait ses journé
 
 Wang Lin avait étudié la recette de l'os de bête et, finalement, son expression était devenue sombre. Il réfléchit longuement. Indépendamment de la véracité des effets, les herbes nécessaires à sa fabrication étaient pour la plupart des choses qu'il n'avait jamais entendues nommer.
 
-Après avoir fouillé dans les archives de la Secte de l'Origine, Wang Lin trouva quelques indices. Trois des herbes — le Bois de Transformation Stellaire, l'Herbe d'Étoile Dragon et la Fleur d'Annihilation — existaient il y a des dizaines de milliers d'années. Même à cette époque, elles étaient extrêmement rares, et elles sont pratiquement éteintes aujourd'hui. Cependant, les registres de la Secte de l'Origine offraient quelques pistes: il semblait que dans leur grande secte de rang 8, il restait encore un petit fragment de Bois de Transformation Stellaire.
+Après avoir fouillé dans les archives de la Secte de l'Origine, Wang Lin trouva quelques indices. Trois des herbes — le Bois de Transformation Stellaire, l'Herbe d'Étoile Dragon et la Fleur d'Annihilation — existaient il y a des dizaines de milliers d'années. Même à cette époque, elles étaient extrêmement rares, et elles sont pratiquement éteintes aujourd'hui. Cependant, les registres de la Secte de l'Origine offraient quelques pistes: il semblait que dans la secte principale de rang 8, il restait encore un petit fragment de Bois de Transformation Stellaire.
 
-Plus important encore, cette Pilule du Vide Nirvana nécessitait les âmes de neuf bêtes de rang 13. Ce n'est qu'en fusionnant leurs âmes que le raffinage de la pilule pourrait être accompli.
+Plus important encore, cette Pilule du Vide Nirvana nécessitait les âmes de neuf bêtes de rang 13 au sommet. Ce n'est qu'en fusionnant leurs âmes que le raffinage de la pilule pourrait être accompli.
 
 Si cela avait été tout, ce ne serait pas un problème, mais le taux de réussite était extrêmement faible. De plus, ce fragment d'os de bête devait servir de catalyseur; il devait être fondu dans la pilule. Chaque échec rendait cet os un peu plus sombre et, une fois qu'il deviendrait complètement noir, il serait impossible de raffiner la pilule.
 
@@ -24,7 +24,7 @@ En observant l'os dans sa main, bien qu'il ne soit pas encore noir, il était d�
 
 « Je ne sais juste pas à quelle bête appartient cet os... Cependant, même s'il n'y a qu'une chance sur 1 % que l'effet de cette pilule soit réel, je dois essayer! » Wang Lin tint l'os et l'étudia attentivement un instant avant de réfléchir puis de le ranger.
 
-Un autre objet apparut dans sa main: la pierre de jade qui accompagnait l'os. Après l'avoir scannée avec son Sens Divin, son expression devint étrange. Wang Lin ouvrit à nouveau son espace de stockage et sortit l'âme originelle de la Vieille Femme Empoisonnée.
+Un autre objet apparut dans sa main: la pierre de jade qui accompagnait l'os. Après l'avoir scannée avec son Sens Divin, son expression devint étrange. Wang Lin ouvrit à nouveau son espace de stockage et sortit l'âme originelle de la Vieille Femme Poisonneuse.
 
 Ses yeux étaient calmes tandis que son doigt pointait l'âme originelle à plusieurs reprises. Chaque contact faisait trembler l'âme et la rendait encore plus faible.
 
@@ -38,15 +38,15 @@ Wang Lin découvrit ce qui s'était passé avec la Secte Brise-Ciel il y a 18 00
 
 Elle ne contenait ni sorts ni méthodes de culture. Ce n'était qu'un jeton d'identification: la marque du disciple principal de la Secte Brise-Ciel d'il y a 18 000 ans!
 
-Cette personne s'appelait Sima Mo. Sans cet accident, il serait devenu le prochain maître de la Secte Brise-Ciel. C'est lui qui avait pris l'os de bête et un groupe de cultivateurs pour se séparer du secteur et disparaître dans le Système Stellaire de la Mer des Nuages.
+Cette personne s'appelait Sima Mo. Sans cet accident, il serait devenu le prochain maître de la Secte Brise-Ciel. C'est lui qui avait pris l'os de bête et un groupe de cultivateurs pour se séparer de la secte et disparaître dans le Système Stellaire de la Mer des Nuages.
 
-Il y a 18 000 ans, la Secte Brise-Ciel, qui était entrée dans la région de rang 9, éprouvait des sentiments très complexes envers ses membres partis. Ils apprirent plus tard que ce groupe avait subi de lourdes pertes et avait totalement disparu. Le maître du secteur à l'époque, qui était le professeur de Sima Mo, avait alors émis un ordre qui dura des dizaines de milliers d'années!
+Il y a 18 000 ans, la Secte Brise-Ciel, qui était entrée dans la région de rang 9, éprouvait des sentiments très complexes envers ses membres partis. Ils apprirent plus tard que ce groupe avait subi de lourdes pertes et avait totalement disparu. Le maître de la secte à l'époque, qui était le professeur de Sima Mo, avait alors émis un ordre qui dura des dizaines de milliers d'années!
 
-« À l'avenir, quiconque reviendra avec le jeton de Sima Mo sera autorisé à entrer dans la Secte Brise-Ciel et deviendra le disciple du maître du secteur de cette génération! »
+« À l'avenir, quiconque reviendra avec le jeton de Sima Mo sera autorisé à entrer dans la Secte Brise-Ciel et deviendra le disciple du maître de la secte de cette génération! »
 
 Cet ordre se répandit dans toute la Mer des Nuages et attira l'attention de nombreux cultivateurs. Il excita l'intérêt de ceux qui cherchaient une opportunité de s'élever, et beaucoup partirent à la recherche d'indices sur les membres disparus. Cependant, au fil du temps, aucune découverte ne fut faite, et l'affaire finit par s'essouffler.
 
-Jusqu'à ce que la Secte des Cinq Poisons reçoive un rapport de son espion concernant les mouvements et les spéculations de Shi Luoxing! À l'origine, la Secte des Cinq Poisons ne s'en souciait guère. Après tout, cela faisait trop longtemps et l'indice était probablement faux. Ils n'avaient envoyé que quelques éclaireurs, et la Vieille Femme Empoisonnée en était la chef.
+Jusqu'à ce que la Secte des Cinq Poisons reçoive un rapport de son espion au sein de la Secte de la Fleur Claire concernant les mouvements et les spéculations de Shi Luoxing! À l'origine, la Secte des Cinq Poisons ne s'en souciait guère. Après tout, cela faisait trop longtemps et l'indice était probablement faux. Ils n'avaient envoyé que quelques éclaireurs, et la Vieille Femme Poisonneuse en était la chef.
 
 Personne n'aurait cru que cela soit vrai!
 
@@ -58,15 +58,15 @@ Non seulement il avait récolté une grande quantité d'herbes sur le continent 
 
 Il restait d'autres âmes dans son sac: celles des bêtes spirituelles des membres de la Secte de la Fleur Claire, tuées par le cadavre femelle argenté puis collectées.
 
-De même, il possédait l'esprit du serpent spirituel, l'esprit bestial de la Vieille Femme Empoisonnée, qui avait atteint le sommet du rang 6!
+De même, il possédait un serpent spirituel, la bête spirituelle liée à la vie de la Vieille Femme Poisonneuse, qui avait atteint le sommet du rang 6!
 
 En dehors de cela, l'âme de bête la plus élevée qu'il possédait était celle d'une créature de rang 8 qu'il avait instantanément tuée. Cette âme était extrêmement précieuse, Wang Lin ne voulut donc pas la détruire. Il entra dans le temple daoïste et prit cette pilule.
 
 Après trois échecs, il réussit enfin à fusionner l'âme et la pilule pour créer une Pilule de Séparation d'Âme de rang 8!
 
-En explorant les souvenirs de la Vieille Femme Empoisonnée, il avait découvert une méthode intéressante pour faire muter les bêtes.
+En explorant les souvenirs de la Vieille Femme Poisonneuse, il avait découvert une méthode intéressante pour faire muter les bêtes.
 
-Cette technique de raffinage d'âmes de bêtes avait été inventée par un génie de la Secte des Cinq Poisons nommé Ren Ouxin. Elle utilisait une formation comme cage pour contenir les âmes de bêtes. On utilisait ensuite le poison pour les forcer à se dévorer mutuellement, stimulant ainsi une mutation pour créer une âme plus puissante.
+Cette technique de raffinage d'âmes de bêtes avait été inventée par un génie de la Secte des Cinq Poisons. Elle utilisait une formation comme cage pour contenir les âmes de bêtes. On utilisait ensuite le poison pour les forcer à se dévorer mutuellement, stimulant ainsi une mutation pour créer une âme plus puissante.
 
 Cependant, cette méthode présentait un inconvénient majeur: l'âme de bête mutée ne pouvait pas dévorer d'âmes ordinaires; elle ne pouvait consommer que d'autres âmes déjà mutées. Ce résultat fut un coup dur pour la Secte des Cinq Poisons.
 
@@ -78,7 +78,7 @@ Wang Lin connaissait bien ce problème. La première pilule qu'il tenta de fabri
 
 Même la Secte des Cinq Poisons avait dû abandonner; leur secte ne pouvait supporter une telle consommation de ressources. Même les sectes de rang 7 ou 8 auraient eu du mal à maintenir cela. Et même si elles le pouvaient, elles n'avaient pas vraiment besoin de raffiner une âme par ce biais avec leur puissance; il serait bien plus simple d'en capturer une directement.
 
-Après avoir étudié cette méthode, Wang Lin en calcula secrètement le coût, ce qui le choqua. Pourtant, après mûre réflexion, il décida de tenter l'expérience. Il apprit la technique du poison grâce aux souvenirs de la Vieille Femme Empoisonnée et parvint tout juste à raffiner quelques lots.
+Après avoir étudié cette méthode, Wang Lin en calcula secrètement le coût, ce qui le choqua. Pourtant, après mûre réflexion, il décida de tenter l'expérience. Il apprit la technique du poison grâce aux souvenirs de la Vieille Femme Poisonneuse et parvint tout juste à raffiner quelques lots.
 
 Wang Lin ne choisit pas la Secte de l'Origine pour ses tests, mais trouva une grotte dans une montagne quelque part sur le continent. Il installa un grand nombre de restrictions avant d'y placer des âmes de bêtes de rang 5 et d'y verser du poison. Après avoir observé pendant quelques jours qu'elles se dévoraient bien entre elles, il ajouta d'autres restrictions et retourna à la Secte de l'Origine.
 
@@ -90,13 +90,13 @@ Alors qu'il continuait d'avaler des pilules de rang 5, il entrevit vaguement des
 
 Les âmes de bêtes des pilules de rang 5 n'étaient pas très utiles pour lui; il ne s'en servait que pour se familiariser avec la sensation d'utiliser les âmes de bêtes pour appréhender le Ciel.
 
-Après les pilules de rang 5, Wang Lin avala une pilule de rang 6. L'âme de bête contenue équivalait à un cultivateur du stade initial du Scruteur du Nirvana, ce qui déclencha immédiatement l'activation de son domaine.
+Après les pilules de rang 5, Wang Lin avala une pilule de rang 6. L'âme de bête contenue équivalait à un cultivateur du stade initial du Purificateur du Nirvana, ce qui fit immédiatement fluctuer son domaine.
 
-C'était comme s'il s'était transformé en la bête elle-même, comprenant progressivement les lois au fil d'innombrables années. Ces scènes étaient à la fois tangibles et irréelles. Wang Lin était immergé dans cette compréhension complexe pour chercher sa propre Voie. Il cherchait l'existence entre le vrai et le faux.
+C'était comme s'il s'était transformé en la bête elle-même, comprenant progressivement les lois au fil d'innombrables années. Ces scènes étaient à la fois tangibles et irréelles. Wang Lin était immergé dans cette compréhension complexe pour chercher sa propre Voie. Il cherchait l'existence et l'éternité entre le vrai et le faux.
 
 Après un temps indéterminé, alors qu'il ne lui restait plus que la pilule de rang 8, il émergea de son étrange état. Il regarda devant lui d'un air absent et murmura:
 
-« Confirmer sa Voie en tant qu'individu est une démarche directe. La confirmer sous différents angles est une démarche indirecte. Les pilules de la Mer des Nuages ne sont pas une fortune, elles offrent simplement aux cultivateurs la chance de chercher la Voie encore et encore... Elles utilisent les âmes de bêtes comme un autre moyen d'explorer la Voie... d'explorer les lois du monde... Contrairement aux deux autres systèmes stellaires, le Système Stellaire de la Mer des Nuages a réussi à raccourcir le processus d'illumination... »
+« Confirmer sa Voie par la force d'un seul individu, c'est un point. La confirmer par la force de nombreuses personnes, c'est un plan. Les pilules de la Mer des Nuages ne sont pas une fortune, elles offrent simplement aux cultivateurs la chance de chercher la Voie encore et encore... Elles utilisent les âmes de bêtes comme un autre moyen d'explorer la Voie... d'explorer les lois du monde... Contrairement aux deux autres systèmes stellaires, le Système Stellaire de la Mer des Nuages a réussi à raccourcir le processus d'illumination... »
 
 « Cependant, les bêtes restent des bêtes. Leur façon de comprendre la Voie n'est pas directe et on ne peut pas remonter clairement jusqu'à l'origine, à moins que... nous ne raffinions une pilule avec l'âme d'un être humain ou l'âme de quelque chose ayant transcendé sa nature animale. Ce n'est qu'alors que l'illumination serait plus claire. Sinon, il faut avaler de grandes quantités de pilules pour trouver la Voie juste qui permettra de confirmer la sienne. »
 

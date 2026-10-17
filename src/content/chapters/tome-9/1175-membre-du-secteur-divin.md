@@ -38,7 +38,7 @@ Ce n'est qu'une fois Wang Lin parti que le visage de l'homme d'âge moyen se dé
 
 « Wu Qing, je t'avais dit de ne pas provoquer cet homme, mais tu n'as pas écouté! Tu méritais ta mort! Mais tu as impliqué la Secte de la Collection des Démons... Cet homme était inopinément un membre de la Secte Divine, ah! »
 
-Au sommet d'un pic montagneux à l'est de Peng Lai, les yeux de Li Qianmei brillaient d'une lueur étrange. Après une longue réflexion silencieuse, elle murmura doucement: « La Secte Divine? Cela fait des années que les membres de la Secte Divine ont quitté la région de rang 9. Seuls les disciples de l'élite peuvent utiliser l'Empreinte de l'Esprit Guerrier. Comment pourraient-ils être autorisés à quitter la Secte Divine si facilement... La première paume de cet homme était très étrange. J'ignore quel sort est assez tyrannique pour contrôler l'énergie originelle de la sorte. On aurait dit une empreinte d'esclave! »
+Au sommet d'un pic montagneux à l'est de Peng Lai, les yeux de Li Qianmei brillaient d'une lueur étrange. Après une longue réflexion silencieuse, elle murmura doucement: « La Secte Divine? Cela fait de nombreuses années que les membres de la Secte Divine n'ont pas quitté la région de rang 9. Seuls les disciples de l'élite peuvent utiliser l'Empreinte de l'Esprit Guerrier. Comment pourraient-ils être autorisés à quitter la Secte Divine si facilement... La première paume de cet homme était très étrange. J'ignore quel sort est assez tyrannique pour contrôler l'énergie originelle de la sorte. On aurait dit une empreinte d'esclave! »
 
 Wang Lin ne volait pas à une vitesse excessive tandis qu'il traversait le ciel pour regagner l'est de Peng Lai. Il vit immédiatement la ville à moitié ruinée et les innombrables cultivateurs qui sillonnaient les airs.
 
@@ -64,7 +64,7 @@ Au cours des jours suivants, les sectes de rang 6 vinrent tous lui rendre visite
 
 S'il s'agissait d'une imposture, ce n'était pas grave: ils ne perdraient au plus que quelques cadeaux. Mais s'il était réel, nouer une relation avec lui était le rêve de n'importe quelle secte.
 
-Ce jour-là, après avoir congédié les cultivateurs de la Secte des Sorts Dao, un vieil homme vêtu de noir qui portait la plume vint le voir. Ce dernier ne mentionna aucunement les événements passés et paraissait calme. Au fond de lui, il craignait Wang Lin. Après tout, Wu Qing avait été tué avec une facilité déconcertante alors qu'il était lui-même au stade précoce du Briseur du Nirvana; la prudence était donc de mise.
+Ce jour-là, après avoir congédié les cultivateurs de la Secte des Sorts Dao, le vieil homme décharné vêtu de noir, l'ancien propriétaire de la plume, vint le voir. Ce dernier ne mentionna aucunement les événements passés et paraissait calme. Au fond de lui, il craignait Wang Lin. Après tout, Wu Qing avait été tué avec une facilité déconcertante, et lui-même, au stade précoce du Briseur du Nirvana, se montrait donc très prudent.
 
 Après les civilités d'usage, le vieil homme joignit les mains. « Camarade cultivateur Lu, je ne me suis pas encore présenté. Je m'appelle Du De. Je n'appartiens à aucune secte et je suis un simple cultivateur indépendant dans la région de rang 6. C'est un honneur de rencontrer le camarade cultivateur Lu ici, à Peng Lai. »
 
@@ -82,7 +82,7 @@ Wang Lin regarda l'homme en noir et demanda lentement: « Je me demande où le c
 
 Wang Lin prit la pierre et l'examina avec son sens divin. Il joignit ensuite les mains au vieil homme. Ils discutèrent encore un peu avant que ce dernier ne reparte.
 
-Au cours des deux jours précédents, Wang Lin avait subtilement fait circuler la nouvelle selon laquelle il cherchait à acquérir des cartes stellaires. Rapidement, les gens commencèrent à en proposer, et en seulement deux jours, presque toutes les cartes de la ville avaient été rassemblées. Une fois vérifiées avec soin, ces cartes finirent entre les mains de Maître Pin Cendré. Ce dernier se rendit à l'auberge où logeait Wang Lin et, après avoir échangé quelques mots, sortit un sac rempli de parchemins.
+Au cours des deux jours restants, Wang Lin avait subtilement fait circuler la nouvelle selon laquelle il cherchait à acquérir des cartes stellaires. Rapidement, les gens commencèrent à en proposer, et en seulement deux jours, presque toutes les cartes de la ville avaient été rassemblées. Une fois vérifiées avec soin, ces cartes finirent entre les mains de Maître Pin Cendré. Ce dernier se rendit à l'auberge où logeait Wang Lin et, après avoir échangé quelques mots, sortit un sac rempli de parchemins.
 
 « J'ai entendu dire que le camarade cultivateur Lu s'intéressait aux cartes stellaires, j'ai donc chargé des gens d'en collecter. Cependant, il y a trop de fausses informations, je ne saurais dire lesquelles sont exactes. Le camarade cultivateur devra les examiner avec attention. »
 

@@ -10,11 +10,11 @@ La Secte Nuage Vert de rang 7 s'était classé troisième parmi les sectes de ra
 
 Ces cultivateurs d'élite étaient souvent choisis par la Secte Éternelle pour être formés.
 
-Cette voix calme émanait d'un homme d'âge moyen vêtu d'une robe. Il paraissait serein et son teint était légèrement jaunâtre, comme s'il souffrait d'une grave maladie. Après avoir parlé, il sauta de la plateforme; on aurait dit que des nuages invisibles se formaient sous ses pieds alors qu'il approchait progressivement de l'arène.
+Cette voix calme émanait d'un homme d'âge moyen vêtu d'une robe. Il paraissait serein et son teint était légèrement jaunâtre, comme s'il souffrait d'une grave maladie. Après avoir parlé, il sortit de la foule, du côté ouest de la plateforme du grand concours, en marchant dans le vide; on aurait dit que des nuages invisibles se formaient sous ses pieds alors qu'il approchait progressivement de l'arène.
 
 Cet homme, Yun Shan, était très célèbre dans la région de rang 7. En temps normal, il restait en culture de porte close et ne s'aventurait guère à l'extérieur. Il n'était sorti que pour la compétition de la secte principale. Son niveau de culture était élevé; il dégageait une aura de Briseur du Nirvana de stade avancé.
 
-La rumeur disait qu'il était l'un des trois représentants de la Secte Éternelle pour la compétition entre les sectes de rang 8. La Secte Éternelle lui avait accordé une attention particulière au cours des 1 000 dernières années. D'immenses quantités de pilules, de trésors magiques et même de sorts lui avaient été envoyées pour l'aider. Même l'un des sept Grands Anciens de la Secte Éternelle était allé l'instruire pendant 1 000 ans.
+La rumeur disait qu'il était l'un des trois représentants de la Secte Éternelle pour la compétition entre les sectes de rang 8. La Secte Éternelle lui avait accordé une attention particulière au cours des derniers millénaires. D'immenses quantités de pilules, de trésors magiques et même de sorts lui avaient été envoyées pour l'aider. Même l'un des sept Grands Anciens de la Secte Éternelle était allé l'instruire pendant 1 000 ans.
 
 On pouvait dire que la Secte Éternelle avait investi des efforts colossaux pour faire de lui un champion capable de remporter la compétition entre les sectes de rang 8!
 
@@ -40,7 +40,7 @@ Une intention de combat jaillit des yeux de Yun Shan; ses mains formèrent un sc
 
 Le monde sembla se teindre de rouge avec l'apparition de ces neuf tigres.
 
-L'expression de Wang Lin resta neutre, imperturbable. La clé pour atteindre son objectif au sein de la Secte Éternelle était la rapidité. C'était le seul moyen de choquer l'assistance et de faire connaître la Secte Origin.
+L'expression de Wang Lin resta neutre, imperturbable. La clé pour atteindre son objectif au sein de la Secte Éternelle était la rapidité. C'était le seul moyen de choquer l'assistance et de faire connaître la Secte de l'Origine.
 
 S'il s'éternisait et que ses blessures refoulées s'aggravaient, cela n'en vaudrait pas la peine.
 
@@ -112,6 +112,6 @@ Le regard de Wang Lin était serein alors qu'il scrutait le ciel et déclara len
 
 Une voix d'homme et une voix de femme s'élevèrent simultanément. L'une venait du sud et l'autre de l'est, convergeant vers l'arène. Cependant, en se voyant, elles ne purent s'empêcher de marquer un temps d'arrêt.
 
-Wang Lin détourna son regard du ciel et dit calmement: « Venez tous les deux ensemble! » Sa main droite s'éleva dans les airs et pressa la plateforme. L'estrade qui occupait une petite portion de la planète trembla, et c'est toute la planète de culture qui sembla vaciller. Une aura antique sembla être extraite de la planète même par Wang Lin! Le corps de ce dernier devint une silhouette floue au cœur de cette aura.
+Wang Lin détourna son regard du ciel et dit calmement: « Venez tous les deux ensemble! » Sa main droite s'éleva dans les airs et pressa la plateforme. L'estrade qui occupait un peu moins de la moitié de la planète trembla, et c'est toute la planète de culture qui sembla vaciller. Une aura antique sembla être extraite de la planète même par Wang Lin! Le corps de ce dernier devint une silhouette floue au cœur de cette aura.
 
 « Le pouvoir d'extraire l'âme d'une planète! » s'exclama immédiatement un cultivateur, la voix tremblante de terreur.

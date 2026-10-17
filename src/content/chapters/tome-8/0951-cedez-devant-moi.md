@@ -74,7 +74,7 @@ Les quatre gourdes se mirent soudain à pivoter devant lui pour faire face à Wa
 
 Les deux autres cultivateurs aux côtés du vieil homme utilisèrent leurs propres sorts et trésors. L'un d'eux se frappa le front, faisant jaillir un noyau noir entre ses sourcils. Le noyau tournoyait en dégageant une aura sinistre tandis que le cultivateur hurlait: « Eau des Dix Mille Seigneurs! »
 
-Le noyau vacilla et se transforma instantanément en une eau noire qui s'étendit. En un instant, il recouvrit la moitié de la zone d'une mer déchaînée s'abattant sur Wang Lin.
+Le noyau vacilla et se transforma instantanément en une eau noire qui s'étendit. En un instant, il recouvrit la moitié du ciel, telle une mer rugissante déferlant sur Wang Lin.
 
 Le dernier cultivateur projeta d'immenses quantités de lumière sanguine, sa peau étant parcourue de lignes sanguines. Son apparence était d'une férocité extrême. Ses mains formèrent un sceau, puis il pointa l'avant en criant: « Filet Céleste Sanguin! »
 
@@ -102,7 +102,7 @@ Au lieu de cela, le choc provoqua un violent rebond de la part de la lumière. D
 
 Son âme originelle était le Dragon du Tonnerre Ancien qui régnait sur la foudre des cieux. Un vortex apparut entre les sourcils de Wang Lin et son âme originelle s'en échappa, révélant sa forme de dragon antique. Elle poussa un rugissement tonitruant.
 
-ROAR!!!
+Rugissement!!!
 
 Le monde trembla sous ce cri, et d'immenses quantités de tonnerre convergèrent de toutes les directions. En un instant, le Royaume de la Boucherie se transforma en un enfer de foudre!
 

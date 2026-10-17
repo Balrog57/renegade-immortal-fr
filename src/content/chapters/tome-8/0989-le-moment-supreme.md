@@ -30,7 +30,7 @@ Maître Fu Fengzi comprit que si Wang Lin n'avait pas voulu le tuer, il aurait d
 
 Tandis que des centaines d'idées traversaient l'esprit de Maître Fu Fengzi, Wang Lin réfléchissait également. Le choc que la Nuit Brisée avait infligé à Wang Lin n'était pas moindre que celui ressenti par Maître Fu Fengzi. En fait, il était encore plus stupéfait!
 
-« Ma culture actuelle n'est qu'au sommet du milieu du stade Scruteur du Nirvana, un pas avant le stade final, mais loin du sommet du stade de fin de Scruteur du Nirvana. La différence entre ma culture et celle d'un Purificateur du Nirvana est immense, alors pourquoi la Nuit Brisée a-t-elle pu blesser si facilement Maître Fu Fengzi... »
+« Ma culture actuelle n'est qu'au sommet du milieu du stade Scruteur du Nirvana, un pas avant le stade tardif, et bien loin de la perfection du Scruteur du Nirvana. La différence entre ma culture et celle d'un Purificateur du Nirvana est immense, alors pourquoi la Nuit Brisée a-t-elle pu blesser si facilement Maître Fu Fengzi... »
 
 Wang Lin continua de méditer sur ce problème.
 
@@ -42,9 +42,9 @@ Wang Lin agita la main droite et la lumière dorée se dissipa.
 
 Maître Fu Fengzi poussa un soupir et dit respectueusement: « Je me souviendrai de la clémence du Compagnon Cultivateur Wang! J'ai été imprudent cette fois, et la perte de mon bras droit est un rappel cinglant de mon erreur. Moi, Maître Fu Fengzi, je jure par mon Dao que cela ne se reproduira pas une seconde fois! »
 
-Bien qu'il ait admis sa défaite face à Wang Lin, il nourrissait toujours une rancœur. À l'origine, il avait décidé de se rebeller dans la Terre des Esprits Démoniques.
+Bien qu'il ait admis sa défaite face à Wang Lin, il nourrissait toujours une rancœur. À l'origine, il avait décidé de se rebeller dans la Terre des Esprits Démoniaques.
 
-Cependant, après avoir constaté la puissance de la Nuit Brisée et appris qu'il s'agissait d'un sort auto-créé, il renonça à ces pensées. Il allait désormais se concentrer sur son évasion de la Terre des Esprits Démoniques pour retrouver sa liberté.
+Cependant, après avoir constaté la puissance de la Nuit Brisée et appris qu'il s'agissait d'un sort auto-créé, il renonça à ces pensées. Il allait désormais se concentrer sur son évasion de la Terre des Esprits Démoniaques pour retrouver sa liberté.
 
 Quant à savoir si ce sort avait réellement été créé par Wang Lin, il ne s'en soucia pas outre mesure. Avec sa culture et son expérience, il pouvait en deviner les indices; il estimait que 80 % des paroles de Wang Lin étaient vraies.
 
@@ -54,17 +54,17 @@ De plus, après avoir reçu la clémence deux fois, Maître Fu Fengzi savait qu'
 
 Wang Lin regarda calmement Maître Fu Fengzi. Ils étaient tous deux des hommes sensés, il n'était donc pas nécessaire de multiplier les avertissements. Il se contenta de hocher la tête et laissa l'affaire derrière lui.
 
-« Compagnon Cultivateur Wang, d'après ce que je sais des vieux monstres de la planète Tian Yun, la Terre des Esprits Démoniques devrait bientôt s'ouvrir. Cela pourrait arriver dans quelques mois, ou au plus tard dans une demi-année. Je suis gravement blessé et dois me retirer en culture fermée; je ne vous dérangerai donc pas davantage. » Désormais résolu à aider Wang Lin, Maître Fu Fengzi commença progressivement à envisager ce qui pourrait se passer dans la Terre des Esprits Démoniques.
+« Compagnon Cultivateur Wang, d'après ce que je sais des vieux monstres de la planète Tian Yun, la Terre des Esprits Démoniaques devrait bientôt s'ouvrir. Cela pourrait arriver dans quelques mois, ou au plus tard dans une demi-année. Je suis gravement blessé et dois me retirer en culture fermée; je ne vous dérangerai donc pas davantage. » Désormais résolu à aider Wang Lin, Maître Fu Fengzi commença progressivement à envisager ce qui pourrait se passer dans la Terre des Esprits Démoniaques.
 
 Après avoir salué Wang Lin, Maître Fu Fengzi retourna à son palais pour commencer sa culture.
 
 Une fois Maître Fu Fengzi parti, Wang Lin fronça les sourcils en observant sa main droite. Après un moment de silence, il utilisa à nouveau la Nuit Brisée et la lumière dorée réapparut.
 
-Dès l'apparition de cette lueur, l'énergie d'origine dans le corps de Wang Lin se rua vers sa main telle une meute de chevaux sauvages et incontrôlables.
+Dès l'apparition de cette lueur, l'énergie originelle dans le corps de Wang Lin se rua vers sa main telle une meute de chevaux sauvages et incontrôlables.
 
-Les yeux de Wang Lin s'illuminèrent; il agita la main droite, et son énergie d'origine finit par se stabiliser. Cependant, cet instant précis avait presque consommé plus de 10 % de ses réserves d'énergie d'origine.
+Les yeux de Wang Lin s'illuminèrent; il agita la main droite, et son énergie originelle finit par se stabiliser. Cependant, cet instant précis avait déjà consommé plus de 10 % de ses réserves d'énergie originelle.
 
-« Comme auparavant, toute mon énergie d'origine est épuisée lorsque j'utilise le sort... Il me sera impossible de déployer la Nuit Brisée avec la quantité d'énergie que je possède! Pourtant, je n'ai pas consommé d'énergie d'origine et j'ai pu manifester la puissance terrifiante de la Nuit Brisée il y a un instant... » Wang Lin fronça les sourcils.
+« Comme auparavant, toute mon énergie originelle est épuisée lorsque j'utilise le sort... Il me sera impossible de déployer la Nuit Brisée avec la quantité d'énergie que je possède! Pourtant, je n'ai pas consommé d'énergie originelle et j'ai pu manifester la puissance terrifiante de la Nuit Brisée il y a un instant... » Wang Lin fronça les sourcils.
 
 « Se pourrait-il que... » Soudain, Wang Lin leva la tête, le regard brillant. Il semblait avoir compris quelque chose.
 
@@ -74,7 +74,7 @@ Son corps disparut soudainement pour réapparaître au sommet même où il avait
 
 La brise marine soufflait, jetant des rafales de froid sur lui. Mais Wang Lin n'en fut nullement perturbé, le regard fixé sur le soleil levant au loin. La compréhension acquise lors de l'usage de la Nuit Brisée emplissait son corps avant de migrer vers sa main droite.
 
-À cet instant précis, une lumière dorée jaillit de sa paume. Il n'utilisa aucune énergie d'origine interne. Dès qu'il leva la main, Wang Lin sentit une énergie d'origine infinie provenant du soleil levant converger vers lui. Cela fit soudainement s'étendre la lueur dorée!
+À cet instant précis, une lumière dorée jaillit de sa paume. Il n'utilisa aucune énergie originelle interne. Dès qu'il leva la main, Wang Lin sentit une puissance infinie du ciel et de la terre provenant du soleil levant converger vers lui. Cela fit soudainement s'étendre la lueur dorée!
 
 À mesure que l'énergie du soleil levant se rassemblait dans sa main droite, la lumière dorée se propagea de son bras jusqu'à tout son corps!
 
@@ -82,7 +82,7 @@ Enveloppé par cet éclat doré, Wang Lin devint aussi radieux que l'astre lui-m
 
 Une illumination divine apparut dans les yeux de Wang Lin. D'une simple pensée, la lumière dorée autour de lui disparut lentement jusqu'à s'éteindre totalement.
 
-« C'était donc cela! Mon réservoir d'énergie d'origine est insuffisant pour utiliser ce sort auto-créé si dévastateur. Je ne peux qu'emprunter la puissance du lever du soleil... » Wang Lin médita longuement avant de secouer la tête. Il fit un pas et disparut.
+« C'était donc cela! Mon réservoir d'énergie originelle est insuffisant pour utiliser ce sort auto-créé si dévastateur. Je ne peux qu'emprunter la puissance du lever du soleil... » Wang Lin médita longuement avant de secouer la tête. Il fit un pas et disparut.
 
 « Bien qu'il y ait une limite, si quelqu'un combat contre moi lors du lever du soleil, alors, avec mon troisième œil et le Char de Guerre de l'Extermination Divine, je devrais avoir la puissance nécessaire pour affronter un cultivateur au début du stade Briseur du Nirvana! »
 
@@ -96,7 +96,7 @@ Tandis que les restrictions envahissaient la zone, le palais fut totalement scel
 
 Malgré cela, Wang Lin restait un peu inquiet. Il frappa son sac de rangement et une boussole apparut dans sa main! Cette boussole n'était l'apanage que de l'héritier de la Restriction d'Annihilation!
 
-Après y avoir insufflé de l'énergie d'origine, l'aiguille se mit à tournoyer. La boussole s'éleva et grandit jusqu'à atteindre une trentaine de mètres de large. Elle flotta au-dessus de Wang Lin; quand celui-ci sauta, la boussole descendit pour s'enfoncer dans le sol, et Wang Lin s'assit en son centre.
+Après y avoir insufflé de l'énergie originelle, l'aiguille se mit à tournoyer. La boussole s'éleva et grandit jusqu'à atteindre une trentaine de mètres de large. Elle flotta au-dessus de Wang Lin; quand celui-ci sauta, la boussole descendit pour s'enfoncer dans le sol, et Wang Lin s'assit en son centre.
 
 « Cela devrait suffire! » Wang Lin frappa à nouveau son sac de rangement et le cadavre argenté apparut devant lui. En l'observant, il réfléchit un instant avant de presser impitoyablement le point entre ses sourcils!
 
@@ -108,7 +108,7 @@ Il y avait dans ses yeux une lueur de malveillance, mais aussi une intelligence 
 
 Le cadavre féminin était gravement blessé et, bien que son niveau de culture ait chuté, sa férocité était restée intacte. Elle se précipita sur Wang Lin pour le griffer sans pitié.
 
-L'expression de Wang Lin resta sereine et, alors que les griffes approchaient, un rayon de lumière bleue jaillit de ses yeux. La main de la créature toucha immédiatement cette lueur.
+L'expression de Wang Lin resta sereine et, alors que les griffes approchaient, un rayon de lumière bleue jaillit de son œil droit. La main de la créature toucha immédiatement cette lueur.
 
 Après avoir poussé un cri déchirant, la femme recula promptement. Malgré la rapidité de son retrait, ses mouvements étaient légers et elle parvint, contre toute attente, à ne toucher aucune des restrictions. Elle s'arrêta à une dizaine de mètres de Wang Lin. Une pointe d'intelligence brilla dans son regard alors qu'elle montrait les dents devant lui en poussant un rugissement.
 

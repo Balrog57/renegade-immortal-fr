@@ -20,7 +20,7 @@ Les deux s'observèrent durant un long moment. La férocité sur le visage de Ma
 
 « Les cultivateurs s'opposent aux cieux. Puisque nous empruntons cette voie sans retour, il est inévitable que nous disparaissions un jour. Je le comprends bien... Lorsque vous avez invité les trois d'entre nous dans la Terre des Esprits Démoniaques, vous ne nous avez pas forcés; nous étions tous volontaires. Je le comprends également... » Maître Yi Chen affichait une expression amère en regardant les cruches de vin éparpillées autour de lui. Il en saisit quelques-unes pour constater qu'elles étaient vides.
 
-Wang Lin tendit silencieusement la cruche qu'il tenait à Maître Yi Chen. Ce dernier prit une grande gorgée, et des larmes coulèrent sur ses joues tandis qu'il murmurait: « Je me déteste d'avoir un niveau de culture si bas. Je me hais de n'avoir aucun moyen de ressusciter mes deux frères. Je me hais de ne pas pouvoir me venger et de les avoir injustement lésés! »
+Wang Lin tendit silencieusement la cruche qu'il tenait à Maître Yi Chen. Ce dernier prit une grande gorgée, et des larmes coulèrent sur ses joues tandis qu'il murmurait: « Je me déteste d'avoir un niveau de culture si bas. Je me hais de n'avoir aucun moyen de ressusciter mes deux frères. Je me hais de ne pas pouvoir me venger! Je suis indigne devant leurs âmes défuntes! »
 
 À cet instant, Ling Er apporta du vin depuis la ville. Les yeux rougis par l'émotion, elle posa délicatement les cruches à côté de Maître Yi Chen.
 
@@ -30,11 +30,11 @@ Le corps de Maître Yi Chen trembla, ses yeux brillant d'excitation face à Wang
 
 « Est-ce vrai? »
 
-« C'est ma promesse! » Wang Lin posa la cruche au sol et regarda au loin. Comme s'il se remémorait quelque chose, il dit lentement: « La vie et la mort imprègnent l'existence. Une fois que vous les aurez comprises, vous les transcenderez... Vos deux frères ont encore vous pour vous porter en mémoire. Les cultivateurs comme nous sont souvent confrontés à la vie et à la mort. Combien de cultivateurs meurent à chaque instant? Combien de personnes se souviendront d'eux, et combien seront même mémorisées? »
+« C'est ma promesse! » Wang Lin posa la cruche au sol et regarda au loin. Comme s'il se remémorait quelque chose, il dit lentement: « La vie et la mort imprègnent l'existence. Une fois que vous les aurez comprises, vous les transcenderez... Vos deux frères ont encore vous pour leur rendre hommage, cela suffit. Nous, cultivateurs, ne maîtrisons plus notre propre vie ni notre propre mort. Dans l'immensité du champ d'étoiles, des cultivateurs meurent chaque jour. Combien de personnes se souviennent d'eux, et combien peuvent leur rendre hommage? »
 
 « Après avoir emprunté cette route anormale, nous devons percer les mystères de la vie et de la mort. Nous devons comprendre notre propre fin, ainsi que celle des autres... Lorsque j'ai ramené les cendres d'un vieil ami dans sa ville natale, j'ai entendu la comptine d'un enfant. »
 
-« "L'arbre à fleurs blanches fleurit au printemps. La fille ne sera pas prise par une famille de taoïstes. L'année dernière, le second Lang monta à la montagne, et un an plus tard, le premier Lang n'était qu'un sac d'os. Le cri de la fille accompagne les morts mais prend le cercueil pour famille... L'arbre à fleurs blanches fleurit au printemps et les enfants ne devraient pas être pris par les taoïstes. Si l'on m'interroge sur mon âge, je n'ai toujours pas trouvé mon Dao. Le chien aboie, le chat griffe, effrayant le taoïste jusqu'à sa demeure..." »
+« "L'arbre à fleurs blanches fleurit au printemps. La fille ne sera pas prise par une famille de taoïstes. L'année dernière, le second Lang monta à la montagne, et un an plus tard, le premier Lang n'était qu'un sac d'os. Le cri de la fille accompagne les morts mais prend le cercueil pour famille... L'arbre à fleurs blanches fleurit au printemps et les enfants ne devraient pas fréquenter les taoïstes. Si l'on m'interroge sur mon âge, je n'ai toujours pas trouvé mon Dao. Le chien aboie, le chat griffe, effrayant le taoïste jusqu'à sa demeure..." »
 
 « Cette simple comptine a su souligner la tristesse qui nous frappe, nous les cultivateurs. Maître Yi Chen, comprenez-le. Une fois que vous l'aurez compris, votre douleur s'atténuera... »
 
@@ -52,7 +52,7 @@ Il luttait contre cette douleur dans son cœur tout en arpentant le vaste chemin
 
 Hormis les crépitements de la fumée noire s'élevant du volcan, on entendait seulement le crépitement des flammes. À part cela, tout était plongé dans un silence absolu.
 
-Alors que Wang Lin restait assis dans ce silence, un cercueil se trouvait devant lui. Ce cercueil était fait de cristal et une femme reposait à l'intérieur. Sa peau était limpide et elle ne semblait pas morte du tout; elle paraissait plutôt dormir.
+Alors que Wang Lin restait assis dans ce silence, un cercueil se trouvait devant lui. Ce cercueil, semblable à du cristal, émettait une lueur claire, et une femme reposait à l'intérieur. Sa peau était limpide et elle ne semblait pas morte du tout; elle paraissait plutôt dormir.
 
 Cette femme n'avait pas une beauté capable de bouleverser le monde, ni un tempérament capable de ruiner des cités entières. Pourtant, aux yeux de Wang Lin, même la plus magnifique des jeunes filles ne pouvait absolument se comparer à la femme dans ce cercueil.
 
@@ -76,7 +76,7 @@ Auparavant, il ne saisissait pas vraiment les sentiments qui unissaient Zhou Yi 
 
 C'était une forme d'espoir spirituel, une sorte de persévérance et de lutte, mais aussi un sentiment de refus obstiné!
 
-« Wan Er, souviens-toi que même si les cieux veulent ta mort, je te ramènerai!!! » déclara Wang Lin avec une détermination défiant le ciel.
+« Wan Er, t'en souviens-tu? Je t'ai dit un jour que même si les cieux voulaient ta mort, je te ramènerais!!! » déclara Wang Lin avec une détermination défiant le ciel.
 
 Les volcans étaient la seule chose qui ne manquait pas sur ces planètes appartenant à la Secte Divine de l'Oiseau Vermillon. Ces volcans s'étaient formés dans des conditions particulières, faisant jaillir très fréquemment d'épaisses coulées de magma.
 

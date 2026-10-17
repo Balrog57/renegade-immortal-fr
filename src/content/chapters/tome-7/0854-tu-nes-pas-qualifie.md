@@ -36,7 +36,7 @@ Boum, boum, boum!
 
 La foudre à l'intérieur du Sceau Céleste atteignait son apogée. Pourtant, Wang Lin se retira directement vers le nuage de la rétribution divine. Il agita la main et les sceaux dorés brillèrent intensément.
 
-Wang Lin savait qu'il ne pourrait échapper au Dieu de Sang. Bien qu'il ait été blessé par l'étoile brisée de l'ancien dieu, Le Dieu de Sang n'était pas un adversaire qu'il pouvait affronter. Cependant, en empruntant la puissance de la rétribution divine, il avait peut-être une chance de s'en sortir!
+Wang Lin savait qu'il ne pourrait échapper au Dieu de Sang. Bien qu'il ait été blessé par la frappe brise-étoiles de l'ancien dieu, le Dieu de Sang n'était pas un adversaire qu'il pouvait affronter. Cependant, en empruntant la puissance de la rétribution divine, il avait peut-être une chance de s'en sortir!
 
 Le démon qui émergea du Dieu de Sang fixa froidement Wang Lin. Il se rétracta dans le corps du Dieu de Sang, lequel dégagea une lueur démoniaque. D'un seul pas, il avança et tendit la main vers la tête de Wang Lin!
 
@@ -50,11 +50,11 @@ Avant d'atteindre le stade du Scruteur du Nirvana, Wang Lin ne pouvait créer qu
 
 Des craquements retentirent dans les environs. Cette bourrasque était si puissante que l'espace environnant commença à se fissurer. Au même moment, la main de Wang Lin forma un sceau et le Sceau Céleste brilla intensément. Un éclair de rétribution divine se forma rapidement et fonça vers le Dieu de Sang.
 
-Wang Lin frappa son sac de stockage et l'épée céleste apparut dans sa main. À ce stade, il ne se souciait plus de l'énergie originelle et enchaîna les Coups Célestes. Il perdait le compte de ses attaques tant elles s'enchaînaient avec rapidité.
+Wang Lin frappa son sac de stockage et l'épée céleste apparut dans sa main. À ce stade, il ne se souciait plus de l'énergie originelle et enchaîna les Tranchants Célestes. Il perdait le compte de ses attaques tant elles s'enchaînaient avec rapidité.
 
 L'expression du Dieu de Sang restait calme alors qu'il s'approchait nonchalamment. Il pointa le ciel du doigt, et l'éclair formé par le Sceau Céleste s'effondra.
 
-Puis le Dieu de Sang effectua un geste du doigt. L'attaque dévastatrice des cent Coups Célestes fut percutée par une force colossale avant de s'évanouir!
+Puis le Dieu de Sang effectua un geste du doigt. L'attaque dévastatrice des cent Tranchants Célestes fut percutée par une force colossale avant de s'évanouir!
 
 Enfin, le Dieu de Sang pointa vers l'avant, et le vent glacial craché par les dragons noirs se brisa. Même les deux dragons noirs poussèrent des gémissements de douleur avant d'être tranchés en deux par une puissance inimaginable.
 
@@ -72,11 +72,11 @@ Les paroles contenant des lois utilisées par le Dieu de Sang étaient manifeste
 
 Même Yao Yun, au loin, cracha du sang tandis que son corps perdait toute vigueur. Ses yeux étaient emplis de terreur et il se retira promptement.
 
-La zone entière fut saturée par cette intention meurtrière inimaginable. Par ailleurs, à cet instant précis, tous les cultivateurs du Domaine Sud purent ressentir une intention meurtrière surpuissante émanant de l'énergie originelle du monde. Cela fit cracher du sang à de nombreux cultivateurs; bien que cela ne les fût pas mortels, ils en furent blessés.
+La zone entière fut saturée par cette intention meurtrière inimaginable. Par ailleurs, à cet instant précis, tous les cultivateurs du Domaine Sud purent ressentir une intention meurtrière surpuissante émanant de l'énergie originelle du monde. Cela fit cracher du sang à de nombreux cultivateurs; bien que cela ne fût pas mortel, ils en furent blessés.
 
 Et en ce moment, le Dieu de Sang, au centre de la tempête, le ressentit avec une acuité totale. Ses pupilles se rétractèrent violemment.
 
-Le dragon noir devant Wang Lin, qui avait été tranché, poussa un rugissement et se reconstitua. Parmi les étoiles, un jeune homme vêtu de blanc, aux cheveux noirs élégants, s'avança lentement!
+Le dragon noir devant Wang Lin, qui avait été tranché, poussa un rugissement et se reconstitua. Parmi les étoiles, un jeune homme vêtu de blanc, aux cheveux noirs élégants et à l'œil droit d'un rouge sombre, s'avança lentement!
 
 Pour la première fois, l'expression du Dieu de Sang changea radicalement!
 
@@ -114,7 +114,7 @@ Le corps du Dieu de Sang trembla tandis qu'il se retirait précipitamment. Il fi
 
 Le Dieu de Sang ignorait que Qing Shui éprouvait une immense culpabilité envers son maître. Ce sentiment était profond, mais il n'y aurait aucune chance de réparer le passé.
 
-Après son réveil, lorsqu'il vit Wang Lin utiliser l'Invoque le Vent et qu'il recouvra ses souvenirs lors de son premier combat contre Maître Yan Leizi, une émotion complexe envers Wang Lin s'était développée en lui.
+Après son réveil, lorsqu'il vit Wang Lin utiliser l'Invoque le Vent et qu'il recouvra ses souvenirs lors de son combat contre Maître Yan Leizi, une émotion complexe envers Wang Lin s'était développée en lui.
 
 « Même s'il a tort, c'est à moi de le discipliner pour le compte du Maître. Tu n'es pas qualifié! » Alors que le Seigneur Céleste Qing Shui parlait froidement, les six dragons noirs rugirent soudainement.
 

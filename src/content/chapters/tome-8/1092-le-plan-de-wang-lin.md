@@ -30,15 +30,15 @@ Le premier était Ta Shan. Il ne s'était pas avancé pour saluer Wang Lin, pré
 
 Son expression était empreinte d'une grande amertume; après un long moment, il laissa échapper un soupir avant de fermer les yeux pour poursuivre sa culture. Cependant, son esprit ne parvint nullement à s'apaiser.
 
-À ses côtés, un autre homme partageait ce même sentiment. Assis sur le mur d'une cité et entouré de cruches de vin, il en saisit une et prit une grande gorgée, le visage marqué par la tristesse.
+Un autre homme partageait ce même sentiment. Assis sur le mur d'une cité et entouré de cruches de vin, il en saisit une et prit une grande gorgée, le visage marqué par la tristesse.
 
 Contrastant avec l'effervescence qui entourait Wang Lin, ce vieil homme paraissait très morne. Derrière lui, Ling Er l'accompagnait en silence.
 
-Outre Ta Shan et Maître Chen Yi, une autre personne était habitée par des sentiments contradictoires: Xu Liguo. Enveloppé de flammes, il continuait de maudire sans jamais se lasser.
+Outre Ta Shan et Maître Yi Chen, une autre personne était habitée par des sentiments contradictoires: Xu Liguo. Enveloppé de flammes, il continuait de maudire sans jamais se lasser.
 
 « Espèce de meurtrier, Wang Lin! Pourquoi n'as-tu pas encore laissé ton Grand-père Xu sortir?! Attends un peu, attends seulement! »
 
-Au cours des deux jours suivants, les anciens des trois autres Sectes Divines vinrent féliciter Wang Lin pour son accession au titre d'Empereur Divin de l'Oiseau Vermillon. La Secte Divine de l'Oiseau Vermillon était en pleine effervescence. Wang Lin se montra très poli envers les anciens des trois autres sectes. Après tout, les Quatre Sectes Divines partageaient un destin commun, et la majorité des anciens présents étaient au Domaine de l'Esprit Démon. Ayant été témoins des sorts de Wang Lin, ils ne pouvaient naturellement ressentir de dédain face au fait qu'il n'était qu'un cultivateur du stade Scruteur du Nirvana.
+Au cours des deux jours suivants, les anciens des trois autres Sectes Divines vinrent féliciter Wang Lin pour son accession au titre d'Empereur Divin de l'Oiseau Vermillon. La Secte Divine de l'Oiseau Vermillon était en pleine effervescence. Wang Lin se montra très poli envers les anciens des trois autres sectes. Après tout, les Quatre Sectes Divines partageaient un destin commun, et la majorité des anciens présents étaient allés à la Terre des Esprits Démoniaques. Ayant été témoins des sorts de Wang Lin, ils ne pouvaient naturellement ressentir de dédain face au fait qu'il n'était qu'un cultivateur du stade Scruteur du Nirvana.
 
 Après les civilités d'usage, des lieux de séjour furent aménagés pour les anciens des trois sectes, lesquels portaient une grande attention à Wang Lin.
 
@@ -52,13 +52,13 @@ Cependant, Wang Lin ne s'attarda pas sur ces formalités. Lorsqu'il accepta de d
 
 Durant les trois années suivantes, le vieil Empereur Divin l'avait beaucoup aidé. Bien que cela fît partie du marché, Wang Lin se sentait tenu de lui rendre cette faveur.
 
-Pourtant, Wang Lin savait qu'en raison de sa situation actuelle, il ne pourrait pas rester en un lieu trop longtemps. Durant ces trois années, il s'était souvent réveillé de sa culture avec une sensation de malaise, comme si sa peau le démangeait.
+Pourtant, Wang Lin savait qu'en raison de sa situation actuelle, il ne pourrait pas rester en un lieu trop longtemps. Durant ces trois années, il s'était souvent réveillé de sa culture l'esprit agité, comme saisi d'une sourde angoisse qui lui faisait battre le cœur.
 
 Si cela ne s'était produit qu'une ou deux fois, ce n'aurait pas été grave, mais au cours de ces trois dernières années, Wang Lin avait ressenti cela plus de dix fois. Cette sensation devenait de plus en plus nette et il pressentait vaguement qu'elle émanait de la planète Suzaku.
 
 Wang Lin savait pertinemment qu'à mesure que son niveau de culture augmentait, sa capacité à pressentir le danger s'aiguisait également. Il était évident que ce sentiment de péril provenait de Tuo Sen!
 
-Le rugissement de Tuo Sen, lorsqu'il avait quitté le Domaine de l'Ancien Dieu il y a mille ans, semblait encore résonner dans l'esprit de Wang Lin.
+Le rugissement de Tuo Sen, lorsqu'il avait quitté la Terre de l'Ancien Dieu il y a plus de mille ans, semblait encore résonner dans l'esprit de Wang Lin.
 
 « Un jour, je viendrai te chercher pour reprendre l'héritage de Tu Si! »
 
@@ -82,7 +82,7 @@ Wang Lin s'était cultivé pendant plus de mille ans; il n'était plus le petit 
 
 À ce moment précis, un flux de flammes surgit du lointain. Lorsqu'il atteignit la centaine de pieds autour de Wang Lin, les flammes se dissipèrent pour révéler un ancien vêtu de rouge. Le vieil homme, d'un calme olympien, regarda Wang Lin et déclara lentement: « Empereur Divin, la Secte des Cadavres, Luotian et le pays de Chu Yun ont tous envoyé des émissaires; ils attendent dans la salle arrière. Souhaitez-vous les recevoir? »
 
-Cet ancien n'était pas l'un des six qui s'étaient rendus au Domaine de l'Esprit Démon. Wang Lin savait seulement qu'il s'appelait Xu et qu'il se trouvait au stade intermédiaire du Briseur du Nirvana. Il jouissait d'un grand prestige parmi les anciens de ce rang.
+Cet ancien n'était pas l'un des six qui s'étaient rendus à la Terre des Esprits Démoniaques. Wang Lin savait seulement qu'il s'appelait Xu et qu'il se trouvait au stade intermédiaire du Briseur du Nirvana. Il jouissait d'un grand prestige parmi les anciens de ce rang.
 
 Au cours des derniers jours, de nombreux émissaires de l'Alliance étaient venus le féliciter. Wang Lin n'avait naturellement pas reçu ces personnes, car les membres et les anciens de la Secte Divine de l'Oiseau Vermillon s'en chargeaient.
 
@@ -102,7 +102,7 @@ Hormis l'ancien Empereur Divin et les trois Grands Anciens de la Secte Divine du
 
 Pour la première fois, il sentit que Wang Lin était un être d'une profondeur et d'un mystère insondables.
 
-La salle arrière de la Secte Divine de l'Oiseau Vermillon était entièrement bâtie en jade rouge. De loin, elle était saisissante, entourée d'arbres pourpres dont même le sol était pavé de rouge. Des vagues de chaleur intense émanaient du bâtiment et se propageaient dans les environs.
+La salle arrière de la Secte Divine de l'Oiseau Vermillon était entièrement bâtie en jade rouge. De loin, elle était saisissante, entourée d'arbres d'un rouge vif; même les sentiers du sol étaient tout rouges. Des vagues de chaleur intense émanaient du bâtiment et se propageaient dans les environs.
 
 À cet instant, deux hommes et une femme étaient assis à l'intérieur de la salle.
 
@@ -112,7 +112,7 @@ Le vieil homme portait une robe rouge et dégageait une aura de majesté. Bien q
 
 Quant au jeune homme chauve, il paraissait très ordinaire sous sa robe verte. Il semblait calme, bien qu'une lueur de confusion traverse parfois son regard avant de s'effacer rapidement.
 
-Toutefois, la femme remarqua immédiatement que dès que cette confusion apparaissait dans ses yeux, l'énergie d'origine environnante semblait marquer un temps d'arrêt.
+Toutefois, la femme remarqua immédiatement que dès que cette confusion apparaissait dans ses yeux, l'énergie originelle environnante semblait marquer un temps d'arrêt.
 
 Si Wang Lin avait été présent, il aurait instantanément reconnu le vieil homme et le jeune chauve, car il les connaissait.
 

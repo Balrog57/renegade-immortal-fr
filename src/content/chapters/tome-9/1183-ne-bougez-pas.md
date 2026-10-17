@@ -10,19 +10,19 @@ slug: ne-bougez-pas
 
 Le garçon cria: « Encore cinq respirations! »
 
-La main du Maître Pin Cendré forma rapidement divers sceaux alors que des dizaines de milliers d'épées convergeaient pour s'abattre sur le dragon. La créature poussa un rugissement et lutta avec force, faisant cracher du sang au garçon. Les veines de son corps étaient toutes saillantes et ses yeux injectés de sang.
+La main de Maître Pin Cendré forma rapidement divers sceaux alors que plus de dix mille épées convergeaient pour s'abattre sur le dragon. La créature poussa un rugissement et lutta avec force, faisant cracher du sang au garçon. Les veines de son corps étaient toutes saillantes et ses yeux injectés de sang.
 
 La glace de la vieille femme en vert se rapprocha et toucha le dragon. Ce dernier trembla et du givre apparut instantanément. Bientôt, la glace recouvrit l'intégralité du dragon.
 
 Des filaments de gaz noir commencèrent à s'échapper du dragon pour être absorbés par la glace. Cette scène attira les regards de tous vers la vieille femme. Wang Lin remarqua naturellement l'étrangeté de cette glace: elle était capable d'absorber la vitalité du dragon.
 
-Soudain, le dragon redressa la tête et poussa un rugissement. Le garçon cracha du sang et ne put plus maintenir le sceau.
+Soudain, sous l'effet de la douleur, le dragon redressa brusquement la tête, et les marques du soleil et de la lune qui l'entouraient s'effondrèrent dans un grondement. Le garçon cracha du sang et ne put plus maintenir le sceau.
 
-Privé du sceau de réincarnation, le dragon rugit. Une unique corne trônait sur sa tête et, dans ses mouvements, son corps émergea du brouillard. À mesure qu'il sortait, la densité de la brume diminuait.
+Privé du sceau de réincarnation, le dragon rugit. Une unique corne noire trônait sur sa tête et, dans ses mouvements, son corps émergea du brouillard. À mesure qu'il sortait, la densité de la brume diminuait.
 
 Une fois le sceau rompu, le dragon s'agita et toute la glace environnante s'effondra instantanément. Lorsque les fragments de glace retournèrent vers la vieille femme en vert, des filaments de gaz noir pénétrèrent son corps, et ses yeux devinrent plus éclatants encore.
 
-« Ces vieux monstres cachent encore leurs véritables sorts. C’est intéressant! » ricana Wang Lin alors qu'il s'élançait au-dessus de la tête du dragon en pleine ascension. Il chargea vers le brouillard qui s'amincissait.
+« Ces vieux monstres cachent encore leurs véritables sorts. C’est intéressant! » ricana Wang Lin intérieurement. Son corps filait; au moment où le dragon levait la tête, prêt à s'envoler, il chargea vers la queue de la bête, là où le brouillard s'amincissait.
 
 Dès que le dragon passerait de sa forme brumeuse à une forme solide, tous les cristaux d'origine se dissiperaient pour devenir une partie de l'énergie originelle de son corps.
 
@@ -38,19 +38,19 @@ Peu de temps après, Wang Lin remarqua que le brouillard autour de lui s'agitait
 
 Après avoir estimé la quantité de cristaux d'origine récoltée, Wang Lin décida de cesser sa collecte et se déplaça sur le côté. Tandis qu'il bougeait, le brouillard commença à se condenser encore plus rapidement.
 
-En un instant, toute la brume disparut, laissant place à la queue du dragon. La créature mesurait environ 10 000 pieds de haut et la moitié de son corps était déjà suspendue dans les airs. Cette section caudale s'éleva avec le reste du corps.
+En un instant, toute la brume disparut, laissant place à la queue du dragon. La créature mesurait environ 10 000 pieds de long et plus de la moitié de son corps était déjà suspendue dans les airs. Cette section caudale s'éleva avec le reste du corps.
 
-L'homme nommé Pang avait le visage livide, affalé contre le flanc de la montagne, sa poitrine n'étant plus qu'un désastre sanglant. Le Maître Pin Cendré, la vieille femme en vert et le garçon combattaient au-dessus de la tête du dragon, utilisant tous leurs sorts pour empêcher l'ascension de la créature.
+L'homme nommé Pang avait le visage livide, affalé contre le flanc de la montagne, sa poitrine n'étant plus qu'un désastre sanglant. Maître Pin Cendré, la vieille femme en vert et le garçon combattaient au-dessus de la tête du dragon, utilisant tous leurs sorts pour empêcher l'ascension de la créature.
 
-La corne noire sur le front du dragon dégageait une lueur sombre; à chaque éclat, le Maître Pin Cendré et ses compagnons étaient contraints d'esquiver. Le dragon crachait un brouillard empoisonné à l'odeur fétide, extrêmement difficile à contrer. Pourtant, il était lui aussi gravement blessé, le sang coulant de ses plaies pour imbiber ses écailles.
+La corne noire sur le front du dragon dégageait une lueur sombre; à chaque éclat, Maître Pin Cendré et ses compagnons étaient contraints d'esquiver. Le dragon crachait un brouillard empoisonné à l'odeur fétide, extrêmement difficile à contrer. Pourtant, il était lui aussi gravement blessé, le sang coulant de ses plaies pour imbiber ses écailles.
 
 À cet instant, le dragon poussa un rugissement capable de secouer les cieux, faisant trembler les montagnes environnantes et s'effondrer les rochers. Peu après, la corne noire émit une lumière aveuglante et un filet de foudre noire se propagea. Simultanément, une énergie originelle infinie convergea, absorbant même une partie de la lumière aux sept couleurs.
 
 *Roar!*
 
-Le rugissement du dragon fit vaciller l'esprit de chacun. Tandis que la bête hurlait, le filet de foudre noire s'étendit sur 1 000 pieds supplémentaires. À mesure que l'énergie originelle et la lumière aux sept couleurs étaient absorbées, des illusions commencèrent à surgir autour du dragon.
+Le rugissement du dragon fit vaciller l'esprit de chacun. Tandis que la bête hurlait, le filet de foudre noire s'étendit sur un rayon de 1 000 pieds. À mesure que l'énergie originelle et la lumière aux sept couleurs étaient absorbées, des illusions commencèrent à surgir autour du dragon.
 
-Ces ombres illusoires n'étaient autres que des dragons. Alors qu'ils encerclaient la zone, le Maître Pin Cendré et son groupe furent forcés de battre en retraite.
+Ces ombres illusoires n'étaient autres que des dragons. Alors qu'ils encerclaient la zone, Maître Pin Cendré et son groupe furent forcés de battre en retraite.
 
 Le dragon était sur le point de s'envoler. Une fois dans les airs, ce serait un désastre pour les cultivateurs incapables de voler à haute altitude.
 
@@ -76,9 +76,9 @@ Alors que Wang Lin l'écrasait vers le sol, le dragon fut incapable de lutter et
 
 Un fracas de tonnerre résonna dans le ciel lorsque le gigantesque dragon s'écrasa au sol. Des pans entiers de montagnes s'effondrèrent de chaque côté, et il fallut un long moment pour que le calme revienne.
 
-Une fois au sol, le corps du dragon eut des spasmes, sa tête commença à fondre et un gaz noir s'en échappa. Chen Tianjun s'extirpa de la gueule de la bête et recula de quelques pas.
+Une fois au sol, le corps du dragon eut des spasmes, sa tête commença à fondre et un gaz noir s'en échappa. Chen Tianjun s'extirpa de la tête de la bête et recula de quelques pas.
 
-Le Maître Pin Cendré prit une profonde inspiration. Il fixa le dragon, puis Wang Lin, un frisson glacial lui glaçant le cœur.
+Maître Pin Cendré prit une profonde inspiration. Il fixa le dragon, puis Wang Lin, un frisson glacial lui glaçant le cœur.
 
 Même le garçon se lécha les lèvres, un soupçon d'effroi dans le regard en observant Wang Lin.
 
@@ -94,7 +94,7 @@ Sa main droite plongea dans le vide, et la pierre de jade ainsi qu'une pilule ap
 
 Tenant la pierre de jade, Wang Lin s'assit contre la montagne. Son Sens Divin parcourut le contenu du jade et il commença à en lire attentivement les inscriptions.
 
-Le Maître Pin Cendré rejoignit l'homme nommé Pang. Sa main droite tapota le dos du vieil homme pour lui tendre quelques pilules avant de s'asseoir. Il jetait parfois des regards mystérieux vers Wang Lin.
+Maître Pin Cendré rejoignit l'homme nommé Pang. Sa main droite tapota le dos du vieil homme pour lui tendre quelques pilules avant de s'asseoir. Il jetait parfois des regards mystérieux vers Wang Lin.
 
 Le garçon, tenant la pilule de réincarnation, afficha un air d'excitation avant de la ranger. Ce n'était pas le moment de la consommer. Il prit une grande inspiration et s'assit pour se soigner.
 
@@ -102,13 +102,13 @@ Chen Tianjun s'assit également. Durant cette bataille, alors que tous étaient 
 
 Quant à la vieille femme en vert, elle s'approcha du cadavre du dragon. Elle posa sa main sur la bête et le gaz noir s'échappa du corps pour pénétrer le sien.
 
-Après quelques heures de repos, le Maître Pin Cendré observa tout le monde et déclara d'une voix lente: « Il y a beaucoup de bêtes de brume de rang 12 ici; cependant, plus le danger est grand, plus notre récolte sera abondante. »
+Après quelques heures de repos, Maître Pin Cendré observa tout le monde et déclara d'une voix lente: « Il y a beaucoup de bêtes de brume de rang 12 ici; cependant, plus le danger est grand, plus notre récolte sera abondante. »
 
 À cet instant, il ne restait plus que des os du cadavre du dragon près de la vieille femme. Le visage de cette dernière devint rouge et elle parut, de manière inattendue, rajeunir légèrement.
 
 L'homme nommé Pang s'était beaucoup rétabli. Il se leva et contempla le sentier étroit désormais libéré de toute brume. Ses yeux brillèrent d'espoir.
 
-Le Maître Pin Cendré se leva et avança: « Tout le monde, en route. »
+Maître Pin Cendré se leva et avança: « Tout le monde, en route. »
 
 La vieille femme en vert et Chen Tianjun se levèrent simultanément. Seul le garçon hésita un instant avant de suivre le mouvement.
 
@@ -116,6 +116,6 @@ Wang Lin, assis à l'écart, les regardait s'éloigner tout en tenant la pierre 
 
 « Cet endroit est... » La pensée de Wang Lin fut interrompue lorsqu'il tourna soudainement la tête pour regarder derrière le groupe. Ses pupilles se rétractèrent et chaque pore de sa peau se hérissa!
 
-Au même instant, le Maître Pin Cendré et le garçon s'arrêtèrent brusquement. Immédiatement après, la vieille femme et Chen Tianjun remarquèrent également l'anomalie. L'homme nommé Pang fut le dernier à s'en rendre compte.
+Au même instant, Maître Pin Cendré et le garçon s'arrêtèrent brusquement. Immédiatement après, la vieille femme et Chen Tianjun remarquèrent également l'anomalie. L'homme nommé Pang fut le dernier à s'en rendre compte.
 
-Les yeux du Maître Pin Cendré se remplirent de terreur alors qu'il transmettait précipitamment un message par Sens Divin: « Quoi qu'il arrive, ne bougez pas! »
+Les yeux de Maître Pin Cendré se remplirent de terreur alors qu'il transmettait précipitamment un message par Sens Divin: « Quoi qu'il arrive, ne bougez pas! »

@@ -86,11 +86,11 @@ Cette planète de culture regorgeait d'une énergie originelle dense et dégagea
 
 D'innombrables murmures émanèrent de la planète de culture. Ces murmures se transformèrent en une énergie étrange qui pénétra le corps du Shui Daozi. Ses yeux s'illuminèrent et il rugit: « Deux milliards de disciples du Yin et du Yang, rugissez! Rugissez! Rugissez! »
 
-Le Shui Daozi pointa le ciel, puis pointa rapidement trois fois le bras de vent qui s'avançait vers lui! À chaque mouvement, la planète de culture derrière lui tremblait. L'ombre d'une planète de culture apparaissait et fonçait vers le bras pour charger le Shui Daozi.
+Le Shui Daozi pointa le ciel, puis pointa rapidement trois fois le bras de vent qui s'avançait vers lui! À chaque mouvement, la planète de culture derrière lui tremblait. L'ombre d'une planète de culture apparaissait et fonçait vers le bras, suivant le doigt du Shui Daozi.
 
 Après ces trois pointages, trois grandes ombres de planètes de culture se précipitèrent sur la main de vent. Une pression terrifiante s'abattit sur le vide!
 
-« Tout comme ton corps originel, ces deux milliards de disciples du Yin et du Yang ne sont que des déchets, ni mâles ni femelles! » ricana la voix antique. Le bras de vent ne ralentit pas et continua sa course.
+« Tout comme ton corps originel, ces deux milliards de disciples du Yin et du Yang ne sont que des êtres mutilés, ni mâles ni femelles! » ricana la voix antique. Le bras de vent ne ralentit pas et continua sa course.
 
 *Rumble, rumble, rumble!* Trois impacts sourds résonnèrent.
 

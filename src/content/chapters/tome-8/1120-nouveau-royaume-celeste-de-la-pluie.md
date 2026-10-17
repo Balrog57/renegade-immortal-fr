@@ -32,23 +32,23 @@ Wang Wei n'oublierait jamais qu'il n'était alors qu'un simple et peu célèbre 
 
 « Demandes-tu en tant que junior ou en tant que mon disciple? » Le regard serein de Qing Lin se posa sur Wang Lin.
 
-Wang Lin réfléchit silencieusement un instant avant de désigner Situ et de dire respectueusement: «... Maître, cet homme est un ami de ce disciple, et il est atteint d'un poison céleste... »
+Wang Lin réfléchit silencieusement un instant avant de désigner Situ Nan et de dire respectueusement: «... Maître, cet homme est un ami de ce disciple, et il est atteint d'un poison céleste... »
 
 L'expression de Qing Lin resta imperturbable tandis qu'il fixait Situ Nan. Il dit lentement: « Quel talent prodigieux. Es-tu prêt à me prendre pour maître? »
 
-Bien qu'arrogant, Situ Nan n'était pas aussi calme que Wang Lin face à Qing Lin. Après tout, il n'avait pas participé au sauvetage de l'Empereur Céleste et restait frappé par sa présence. Il hésita un instant avant de déclarer respectueusement: « Ceci... ce disciple salue le Maître... »
+Bien qu'arrogant, Situ Nan n'était pas aussi calme que Wang Lin face à Qing Lin. Après tout, il n'avait pas pris part à tout le sauvetage de l'Empereur Céleste et éprouvait une profonde révérence à son égard. Il hésita un instant avant de déclarer respectueusement: « Ceci... ce disciple salue le Maître... »
 
 Juste après avoir parlé, Situ Nan leva les yeux et ajouta: « Mais Maître, ce vieil... ce disciple aime la liberté; vous ne pourrez donc pas me restreindre. »
 
 Cette phrase fit rire Qing Lin. « Une fois ton poison dissipé, tu pourras agir à ta guise. Pourquoi devrais-je restreindre ta liberté? »
 
-Sur ces mots, Qing Lin secoua la tête avec bienveillance. Il se leva et posa sa main sur l'épaule de sa fille, Qing Shuang, et dit doucement: « Qing Shuang, je vais emprunter l'énergie d'origine céleste en ton corps. »
+Sur ces mots, Qing Lin secoua la tête avec bienveillance. Il se leva et posa sa main sur l'épaule de sa fille, Qing Shuang, et dit doucement: « Qing Shuang, je vais emprunter l'énergie céleste en ton corps. »
 
-Soudain, une puissante force de succion émana de la main droite de Qing Lin, et un mince filet d'énergie d'origine céleste se détacha de Qing Shuang pour rejoindre sa paume.
+Soudain, une puissante force de succion émana de la main droite de Qing Lin, et un mince filet d'énergie céleste se détacha de Qing Shuang pour rejoindre sa paume.
 
-Ce n'était qu'une infime quantité, un simple éclat argenté. C'était si peu que même le maigre peu de Qi d'origine que Wang Lin possédait autrefois en contenait plusieurs fois davantage. Pourtant, ce fragment d'énergie brillait intensément dans la main de Qing Lin.
+Ce n'était qu'une infime quantité, un simple filet. C'était si peu que même le maigre peu d'énergie céleste que Wang Lin possédait autrefois en contenait plusieurs fois davantage. Pourtant, ce filet d'énergie se changea en une lumière dorée éblouissante dans la main de Qing Lin.
 
-Bien que cette lueur ne fût pas aveuglante, elle illumina tout le temple. Ce sanctuaire verdoyant n'était plus vert; il rayonnait comme un soleil.
+Bien que cette lueur ne s'étendît pas à perte de vue, elle illumina tout le temple. Ce temple à la lumière verte n'était plus vert; il rayonnait d'un éclat doré comme un soleil.
 
 Le visage de Qing Lin demeura serein alors qu'il marchait lentement vers l'extérieur du temple. Il flotta dans le vide et contempla les fragments dérivant au loin. En regardant ce qui fut autrefois son foyer, une expression d'amertume marqua ses traits.
 
@@ -68,7 +68,7 @@ Les vortex engendrés par l'effondrement semblèrent interrompre leur rotation �
 
 Qing Shuang observait le dos de son père sans aucune émotion apparente. Depuis ses premiers souvenirs, ce père avait été l'épine dorsale du Royaume Céleste de la Pluie. Il n'avait jamais eu de temps pour elle, toujours absorbé par les affaires du royaume ou sa propre culture.
 
-Qing Shuang se souvenait encore très bien de l'effondrement. Le Royaume Céleste de la Pluie avait été bâti par le sang et la sueur de son père. Pourtant, en le voyant s'écrouler, elle n'avait pas ressenti de tristesse, mais plutôt un certain soulagement.
+Qing Shuang se souvenait encore très bien de l'effondrement. Le Royaume Céleste de la Pluie avait été bâti par le sang et la sueur de son père. Pourtant, en le voyant s'écrouler sous ses yeux, Qing Lin n'avait pas ressenti de tristesse, mais plutôt un certain soulagement.
 
 C'était un sentiment complexe qu'elle-même ne parvenait pas à nommer. Cependant, en voyant son père tenter de reconstruire le royaume, une pointe de douleur lui transperça le cœur.
 
@@ -108,13 +108,13 @@ Son niveau de culture n'avait pas progressé après avoir quitté la mer de cons
 
 C'était le présent de Qing Lin.
 
-Autrefois, lorsque la perle transcendante s'était activée, Wang Lin avait aperçu la troisième étape derrière la porte, mais ce n'était qu'une vision... Qing Lin lui avait permis de ressentir les sorts d'un cultivateur de la troisième étape, ce qui était un trésor inestimable pour lui. Cela rendait sa voie plus limpide encore.
+Autrefois, lorsque la Perle Défiant le Ciel s'était activée, Wang Lin avait aperçu la troisième étape derrière la porte, mais ce n'était qu'une vision... Qing Lin lui avait permis de ressentir les sorts d'un cultivateur de la troisième étape, ce qui était un trésor inestimable pour lui. Cela rendait sa voie plus limpide encore.
 
 Alors qu'il continuait sa méditation, une voix extrêmement fatiguée résonna dans son esprit.
 
 « Wang Lin, viens me voir. »
 
-Wang Lin leva la tête vers le temple et se leva. Il marcha calmement vers l'édifice et ne lui fallut que peu de temps pour franchir le seuil.
+Wang Lin leva la tête vers le temple et se leva. Il marcha calmement vers l'édifice et il ne lui fallut que peu de temps pour franchir le seuil.
 
 Dès qu'il pénétra dans le temple, Wang Lin s'arrêta net. Devant lui siégeait un vieil homme dont les traits rappelaient ceux de Qing Lin. En y regardant de plus près, il s'agissait bien de l'Empereur Céleste Qing Lin.
 

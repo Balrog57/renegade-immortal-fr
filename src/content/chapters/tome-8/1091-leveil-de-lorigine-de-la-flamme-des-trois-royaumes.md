@@ -83,7 +83,7 @@ S'il y avait une différence, c'était que ce corps puissant permettrait à l'en
 
 Il n'était même pas nécessaire d'évoquer la Nuit Déchirée, qu'il ne pouvait utiliser qu'en des occasions spéciales. Wang Lin ignorait que sa technique de la Nuit Déchirée s'était propagée partout au cours de ces trois années, déclenchant une tempête colossale au sein de l'Alliance.
 
-Non seulement la Nuit Déchirée avait tué Maître Vide, mais deux avatars de l'Omniscient avaient été éliminés et un autre gravement blessé. Un tel palmarès avait permis à Wang Lin de devenir un cultivateur de premier rang du jour au lendemain!
+Non seulement la Nuit Déchirée avait tué Maître du Vide, mais deux avatars de l'Omniscient avaient été éliminés et un autre gravement blessé. Un tel palmarès avait permis à Wang Lin de devenir un cultivateur de premier rang du jour au lendemain!
 
 « Quoi qu'il en soit, tu es un membre de la Secte Divine de l'Oiseau Vermillon, je t'accorderai donc une mort par les flammes! » Wang Lin agita sa main droite et, à cet instant, un corps spirituel fantomatique apparut derrière lui.
 
@@ -101,7 +101,7 @@ La voix froide résonna, chargée de la puissance qui commande toutes les flamme
 
 Ces deux mots suffirent à faire trembler les flammes entourant Ren Tao, qui se précipitèrent contre lui de manière inattendue. En cette situation critique, l'armure floue de Ren Tao jaillit comme une épée volante vers Wang Lin.
 
-L'esprit de Ren Tao vacilla. Il ne pensait pas que Wang Lin puisse contrôler ses propres flammes. Il savait que c'était sa dernière chance: si ce coup ne blessait pas ou ne tuait pas sérieusement Wang Lin, il serait en grand danger une fois les flammes arrivées à bout de bras.
+L'esprit de Ren Tao vacilla. Il ne pensait pas que Wang Lin puisse contrôler ses propres flammes. Il savait que c'était sa dernière chance: si ce coup ne blessait pas ou ne tuait pas sérieusement Wang Lin, il serait de nouveau en grand danger dès que les flammes derrière lui se propageraient.
 
 « Un seul coup suffira à lui ôter la vie! »
 

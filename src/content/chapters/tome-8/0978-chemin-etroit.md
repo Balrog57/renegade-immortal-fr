@@ -6,15 +6,15 @@ bookTitle: "Alliance's Secret"
 en: Chapter 978 - Narrow Road
 slug: chemin-etroit
 ---
-Son énergie d'origine de cultivateur au stade intermédiaire du Scruteur du Nirvana balaya la planète Da Lou comme une tempête. Un vortex se forma, prenant Wang Lin pour centre. Ce vortex hurlait en enveloppant la planète entière.
+Sa culture, au sommet du stade intermédiaire du Scruteur du Nirvana, se changea en une immense énergie d'origine qui balaya la planète Da Luo comme une tempête. Un vortex se forma, prenant Wang Lin pour centre. Ce vortex hurlait en enveloppant la planète entière.
 
-Soudain, chaque disciple de la Secte de l'Épée de Da Lou eut l'impression qu'une montagne s'abattait sur lui. Leur énergie spirituelle commença à circuler d'elle-même pour résister; c'était comme s'ils ne pourraient pas survivre sans cet effort.
+Soudain, chaque disciple de la Secte de l'Épée de Da Luo eut l'impression qu'une montagne s'abattait sur lui. Leur énergie spirituelle commença à circuler d'elle-même pour résister; c'était comme s'ils ne pourraient pas survivre sans cet effort.
 
-De loin, on pouvait voir un vortex déchaîné au-dessus de la planète Da Lou. Wang Lin se tenait au cœur du tourbillon, ses cheveux flottant au vent. Les mains derrière le dos, il leva la tête vers les cieux.
+De loin, on pouvait voir un vortex déchaîné au-dessus de la planète Da Luo. Wang Lin se tenait au cœur du tourbillon, ses cheveux flottant au vent. Les mains derrière le dos, il leva la tête vers les cieux.
 
 Ses yeux brillaient intensément, comme s'ils contenaient l'éclatante voûte étoilée.
 
-Ce regard plongea dans les yeux des disciples de la Secte de l'Épée de Da Lou, et pour eux, il apparut comme une existence éternelle!
+Ce regard plongea dans les yeux des disciples de la Secte de l'Épée de Da Luo, et pour eux, il apparut comme une existence éternelle!
 
 Wang Lin restait simplement immobile. Il contemplait calmement le ciel et méditait sereinement sur ce qui habitait son cœur.
 
@@ -30,15 +30,15 @@ Un énorme trou était apparu sur le flanc de la tour. Des vestiges de fluctuati
 
 « Chaque fois que la perle défiant le ciel s'ouvre, elle nécessite une quantité phénoménale d'énergie d'origine. Lorsqu'elle s'est activée cette fois-ci, l'énergie d'origine de la région n'a pas été affectée, et pourtant Ling Tianhou s'est enfui précipitamment. Le moment de sa fuite coïncide avec l'instant où les deux rayons de lumière ont jailli de la perle. Il est évident que l'un d'eux a poursuivi Ling Tianhou! »
 
-Wang Lin fit un pas et quitta la planète Da Lou.
+Wang Lin fit un pas et quitta la planète Da Luo.
 
 « Quelle était la cible de l'autre rayon de lumière provenant de la perle... » Wang Lin songea, puis ses yeux s'illuminèrent tandis qu'il murmurait: « Ce serait une excellente chose que ce soit l'Omniscient... »
 
 Il mit fin à ses pensées et ne s'attarda plus sur cette affaire. Puis, se transformant en un rayon de lumière, il s'élança dans les profondeurs de l'espace.
 
-« Le complot de l'Omniscient a échoué, il n'est donc plus nécessaire de rester sur la planète Da Lou. Maintenant, je dois faire des préparatifs pour me rendre vers la Terre des Esprits Démoniacs! Je contrôle l'une des quatre grottes, je peux donc emmener plusieurs personnes! » Tandis que Wang Lin volait, diverses pensées traversèrent son esprit.
+« Le complot de l'Omniscient a échoué, il n'est donc plus nécessaire de rester sur la planète Da Luo. Maintenant, je dois faire des préparatifs pour me rendre vers la Terre des Esprits Démoniaques! Je contrôle l'une des quatre grottes, je peux donc emmener plusieurs personnes! » Tandis que Wang Lin volait, diverses pensées traversèrent son esprit.
 
-Wang Lin n'utilisant pas la Courbure Spatiale, il ne volait pas à une vitesse fulgurante en traversant l'espace comme un simple rayon de lumière. Quelques heures plus tard, il aperçut une planète abandonnée.
+Wang Lin n'utilisant pas la Distorsion Spatiale, il ne volait pas à une vitesse fulgurante en traversant l'espace comme un simple rayon de lumière. Quelques heures plus tard, il aperçut une planète abandonnée.
 
 « La voilà! » La silhouette de Wang Lin ne ralentit pas. Il chargea vers la planète désolée, provoquant des détonations soniques.
 
@@ -84,7 +84,7 @@ Wang Lin pointa la main droite vers l'avant et Lei Ji chargea dans un rugissemen
 
 Tout au long du trajet, quiconque croisait Wang Lin se mettait à chuchoter et à le regarder avec respect. Dans le monde de la culture, la force commandait le respect!
 
-Assis sur le dos de Lei Ji, Wang Lin restait plongé dans son énergie d'origine, approfondissant sa compréhension du stade sommet du Scruteur du Nirvana.
+Assis sur le dos de Lei Ji, Wang Lin restait plongé dans son énergie d'origine, ressentant sa culture au sommet du stade intermédiaire du Scruteur du Nirvana.
 
 Ses yeux s'illuminèrent et il pensa: « Autrefois, ma culture était au début du Scruteur du Nirvana et, grâce à mon corps de Dieu Ancien, je pouvais affronter des cultivateurs au début du Purificateur du Nirvana... Maintenant que j'ai atteint le stade intermédiaire du Scruteur du Nirvana, les cultivateurs au début du Purificateur du Nirvana ne sont plus un problème. Je peux désormais rivaliser avec ceux du stade intermédiaire! »
 
@@ -112,7 +112,7 @@ Personne d'autre ne remarqua cette anomalie. Le vieil homme réfléchit un insta
 
 La femme saisit promptement la cruche et remplit la coupe.
 
-À cet instant précis, des ondes de fluctuations parvinrent de la distance. Une silhouette se dirigeait vers eux.
+À cet instant précis, des ondes de fluctuations parvinrent de la distance. On distinguait au loin une silhouette colossale, à quatre pattes, qui se dirigeait vers eux.
 
 « C'est bien lui! » La graisse sur le corps montagneux du vieil homme trembla et ses yeux brillèrent intensément. Il saisit sa coupe et la vida d'un seul trait.
 
@@ -120,4 +120,4 @@ La femme saisit promptement la cruche et remplit la coupe.
 
 « Un individu approche, vous avez trois secondes pour vous écarter. Tout offenseur sera tué! »
 
-Une lueur froide apparut dans les yeux de Wang Lin. Bien qu'immergé dans son énergie d'origine, son Sens Divin était déployé. Au moment même où le vieil homme à la stature montagneuse repéra Wang Lin, ce dernier l'avait également repéré.
+Une lueur froide apparut dans les yeux de Wang Lin. Bien qu'immergé dans son énergie d'origine, son Sens Divin était déployé. Peu après que le vieil homme à la stature montagneuse l'eut repéré, Wang Lin l'avait également repéré.

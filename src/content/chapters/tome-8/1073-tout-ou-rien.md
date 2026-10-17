@@ -22,21 +22,21 @@ Le temps semblait s'étirer à l'infini, mais il parut aussi ne prendre qu'un in
 
 La nuit profonde fut brutalement déchirée. Cette puissance était assez forte pour inverser le monde, ébranler les cieux et provoquer l'effondrement de l'obscurité. La nuit en lambeaux serait balayée, et le monde serait submergé par la lumière!
 
-Elle portait aussi l'intention meurtrière monstrueuse de Wang Lin. Elle contenait son refus viscéral, né après avoir été traqué dans toute la Grotte de l'Empereur Céleste et être devenu, en fin de compte, le rouage du plan de l'Omniscient et du Démon Ancien Ta Jia. Elle contenait également la colère refoulée qu'il avait contenue durant tout ce temps!
+Elle portait aussi l'intention meurtrière monstrueuse de Wang Lin. Elle contenait son refus viscéral, né après avoir été traqué dans toute la Grotte de l'Empereur Céleste et être devenu, en fin de compte, le rouage du plan de l'Omniscient et de l'Ancien Démon Ta Jia. Elle contenait également la colère refoulée qu'il avait contenue durant tout ce temps!
 
 Les deux éveils de l'Oiseau Vermillon de Wang Lin provoquèrent une chaleur inimaginable. Cette chaleur surpassait tout ce que les sorts de Wang Lin pouvaient produire d'ordinaire. Grâce à la loi originelle, la Nuit Brisée de Wang Lin put capturer le moment de chaleur intense du soleil levant pour l'amplifier à un degré prodigieux.
 
 Le soleil émergeant de la mer libérait une lumière dorée sans précédent et une chaleur incroyable. Il ne s'agissait pas seulement de déchirer la nuit; il allait tout écraser et réduire tout ce qui se dressait devant lui en cendres!
 
-La première personne à faire face à la Nuit Brisée fut le Maître du Vide, qui se trouvait le plus près. La lumière solaire balaya la terre avec une chaleur extrême. Le Maître du Vide était déjà mourant, son âme originelle se dissipant suite à l'échec de son premier Fléau Céleste. Sans le sceau que le Démon Ancien Ta Jia avait placé sur lui, il serait mort depuis longtemps.
+La première personne à faire face à la Nuit Brisée fut le Maître du Vide, qui se trouvait le plus près. La lumière solaire balaya la terre avec une chaleur extrême. Le Maître du Vide était déjà mourant, son âme originelle se dissipant suite à l'échec de son premier Fléau Céleste. Sans le sceau que l'Ancien Démon Ta Jia avait placé sur lui, il serait mort depuis longtemps.
 
 À cet instant, sous la lumière solaire infinie, la nuit fut lacérée et le visage du Maître du Vide pâlit. Son corps étant façonné par le premier Fléau Céleste, ses deux jambes s'effondrèrent en brume à ce moment précis. Cependant, cette brume se dissipa aussitôt sans laisser de trace sous l'éclat du soleil.
 
 Mais il ne pouvait plus ressentir la douleur. La seule chose qu'il éprouvait était une peur immense et un sentiment d'incrédulité.
 
-Une fois ses jambes effondrées, la marque du démon ancien entre ses sourcils ne dura qu'un instant avant de se dissiper elle aussi. Après cela, le Maître du Vide poussa un cri misérable et son corps commença à se désintégrer, tout en tentant de reculer.
+Une fois ses jambes effondrées, la marque de l'ancien démon entre ses sourcils ne dura qu'un instant avant de se dissiper elle aussi. Après cela, le Maître du Vide poussa un cri misérable et son corps commença à se désintégrer, tout en tentant de reculer.
 
-Pourtant, ce monde était vaste. Si même la nuit ne pouvait échapper au pouvoir de la Nuit Brisée, comment le Maître du Vide le pourrait-il? Peu importe la distance parcourue dans sa retraite, il ne pouvait fuir la mort. Tandis qu'il reculait, la lumière du soleil se précipita vers lui. Les hurlements du Maître du Vide résonnèrent alors que les rayons perçaient son corps. Il disparut avec un sourire désespéré, consumé par le désespoir...
+Pourtant, ce monde était vaste. Si même la nuit ne pouvait échapper au pouvoir de la Nuit Brisée, comment le Maître du Vide le pourrait-il? Peu importe la distance parcourue dans sa retraite, il ne pouvait fuir la mort. Tandis qu'il reculait, la lumière du soleil se précipita vers lui. Les hurlements du Maître du Vide résonnèrent alors que les rayons le traversaient de part en part, comme un tamis. Il disparut avec un sourire désespéré, consumé par le désespoir...
 
 Le Maître du Vide était un puissant cultivateur au sommet du stade de Briseur du Nirvana, doté d'un rang élevé au sein de l'Alliance, et il était même le frère cadet du Maître Zhong Xuan. Il fut autrefois si illustre, et pourtant, il ne put échapper au cycle de la réincarnation, au premier Fléau Céleste et aux conséquences de ses propres méfaits!
 
@@ -84,12 +84,12 @@ Tout donner!! L'Omniscient aux robes grises forma un sceau et le pointa vers son
 
 Cette épée de sang était la racine même de toute l'énergie de massacre qu'il avait cultivée, la source du carnage! Dès que l'épée apparut, le monde fut enveloppé d'une intention meurtrière sans fin. L'Omniscient aux robes grises pointa l'arme, et l'épée de sang chargea le soleil comme un éclair de tonnerre.
 
-L'Omniscient aux robes jaunes poussa également un rugissement et déploya ses mains en s'élançant vers le ciel. En un clin d'œil, sa tête se transforma en pouce; son bras devint l'index et le majeur; ses jambes devinrent l'annulaire et l'auriculaire. Enfin, son corps se changea en paume. Il devint une main d'une taille inimaginable. Cette paume était semblable au Doigt du Destin Céleste, mais bien plus puissante, car elle contenait toute la force résiduelle de l'Omniscient aux robes jaunes!
+L'Omniscient aux robes jaunes poussa également un rugissement et déploya ses mains en s'élançant vers le ciel. En un clin d'œil, sa tête se transforma en pouce; son bras devint l'index et le majeur; ses jambes devinrent l'annulaire et l'auriculaire. Enfin, son corps se changea en paume. Il devint une main d'une taille inimaginable. Cette paume était semblable au Doigt du Destin Céleste, mais bien plus puissante, car elle contenait toute la force de l'Omniscient aux robes jaunes!
 
 Alors que cette paume chargeait le soleil, elle s'ouvrit, prête à le saisir impitoyablement!
 
-L'Omniscient aux robes violettes essuya également le sang de sa bouche, les yeux embrasés par la folie. Lorsqu'il bougea, un phénomène étrange se produisit: des milliers d'ombres apparurent derrière lui, telles des images rémanentes laissées par sa vitesse prodigieuse.
+L'Omniscient aux robes bleues essuya également le sang de sa bouche, les yeux embrasés par la folie. Lorsqu'il bougea, un phénomène étrange se produisit: des milliers d'ombres apparurent derrière lui, telles des images rémanentes laissées par sa vitesse prodigieuse.
 
-Cependant, chaque ombre était unique. Tandis que l'Omniscient aux robes violettes convergeait vers le soleil, chacune de ces ombres fusionna avec son corps. À mesure qu'il approchait de l'astre, son aura devint monstrueuse.
+Cependant, chaque ombre était unique. Tandis que l'Omniscient aux robes bleues convergeait vers le soleil, chacune de ces ombres fusionna avec son corps. À mesure qu'il approchait de l'astre, son aura devint monstrueuse.
 
 Les trois étaient désormais aussi désespérés que des bêtes acculées. S'ils ne parvenaient pas à briser ce sort qui les poussait à la démence, ils n'auraient aucune chance de survivre!

@@ -12,7 +12,7 @@ Bien que les dragons de tonnerre restants ne se soient pas effondrés, la pressi
 
 À ce moment précis, l'âme originelle du dragon de tonnerre antique de Wang Lin se précipita dans le lac de tonnerre. Il se retourna soudainement pour faire face à l'Ancien en chef et reprit rapidement sa forme humaine.
 
-« Moi, Wang Lin, suis venu réclamer le Tonnerre Éternel et détruire votre clan du Tonnerre Dispersé! » Wang Lin répéta lentement ce qu'il avait déjà déclaré, tandis que son âme originelle se retirait dans le lac de tonnerre.
+« Moi, Wang Lin, suis venu réclamer l'Éclair Éternel et détruire votre clan du Tonnerre Dispersé! » Wang Lin répéta lentement ce qu'il avait déjà déclaré, tandis que son âme originelle se retirait dans le lac de tonnerre.
 
 Les yeux de l'Ancien en chef s'illuminèrent et il ricana en s'avançant dans le lac de tonnerre. Le lac, qui bouillonnait et grondait jusque-là, devint soudainement silencieux dès que l'Ancien y pénétra, comme si une force invisible l'avait écrasé.
 
@@ -58,11 +58,11 @@ Il semblait désormais remplacer la voûte céleste elle-même alors qu'il fonç
 
 En combinant la culture de Wang Lin et sa maîtrise du tonnerre, il parvint à former un coup de poing capable de briser les cieux! Le poing de deux cent mille pieds s'abattit dans un fracas assourdissant. C'était comme si un coup de poing titanesque provenant d'un autre monde descendait sur l'Ancien avec une aura destructrice!
 
-L'Ancien en chef recula de quelques pas et agita la main pour parer la charge. Ses vêtements s'agitèrent sans qu'aucun vent ne soufflât et ses cheveux se défairent. Puis, ses yeux brillèrent d'un éclat intense et il rugit:
+L'Ancien en chef recula de quelques pas et agita la main droite et la claqua sur la marque du clan entre ses sourcils. Ses vêtements s'agitèrent sans qu'aucun vent ne soufflât et ses cheveux se défirent. Puis, ses yeux brillèrent d'un éclat intense et il rugit:
 
-« Quel puissant coup de poing de tonnerre. Ce vieil homme va te combattre! » Au moment où sa main atteignit sa cible, elle brilla intensément et un trésor s'en échappa!
+« Quel puissant coup de poing de tonnerre. Ce vieil homme va te combattre! » Au moment où sa main toucha la marque du clan entre ses sourcils, celle-ci brilla intensément et un trésor s'en échappa!
 
-Ce trésor était un ancien miroir vert arborant une marque de tonnerre au dos. Cette marque était identique au Tonnerre Éternel du clan du Tonnerre Dispersé!
+Ce trésor était un ancien miroir vert arborant une marque de tonnerre au dos. Cette marque était identique à l'Éclair Éternel du clan du Tonnerre Dispersé!
 
 « Miroir de Massacre de la Foudre, brise tout pour moi! » rugit l'Ancien en lançant le miroir. Un grondement sourd émana de l'objet, qui grandit de multiples fois!
 
@@ -80,7 +80,7 @@ Ce poing était le calque exact de celui que Wang Lin avait créé. Même la tai
 
 Instantanément, ces deux poings gigantesques entrèrent en collision à l'extérieur du Miroir de Massacre de la Foudre!
 
-Rumble, rumble, rumble!
+Boum, boum, boum!
 
 Le fracas était apocalyptique et une puissante onde de choc se propagea follement. Pourtant, les poings de tonnerre ne se dissipèrent pas. Ils continuèrent à s'affronter comme si deux géants étaient en combat, le son des deux impacts résonnant sans interruption!
 
@@ -100,7 +100,7 @@ Un grondement assourdissant retentit et le poing copié s'effondra. Le coup de t
 
 Un craquement sec retentit, suivi de nombreuses fissures apparaissant autour du point d'impact de l'épée. L'Ancien en chef fut frappé d'incrédulité alors que le miroir volait en éclats!
 
-La lumière sanguine fulgurât avant de revenir aux côtés de Wang Lin. Ce dernier projeta son poing de tonnerre résiduel à travers les débris du miroir pour atteindre l'Ancien en chef.
+La lumière sanguine fulgura avant de revenir aux côtés de Wang Lin. Ce dernier projeta son poing de tonnerre résiduel à travers les débris du miroir pour atteindre l'Ancien en chef.
 
 Il plongea soudainement sur lui!
 
@@ -110,8 +110,8 @@ Tandis que ce son assourdissant résonnait, Wang Lin trembla et fut repoussé de
 
 Cependant, l'Ancien en chef fut également projeté en arrière, ses vêtements en lambeaux. Ses yeux brillaient d'une intensité sauvage et des bruits de craquements émanaient de son corps.
 
-« Tu es digne de combattre ce vieil homme, mais devant moi, tu mourras sans aucun doute! Cela faisait longtemps que je n'avais pas utilisé une puissance dépassant le quatrième Fléau Céleste. Je n'ai pas besoin de la puissance du cinquième Fléau Céleste pour t'anéantir. Aujourd'hui, je vais te faire expérimenter personnellement la force absolue du quatrième Fléau Céleste! »
+« Tu es digne de combattre ce vieil homme, mais devant moi, tu mourras sans aucun doute! Cela faisait longtemps que je n'avais pas utilisé une puissance dépassant le quatrième Fléau Céleste. Je n'ai pas besoin de la puissance du cinquième Fléau Céleste pour t'anéantir. Aujourd'hui, je vais te faire expérimenter personnellement la force du sommet de la grande perfection du quatrième Fléau Céleste! »
 
-L'Ancien en chef leva sa main droite et déchira une marque sur son corps. C'était comme s'il brisait un sceau, et une culture incroyablement puissante jaillit de lui!
+L'Ancien en chef leva sa main droite et déchira la marque du clan entre ses sourcils. C'était comme s'il brisait un sceau, et une culture incroyablement puissante jaillit de lui!
 
 Cette puissance était si immense qu'elle fit trembler l'espace environnant. Même le tonnerre n'osait plus approcher de lui!

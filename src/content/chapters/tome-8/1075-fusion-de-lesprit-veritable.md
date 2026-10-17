@@ -6,7 +6,7 @@ bookTitle: "Alliance's Secret"
 en: Chapter 1075 - Fusion of True Spirit
 slug: fusion-de-lesprit-véritable
 ---
-L'Alliance de la Culture tout entière sembla trembler sous ce rugissement. Seul un homme arriva calmement devant le siège de l'Alliance. Il fixait froidement l'horizon, une lumière rouge représentant le Royaume du Ji scintillant dans son œil droit alors qu'il pénétrait à l'intérieur.
+L'Alliance de la Culture tout entière sembla trembler sous ce rugissement. Seul un homme arriva calmement devant le siège de l'Alliance. Il fixait froidement l'horizon, une lumière rouge représentant le Royaume Ji scintillant dans ses yeux alors qu'il pénétrait à l'intérieur.
 
 À l'instant même où Nuit Brisée disparut et que Wang Lin réapparut dans les Terres de l'Esprit Démoniaque, le chaos infini de la 18e couche de son Sceau Céleste des 18 Enfers fut transpercé par une puissance inimaginable, et trois âmes apparurent à l'intérieur!
 
@@ -28,7 +28,7 @@ Le silence régnait tout autour, mais à ce moment précis, les cris de l'Oiseau
 
 Alors que les cris de l'Oiseau Vermillon se rapprochaient, le tatouage de l'Oiseau Vermillon sur le corps de Wang Lin trembla violemment. Il s'échappa directement du corps de Wang Lin, échappant à tout contrôle.
 
-L'Oiseau Vermillon blanc leva fièrement la tête et poussa un cri vers les cieux. Les deux cris se croisèrent, et une pointe de joie perçut dans le cri de l'Oiseau Vermillon blanc de Wang Lin.
+L'Oiseau Vermillon blanc leva fièrement la tête et poussa un cri vers les cieux. Les deux cris se croisèrent, et une pointe de joie perçait dans le cri de l'Oiseau Vermillon blanc de Wang Lin.
 
 L'oiseau blanc tourna autour de Wang Lin en continuant de crier. Puis, une mer de flammes encore plus intense apparut au-dessus des Terres de l'Esprit Démoniaque et recouvrit le monde!
 
@@ -42,15 +42,15 @@ L'expression de l'Omniscient devint plus sombre encore, empreinte d'une pointe d
 
 Le regard perçant de l'Oiseau Vermillon balaya le sol jusqu'à ce qu'il se pose sur Wang Lin, puis il poussa un autre cri. L'immense créature chargea hors des flammes. À mesure que son corps émergeait, les flammes environnantes se rétractaient rapidement.
 
-En un instant, l'esprit véritable de l'Oiseau Vermillon surgit de la mer de flammes. Cette mer devint les plumes de son corps, et le reste du brasier se mua en sa queue.
+En un instant, l'esprit véritable de l'Oiseau Vermillon surgit de la mer de flammes. Cette mer devint les plumes de son corps, et le reste du brasier, derrière lui, se mua en plusieurs plumes de queue.
 
 Ce n'est qu'une fois sa forme entière révélée que tous réalisèrent que cette vaste mer de flammes faisait partie intégrante du corps de l'Oiseau Vermillon!
 
 Un bruit d'aspirations saccadées résonna parmi la foule.
 
-Le géant Oiseau Vermillon chargea directement vers Wang Lin. Ce dernier fronça les sourcils, mais une illumination traversa son esprit. Cette compréhension venait du sentiment de familiarité qu'il éprouvait face à son tatouage.
+Le géant Oiseau Vermillon chargea directement vers Wang Lin. Ce dernier fronça les sourcils, mais une illumination traversa son esprit. Cette compréhension venait du sentiment familier et chaleureux que lui transmettait son Oiseau Vermillon natal.
 
-En un instant, l'immense créature fut sur lui. Elle s'apprêtait à s'engouffrer entre ses sourcils, mais elle changea soudainement de trajectoire. L'esprit véritable de l'Oiseau Vermillon se transforma en une mer de flammes et jaillit dans la blessure sur la poitrine de Wang Lin.
+En un instant, l'immense créature fut sur lui. Elle s'apprêtait à s'engouffrer entre ses sourcils, mais elle changea soudainement de trajectoire. L'esprit véritable de l'Oiseau Vermillon se transforma en une mer de flammes et s'engouffra dans la blessure sur la poitrine de Wang Lin.
 
 À cet instant, un océan de feu enveloppa Wang Lin, et son corps s'éleva dans les airs sous l'effet d'une puissance mystérieuse. Des flammes monstrueuses s'échappaient de lui tandis que son Oiseau Vermillon blanc réintégrait son corps. Puis, une armure cramoisie apparut autour de lui.
 
@@ -64,7 +64,7 @@ Cependant, la puissance indescriptible des flammes permit à Wang Lin de ressent
 
 Tel l'ancien dragon de tonnerre, il possédait le pouvoir de commander tout le feu du monde!
 
-Dans le ciel, des centaines de personnes apparurent derrière l'Oiseau Vermillon. Les six premiers dégageaient une pression colossale. Ils avaient tous les cheveux blancs et émanaient des auras capables de bouleverser la terre.
+Dans le ciel, près d'une centaine de personnes apparurent derrière l'Oiseau Vermillon. Les six premiers dégageaient une pression colossale. Ils avaient tous les cheveux blancs et émanaient des auras capables de bouleverser la terre.
 
 Les Briseurs du Nirvana!
 
@@ -76,6 +76,6 @@ Leur excitation venait du fait qu'ils avaient parcouru tout ce chemin pour prot�
 
 Cependant, ce qui les choqua, c'est que bien qu'ils fussent à l'extérieur, au moment où la loi d'origine apparut, ils furent eux aussi entraînés dans l'illusion de Nuit Brisée. Après avoir subi un sortilège aussi terrifiant, comment ne pas être stupéfaits?
 
-Une trace de crainte se mêlait à ce choc! Si ces six-là étaient ainsi affectés, qu'en serait-il des centaines d'autres membres de la Secte Divine de l'Oiseau Vermillon? Ils regardaient tous Wang Lin avec un fanatisme ardent. S'il n'y avait pas d'imprévu, cet homme serait leur prochain Empereur Divin!
+Une trace de crainte se mêlait à ce choc! Si ces six-là étaient ainsi affectés, qu'en serait-il de la centaine d'autres membres de la Secte Divine de l'Oiseau Vermillon? Ils regardaient tous Wang Lin avec un fanatisme ardent. S'il n'y avait pas d'imprévu, cet homme serait leur prochain Empereur Divin!
 
 L'un des six anciens, dont les vêtements étaient ornés de sept oiseaux vermillons, cria immédiatement: « Protégez celui qui s'est éveillé! » Aussitôt, les six anciens se précipitèrent aux côtés de Wang Lin. Le reste des disciples de la Secte Divine de l'Oiseau Vermillon se déploya, lançant des regards empreints d'une intention meurtrière à tous ceux qui les entouraient.

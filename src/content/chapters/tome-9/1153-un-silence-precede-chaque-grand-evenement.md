@@ -30,9 +30,9 @@ En bref, Wang Lin ne souhaitait pas s'encombrer du karma lié à tout cela. Il s
 
 Il devait y avoir une raison pour qu'un homme sur le point de mourir mente. Et Wang Lin n'hésitait jamais à abattre un tel individu!
 
-« Tu allais de toute façon mourir dans quelques jours. » En regardant l'homme dont la tête avait été tranchée, il vit que le corps commençait rapidement à se putréfier et ses vêtements se désintégrèrent.
+« Tu allais mourir de toute façon; tu es simplement mort quelques respirations plus tôt. » En regardant l'homme dont la tête avait été tranchée, il vit que le corps commençait rapidement à se putréfier et ses vêtements se désintégrèrent.
 
-« Le jade et la recette de la pilule... » Wang Lin commença à réfléchir. Le vieil homme qui assiégeait cet homme d'âge moyen devait sûrement convoiter ces trésors.
+« Le jade et la recette de la pilule... » Wang Lin commença à réfléchir. La vieille femme qui assiégeait cet homme d'âge moyen devait sûrement convoiter ces trésors.
 
 « Quel genre de jade et quelle recette pourraient pousser deux cultivateurs du stade de Purificateur du Nirvana à se battre à mort? Cela a même poussé un cultivateur du stade intermédiaire à oser tenter de tuer un cultivateur du stade avancé... »
 
@@ -62,11 +62,11 @@ Une pointe d'excitation traversa le regard de Wang Lin alors qu'il tendait la ma
 
 Ses yeux étaient empreints d'incrédulité face au fragment d'os qu'il tenait. Il resta muet durant un long moment.
 
-« Nirvana... Pilule du Vide de Nirvana... » Bien qu'il ignorât ce qu'était précisément une Pilule du Vide de Nirvana, il connaissait le poids des mots « Nirvana » et « Vide » pour les puissants cultivateurs!
+« Nirvana... Pilule du Nirvana Vide... » Bien qu'il ignorât ce qu'était précisément une Pilule du Nirvana Vide, il connaissait le poids des mots « Nirvana » et « Vide » pour les puissants cultivateurs!
 
 En particulier, une phrase de cette recette résonna avec force dans son esprit. Il serra fermement l'os dans sa main, une intention meurtrière monstrueuse embrasant son regard. À cet instant, quiconque aurait tenté de lui ravir ce fragment aurait subi la fureur déchaînée de Wang Lin.
 
-« Celui qui consomme cette pilule a 10 % de chances de transformer la Loi en Origine Source et d'atteindre ce que nous, cultivateurs, appelons la troisième étape! Il a 50 % de chances de surmonter l'Fléau Céleste! Et il a 80 % de chances d'entrer dans le Royaume Shi! »
+« Celui qui consomme cette pilule a 10 % de chances de transformer la Loi en Origine Source et d'atteindre ce que nous, cultivateurs, appelons la troisième étape! Il a 50 % de chances de surmonter le Fléau Céleste! Et il a 80 % de chances d'entrer dans le Royaume Shi! »
 
 Il fallut beaucoup de temps à Wang Lin pour retrouver son sang-froid. Il rangea promptement le jade et l'os dans son espace de stockage. Il n'avait pas le temps d'en analyser les détails, mais il était intimement convaincu que ces objets suffiraient à provoquer une véritable calamité dans le monde de la culture!
 
@@ -76,7 +76,7 @@ Wang Lin n'avait pas ressenti sa gorge aussi sèche depuis longtemps. Il se léc
 
 Une fois certain de n'avoir laissé aucune piste, Wang Lin s'élança hors de la vallée. Au moment de partir, il hésita et, d'un geste décisif, brisa l'un des crânes. Les fragments éclatés tombèrent à l'intérieur comme à l'extérieur de la vallée.
 
-Les yeux de Wang Lin brillèrent tandis que ses pensées s'emballaient; il ramassa les sept autres crânes restants. Puis, après réflexion, il récupéra le corps du disciple pour le replacer à sa place initiale.
+Les yeux de Wang Lin brillèrent tandis que ses pensées s'emballaient; il ramassa les sept autres crânes restants. Puis, après réflexion, il ressortit de son espace de stockage le corps du disciple mort empoisonné pour le replacer à sa place initiale.
 
 Il nettoya minutieusement les débris de crânes éparpillés avant de laisser un unique morceau dans un endroit extrêmement secret.
 
@@ -90,13 +90,13 @@ N'ayant plus le cœur à récolter des herbes, il accéléra sa progression avan
 
 En voyant Wang Lin, le singe s'agita d'excitation et pointa frénétiquement divers sommets montagneux, indiquant clairement la présence d'herbes à ces endroits.
 
-Wang Lin n'y prêta aucune attention. Il retira le talisman jaune du singe noir, rangea l'animal géant dans son espace de stockage, puis s'élança dans les cieux. Il perça la brume et apposa le talisman jaune sur lui-même. Insatisfait de sa vitesse, il enfila également la peau de bête.
+Wang Lin n'y prêta aucune attention. Il retira le talisman jaune du singe noir, rangea l'animal géant dans son espace de stockage, puis s'élança dans les cieux. Il perça la brume et apposa le talisman jaune sur lui-même. Insatisfait de sa vitesse, il sortit aussi un talisman de vitesse en peau de bête et l'apposa sur lui.
 
 Grâce à cela, la vitesse de Wang Lin atteignit un paroxysme alors qu'il traversait la brume pour quitter le continent sauvage.
 
 Pourtant, son cœur battait encore la chamade, comme s'il était dans un rêve. Tout ce qui s'était produit sur ce continent et tout ce qu'il avait acquis lui semblaient encore irréels.
 
-Après avoir réprimé son excitation, Wang Lin comprit parfaitement que si l'information concernant la recette de la pilule s'ébruitait, il ferait l'objet d'une traque incessante dans le Système Stellaire de la Mer des Nuages. Cela serait vrai même au sein de l'Alliance ou de Luotian, car cette recette était de nature à rendre les cultivateurs fous!
+Après avoir réprimé son excitation, Wang Lin comprit parfaitement que si l'information concernant la recette de la pilule s'ébruitait, il ferait l'objet d'une traque incessante dans le Système Stellaire de la Mer des Nuages. Cela serait vrai même dans les Royaumes Célestes du Tonnerre et de la Pluie, car cette recette était de nature à rendre les cultivateurs fous!
 
 En particulier les vieux monstres, toujours en culture solitaire, ayant atteint le sommet du stade de Briseur du Nirvana et se préparant pour leur Fléau Céleste, feraient n'importe quoi pour obtenir une telle pilule.
 
@@ -114,4 +114,4 @@ Quelques heures plus tard, Wang Lin était déjà loin du continent sauvage. La 
 
 À cet instant précis, les pupilles calmes de Wang Lin se rétractèrent soudainement avant de reprendre leur aspect normal.
 
-Des rayons de lumière rouge sifflaient à travers la brume stellaire, se rapprochant de plus en plus.
+Des rayons de lumière sifflaient à travers la brume stellaire, se rapprochant de plus en plus.

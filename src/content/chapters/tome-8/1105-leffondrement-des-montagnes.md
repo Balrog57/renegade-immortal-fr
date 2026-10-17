@@ -62,9 +62,9 @@ Les anciens en pourpre se précipitèrent également en arrière. Délaissant le
 
 « Vite, nous devons quitter ce maudit système stellaire de l'Alliance! Comment le système de l'Alliance peut-il abriter quelqu'un capable de... capable d'absorber la rétribution divine?! »
 
-Le nuage de la rétribution divine se rassembla de nouveau et une pression écrasante s'abattit. À cet instant, un éclair violet d'une épaisseur de dix pieds descendit. Il était si puissant que, dès sa sortie, il déchira l'espace pour pénétrer le vide. Cependant, il jaillit du vide à seulement trois pouces de Wang Lin et frappa violemment entre ses sourcils.
+Le nuage de la rétribution divine se rassembla de nouveau et une pression écrasante s'abattit. À cet instant, un éclair violet d'une épaisseur de cent pieds descendit. Il était si puissant que, dès sa sortie, il déchira l'espace pour pénétrer le vide. Cependant, il jaillit du vide à seulement trois pouces de Wang Lin et frappa violemment entre ses sourcils.
 
-Wang Lin poussa un rugissement et ne recula pas d'un pouce. Au contraire, il ouvrit les bras et saisit l'éclair violet de dix pieds de large.
+Wang Lin poussa un rugissement et ne recula pas d'un pouce. Au contraire, il ouvrit les bras et saisit l'éclair violet de cent pieds de large.
 
 Malgré les grondements tonitruants, le corps de Wang Lin resta immobile. De vastes résidus électriques l'entouraient et crépitaient sans relâche.
 
@@ -74,11 +74,11 @@ Le corps de Wang Lin était progressivement repoussé par cette puissance, mais 
 
 Wang Lin rugit: « Encore un peu! »
 
-La rétribution divine au-dessus du champ stellaire laissa échapper un cri semblable à celui d'un humain, et à cet instant, un éclair aux sept couleurs descendit!
+Les nuages de la rétribution divine, qui s'étendaient sur plusieurs centaines de milliers de milles au-dessus du champ stellaire, laissèrent échapper un cri semblable à celui d'un humain, et à cet instant, un éclair aux sept couleurs descendit!
 
 Dès son apparition, l'éclair aux sept couleurs se divisa en sept trajectoires distinctes. Ils s'abattirent sur Wang Lin avec une puissance inimaginable.
 
-Le fracas résonna alors que Wang Lin continuait de reculer. La sphère d'éclairs devant lui avait dépassé les mille pieds de large, et l'énergie qu'elle renfermait était phénoménale. Bien que Wang Lin commande tout le tonnerre et la foudre, il commençait à éprouver des difficultés à contenir cette force.
+Le fracas résonna alors que Wang Lin continuait de reculer. La sphère d'éclairs devant lui avait dépassé plusieurs milliers de pieds de large, et l'énergie qu'elle renfermait était phénoménale. Bien que Wang Lin commande tout le tonnerre et la foudre, il commençait à éprouver des difficultés à contenir cette force.
 
 Voyant la rétribution divine s'agiter de nouveau et les éclats de lumière septicolores apparaître, Wang Lin passa à l'action. Il projeta sans ménagement cette sphère d'éclairs contre l'écran de lumière verte, provoquant les cris de terreur de tous ceux qui se trouvaient à l'intérieur!
 

@@ -10,13 +10,13 @@ Le vieil homme en robe rouge était l'ancêtre de la famille Zhan de Luotian: Li
 
 Les yeux de Lie Yunzi s'illuminèrent lorsqu'il les ouvrit. Il lança un regard froid à la belle femme et déclara calmement: « Je suis Lie Yunzi. »
 
-La belle femme sourit et prit une gorgée. Elle reposa ensuite sa tasse en souriant de nouveau. « Le Senior Lie Yunzi est très célèbre à Luotian. Le fait que Luotian envoie un tel Senior pour féliciter le nouvel Empereur Divin de l'Oiseau Vermillon suggère qu'Luotian a l'intention de nouer des relations amicales avec lui. »
+La belle femme sourit et prit une gorgée. Elle reposa ensuite sa tasse en souriant de nouveau. « Le Senior Lie Yunzi est très célèbre à Luotian. Le fait que Luotian envoie un tel Senior pour féliciter le nouvel Empereur Divin de l'Oiseau Vermillon suggère que Luotian a l'intention de nouer des relations amicales avec lui. »
 
 « Vous êtes une disciple centrale de la Secte des Cadavres, et vous avez déjà atteint le stade de la Purification du Nirvana à un si jeune âge. La rumeur prétend que vous possédez quatre marionnettes cadavériques, dont trois ne sont pas moins puissantes que des cultivateurs au stade Briseur du Nirvana. Si la Secte des Cadavres vous envoie, c'est qu'elle accorde également une grande importance au nouvel Empereur Divin de l'Oiseau Vermillon. » La voix de Lie Yunzi était calme, mais lorsqu'elle parvint aux oreilles de la femme, ses pupilles se rétractèrent imperceptiblement.
 
 « Ce cultivateur doit être issu de l'Alliance. J'ignore simplement votre nom. » La femme changea de sujet et tourna son regard vers l'homme chauve.
 
-L'homme chauve répondit d'un ton serein: « Pays de Zhu Yun, Mo Zhi! »
+L'homme chauve répondit d'un ton serein: « Pays de Chu Yun, Mo Zhi! »
 
 « Mo Zhi? » La belle femme fronça les sourcils. Il était évident qu'elle n'avait jamais entendu ce nom auparavant.
 
@@ -26,7 +26,7 @@ L'homme chauve sourit et joignit les mains en signe de respect envers Lie Yunzi.
 
 La belle femme réfléchit un instant, puis demanda: « Cultivateur Mo, Senior Lie Yunzi, savez-vous qui est le nouvel Empereur Divin de l'Oiseau Vermillon? »
 
-« Je sais seulement que cette personne est extrêmement arrogante et qu'elle n'a rencontré aucun des autres émissaires. Les Quatre Sectes Divines gardent également son nom secret. » Lie Yunzi prit sa tasse, y jeta un coup d'œil, puis la reposa.
+« Je sais seulement que cette personne est extrêmement arrogante et qu'aucun des félicitateurs précédents n'a vu son vrai visage. Les Quatre Sectes Divines gardent également son nom secret. » Lie Yunzi prit sa tasse, y jeta un coup d'œil, puis la reposa.
 
 Il était venu à la Secte Divine de l'Oiseau Vermillon sur ordre du Temple Céleste du Tonnerre. Au-delà des félicitations, il avait une mission profonde qui exigeait d'entrer en contact direct avec le nouvel Empereur Divin.
 
@@ -46,7 +46,7 @@ En plus d'accomplir la tâche confiée par Luotian, il avait un objectif personn
 
 Il pensait que la Secte Divine de l'Oiseau Vermillon avait ses raisons d'avoir pris Wang Lin. Trois ans étaient suffisants pour épuiser la valeur de ce dernier. Désormais, Wang Lin était probablement devenu inutile pour eux; il ne devrait donc pas être difficile de le récupérer.
 
-La belle femme regarda Lie Yunzi et demanda: « Oh? La rumeur dit que ses sorts étaient capables de tuer Maître du Vide. Il a également tué deux personnes et blessé gravement l'un des avatars de l'Omniscient. Pourquoi le Senior Lie Yunzi pense-t-il qu'il n'est pas qualifié? À l'époque, la Secte Divine de l'Oiseau Vermillon avait déployé une force massive, menée par l'Esprit Véritable de l'Oiseau Vermillon lui-même. »
+La belle femme regarda Lie Yunzi et demanda: « Oh? La rumeur dit que ses sorts étaient capables de tuer Maître du Vide. Il a également fait périr deux des trois grands avatars de l'Omniscient et blessé le troisième. Pourquoi le Senior Lie Yunzi pense-t-il qu'il n'est pas qualifié? À l'époque, la Secte Divine de l'Oiseau Vermillon avait déployé une force massive, menée par l'Esprit Véritable de l'Oiseau Vermillon lui-même. »
 
 Lie Yunzi répondit calmement: « Cette personne m'a parlé juste avant de se rendre dans la grotte de Qing Lin. Je connais parfaitement son niveau de culture! » Il ne croyait pas que le niveau de Wang Lin ait pu changer à ce point. À ses yeux, tout cela n'était que des rumeurs infondées.
 
@@ -58,25 +58,25 @@ La belle femme fronça les sourcils. Leur Secte des Cadavres avait recueilli div
 
 À cet instant précis, Lie Yunzi leva brusquement la tête et regarda vers l'extérieur avec une expression étrange. Un instant plus tard, Mo Zhi fit de même en scrutant l'entrée de la salle.
 
-La belle femme fut la dernière à lever les yeux. Au moment où leurs regards convergèrent vers l'extérieur, une vague de chaleur déferla dans la pièce. Cela attira toute l'énergie d'origine du feu de la salle, formant un vortex invisible.
+La belle femme fut la dernière à lever les yeux. Au moment où leurs regards convergèrent vers l'extérieur, une vague de chaleur déferla dans la pièce. Cela attira toute l'énergie originelle du feu de la salle, formant un vortex invisible.
 
-À cet instant, l'énergie d'origine du feu sembla s'animer, devenant vibrante et exaltée. En tournoyant, elle s'écarta comme pour céder le passage en signe de respect.
+À cet instant, l'énergie originelle du feu sembla s'animer, devenant vibrante et exaltée. En tournoyant, elle s'écarta comme pour céder le passage en signe de respect.
 
 Un homme entra lentement dans la salle sous les yeux médusés des trois interlocuteurs. Il portait une armure rouge qui lui couvrait le visage, ne laissant apparaître que ses cheveux blancs. Une cape blanche flottait derrière lui, s'harmonisant avec le tatouage blanc de l'Oiseau Vermillon, dégageant une pression écrasante.
 
 Alors qu'il avançait, son armure émettait des cliquetis métalliques; il ignorait totalement l'assistance. Sa cape ondulait au rythme de ses cheveux blancs tandis qu'une vague de chaleur inimaginable envahissait la pièce.
 
-Toute l'énergie d'origine du feu sembla s'emballer, encerclant l'homme en armure pour former un vortex autour de lui. Une pression colossale s'abattit alors sur la salle.
+Toute l'énergie originelle du feu sembla s'emballer, encerclant l'homme en armure pour former un vortex autour de lui. Une pression colossale s'abattit alors sur la salle.
 
-Ce n'était pas seulement l'énergie présente dans la pièce qui changeait; toute l'énergie d'origine de la planète et du champ stellaire environnant semblait converger rapidement vers cet homme. Ce changement soudain provoqua une onde de choc de pression qui se propagea partout.
+Ce n'était pas seulement l'énergie présente dans la pièce qui changeait; toute l'énergie originelle de la planète et du champ stellaire environnant semblait converger rapidement vers cet homme. Ce changement soudain provoqua une onde de choc de pression qui se propagea partout.
 
-Quelques cultivateurs suivaient l'homme. Ils étaient quatre au total, tous âgés et au stade Briseur du Nirvana. Ils portaient des robes rouges, bien que d'un style très différent de celui de Lie Yunzi.
+Quelques cultivateurs suivaient l'homme. Ils étaient quatre au total, tous âgés et au stade Briseur du Nirvana. Ils portaient des robes rouges, bien que d'une nuance plus claire ou plus sombre que celle de Lie Yunzi.
 
 Les quatre entrèrent avec l'homme en armure, se tenant derrière lui tout en observant calmement les trois autres.
 
 L'homme en armure s'avança devant tout le monde et releva sa cape avant de s'asseoir. Ses yeux, semblables à des flammes, perçèrent l'intérieur du casque pour se poser sur les trois prétendants.
 
-Il dégageait une majesté absolue. De plus, l'énergie d'origine qui l'entourait empêchait tout Sens Divin de l'espionner. Même si quelqu'un parvenait à transpercer cette barrière énergétique, très peu de gens seraient capables d'identifier Wang Lin.
+Il dégageait une majesté absolue. De plus, l'énergie originelle qui l'entourait empêchait tout Sens Divin de l'espionner. Même si quelqu'un parvenait à transpercer cette barrière énergétique, très peu de gens seraient capables d'identifier Wang Lin.
 
 Un silence de mort s'installa dans la salle. L'apparition de cet homme était trop saisissante et avait provoqué une agitation inattendue de l'énergie du feu. Le front de la belle femme était perlé de sueur, comme si elle était assise dans un four. Normalement, avec son niveau de culture, la chaleur ne l'aurait pas affectée, mais depuis l'apparition de l'homme, l'accumulation d'énergie était devenue presque insupportable.
 
@@ -100,7 +100,7 @@ L'inquiétude de Lie Yunzi s'intensifia. Il fit un pas en arrière en regardant 
 
 L'homme en armure le contempla un instant avant de détourner les yeux vers Mo Zhi.
 
-Mo Zhi réprima ses soupçons et dit: « Empereur Divin, je viens en tant que représentant du pays de Chu Yun pour vous présenter mes félicitations. Mon maître m'a chargé d'apporter des présents! » En parlant, sa main droite s'élança vers le vide, créant une fissure. Cette faille n'était pas stable; elle était manifestement perturbée par l'énergie d'origine ambiante.
+Mo Zhi réprima ses soupçons et dit: « Empereur Divin, je viens en tant que représentant du pays de Chu Yun pour vous présenter mes félicitations. Mon maître m'a chargé d'apporter des présents! » En parlant, sa main droite s'élança vers le vide, créant une fissure. Cette faille n'était pas stable; elle était manifestement perturbée par l'énergie originelle ambiante.
 
 Voyant la fissure sur le point de s'effondrer dès son apparition, l'homme en armure leva sa main droite. L'énergie autour de la faille se dispersa et celle-ci se stabilisa instantanément.
 

@@ -104,7 +104,7 @@ Wang Lin fit un pas en avant, marchant sur le vide. Il se retourna et fixa la ma
 
 Le dragon sur la marque entre les sourcils de la statue et la statue elle-même tremblèrent plus violemment encore. Au moment précis où le dragon toucha sa cible, les yeux de la statue s'illuminèrent et Wang Lin aperçut un système stellaire à l'intérieur.
 
-Une formation gigantesque couvrait de nombreux champs stellaires. À l'extérieur, des cultivateurs portant des vêtements étranges observaient la scène. Il était évident qu'ils n'étaient pas des cultivateurs! Leurs visages exprimaient l'indifférence, le sarcasme et le dédain alors qu'ils scrutaient l'intérieur de la formation.
+Une formation gigantesque couvrait de nombreux champs stellaires. À l'extérieur, d'innombrables êtres étranges, aux vêtements bizarres, observaient la scène. Il était évident que ce n'étaient pas des cultivateurs! Leurs visages exprimaient l'indifférence, le sarcasme et le dédain alors qu'ils scrutaient l'intérieur de la formation.
 
 L'intérieur de la formation était saturé d'énergie spirituelle céleste et de vagues d'énergie originelle. D'innombrables anciens cultivateurs du Qi et êtres célestes attaquaient la formation avec frénésie dans une tentative désespérée de s'en échapper.
 

@@ -12,21 +12,21 @@ Pourtant, au moment où il allait atteindre sa cible, la porte gigantesque s'ouv
 
 Un cri déchirant résonna et les yeux du vieil homme se remplirent de terreur. Il cessa de charger et battit en retraite précipitamment.
 
-« Un sceau... Le Seigneur du Royaume Scellé aurait-il pu ressusciter?! » Une fumée noire s'échappait du corps du vieil homme comme s'il était consumé par les flammes, révélant sa silhouette frêle sous sa robe. Son corps dégageait une épaisse fumée, comme si même un être aussi puissant que lui allait fondre face à cette lumière!
+« Le... Le Seigneur du Royaume Scellé aurait-il pu ressusciter?! » Une fumée noire s'échappait du corps du vieil homme comme s'il était consumé par les flammes, révélant sa silhouette frêle sous sa robe. Son corps dégageait une épaisse fumée, comme si même un être aussi puissant que lui allait fondre face à cette lumière!
 
 La porte s'ouvrit et une aura qui ébranla le monde se propagea, suivant les contours de la formation de scellement du royaume!
 
-La formation de scellement du royaume avait radicalement changé peu après le départ de Tuo Sen. Même l'esprit de formation ultime, qui n'était jamais apparu auparavant, fit son apparition.
+Peu après le départ de Tuo Sen, les esprits de la formation de scellement du royaume apparurent de nouveau tous ensemble. Cette fois, même l'ultime esprit de formation, qui n'était jamais apparu auparavant, se manifesta.
 
-Cet ultime esprit de formation était un jade. Dès son apparition, d'innombrables ondulations se propagèrent à travers la formation de scellement du royaume et des grondements incessants retentirent!
+Cet ultime esprit de formation était un pendentif de jade. Dès son apparition, d'innombrables ondulations se propagèrent à travers la formation de scellement du royaume et des grondements incessants retentirent!
 
-À cet instant, les puissants du Système Stellaire Antique ressentirent une aura qui fit trembler leurs esprits. Certains des vieux monstres ayant vécu depuis bien trop longtemps n'étaient pas étrangers à cette aura.
+À cet instant, les puissants parmi le peuple antique, hors du royaume, ressentirent une aura qui fit trembler leurs esprits. Certains des vieux monstres ayant vécu depuis bien trop longtemps n'étaient pas étrangers à cette aura.
 
 Cette aura ne se contentait pas de les faire trembler; elle vidait leurs esprits et remplaçait leurs pensées par la terreur!
 
 « Le Seigneur du Royaume Scellé! »
 
-Comparés au Domaine Extérieur, les habitants du Royaume Scellé ne ressentirent pas un impact aussi violent. Seules les figures les plus puissantes des quatre systèmes stellaires furent touchées. Dans la Secte Divine, au sein d'une chambre, était assis un garçon. Il avait l'apparence d'un enfant, mais ses cheveux étaient gris. Il restait là, comme s'il n'avait pas bougé depuis des éternités.
+Comparés au Domaine Extérieur, les habitants du Royaume Scellé ne ressentirent pas un impact aussi violent. Seules les figures les plus puissantes des quatre royaumes furent touchées. Dans la Secte Divine, au sein d'une chambre, était assis un garçon. Il avait l'apparence d'un enfant, mais ses cheveux étaient gris. Il restait là, comme s'il n'avait pas bougé depuis des éternités.
 
 Cependant, à cet instant précis, ses paupières tremblèrent et il ouvrit soudainement les yeux.
 
@@ -36,9 +36,9 @@ Dans le Royaume Céleste de la Pluie, Qing Lin cultivait en silence, tentant de 
 
 « Maître!! »
 
-Le Royaume Céleste du Vent était peuplé d'innombrables bêtes moustiques. Sur un fragment de Royaume Céleste effondré, siégeait un Ancien. Cet homme ressemblait à une statue dont le corps s'était changé en pierre.
+Le Royaume Céleste du Vent était peuplé d'innombrables bêtes moustiques. Sur un fragment de Royaume Céleste effondré, siégeait un vieil homme. Cet homme ressemblait à une statue dont le corps s'était changé en pierre.
 
-Pourtant, à cet instant, des fissures apparurent sur les yeux de la statue. Tandis que des bruits de craquement résonnaient, l'Ancien sembla ouvrir une paire d'yeux qui n'avaient pas été ouverts depuis une éternité.
+Pourtant, à cet instant, des fissures apparurent sur les yeux de la statue. Tandis que des bruits de craquement résonnaient, le vieil homme sembla ouvrir une paire d'yeux qui n'avaient pas été ouverts depuis une éternité.
 
 « L'aura de ce vieux... » Les yeux de l'homme laissèrent passer une lueur étrange tandis qu'innombrables souvenirs s'éveillaient de leur sommeil pour envahir son esprit. Après un long moment, il referma les yeux et redevint une statue.
 
@@ -82,7 +82,7 @@ Malgré tous ses efforts pour esquiver, il ne put échapper à la main géante. 
 
 Du début à la fin, l'expression de Wang Lin était restée indifférente. Après la disparition du vieil homme, la porte derrière lui brilla une dernière fois avant de se rétracter rapidement. Elle devint une lueur floue et disparut dans la Perle Défiant le Ciel, emportant l'âme originelle de Wang Lin. Puis, elle s'échappa du système stellaire pour disparaître sans laisser de trace.
 
-Le Royaume aux Sept Couleurs était plongé dans les ténèbres depuis cent ans. Ce jour-là, une lumière éclatante apparut dans le ciel, au-dessus de la montagne située dans la partie la plus profonde du Royaume aux Sept Couleurs. Au moment où cette lueur enveloppa le royaume, une vague illusion aux yeux troublés apparut. Il poussa un soupir en contemplant le corps couvert de poussière au sommet de la montagne.
+Le Royaume aux Sept Couleurs était plongé dans les ténèbres depuis cent ans. Ce jour-là, une lumière éclatante apparut dans le ciel, au-dessus de la montagne située dans la partie la plus profonde du Royaume aux Sept Couleurs. Au moment où cette lueur enveloppa le royaume, une silhouette illusoire et floue apparut, trahissant confusion et émotion. Elle sembla pousser un soupir, son regard tombant sur le corps couvert de poussière au sommet de la montagne.
 
 « C'était comme un rêve... Un rêve qui a duré de nombreuses années... » murmura l'illusion tandis qu'elle fusionnait progressivement avec le corps sur la montagne.
 
@@ -116,14 +116,14 @@ L'aura de Briseur du Nirvana émanant de son corps se dissipa progressivement ju
 
 Wang Lin prit une profonde inspiration pour réprimer l'étoile et fronça les sourcils. Il savait que cela résultait de son incompréhension partielle des Dao absorbés.
 
-« Il est temps de partir. Je me demande comment va la bête moustique après toutes ces années. Et combien de temps ai-je dormi dans cette fleur... Cela a dû faire au moins 20 ou 30 ans. » Les yeux de Wang Lin étaient brillants et empreints d'assurance alors qu'il s'avançait. Il quitta la montagne et s'envola droit devant lui.
+« Il est temps de partir. Je me demande comment va la bête moustique après toutes ces années. Et combien de temps ai-je dormi dans cette fleur... Cela doit faire 20 ou 30 ans. » Les yeux de Wang Lin étaient brillants et empreints d'assurance alors qu'il s'avançait. Il quitta la montagne et s'envola droit devant lui.
 
-« Maintenant que c'est terminé, je dois me rendre dans le Royaume Céleste du Vent. Si je peux rassembler une armée de bêtes moustiques, je pourrai peut-être même tenter de pénétrer la Secte Divine! Je ne sais juste pas si Tuo Sen s'est réveillé... »
+« Maintenant que c'est terminé, je dois me rendre dans le Royaume Céleste du Vent. Si je peux rassembler une armée de bêtes moustiques, alors dans la Mer des Nuages, je pourrai peut-être même tenter de pénétrer la Secte Divine! Je ne sais juste pas si Tuo Sen s'est réveillé... »
 
 À cet instant, dans le Système Stellaire Antique, parmi les étoiles infinies, Tuo Sen fixait le ciel. Il serrait les dents, envahi par une humeur sombre. Sa colère était telle qu'il brûlait de détruire tout être vivant sur son passage.
 
 Il avait déployé des efforts colossaux pour briser cette formation. Finalement, au prix de l'effondrement d'une étoile et du sacrifice des cultivateurs du troisième pas scellés dans ses astres, il avait à peine réussi à franchir la formation de scellement pour dévorer Wang Lin. Pourtant, maintenant, malgré tous ses efforts, il ne parvenait pas à trouver l'aura de ce dernier.
 
-« Il n'est ni dans le Royaume Scellé, ni dans le Domaine Extérieur, et pourtant son aura était présente dans la formation de scellement. Pourrait-il se cacher à l'intérieur de la formation elle-même? Mais c'est impossible avec son niveau de culture! » Il rugit vers les cieux, les yeux injectés de sang. Il perçut la présence de quelques anciens cultivateurs dans un champ stellaire au loin. N'ayant aucun moyen d'exprimer sa rage, il serra le poing et se précipita dans cette direction.
+« Il n'est ni dans le Royaume Scellé, ni dans le Domaine Extérieur, et pourtant son aura était présente dans la formation de scellement. Pourrait-il se cacher à l'intérieur de la formation elle-même? Mais c'est impossible avec son niveau de culture! » Il rugit vers les cieux, les yeux injectés de sang. Il perçut au loin un champ stellaire où semblaient vivre de nombreux membres du peuple antique. N'ayant aucun moyen d'exprimer sa rage, il serra le poing et se précipita dans cette direction.
 
 « Maudit Wang Lin, ce Dieu te retrouvera un jour! Je te dévorerai pour apaiser la colère qui me consume! »

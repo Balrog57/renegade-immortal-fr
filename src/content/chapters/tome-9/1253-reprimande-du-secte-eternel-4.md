@@ -16,9 +16,9 @@ Le flot de larmes dans les yeux de Lu Yanfei redoubla d'intensité; deux ruissea
 
 Wang Lin avait traversé la Mer des Nuages et était arrivé vêtu de tonnerre!
 
-À cet instant, non seulement ceux qui connaissaient Wang Lin furent ainsi affectés, mais tous les cultivateurs environnants, y compris les membres de la Secte Éternel, furent frappés de stupeur.
+À cet instant, non seulement ceux qui connaissaient Wang Lin furent ainsi affectés, mais tous les cultivateurs environnants, y compris les membres de la Secte Éternelle, furent frappés de stupeur.
 
-Feng Hai se leva brusquement, les pupilles rétractées alors qu'il fixait la silhouette blanche dans les airs. Il pouvait clairement ressentir que l'énergie d'origine qui imprégnait l'atmosphère n'était pas celle d'un ordinaire briseur de Nirvana. Une telle énergie ne pouvait être obtenue que par une compréhension profonde de sa propre loi, un attribut réservé aux plus grands maîtres du stade de briseur de Nirvana!
+Feng Hai se leva brusquement, les pupilles rétractées alors qu'il fixait la silhouette blanche dans les airs. Il pouvait clairement ressentir que la force du ciel et de la terre qui imprégnait l'atmosphère n'était pas celle qu'un ordinaire briseur de Nirvana pouvait mouvoir. Une telle énergie ne pouvait être obtenue que par une compréhension profonde des lois, un attribut réservé à ceux ayant atteint la grande perfection du stade de briseur de Nirvana!
 
 Non seulement lui, mais le vieil homme aux cheveux roux prit également une grande inspiration, l'esprit secoué. Sa propre loi et son domaine étaient également liés au tonnerre. À cet instant, il sentit distinctement son âme d'origine perdre le contrôle. Son âme d'origine, à moitié transformée en foudre, ressentit un besoin irrépressible de vénération. C'était comme s'il ne regardait pas un cultivateur, mais le tonnerre céleste lui-même, existant depuis l'aube des temps!
 
@@ -26,11 +26,11 @@ L'homme d'âge mûr nommé Zhou fixait Wang Lin au cœur du tonnerre, ses yeux b
 
 Un tel sort capable de dissimuler son aura choqua profondément Zhou. Il ne s'agissait pas seulement d'un sortilège, mais du fait que le niveau de culture de cet homme surpassait de loin le sien!
 
-Le vieil homme qui avait conduit ses disciples dans le Domaine de la Brume des Bêtes du Chaos était le plus calme pour l'instant, car il était le seul à avoir déjà vu Wang Lin. Il poussa un soupir: « Lorsque j'ai rencontré le Frère Lu autrefois, je ne pensais pas que nous appartenions à la même secte. Je m'appelle Mu Jiangping. Salutations, Camarade Cultivateur! »
+Le vieil homme qui avait conduit ses disciples dans le Domaine de la Brume des Bêtes du Chaos était le plus calme pour l'instant, car il était le seul à avoir déjà vu Wang Lin. Il poussa un soupir: « Lorsque j'ai rencontré le Frère Lu autrefois, je ne pensais pas que nous appartenions à la même secte. Je m'appelle Wu Jiangping. Salutations, Camarade Cultivateur! »
 
 Le vieil homme qui avait aperçu la silhouette de Wang Lin affichait une expression grave. Auparavant, il n'avait pas cru ce qu'on lui racontait, mais désormais, il était convaincu: cet homme possédait le pouvoir de balayer les régions de rang 6 et 7!
 
-Les yeux du Maître de la Secte Éternelle s'illuminèrent. Il était celui dont le niveau de culture était le plus élevé ici. Bien qu'il ne fût pas le plus puissant de la Secte Éternel, il avait atteint le premier stade du Fléau Céleste!
+Les yeux du Maître de la Secte Éternelle s'illuminèrent. Il était celui dont le niveau de culture était le plus élevé ici. Bien qu'il ne fût pas le plus puissant de la Secte Éternelle, il avait atteint le premier stade du Fléau Céleste!
 
 C'est parce qu'il avait atteint cet état rare qu'il pouvait percevoir ce que nul autre ne voyait. Il fixa l'espace entre les sourcils de Wang Lin et, bien qu'il n'y eût rien de visible, il sentit distinctement la puissance d'une loi résider en ce point!
 
@@ -50,9 +50,9 @@ Même ses compagnons de la Secte de la Musique Céleste étaient terrifiés.
 
 « Il… Il est… Il est si puissant. Quand Lu Yuncong a dit qu'il pourrait me tuer comme une fourmi, il disait la vérité! » Lu Yingjie était dévasté; son visage était livide et son esprit en plein chaos.
 
-Non seulement lui, mais la Secte de la Quête de Montagne s'était également tue. Zhao Long fixait la figure dans le ciel, l'expression changée radicalement. Ses pupilles se rétractèrent et son esprit devint vide.
+Non seulement lui, mais la Secte Recherchant la Montagne s'était également tue. Zhao Long fixait la figure dans le ciel, l'expression changée radicalement. Ses pupilles se rétractèrent et son esprit devint vide.
 
-Le Maître de la Secte et le Grand Ancien de la Secte de la Quête de Montagne étaient d'une pâleur mortelle. Dès qu'ils virent Wang Lin, ils le reconnurent immédiatement comme l'homme qui les avait contraints à déplacer leur continent et à lui rendre respectueusement les honneurs.
+Le Maître de la Secte et le Grand Ancien de la Secte Recherchant la Montagne étaient d'une pâleur mortelle. Dès qu'ils virent Wang Lin, ils le reconnurent immédiatement comme l'homme qui les avait contraints à déplacer leur continent et à lui rendre respectueusement les honneurs.
 
 « C'est… C'est… C'est lui!!! » Les deux hommes se regardèrent, partageant la même terreur dans leurs yeux.
 
@@ -64,7 +64,7 @@ Certains vieux monstres avaient personnellement aperçu la silhouette de Wang Li
 
 « J'ai entendu dire par l'ancêtre de ma secte que cet homme avait utilisé un seul sort pour briser la barrière menant à la région de rang 7. Même l'Ancêtre en a été choqué! »
 
-« Ce vieux s'est personnellement vu utiliser l'Empreinte de l'Esprit Guerrier, forçant de nombreuses sectes à déplacer leurs continents pour lui faire place! »
+« Ce vieil homme l'a vu de ses propres yeux utiliser l'Empreinte de l'Esprit Guerrier, forçant de nombreuses sectes à déplacer leurs continents pour lui faire place! »
 
 « La rumeur dit que trois briseurs de Nirvana ont tenté de l'arrêter, mais qu'ils furent tous contraints de battre en retraite, gravement blessés! »
 
@@ -78,7 +78,7 @@ Wang Lin regarda la fragile Lu Yanfei d'un air désolé et dit doucement: « Je 
 
 Lu Yanfei ne put plus retenir ses larmes; en regardant Wang Lin, elle secoua la tête. Un sourire radieux éclaira son visage alors qu'elle répondait doucement: « Tu n'es pas en retard. Tant que tu es là, il n'est jamais trop tard. »
 
-« Retourne d'où tu viens. Avec moi ici, personne ne pourra déplacer la Secte de l'Origine! Dans cette compétition, qu'il s'agisse des sectes de rang 5, 6 ou 7, je ferai en sorte que la Secte de l'Origine soit la première! » Wang Lin agita ses manches et une brise légère emporta Lu Yanfei vers les membres de la Secte de l'Origine.
+« Retourne d'où tu viens. Avec moi ici, personne ne pourra toucher à la Secte de l'Origine! Dans cette compétition, qu'il s'agisse des sectes de rang 5, 6 ou 7, je ferai en sorte que la Secte de l'Origine soit la première! » Wang Lin agita ses manches et une brise légère emporta Lu Yanfei vers les membres de la Secte de l'Origine.
 
 Wang Lin tourna le regard vers la Secte Éternelle et joignit les mains à l'adresse du vieil homme qui avait pris la parole. Cependant, il fut surpris en apercevant Li Qianmei et… Mu Bingmei.
 
@@ -88,9 +88,9 @@ Il détourna le regard après un moment de choc pour observer Lu Yuncong, dont l
 
 Wang Lin esquissa un mince sourire, mais son expression se glaça et il demanda doucement: « Frère Lu, j'ai une question à vous poser! Lu Yanfei est blessée. Qui a fait cela? »
 
-Lu Yuncong n'hésita pas et pointa la Secte de la Musique Céleste: « Lu Yingjie de la Secte de la Musique Céleste! » Puis il désigna la Secte de la Quête de Montagne.
+Lu Yuncong n'hésita pas et pointa la Secte de la Musique Céleste: « Lu Yingjie de la Secte de la Musique Céleste! » Puis il désigna la Secte Recherchant la Montagne.
 
-« Zhao Long de la Secte de la Quête de Montagne! Ils avaient des pensées impures envers Madame Lu! »
+« Zhao Long de la Secte Recherchant la Montagne! Ils avaient des pensées impures envers Mademoiselle Lu! »
 
 Wang Lin hocha la tête et se tourna vers la Secte de la Musique Céleste. Une lueur de froideur traversa son regard alors qu'il s'élançait dans les airs pour charger la secte adverse.
 
@@ -106,13 +106,13 @@ Wang Lin ne marqua aucune pause. Il marcha vers le vieil homme qui traînait Lu 
 
 Tous les cultivateurs sur les plateformes environnantes tombèrent dans un silence de mort!
 
-« Secte principale, aidez-nous! » Le front du maître de Lu Yingjie était couvert de sueur et ses yeux brillaient de terreur alors qu'il hurlait vers les membres de la Secte Éternel.
+« Secte principale, aidez-nous! » Le front du maître de Lu Yingjie était couvert de sueur et ses yeux brillaient de terreur alors qu'il hurlait vers les membres de la Secte Éternelle.
 
 Feng Hai hésita un instant avant de joindre les mains pour parler: « Camarade Cultivateur Lu, je vous en prie… »
 
 Mais Wang Lin agita la main et l'interrompit brutalement!
 
-« Il a humilié ma Secte de l'Origine, il doit donc mourir. Quiconque tentera de le sauver subira le même sort! » déclara lentement Wang Lin avant de lever sa main droite. Il était venu à la Secte Éternel pour servir de rempart à la Secte de l'Origine et la propulser vers les sommets!
+« Il a humilié ma Secte de l'Origine, il doit donc mourir. Quiconque tentera de le sauver subira le même sort! » déclara lentement Wang Lin avant de lever sa main droite. Il était venu à la Secte Éternelle pour terrifier tout le monde, donner de l'élan à la Secte de l'Origine et lui offrir l'échelle pour atteindre le ciel!
 
 À cet instant, d'un simple mouvement de doigt, le monde trembla et le Doigt du Destin Céleste apparut. Des ondulations résonnèrent dans le ciel alors qu'un doigt gigantesque se matérialisait, dégageant une pression monstrueuse. Tous les spectateurs retinrent leur souffle, pétrifiés devant ce doigt colossal qui semblait occuper tout l'espace!
 
@@ -122,4 +122,4 @@ Le sang éclaboussa partout. Les corps de Lu Yingjie et de son maître volèrent
 
 « Tuer Lu Yingjie est aussi facile qu'écraser une fourmi. » Les paroles que Lu Yuncong avait prononcées quelques jours plus tôt résonnaient maintenant comme un vent glacial d'hiver!
 
-Wang Lin se retourna et fixa la Secte de la Quête de Montagne. Il fit un pas vers eux!
+Wang Lin se retourna et fixa la Secte Recherchant la Montagne. Il fit un pas vers eux!

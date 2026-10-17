@@ -6,13 +6,13 @@ bookTitle: "Alliance's Secret"
 en: Chapter 968 - One Finger to Pierce the Heavenly Fate
 slug: un-doigt-pour-percer-le-destin-celeste
 ---
-Les yeux de Bai Wei se rétrécirent, puis il regarda Wang Lin en hochant la tête. Il resta silencieux. Alors que le temps touchait à sa fin, Bai Wei prit une profonde inspiration et jeta un regard empreint de sens sur le monde qui l'entourait. Finalement, son regard se tourna vers l'est, comme s'il contemplait sa terre natale...
+Les yeux de Bai Wei se rétrécirent, puis il regarda Wang Lin en hochant la tête. Il resta silencieux. Alors que l'heure du Lapin touchait à sa fin, Bai Wei prit une profonde inspiration et jeta un regard empreint de sens sur le monde qui l'entourait. Finalement, son regard se tourna vers l'est, comme s'il contemplait sa terre natale...
 
 Une tristesse infinie perçait dans ses yeux alors qu'il les fermait lentement. À l'instant même où ses paupières se refermèrent, l'énergie Yin extrêmement dense augmenta de façon fulgurante.
 
 Cette progression était terrifiante. En un instant, toute la végétation desséchée explosa en une poussière fine. Des craquements sinistres résonnèrent et de la glace commença à recouvrir les parois de la vallée.
 
-Une énergie Yin céleste jaillit de son corps et un vortex se forma au-dessus de sa tête. Ce tourbillon, constitué d'énergie Yin, s'élargissait à mesure qu'il tournait!
+Une énergie d'extrême Yin du ciel et de la terre jaillit de son corps et un vortex se forma au-dessus de sa tête. Ce tourbillon, constitué d'énergie Yin, s'élargissait à mesure qu'il tournait!
 
 L'énergie Yin rugit. Les yeux de Wang Lin brillèrent comme des éclairs tandis qu'il observait silencieusement Bai Wei.
 
@@ -70,13 +70,13 @@ Le rugissement de Bai Wei se propagea frénétiquement sur des dizaines de milli
 
 « Omniscient, je sacrifie ma vie pour que tu aies tort une seule fois! Moi, Bai Wei, je rirai dans l'au-delà! Je suis prêt à échanger cette vie sans valeur pour que l'Omniscient se trompe une fois! »
 
-Alors que Bai Wei riait de façon maniaque, la marque contenant toute son énergie Yin subit une étrange métamorphose. L'énergie Yin infinie fut condensée de manière répétée par la rotation du vortex, et un rugissement tonitruant en émana.
+Alors que Bai Wei riait de façon maniaque, la marque contenant toute son énergie Yin subit une étrange métamorphose. L'énergie Yin infinie se changea en un vortex de la taille d'un poing, sans cesse comprimé et tournoyant, d'où émana un rugissement plus fort que le tonnerre.
 
 En un instant, le vortex formé par la marque atteignit un point critique, et une lumière dorée apparut dans ses profondeurs. Toute l'énergie Yin convergea vers elle avec acharnement.
 
 Soudain, toute l'énergie Yin disparut, ne laissant derrière elle qu'un point doré étincelant qui flotta vers Wang Lin.
 
-Le corps de Bai Wei était désormais immobile. Il avait presque perdu toute force vitale et s'était transformé en une sculpture de glace arborant une expression féroce!
+Le corps de Bai Wei était désormais immobile. Il avait perdu toute force vitale et, un sourire féroce aux lèvres, s'était transformé en une sculpture de glace!
 
 Une sculpture de glace éternelle. Elle dégageait une aura puissante de défi, un refus obstiné d'être asservi par le destin!
 
@@ -88,7 +88,7 @@ Le point doré dérivait vers Wang Lin. Il pouvait ressentir une vitalité puiss
 
 À l'extérieur, toutes les gouttes de pluie qui avaient été gelées fondirent et retombèrent. Tous les bouleversements causés par l'énergie Yin revinrent à la normale.
 
-Au moment même où la main de Wang Lin toucha l'énergie Yang extrême, le temps imparti fut écoulé.
+Au moment même où la main de Wang Lin toucha l'énergie Yang extrême, l'heure du Lapin s'acheva.
 
 Dans la Secte du Destin Céleste, il existait une montagne très singulière. Elle ressemblait à un trident géant enfoui sous terre, dont seules les trois pointes émergeaient à la surface!
 
@@ -96,7 +96,7 @@ Des anneaux de sept couleurs différentes projetaient des éclats de lumière. L
 
 L'Omniscient était assis sur le sommet du pic central. Vêtu de blanc, ses cheveux d'argent flottaient au gré du vent. Bien qu'il fût âgé, il ne semblait pas déclinant; au contraire, il avait l'allure d'un être céleste.
 
-Dès que le temps fut écoulé, il ouvrit les yeux. À cet instant, une multitude de nuages passèrent devant lui. Plus frappant encore, le soleil et la lune semblaient s'inverser dans son regard tandis que les nuages défilaient à une vitesse vertigineuse.
+Dès que l'heure du Lapin s'acheva et que celle du Dragon commença, il ouvrit les yeux. À cet instant, une multitude de nuages passèrent devant lui. Plus frappant encore, le soleil et la lune semblaient s'inverser dans son regard tandis que les nuages défilaient à une vitesse vertigineuse.
 
 C'était comme si le temps lui-même résidait au fond des yeux de l'Omniscient!
 
@@ -106,17 +106,17 @@ Il observa calmement la Terre. Après un long silence, il poussa un soupir.
 
 « Ce qu'ils poursuivent n'est qu'une illusion, la vision d'une fourmi! Moi, l'Omniscient, je ne cherche pas à vivre aussi longtemps que le monde. Je veux que mon destin devienne celui des cieux. Je veux que ma volonté devienne celle des cieux. Je veux que le Dao des cieux fusionne avec mon propre Dao! »
 
-Le regard de l'Omniscient se posa vers la lointaine Cité de l'Œil Fantôme. Une lueur étrange brilla dans ses yeux et il murmura: « Wang Lin... tu oses! »
+Le regard de l'Omniscient se posa vers la lointaine Cité aux Yeux Fantômes. Une lueur étrange brilla dans ses yeux et il murmura: « Wang Lin... tu oses! »
 
 Sans bouger, il leva simplement sa main droite. Son index pointa négligemment vers l'avant!
 
-À cet instant, une tempête se déchaîna aux abords de la planète Tian Yun. Un grondement sourd retentit et l'énergie d'origine du monde commença à s'assembler en masse.
+À cet instant, une tempête se déchaîna aux abords de la planète Tian Yun. Un grondement sourd retentit et l'énergie originelle du monde commença à s'assembler en masse.
 
-Toute l'énergie d'origine située dans un rayon de dizaines de milliers de kilomètres sembla répondre à un appel et convergea frénétiquement.
+Toute l'énergie originelle située dans un rayon de dizaines de milliers de kilomètres sembla répondre à un appel et convergea frénétiquement.
 
 En un instant, un doigt gigantesque apparut au-dessus de la planète Tian Yun. Ce doigt mesurait 3,3 kilomètres de long pour 330 mètres de large. Il était transparent, comme une existence éthérée.
 
-L'énergie d'origine infinie s'accumulait sur le doigt à une vitesse dépassant l'entendement. C'était comme si ce doigt était un trou noir sans fin aspirant toute la substance du monde.
+L'énergie originelle infinie s'accumulait sur le doigt à une vitesse dépassant l'entendement. C'était comme si ce doigt était un trou noir sans fin aspirant toute la substance du monde.
 
 Rapidement, le doigt passa de l'état éthéré à un état presque solide; même les sillons de l'empreinte digitale étaient clairement visibles. Les marques sur le doigt ressemblaient à des montagnes et des canyons!
 

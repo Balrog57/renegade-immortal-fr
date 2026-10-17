@@ -22,7 +22,7 @@ Li Qianmei cligna des yeux et sourit. « Si Frère Lu peut vraiment lever les do
 
 Li Qianmei regarda Lu Yuncong et dit doucement: « La deuxième question: qu'est-ce que le ciel? »
 
-Le vieil homme aux côtés de Lu Yuncong écoutait toujours. En entendant son seigneur répondre à la première question, il avait souri, mais face à la deuxième, son expression devint étrange.
+Le vieil homme aux côtés de Lu Yuncong écoutait toujours. En entendant son Maître de Secte répondre à la première question, il avait souri, mais face à la deuxième, son expression devint étrange.
 
 Lu Yuncong fronça les sourcils et commença à méditer. Cette fois, sa réflexion fut bien plus longue que la précédente. Li Qianmei ne manifesta aucune impatience, attendant silencieusement la réponse de Lu Yuncong.
 
@@ -30,17 +30,17 @@ Après quinze minutes, Lu Yuncong prononça lentement: « Le ciel est... un chem
 
 Li Qianmei réfléchit un instant et demanda doucement: « Pourquoi? »
 
-Lu Yuncong leva la tête vers les hauteurs. Après avoir pesé ses mots, il dit: « Le ciel est sous nos pieds, c'est un chemin sur lequel nous marchons. C'est parce que ce chemin existe qu'il y a le Dao! Le Dao signifie ceci: c'est la voie qui nous mène vers la direction de l'évasion de cette cage qu'est le ciel. »
+Lu Yuncong leva la tête vers les hauteurs. Après avoir pesé ses mots, il dit: « Le ciel est sous nos pieds, c'est un chemin sur lequel nous marchons. C'est parce que ce chemin existe qu'il y a le Dao! Dao et voie vont ensemble: le Dao est comme une voie, et la voie est le Dao. Le ciel est la voie; il est la direction, le guide qui nous mène à briser cette cage. »
 
 Les yeux de Li Qianmei s'illuminèrent davantage, et son admiration devint plus intense encore.
 
 « Merci, Frère Lu, d'avoir répondu à mes questions. Je me sens beaucoup moins confuse à présent. Je me demande où Frère Lu se rend si précipitamment. »
 
-Le vieil homme aux côtés de Lu Yuncong hésita un instant avant de joindre les mains et de demander: « Honorable cultivatrice Li, est-ce là la troisième question? »
+Le vieil homme aux côtés de Lu Yuncong hésita un instant avant de joindre les mains et de demander: « Daoïste Li, est-ce là la troisième question? »
 
 Li Qianmei se contenta d'un sourire silencieux.
 
-« Je me rends sur le continent de Mo Luo pour apprendre certaines choses et demander des comptes. » L'expression de Lu Yuncong était neutre; il n'éprouvait aucun regret, même s'il savait qu'il n'aurait pas l'occasion de répondre à la troisième question.
+« Je me rends sur le continent de Mo Luo pour régler une affaire qui me préoccupe et demander des comptes. » L'expression de Lu Yuncong était neutre; il n'éprouvait aucun regret, même s'il savait qu'il n'aurait pas l'occasion de répondre à la troisième question.
 
 Li Qianmei cligna des yeux et dit doucement: « Je me demande si Frère Lu m'accorderait l'honneur de l'accompagner? »
 
@@ -50,7 +50,7 @@ En chemin, Lu Yuncong et Li Qianmei discutèrent tranquillement, échangeant leu
 
 Le vieil homme restait à quelques pas derrière. Son regard se posait occasionnellement sur eux. On lisait une certaine étrangeté dans ses yeux, mais aussi une pointe de joie.
 
-« Après la mort de l'épouse du Maître de la Secte, celui-ci n'a plus jamais eu de partenaire de Dao. Bien que cette Li Qianmei de la secte de rang 9 vienne à peine de rencontrer le Maître de la Secte, elle semble s'entendre à merveille avec lui. Si les deux parviennent à former un couple de Dao, avec la sagesse du Maître de la Secte, son avenir sera sans limites... Alors ma Secte du Dao Pourpre pourra ébranler la Mer des Nuages! »
+« Après la mort de l'épouse du Maître de la Secte, celui-ci n'a plus jamais eu de partenaire de Dao. Bien que cette Li Qianmei de la secte de rang 9 vienne à peine de rencontrer le Maître de la Secte, elle semble s'entendre à merveille avec lui. Si les deux parviennent à former un couple de Dao, avec la sagesse du Maître de la Secte, son avenir sera sans limites... Alors notre Secte Dao Pourpre pourra ébranler la Mer des Nuages! »
 
 Depuis qu'elle avait quitté la Secte Brise-Ciel, Li Qianmei n'avait que rarement eu des conversations de ce genre. Personne d'autre n'était qualifié pour discuter avec elle, à l'exception de Lu Yuncong.
 
@@ -62,9 +62,9 @@ Depuis qu'elle avait quitté la Secte Brise-Ciel, Li Qianmei n'avait que raremen
 
 Lu Yuncong ne cachait pas ses pensées; n'ayant aucune raison de le faire, il lui fit part de ses spéculations.
 
-« Si ce mystérieux cultivateur possède un esprit aussi calculateur, alors il ne sera pas difficile de le trouver. » En entendant les conjectures de Lu Yuncong, Li Qianmei ressentit une pointe d'intérêt pour cet inconnu.
+« Si ce mystérieux cultivateur possède un esprit aussi calculateur, alors il ne sera vraiment pas facile de le trouver. » En entendant les conjectures de Lu Yuncong, Li Qianmei ressentit une pointe d'intérêt pour cet inconnu.
 
-« Décisif dans ses actes, l'esprit semblable à un démon et impitoyable dans le meurtre! Je n'admire que peu de gens dans ma vie, mais ce mystérieux cultivateur peut être considéré comme l'un d'eux. » Tandis que Lu Yuncong faisait son éloge, la tristesse dans ses yeux s'accentua.
+« Décisif dans ses actes, l'esprit semblable à un démon et impitoyable dans le meurtre! Je n'admire que peu de gens dans ma vie, mais ce mystérieux cultivateur peut être considéré comme l'un d'eux. » Tandis que Lu Yuncong faisait son éloge, l'estime dans ses yeux s'accentua.
 
 Li Qianmei dit doucement: « Tout cela n'est que spéculation de Frère Lu. Peut-être que la vérité est tout autre. »
 
@@ -74,7 +74,7 @@ Li Qianmei dit doucement: « Tout cela n'est que spéculation de Frère Lu. Peut
 
 Le tigre s'arrêta lentement et flotta dans l'espace, fixant froidement l'horizon.
 
-Lu Yuncong regarda l'Ancien à ses côtés et dit calmement: « La Secte du Dao Pourpre et la Secte de l'Origine partagent la même secte principale. Il n'est pas nécessaire de créer trop de confusion. J'irai seul, attendez ici tous ensemble. »
+Lu Yuncong regarda l'Ancien à ses côtés et dit calmement: « La Secte Dao Pourpre et la Secte de l'Origine partagent la même secte principale. Il n'est pas nécessaire de créer trop de confusion. J'irai seul, attendez ici tous ensemble. »
 
 Le vieil homme acquiesça.
 
@@ -106,15 +106,15 @@ L'arrivée de ces deux êtres n'attira l'attention d'aucun cultivateur de la Sec
 
 Sa vitesse n'était pas rapide, mais chaque pas qu'il faisait résonnait avec les battements de cœur de Wang Lin. Chaque pas semblait contenir une certaine loi et dégageait une pression indicible.
 
-Plus étrange encore: à mesure que l'homme approchait, le ciel s'obscurcissait après une douzaine de pas. Des nuages sombres couvraient la moitié du monde à son passage, semblant dévorer le firmament.
+Plus étrange encore: à mesure que l'homme approchait, sur ces quelques dizaines de pas, le ciel derrière lui s'obscurcit brusquement. Des nuages sombres couvraient la majeure partie du monde et suivaient sa marche, semblant dévorer le jour.
 
-« Assieds-toi! » Wang Lin n'avait toujours pas levé la tête. Il était surpris que ces deux-là aient pu le trouver ici sans que personne à la Secte de l'Origine ne s'en aperçoive.
+« Assieds-toi! » Wang Lin n'avait toujours pas levé la tête. Il n'était pas surpris que ces deux-là aient pu le trouver ici sans que personne à la Secte de l'Origine ne s'en aperçoive.
 
 Il n'avait prononcé qu'un seul mot, mais à cet instant, les pas de l'homme d'âge moyen s'interrompirent. C'était comme si le rythme qu'il avait instauré par ses pas était brisé, le rendant incapable de distinguer le vrai du faux. Tout ce qui s'était produit jusqu'alors semblait s'être effondré sous la simple pensée de Wang Lin.
 
 L'expression de Lu Yuncong devint immédiatement grave. Ce sentiment était d'une clarté absolue. Il avait pourtant déployé sa culture et son domaine pour encercler cet homme en blanc. Ces pas qu'il faisait constituaient son domaine, et chaque foulée devait être une attaque de domaine.
 
-En avançant, son domaine fusionnait avec le monde et son Dao se transformait en nuages sombres, lui conférant un élan décuplé. Ces douze pas simples consistaient à emprunter la puissance des cieux pour s'abattre sur cet homme en blanc à l'apparence ordinaire.
+En avançant, son domaine fusionnait avec le monde et son Dao se transformait en nuages sombres, lui conférant un élan décuplé. Ces quelques dizaines de pas simples consistaient à emprunter la puissance des cieux pour s'abattre sur cet homme en blanc à l'apparence ordinaire.
 
 Pour n'importe qui d'autre, ces quelques pas auraient suffi à briser son domaine et à blesser gravement son âme originelle. Une blessure plus profonde aurait laissé une marque sur son cœur de Dao et provoqué l'effondrement de ses fondations!
 
@@ -134,7 +134,7 @@ Que pouvait bien utiliser Lu Yuncong pour comparer? Quelle était sa qualificati
 
 Il ne pouvait pas rivaliser!
 
-Li Qianmei observait la scène depuis le début. Elle accompagnait Lu Yuncong par admiration pour sa compréhension du Dao et par bienveillance. Elle pensait que parmi la jeune génération, personne n'avait une compréhension plus profonde que lui. C'était d'ailleurs pour cela que les grandes sectes portaient un regard sur lui.
+Li Qianmei observait la scène depuis le début. Elle accompagnait Lu Yuncong par admiration pour sa compréhension du Dao et par estime. Elle pensait que parmi la jeune génération, personne n'avait une compréhension plus profonde que lui. C'était d'ailleurs pour cela que les grandes sectes portaient un regard sur lui.
 
 Cependant, son opinion changea lorsqu'elle posa les yeux sur Wang Lin, et ses yeux brillèrent plus intensément qu'ils ne l'avaient jamais fait auparavant.
 

@@ -88,7 +88,7 @@ Ils étaient responsables de cet endroit depuis longtemps et voyaient rarement q
 
 Le niveau de culture de Wang Lin pouvait changer à sa guise; à cet instant, il se présentait devant ces trois vieillards en tant que cultivateur Ascendant.
 
-Une fois les échanges terminés et le contenu englouti par la mare noire, Wang Lin sortit calmement un jade. Ce n'était pas un objet d'échange, mais le Classement du Tonnerre Dispersé.
+Une fois les échanges terminés et le contenu englouti par la mare noire, Wang Lin sortit calmement un jade. Ce jade avait appartenu à Yu Fei et contenait son âme vitale; il servait à enregistrer les cristaux de tonnerre.
 
 Il jeta nonchalamment le jade dans la mare noire. Des rugissements sourds s'élevèrent de la substance, et peu après, le jade jaillit pour revenir dans les mains de Wang Lin.
 

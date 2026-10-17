@@ -46,7 +46,7 @@ La lumière se mua en un rayon multicolore qui siffla vers le Maître Pin Cendr�
 
 Le Maître Pin Cendré fut entouré d'une lueur sanglante alors que l'éclair arrivait. La lumière rouge sembla bouillir dans un vacarme de craquements, s'effondrant et se dissipant continuellement.
 
-Alors qu'il continuait de reculer, le Maître Pin Cendré ouvrit son espace de stockage de sa main droite. Cependant, à cet instant précis, il ressentit un puissant sentiment de danger. Un rayon de lumière aux sept couleurs se rapprocha instantanément de lui, perçant la lueur rouge qui s'effritait.
+Alors qu'il continuait de reculer, le Maître Pin Cendré ouvrit son espace de stockage de sa main droite pour en sortir un trésor magique. Cependant, à cet instant précis, il ressentit un puissant sentiment de danger. Un rayon de lumière aux sept couleurs se rapprocha instantanément de lui, perçant la lueur rouge qui s'effritait.
 
 Le visage du Maître Pin Cendré devint instantanément livide. La lumière aux sept couleurs était trop rapide. Le sang jaillit de sa poitrine lorsque le rayon le transperça. Son âme originelle tenta de s'échapper, mais il laissa échapper un gémissement misérable: un clou aux sept couleurs venait de percer la poitrine de son âme originelle.
 
@@ -100,7 +100,7 @@ Le regard de Wang Lin balaya le visage de Chen Tianjun avant qu'il ne secoue la 
 
 Chen Tianjun hésita et murmura: « Ce n'est pas un problème. Emmenez-moi simplement quand le compagnon Lu partira. Il n'y a pas d'urgence. Si vous avez besoin que je fasse quoi que ce soit, demandez-le moi. »
 
-Après avoir fini de parler, voyant que l'expression de Wang Lin demeurait impassible, comme s'il n'acceptait pas sa proposition, il se précipita: « Compagnon Lu, grâce à ma connaissance des bêtes féroces et aux sorts de ma Secte des Bêtes de Combat, je peux vous aider à rassembler des cristaux d'origine auprès des innombrables bêtes de brume qui peuplent ces lieux. J'ai grossièrement calculé qu'il y a au moins une centaine de bêtes de brume et une quantité incalculable de cristaux d'origine. Si le compagnon promet de me sortir d'ici, je prendrai le risque de tous les récolter! Une fois partis, il y aura également une grande récompense à la clé! »
+Après avoir fini de parler, voyant que l'expression de Wang Lin demeurait impassible, comme s'il n'acceptait pas sa proposition, il se précipita: « Compagnon Lu, grâce à ma connaissance des bêtes féroces et aux sorts de ma Secte des Bêtes de Bataille, je peux vous aider à rassembler des cristaux d'origine auprès des innombrables bêtes de brume qui peuplent ces lieux. J'ai grossièrement calculé qu'il y a sans doute plusieurs centaines de bêtes de brume et une quantité incalculable de cristaux d'origine. Si le compagnon promet de me sortir d'ici, je prendrai le risque de tous les récolter! Une fois partis, il y aura également une grande récompense à la clé! »
 
 Wang Lin fut tenté. Après avoir pesé le pour et le contre, il hocha la tête et remit un morceau de jade à Chen Tianjun.
 
@@ -124,13 +124,13 @@ Les habitants du royaume extérieur, eux, appelaient cet endroit le Système Ste
 
 Dans une zone interdite du Système Stellaire Primordial se trouvait un palais mystérieux. Aucun signe de vie n'y subsistait, et plusieurs lumières aux sept couleurs flottaient dans l'enceinte. À l'intérieur de chaque lumière reposait un morceau de jade sur lequel un nom était gravé...
 
-Qing Shui, Omniscient, Maître Zhongxuan, Shui Daozi, Sima Mo, Maître Pin Cendré...
+Qing Shui, Omniscient, Maître Zhong Xuan, Shui Daozi, Sima Mo, Maître Pin Cendré...
 
 À cet instant, le jade portant le nom du Maître Pin Cendré se brisa en d'innombrables fragments et un soupir résonna dans le palais. Dès l'apparition de ce soupir, le temps commença à refluer et les éclats de jade se reformèrent pour redevenir un bloc intact, comme si rien ne s'était passé.
 
 Cependant, le nom gravé sur le jade ainsi restauré était devenu: « Wang Lin... »
 
-« Dans la terre des graines de Dao, l'esprit du Dao va bientôt se former... Utilisons simplement l'âme de cet individu pour permettre au Dao de triompher. » Un murmure résonna dans le palais. C'était comme si la voix s'adressait à elle-même ou se propageait à travers les étoiles.
+« Dans la terre où le Dao est planté, le Dao est sur le point d'advenir... Utilisons l'âme de cet homme pour que le Dao s'accomplisse. » Un murmure résonna dans le palais. C'était comme si la voix s'adressait à elle-même ou se propageait à travers les étoiles.
 
 Dans les profondeurs du Royaume aux Sept Couleurs, près de la montagne que l'esprit de Wang Lin avait traversée, un vieil homme aux cheveux blancs était assis. Derrière lui se trouvait une grotte d'où émanait une lumière multicolore et d'où s'échappaient lentement de nombreux gémissements plaintifs.
 

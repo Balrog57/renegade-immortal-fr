@@ -10,7 +10,7 @@ Au cours de cette bataille, Wang Lin avait déjà stupéfié Shui Daozi à plusi
 
 Ce météore, composé d'un métal inconnu, avait été façonné par le Souverain durant 10 000 ans pour devenir 108 clous aux sept couleurs! Ils étaient nommés les Clous Divins du Vide aux Sept Couleurs!
 
-La rumeur prétendait que ce météore de métal inconnu était d'un mystère absolu. Le Souverain avait tenté d'utiliser un sortilège temporel pour en découvrir l'origine. Alors qu'il touchait au but, une force mystérieuse l'avait interrompu, le laissant au bord de la mort.
+La rumeur prétendait que ce météore de métal inconnu était d'un mystère absolu. Le Souverain avait tenté d'utiliser un sortilège temporel pour en découvrir l'origine. Alors qu'il touchait au but, une force mystérieuse l'avait interrompu, manquant de le blesser gravement.
 
 Cependant, malgré cela, la puissance du Souverain était telle qu'il avait pu entrevoir un passé flou du météore au moment même de l'interruption!
 
@@ -56,7 +56,7 @@ Si Wang Lin était déjà en proie à la démence face à une crise de vie ou de
 
 Il ne s'agissait plus seulement de lutter pour sa survie, mais de quelque chose de bien plus vital!
 
-Dans cet état de déraison, le sang de l'épée de fer, fusionné avec l'âme originelle de Wang Lin, entra en jeu. C'était le sang d'un Dieu Ancien à neuf étoiles, le sang des cieux. En se mêlant à son âme originelle, le corps de Wang Lin commença à irradier, son âme originelle s'embrasa, et même son esprit sembla brûler!
+Dans cet état de déraison, le sang de l'épée de fer, fusionné avec l'âme originelle de Wang Lin, entra en jeu. On eût dit le sang d'un Dieu Ancien à neuf étoiles, le sang du Dao céleste. En se mêlant à son âme originelle, le corps de Wang Lin commença à irradier, son âme originelle s'embrasa, et même son esprit sembla brûler!
 
 Une force indescriptible jaillit de son être. Des bruits de craquements résonnèrent alors que le sortilège d'arrêt autour de lui s'effondrait. Wang Lin chargea dans un rugissement, ses étoiles de Dieu Ancien tournoyant et son étoile de loi apparaissant à ses côtés!
 
@@ -96,7 +96,7 @@ Cette contraction instantanée généra une pression capable d'écraser toute ex
 
 Au moment où il prononça ces mots, les lignes de diamant se refermèrent furieusement sur Wang Lin. Un flash éblouissant illumina tout le champ d'étoiles et enveloppa le corps du jeune homme!
 
-Condenser la puissance de 10 millions de kilomètres d'espace sur une seule personne revenait à faire exploser une douzaine de planètes de culture simultanément.
+Condenser la puissance de 10 millions de kilomètres d'espace sur une seule personne revenait à faire exploser des dizaines de planètes de culture simultanément.
 
 Des grondements telluriques secouèrent le système stellaire. À cet instant, les régions de rang 5, 6, 7 et même 8 purent percevoir ce tumulte!
 

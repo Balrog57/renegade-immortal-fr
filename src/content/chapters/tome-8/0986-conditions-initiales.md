@@ -12,7 +12,7 @@ L'expression de Wang Lin changea légèrement. C'était comme si une force étra
 
 Ling Er ne cilla pas du regard alors qu'elle observait Wang Lin. Dès l'instant où les étoiles du Dieu Ancien apparurent entre ses sourcils, la confusion envahit ses yeux. Ce fut comme le passage rapide d'un nuage, laissant place à un éclat soudain dans son regard. Son corps trembla, comme si une mémoire enfouie en elle venait d'être libérée.
 
-Elle était en transe. L'événement qui n'était apparu que dans ses rêves se matérialisait devant elle. Elle était agenouillée sur l'autel tandis qu'une multitude de personnes chantaient autour de lui.
+Elle était en transe. L'événement qui n'était apparu que dans ses rêves se matérialisait devant elle. Elle était agenouillée sur l'autel tandis qu'une multitude de personnes chantaient en contrebas.
 
 À genoux sur l'autel, elle exécuta le geste de la bouteille précieuse, leva les yeux vers le ciel et émit un son doux mais singulier!
 
@@ -24,7 +24,7 @@ Seules cinq étoiles ornaient le front de cette figure, mais elle dégageait une
 
 Ce Dieu Ancien était Wang Lin!
 
-Dans le rêve, le visage de Ling Er était empreint de révérence. À l'instant où Wang Lin apparut, elle murmura: « La servante du clan lunaire antique, Mu Ling, prie le Dieu Ancien de descendre et de nous accorder la puissance de combattre le Clan de la Tour! »
+Dans le rêve, le visage de Ling Er était empreint de révérence. À l'instant où Wang Lin apparut, elle murmura: « L'esclave divine du clan lunaire antique, Mu Ling, prie le Dieu Ancien de descendre et de nous accorder la puissance de combattre le Clan de la Tour! »
 
 Simultanément, les innombrables hommes et femmes manifestèrent la même dévotion. Tous se mirent à chanter, créant une tempête qui balaya toute la région. Une marque lunaire éclatante apparut entre leurs sourcils, devenant de plus en plus lumineuse.
 

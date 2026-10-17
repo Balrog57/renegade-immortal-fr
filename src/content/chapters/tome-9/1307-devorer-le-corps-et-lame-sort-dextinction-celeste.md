@@ -18,35 +18,35 @@ Profondément enfouie dans les Quatre Divinités, la lumière monstrueuse des Tr
 
 Les Deux Rites étaient le Yin et le Yang, formant un diagramme qui tournait lentement. Cela entraîna la rotation de toutes les couches externes. Elles tournèrent de plus en plus vite, jusqu'à devenir un flou indistinct. Ce qui était étrange, c'est que les huit couches de la divine rétribution tournaient à des vitesses différentes. Des Deux Rites aux Neuf Palais, les huit types de rétributions formèrent huit vortex rotatifs dont les vitesses divergeaient, avant de fusionner ensemble!
 
-Alors que des grondements tonitruants résonnaient au sein du diagramme Yin et Yang en rotation, une explosion de lumière sans couleur éclata. Mais elle portait en elle la sensation du Royaume de Ji!
+Alors que des grondements tonitruants résonnaient au sein du diagramme Yin et Yang en rotation, une explosion de lumière sans couleur éclata. Mais elle portait en elle la sensation du Royaume Ji!
 
-Le Royaume de Ji!
+Le Royaume Ji!
 
-Simultanément, le corps de Wang Lin se mit à pivoter. Toutes les divines rétributions dans son corps reflétaient celles de l'extérieur et tournaient en harmonie. Au centre du diagramme Yin et Yang, le Royaume de Ji naquit!
+Simultanément, le corps de Wang Lin se mit à pivoter. Toutes les divines rétributions dans son corps reflétaient celles de l'extérieur et tournaient en harmonie. Au centre du diagramme Yin et Yang, le Royaume Ji naquit!
 
-À l'instant même où le Royaume de Ji vit le jour, le corps de Wang Lin cessa de s'effondrer et son âme originelle cessa de se dissiper. Tout s'immobilisa et Wang Lin ouvrit les yeux!
+À l'instant même où le Royaume Ji vit le jour, le corps de Wang Lin cessa de s'effondrer et son âme originelle cessa de se dissiper. Tout s'immobilisa et Wang Lin ouvrit les yeux!
 
-Dès qu'il les ouvrit, des éclairs rouges jaillirent de ses pupilles. Cet éclair rouge représentant le Royaume de Ji n'était pas apparu dans les yeux de Wang Lin depuis plus de mille ans!
+Dès qu'il les ouvrit, des éclairs rouges jaillirent de ses pupilles. Cet éclair rouge représentant le Royaume Ji n'était pas apparu dans les yeux de Wang Lin depuis plus de mille ans!
 
 Ses cheveux blancs s'agitèrent sans aucun vent et une lueur écarlate émana de leurs racines. En un instant, la chevelure blanche de Wang Lin devint inopinément rouge!
 
 Un rouge sang!
 
-La lumière rouge dans ses yeux devint encore plus intense, et une intention meurtrière monstrueuse se propagea. Le Royaume de Ji descendit!
+La lumière rouge dans ses yeux devint encore plus intense, et une intention meurtrière monstrueuse se propagea. Le Royaume Ji descendit!
 
-Par un immense sacrifice et avec la détermination d'un homme prêt à mourir, il affronta l'infinie divine rétribution. Après que son corps eut absorbé toutes les rétributions, un fragment du Royaume de Ji naquit. Wang Lin avait enfin retrouvé le Royaume de Ji qu'il avait perdu il y a si longtemps!
+Par un immense sacrifice et avec la détermination d'un homme prêt à mourir, il affronta l'infinie divine rétribution. Après que son corps eut absorbé toutes les rétributions, un fragment du Royaume Ji naquit. Wang Lin avait enfin retrouvé le Royaume Ji qu'il avait perdu il y a si longtemps!
 
-À cet instant précis, le Royaume de Ji formé par les Neuf Palais et les Deux Rites dans le vide se transforma en éclairs rouges et fonça droit sur Wang Lin.
+À cet instant précis, le Royaume Ji formé par les Neuf Palais et les Deux Rites dans le vide se transforma en éclairs rouges et fonça droit sur Wang Lin.
 
-Au moment où l'attaque arriva, Wang Lin laissa échapper un rire; des éclairs rouges jaillirent de ses yeux pour venir se poser dans sa main droite. Puis, il saisit le Royaume de Ji issu de la divine rétribution.
+Au moment où l'attaque arriva, Wang Lin laissa échapper un rire; des éclairs rouges jaillirent de ses yeux pour venir se poser dans sa main droite. Puis, il saisit le Royaume Ji issu de la divine rétribution.
 
-Dès que l'aura destructrice pénétra son corps, il s'appuya contre la Formation du Royaume Scellé. Il utilisa son corps, extrêmement familier avec le Royaume de Ji, comme un médium pour transférer la puissance du Royaume de Ji sur la Formation du Royaume Scellé.
+Dès que l'aura destructrice pénétra son corps, il s'appuya contre la Formation du Royaume Scellé. Il utilisa son corps, extrêmement familier avec le Royaume Ji, comme un médium pour transférer la puissance du Royaume Ji sur la Formation du Royaume Scellé.
 
-La formation gronda et les esprits précieux apparurent pour riposter. À cet instant, une multitude de fils verts surgit et les enchevétra, empêchant les esprits précieux de se manifester!
+La formation gronda et les esprits d'artefact apparurent pour riposter. À cet instant, une multitude de fils verts surgit et les enchevêtra, empêchant les esprits d'artefact de se manifester!
 
-Le Royaume de Ji provenant de la divine rétribution traversa le corps de Wang Lin et s'engouffra dans la formation avec frénésie. Alors que le corps de Wang Lin était repoussé, la formation agissait comme un filet que Wang Lin était en train d'étirer!
+Le Royaume Ji provenant de la divine rétribution traversa le corps de Wang Lin et s'engouffra dans la formation avec frénésie. Alors que le corps de Wang Lin était repoussé, la formation agissait comme un filet que Wang Lin était en train d'étirer!
 
-Les yeux de Wang Lin libérèrent des éclairs rouges, puis sa main droite frappa la Formation du Royaume Scellé. Le Royaume de Ji né à l'intérieur de son corps s'échappa et fonça sur la formation.
+Les yeux de Wang Lin libérèrent des éclairs rouges, puis sa main droite frappa la Formation du Royaume Scellé. Le Royaume Ji né à l'intérieur de son corps s'échappa et fonça sur la formation.
 
 Cette attaque contenait deux Royaumes de Ji. Celui de la divine rétribution et celui de Wang Lin se combinèrent pour créer un impact inimaginable.
 
@@ -104,17 +104,17 @@ Des centaines de cultivateurs convergèrent!
 
 « Un jour viendra où une future génération de cultivateurs brisera cette formation et fera disparaître tous vous, les étrangers! Des rivières de sang couleront dans votre Royaume Extérieur! »
 
-Le rugissement de cet être céleste résonna clairement dans les oreilles de Wang Lin, et son regard devint de plus en plus froid. Il observa le système stellaire étranger devant lui et la Formation du Royaume Scellé qui s'estompait derrière lui. Un seul royaume d'écart représentait une éternité pour beaucoup!
+Le rugissement de cet être céleste résonna clairement dans les oreilles de Wang Lin, et son regard devint de plus en plus froid. Il observa le système stellaire étranger devant lui et la Formation du Royaume Scellé qui s'estompait derrière lui. Une seule formation de séparation représentait, pour les gens du Royaume Intérieur, des vies entières!
 
 Les cultivateurs du Royaume Extérieur se rapprochèrent en un instant. Leurs expressions féroces et leurs yeux empreints de soif de sang envahirent le champ de vision de Wang Lin.
 
-Les yeux de Wang Lin s'illuminèrent; sa main gauche traça un sceau avant de pointer sa poitrine à plusieurs reprises. Il dit calmement: « Royaume Céleste... Dévorer le corps et l'âme, Sort d'Extinction Céleste! »
+Les yeux de Wang Lin s'illuminèrent; sa main gauche traça un sceau avant de pointer sa poitrine à plusieurs reprises. Il dit calmement: « Sort céleste... Dévorer le corps et l'âme, Sort d'Extinction Céleste! »
 
 Autrefois, lorsque Qing Shui était apparu dans le Royaume Céleste du Tonnerre, il s'était lancé dans une frénésie meurtrière. Les âmes originelles de tous les cultivateurs qu'il avait tués avaient été dévorées, et leur chair ainsi que leur sang avaient été absorbés pour servir de nutriments à la récupération de Qing Shui!
 
 Ce sort cruel était terrifiant, et il avait été créé par Qing Shui. Durant toute sa vie, il ne l'avait enseigné qu'à Wang Lin et à personne d'autre! Dans ce monde entier, que ce soit dans le Royaume Intérieur ou Extérieur, seuls Wang Lin et Qing Shui connaissaient ce sort céleste!
 
-Quel genre de sort céleste était-ce? C'était manifestement un sort extrêmement démoniaque!
+Comment cela pouvait-il être un sort céleste? C'était manifestement une technique démoniaque suprême!
 
 C'était la première fois que Wang Lin l'utilisait; son corps se dessécha rapidement jusqu'à ne devenir qu'un squelette. Une aura frénétique émana de lui, et même la cicatrice sur sa poitrine bougea de manière inattendue pour empêcher le sang de continuer à couler.
 
@@ -128,6 +128,6 @@ Le cauchemar ne faisait que commencer pour les cultivateurs du Royaume Extérieu
 
 Wang Lin, désormais entré dans le Royaume Extérieur et capable d'utiliser la Distorsion Spatiale ainsi que ce sort céleste dévorant, était devenu leur pire cauchemar!
 
-Un brouillard noir apparut soudainement derrière un cultivateur Purificateur Nirvana du Royaume Extérieur. Il n'eut pas le temps de se retourner qu'il ressentit une douleur fulgurante dans le dos. Le brouillard noir s'engouffra dans son corps, lequel commença à gonfler frénétiquement tandis qu'il hurlait de terreur. En un instant, son corps explosa!
+Un brouillard noir apparut soudainement derrière un cultivateur Purificateur Nirvana de stade intermédiaire du Royaume Extérieur. Il n'eut pas le temps de se retourner qu'il ressentit une douleur fulgurante dans le dos. Le brouillard noir s'engouffra dans son corps, lequel commença à gonfler frénétiquement tandis qu'il hurlait de terreur. En un instant, son corps explosa!
 
 Le sang éclaboussa tout autour. Le cauchemar avait commencé.

@@ -56,7 +56,7 @@ Une détermination sans faille remplit les yeux de Wang Lin alors qu'il leva le 
 
 Soudain, Wang Lin sentit son âme être arrachée et repoussée par ce vent froid. Il disparut dans le vide infini.
 
-Alors qu'il continuait de reculer, Wang Lin sentit qu'il entrait dans une trace. Il se sentit rétrécir, et ses mille ans de culture s'inversèrent. Tout remonta le cours du temps jusqu'à ce qu'il ne soit plus qu'un nourrisson dans le ventre de sa mère.
+Alors qu'il continuait de reculer, l'esprit de Wang Lin devint confus. Il se sentit rétrécir, et ses mille ans de culture s'inversèrent. Tout remonta le cours du temps jusqu'à ce qu'il ne soit plus qu'un nourrisson dans le ventre de sa mère.
 
 Le son des battements de cœur parvint clairement aux oreilles de Wang Lin, et l'affection longtemps perdue de ses parents envahit son esprit. Cependant, cela ne dura qu'un instant avant que le vent froid ne le projette loin de là.
 
@@ -90,7 +90,7 @@ Wang Lin prit une profonde inspiration et le choc qui habitait son regard s'apai
 
 À cet instant, la fissure sur la porte défiant le ciel se referma lentement. Puis elle devint illusoire et disparut devant lui.
 
-Au sein de la Secte de l'Épée Da Lou, Wang Lin ouvrit lentement les yeux et observa la réalité qui l'entourait. Après un long moment, il laissa échapper un soupir et se redressa.
+Au sein de la Secte de l'Épée Da Luo, Wang Lin ouvrit lentement les yeux et observa la réalité qui l'entourait. Après un long moment, il laissa échapper un soupir et se redressa.
 
 Dès qu'il se leva, une aura extrêmement puissante explosa de son corps. Cette aura était d'une force prodigieuse et avait atteint le sommet du stade intermédiaire du Scruteur du Nirvana!
 

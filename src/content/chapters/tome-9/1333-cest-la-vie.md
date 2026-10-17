@@ -10,7 +10,7 @@ Le temps s'écoulait lentement sur cette planète du Clan du Tonnerre Dispersé.
 
 Durant ce mois, il n'était pas retourné dans sa grotte, préférant cultiver au sein de la Secte du Tonnerre Céleste. Au cours de cette période, Xu Liguo et Grand Rouge avaient commencé à rassembler une quantité massive d'objets échangeables contre des cristaux de tonnerre, en prenant la Secte du Tonnerre Céleste pour point central.
 
-Grâce à tout ce qui avait été collecté, Wang Lin pouvait désormais obtenir 100 000 cristaux de tonnerre.
+Grâce à tout ce qui avait été collecté, Wang Lin pouvait désormais obtenir près de 100 000 cristaux de tonnerre.
 
 Xu Liguo, qui avait rarement l'occasion de quitter l'espace de stockage, était transporté par l'excitation et avait lancé une véritable campagne à l'extérieur de la Secte du Tonnerre Céleste. N'aimant pas agir seul, il s'entourait systématiquement d'au moins dix disciples du stade de l'Établissement des Fondations de la Secte du Tonnerre Céleste, se déplaçant tel un essaim de sauterelles. Par une méthode inconnue, il avait également placé sous ses ordres tout cultivateur de la Formation du Noyau qu'il croisait.
 
@@ -64,11 +64,11 @@ C'était comme une demeure mortelle dont on aurait retiré le toit. À l'intéri
 
 « Obéissez à Grand-père Xu et remettez tout ce qui peut être échangé contre des cristaux de tonnerre. Désobéissez, et Grand-père Xu détruira votre culture et vous emprisonnera à vie! » hurlèrent immédiatement les deux cultivateurs de la Formation du Noyau aux voix les plus fortes.
 
-L'homme d'âge moyen fixa le trône, abasourdi. L'imposante structure exerçait sur lui une pression colossale. Il déglutit difficilement et s'inclina respectueusement en joignant les mains: « Ce disciple remettra tout. »
+L'homme d'âge moyen fixa le trône, abasourdi. L'imposante structure exerçait sur lui une pression colossale. Il déglutit difficilement et s'inclina respectueusement en joignant les mains: « Ce junior remettra tout. »
 
 Xu Liguo rit de bon cœur. Il regarda l'homme et sourit: « Bien. Désormais, suivez Grand-père Xu. Je veux savoir, où puis-je trouver des cultivatrices? »
 
-L'homme sentit son cuir chevelu picoter sous le regard de Xu Liguo; un mauvais pressentiment l'assaillit, mais il ne savait que faire. Entendant la question, il répondit précipitamment: « S'il s'agit de cultivatrices, il existe une secte à 5 000 kilomètres d'ici appelée la Secte du Tonnerre Céleste. Elle regorge de femmes et sa maîtresse est d'une beauté extrême! Cependant, son niveau de culture est très élevé... On dit qu'elle entretient des liens avec un membre éminent du clan... »
+L'homme sentit son cuir chevelu picoter sous le regard de Xu Liguo; un mauvais pressentiment l'assaillit, mais il ne savait que faire. Entendant la question, il répondit précipitamment: « S'il s'agit de cultivatrices, il existe, à plus de 100 000 kilomètres d'ici, une secte appelée Lei Xian Dao. Elle regorge de femmes et sa maîtresse est d'une beauté extrême! Cependant, son niveau de culture est très élevé... On dit qu'elle entretient des liens avec un membre éminent du clan... »
 
 Dès que Xu Liguo entendit le mot « beauté », ses yeux s'illuminèrent et il fit fi du niveau de culture de la femme. Il agita la main et rugit: « Montrez-moi le chemin! Venez avec Grand-père Xu pour piller les gens! Piller les trésors! »
 
@@ -94,4 +94,4 @@ Pendant que Xu Liguo et Grand Rouge collectaient leurs ressources, Wang Lin éta
 
 Cette technique s'appelait le Grand Sceau du Tonnerre. Elle permettait de compresser tout le tonnerre de son corps pour déclencher une attaque explosive dévastatrice! Toutefois, cela ne fonctionnait qu'avec l'aide de la marque du clan, et sa pratique prolongée aidait à éveiller lentement cette fameuse marque.
 
-Wang Lin étudiait cette méthode afin de comprendre la marque du Clan du Tonnerre Dispersé. Il pressentait que cet apprentissage serait crucial pour parvenir à absorber l'Éternel Éclat!
+Wang Lin étudiait cette méthode afin de comprendre la marque du Clan du Tonnerre Dispersé. Il pressentait que cet apprentissage serait crucial pour parvenir à absorber le tonnerre éternel!

@@ -12,13 +12,13 @@ Les nuages grondèrent et commencèrent instantanément à s'effondrer!
 
 Lors de leur effondrement, rien ne put empêcher le Sceau d'Inversion Céleste de faire tourbillonner le monde, et il s'abattit avec fracas. Le Grand Ancien recula rapidement, mais fut tout de même frappé par la force de l'impact, et son visage devint aussitôt livide.
 
-Alors qu'il tentait de se rétablir, l'Empreinte d'Esprit Guerrier de Wang Lin arriva avec une vitesse inimaginable. Elle percuta immédiatement le Grand Ancien.
+Alors qu'il tentait de se rétablir, l'Empreinte de l'Esprit Guerrier de Wang Lin arriva avec une vitesse inimaginable. Elle percuta immédiatement le Grand Ancien.
 
-Un grondement tonitruant résonna, et le Daoïste Esprit Dispersé sembla sombrer dans la folie. Il fondit sur l'ennemi avec ses 971 marques tout en lançant l'Empreinte d'Esprit Guerrier, libérant une force capable de briser les cieux!
+Un grondement tonitruant résonna, et le Daoïste Esprit Dispersé sembla sombrer dans la folie. Il fondit sur l'ennemi avec ses 971 marques tout en lançant l'Empreinte de l'Esprit Guerrier, libérant une force capable de briser les cieux!
 
 Le Grand Ancien fut projeté en arrière par ce fracas assourdissant et cracha du sang. Il était à nouveau blessé. Son expression devint hideuse alors qu'il poussait un rugissement pour stabiliser son corps. Une lueur de démence brillait dans ses yeux tandis qu'il frappait la marque de son clan située entre ses sourcils.
 
-« Le tonnerre se divise en six types: le Tonnerre Céleste, le Tonnerre Terrestre, le Tonnerre Originel, le Tonnerre Magnétique, le Tonnerre du Dao et le Tonnerre Spirituel! Que tous les types apparaissent! » rugit-il, et six éclairs jaillirent de sa marque de clan!
+« Le tonnerre se divise en six types: le Tonnerre Céleste, le Tonnerre Terrestre, le Tonnerre Originel, le Tonnerre Magnétique, le Tonnerre du Dao et le Tonnerre Spirituel! Que tous les types apparaissent! » rugit-il, et six éclairs d'environ mille pieds d'épaisseur jaillirent de sa marque de clan, semblables à des colonnes reliant le ciel et la terre!
 
 Le Ciel était l'étoile, et le Tonnerre Céleste était une planète de culture! Il avait été formé par un sort secret du Clan du Tonnerre Dispersé!
 
@@ -32,9 +32,9 @@ Le Tonnerre du Dao était rare dans le Royaume Extérieur. L'ancêtre du Clan du
 
 Ces six types de tonnerre différents l'entourèrent et formèrent un vortex géant devant lui. Il poussa ce vortex et chargea en avant!
 
-Lorsque l'Empreinte d'Esprit Guerrier entra en collision avec le vortex, des craquements stridents résonnèrent. De nombreuses fissures apparurent sur la paume avant que celle-ci ne s'effondre. Les marques du Daoïste Esprit Dispersé ne faisaient pas le poids non plus et se voyaient repoussées.
+Lorsque l'Empreinte de l'Esprit Guerrier entra en collision avec le vortex, des craquements stridents résonnèrent. De nombreuses fissures apparurent sur la paume avant que celle-ci ne s'effondre. Les marques du Daoïste Esprit Dispersé ne faisaient pas le poids non plus et se voyaient repoussées.
 
-« Je veux voir comment vous deux allez résister aux six tonnerres divins que mon Clan du Tonnerre Dispersé a amassés. Mourez! Après vous avoir tués, je massacrerai les cent millions de vies ici pour apaiser ma colère. J'anéantirai la plupart des cultivateurs de ce lieu pour garantir la sécurité de mon clan! »
+« Je veux voir comment vous deux allez résister aux six tonnerres divins que mon Clan du Tonnerre Dispersé a amassés. Mourez! Après vous avoir tués, je massacrerai les cent millions de vies ici pour apaiser ma colère. J'anéantirai la plupart des cultivateurs de ce lieu pour garantir à mon clan dix mille ans de tranquillité! »
 
 Le Grand Ancien rugit comme un fou en projetant les six tonnerres divins vers l'avant. Wang Lin et le Daoïste Esprit Dispersé reculaient sans cesse. Les yeux de Wang Lin s'illuminèrent pendant sa retraite, et il lança: « C'est là votre confiance à 70 %?! »
 
@@ -48,13 +48,13 @@ Le fracas qui en résulta déchira le vide et se propagea dans toutes les direct
 
 L'onde de choc était d'une puissance telle qu'elle n'était pas inférieure à l'auto-destruction du Daoïste Esprit Dispersé. Le Grand Ancien cracha du sang et la folie dans ses yeux s'intensifia.
 
-Saisissant ce moment de répit, Wang Lin ne se retint plus. La bataille d'aujourd'hui se conclurait soit par la mort du Grand Ancien, soit par la sienne! Sa main droite pointa rapidement vers l'avant et deux illusions de cerfs apparurent. Puis, dix millions d'ombres d'épée jaillirent comme une pluie torrentielle.
+Saisissant ce moment de répit, Wang Lin ne se retint plus. La bataille d'aujourd'hui se conclurait soit par la mort du Grand Ancien, soit par la sienne! Sa main droite pointa rapidement vers l'avant et deux illusions de cerfs apparurent. Puis, dix millions d'énergies d'épée jaillirent et se muèrent en pluie d'épées.
 
 À cet instant précis, la main gauche de Wang Lin forma un sceau qu'il agita. Une lumière infinie apparut autour de lui et se rassembla rapidement sur son corps, formant une silhouette lumineuse géante!
 
 Tandis que Wang Lin utilisait le Bouclier d'Ombre Lumineuse, tout ce qui se trouvait à l'intérieur des 7 Millions de Mondes émit une lumière qui perça le vide pour converger vers lui. Cela fit croître la silhouette lumineuse jusqu'à atteindre un niveau sans précédent!
 
-Aussitôt qu'il eut terminé, les dix millions d'ombres d'épée s'abattirent sur le vortex et se désintégrèrent. Le vortex se referma et frappa la silhouette de lumière entourant Wang Lin.
+Aussitôt qu'il eut terminé, les dix millions d'énergies d'épée s'abattirent sur le vortex et se désintégrèrent. Le vortex se referma et frappa la silhouette de lumière entourant Wang Lin.
 
 Wang Lin cracha du sang et la silhouette lumineuse trembla violemment, manquant de s'effondrer. Cependant, une grande partie de la puissance des six tonnerres divins fut réfléchie vers le Grand Ancien. Ce dernier cracha à nouveau du sang, son visage devenant extrêmement pâle.
 
@@ -90,7 +90,7 @@ En voyant cette pression se propager, les pupilles du Grand Ancien se rétractè
 
 Wang Lin savait que le temps pressait. Tandis que les flammes s'accumulaient, une intention meurtrière brilla dans ses yeux et il projeta la sphère en avant. La boule de flammes chargea et, lorsqu'elle toucha le vortex des six tonnerres divins, elle explosa soudainement!
 
-La puissance des Flammes de Joss était celle que maîtrisaient les cultivateurs du troisième pas. Au moment de l'explosion, le monde trembla, les couches de l'espace se désintégrèrent et les six tonnerres divins vibrèrent violemment.
+La puissance des Flammes de Joss était celle que maîtrisaient les cultivateurs de la troisième étape. Au moment de l'explosion, le monde trembla, les couches de l'espace se désintégrèrent et les six tonnerres divins vibrèrent violemment.
 
 La majeure partie de la sphère se dissipa, mais au moment même de sa disparition, Wang Lin lança une volonté démente dans le Monde du Vent et de la Pluie:
 
@@ -100,9 +100,9 @@ Alors que sa voix résonnait, une multitude d'âmes dans le Monde du Vent et de 
 
 Le vortex des six tonnerres s'effondra et les flammes restantes chargèrent l'ennemi. Simultanément, l'attaque du Daoïste Esprit Dispersé devint plus intense encore.
 
-Des grondements tonitruants déchirèrent le monde tandis que le Grand Ancien crachait du sang à plusieurs reprises. Une armure de tonnerre avait surgi autour de lui sans qu'il s'en aperçoive. Son corps fut repoussé, ses yeux devinrent vitreux et injectés de sang, habités par la folie.
+Des grondements tonitruants déchirèrent le monde tandis que le Grand Ancien crachait du sang à plusieurs reprises. Une armure de lumière de tonnerre azurée avait surgi autour de lui sans qu'il s'en aperçoive. Son corps fut repoussé, ses yeux devinrent vitreux et injectés de sang, habités par la folie.
 
-« Je sacrifie ma vitalité pour invoquer l'éclair éternel de mon clan afin qu'il descende sur les 7 Millions de Mondes et punisse tous les êtres vivants! » rugit-il. À l'extérieur des 7 Millions de Mondes, l'éclair éternel de la terre sainte s'agita soudainement. L'éclair...
+« Je sacrifie ma vitalité pour invoquer l'éclair éternel de mon clan afin qu'il descende sur les 7 Millions de Mondes et punisse tous les êtres vivants! » rugit-il. À l'extérieur des 7 Millions de Mondes, l'éclair éternel du temple de la terre sainte s'agita soudainement. C'était...
 
 L'intégralité du tonnerre sembla s'éveiller et quitta la terre sainte. Il perça le vide et chargea vers les 7 Millions de Mondes!
 

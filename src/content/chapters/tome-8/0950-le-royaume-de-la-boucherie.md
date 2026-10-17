@@ -6,13 +6,13 @@ bookTitle: "Alliance's Secret"
 en: Chapter 950 - Slaughter Realm
 slug: le-royaume-de-la-boucherie
 ---
-L'Alliance de Culture comptait deux sectes, quatre temples et huit royaumes. Le Royaume de la Boucherie avait érigé son propre monde pour servir de base. Il y a d'innombrables années, le fondateur du Royaume de la Boucherie s'était emparé d'une faille résiduelle de l'effondrement du Domaine Céleste de la Pluie. Il avait également rassemblé une immense quantité de métaux célestes pour forger les 99 Épées Élévatrices du Ciel!
+L'Alliance de Culture comptait deux temples, quatre Vénérables et huit royaumes. Le Royaume de la Boucherie avait érigé son propre monde pour servir de base. Il y a d'innombrables années, le fondateur du Royaume de la Boucherie s'était emparé d'une faille résiduelle de l'effondrement du Royaume Céleste de la Pluie. Il avait également rassemblé une immense quantité de métaux célestes pour forger les 99 Épées Élévatrices du Ciel!
 
 Ces 99 Épées Élévatrices du Ciel étaient devenues des édifices uniques au Royaume de la Boucherie.
 
-Au sein de l'Alliance de Culture, le nom du Domaine de la Boucherie était illustre; au cours des dizaines de milliers d'années, il avait accompli d'innombrables exploits pour l'Alliance. Que ce soit lors de la première bataille contre les Quatre Sectes Divines ou lors des échanges ultérieurs avec la Secte des Cadavres, tous ces conflits portaient l'empreinte du Royaume de la Boucherie.
+Au sein de l'Alliance de Culture, le nom du Royaume de la Boucherie était illustre; au cours des dizaines de milliers d'années, il avait accompli d'innombrables exploits pour l'Alliance. Que ce soit lors de la première bataille contre les Quatre Sectes Divines ou lors des troubles ultérieurs de la Secte des Cadavres, tous ces conflits portaient l'empreinte du Royaume de la Boucherie.
 
-Peu de pays de culture de rang 6 avaient entendu parler du Royaume de la Boucherie, mais une fois le rang 7 atteint, son nom devenait mondialement connu!
+Peu de planètes de culture de rang 6 avaient entendu parler du Royaume de la Boucherie, mais une fois le rang 7 atteint, son nom devenait mondialement connu!
 
 Sur une planète de culture de rang 7, dès que la culture d'un individu atteignait un certain niveau, celui-ci ne serait plus disposé à laisser son âme sous le contrôle d'autrui. La série d'événements causés par ce sentiment avait toujours été réglée par le Royaume de la Boucherie. Les bains de sang découlant de ces affaires leur avaient valu une réputation impitoyable!
 
@@ -28,11 +28,11 @@ On pourrait dire que le Royaume de la Boucherie était une secte de culture, mai
 
 Même certains cultivateurs puissants se trouvaient des maux de tête face à eux. Non seulement ces individus étaient cruels, mais ils excellaient également dans l'art de la furtivité. S'ils échouaient dans leur mission, ils pouvaient immédiatement battre en retraite et effacer toute trace de leur passage.
 
-Depuis la fondation du Royaume de la Boucherie, personne n'avait jamais réussi à se frayer un chemin jusqu'à leur base par le massacre. Si l'on considère ce que Wang Lin venait de faire, cela ne représentait presque rien.
+Depuis la fondation du Royaume de la Boucherie, personne n'avait jamais réussi à se frayer un chemin jusqu'à leur base par le massacre. S'il fallait en citer un, ce que Wang Lin avait fait ce jour-là pouvait tout juste compter.
 
 Cependant, tout cela changea lorsque la voix glaciale de Qing Shui résonna!
 
-De nombreux édifices en forme d'épées s'effondrèrent. D'innombrables chaînes de fer tombèrent et se transformèrent en une tempête qui balaya le Royaume de la Boucherie.
+De nombreux édifices en forme d'épées s'effondrèrent. D'innombrables débris de pierre mêlés de fer raffiné tombèrent et se transformèrent en une tempête qui balaya le Royaume de la Boucherie.
 
 Des rugissements éclatèrent et, en un instant, une multitude d'ombres jaillirent de la tourmente. Ces cultivateurs étaient tous vêtus de noir et d'âges divers. Leurs niveaux de culture variaient du stade Yin Illusoire au stade intermédiaire du Scruteur du Nirvana. La plupart se situaient au stade Yin et Yang, et très peu atteignaient le stade du Scruteur du Nirvana.
 
@@ -44,7 +44,7 @@ Avec la ruse qui le caractérisait, Wang Lin comprit naturellement que Qing Shui
 
 Un fracas capable de faire trembler le ciel retentit, suivi d'un bang supersonique devant lui. Le vide se brisa et des fissures s'élancèrent vers l'avant.
 
-La tempête infinie générée par le coup de poing de Wang Lin se condensa en un point unique avant de jaillir. Même l'expression d'un cultivateur au sommet du stade tardif du Scruteur du Nirvana changerait face à une telle force. S'ils étaient trop lents pour esquiver, ils seraient instantanément tués!
+La tempête infinie générée par le coup de poing de Wang Lin se condensa en un point unique avant de jaillir. Même l'expression d'un cultivateur au stade tardif du Scruteur du Nirvana changerait face à une telle force. S'ils étaient trop lents pour esquiver, ils seraient instantanément tués!
 
 Devant Wang Lin se trouvaient plusieurs cultivateurs du stade Yin Illusoire qui avaient passé leur vie dans la boucherie. À peine s'étaient-ils approchés que l'impact du coup de poing de Wang Lin déchira leurs expressions. Des craquements sinistres résonnèrent dans leurs corps et d'importantes quantités de sang jaillirent de leurs plaies. L'homme situé directement devant Wang Lin ne put opposer aucune résistance et son corps s'effondra.
 
@@ -84,7 +84,7 @@ Cependant, une panique indicible surpassait tout le reste.
 
 « Être capable de s'emparer si facilement de mon trésor... Cet homme... Quel est donc son niveau de culture!?! » Ce cultivateur du stade intermédiaire Scruteur du Nirvana était célèbre même au sein du Royaume de la Boucherie; sa renommée surpassait celle du Tueur Yu Fei.
 
-Pourtant, à cet instant, il était terrifié, d'autant plus qu'il se souvenait comment Yu Fei, bien qu'ayant réussi à s'échapper vers le Royaume de la Boucherie, avait été tué par une main gigantesque surgissant d'un vortex. Ce souvenir lui glaçait le sang.
+Pourtant, à cet instant, il était terrifié, d'autant plus qu'il se souvenait comment Yu Fei, bien qu'ayant réussi à s'échapper vers le Royaume de la Boucherie, avait été tué par une main gigantesque semblable à celle de tout à l'heure. Ce souvenir lui glaçait le sang.
 
 Sans hésiter, il recula rapidement et frappa son sac de stockage. Une grande quantité de jades en jaillit et il cria: « Explosez! »
 
@@ -120,4 +120,4 @@ La moitié du corps du vieillard était déjà engagée dans le vide, mais à ce
 
 Qing Shui s'approcha et tendit sa main droite. Il tira immédiatement le vieil homme hors de la fissure.
 
-Au moment où Qing Shui extirpa l'homme, un éclat de froideur passa dans son regard. Il bondit aussitôt et saisit le vieillard pour l'utiliser comme bouclier humain derrière lui.
+Au moment où Qing Shui extirpa l'homme, un éclat de froideur passa dans son regard. Il bondit aussitôt et brandit le vieillard pour l'utiliser comme bouclier sous lui.

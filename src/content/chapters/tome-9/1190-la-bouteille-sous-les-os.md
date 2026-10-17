@@ -20,9 +20,9 @@ Il le lança, et le pendentif vola vers la porte en émettant une vive lueur arg
 
 Dès l'ouverture de la porte, des rugissements capables de déchirer l'âme jaillirent de l'intérieur. Les hurlements des âmes des bêtes se transformèrent en un Sens Divin indescriptible qui se propagea rapidement.
 
-« Cher Cultivateur Zhao, le temps presse. Prenez les âmes des bêtes. Je souhaite, quant à moi, examiner les écritures du Dao! » Maître Pin Cendré joignit les mains devant la femme en vert.
+« Confrère Cultivateur Zhao, le temps presse. Prenez les âmes des bêtes. Je souhaite, quant à moi, examiner les écritures du Dao! » Maître Pin Cendré joignit les mains devant la femme en vert.
 
-« Si le Cher Cultivateur Zhao est intéressé, pourquoi ne pas accompagner ce vieil homme? Vous pourriez peut-être y trouver l'illumination! »
+« Si le Confrère Cultivateur Zhao est intéressé, pourquoi ne pas accompagner ce vieil homme? Vous pourriez peut-être y trouver l'illumination! »
 
 La femme en vert réfléchit un instant, puis secoua lentement la tête.
 
@@ -52,7 +52,7 @@ Maître Pin Cendré ne fit pas exception. Il s'agenouilla et se mit à murmurer.
 
 Un instant plus tard, il leva la tête et fixa la tablette de pierre!
 
-Au pied de la tablette reposait un squelette. Il n'en restait que la moitié supérieure du corps, et ses deux mains étaient clouées à la pierre par des ongles aux sept couleurs.
+Au pied de la tablette reposait un squelette. Il n'en restait que la moitié supérieure du corps, et ses deux bras écartés étaient profondément cloués à la tablette par des clous de pierre aux sept couleurs.
 
 C'était le squelette d'un cultivateur. Dans ce monde baigné de lumière multicolore, l'ossature ne changeait pas, mais dégageait au contraire une lueur noire!
 
@@ -66,13 +66,13 @@ Il savait que les mots gravés sur le squelette étaient les écritures du Dao, 
 
 « Une fois que l'on contemple les écritures du Dao, on devient un Éveillé. Je mène une vie prospère, pourquoi viendrais-je ici pour mourir? » Il se lécha les lèvres. Son véritable but était la bouteille de jade sous le squelette!
 
-À cet instant, un éclair de lumière noire jaillit de la colonne vertébrale et une goutte de liquide noir, semblable à du sang, en s'écoula. Elle tomba dans la bouteille de jade avec un bruit sourd.
+À cet instant, un éclair de lumière noire jaillit de la colonne vertébrale et une goutte de liquide noir, semblable à du sang, s'écoula. Elle tomba dans la bouteille de jade avec un bruit sourd.
 
 Maître Pin Cendré chargea vers le squelette et l'atteignit en un instant. Sa main droite se tendit immédiatement pour saisir la bouteille! Cependant, au moment où ses doigts effleurèrent l'objet, son corps trembla et une immense quantité de gaz blanc s'échappa de lui. Ce gaz fut aussitôt absorbé par la bouteille.
 
 Pourtant, Maître Pin Cendré ne paniqua pas, comme s'il avait anticipé ce phénomène. Sa main droite glissa sur le côté pour ouvrir son espace de stockage. Des âmes originelles commencèrent à en jaillir.
 
-En un instant, plus de mille âmes originelles s'envolèrent. Elles étaient toutes scellées et reliées entre elles par un mince filament.
+En un instant, près de mille âmes originelles s'envolèrent. Elles étaient toutes scellées et reliées entre elles par un mince filament.
 
 Dès qu'elles furent libérées, Maître Pin Cendré récita un chant étrange et sa main gauche saisit une âme originelle.
 
@@ -82,17 +82,17 @@ Simultanément, Maître Pin Cendré se mordit la langue et cracha un brouillard 
 
 À cet instant précis, Maître Pin Cendré poussa un rugissement et leva sa main droite. Il arracha la bouteille de jade et se retira promptement.
 
-Il riait comme un fou en agitant sa main gauche durant sa retraite. Les quatre épées s'envolèrent, mais il ne chercha pas à les récupérer; il les laissa dériver vers le monde aux sept couleurs.
+Il riait comme un fou en agitant sa main gauche durant sa retraite. Les quatre épées revinrent aussitôt, mais il ne les rangea pas; elles passèrent à côté de lui et filèrent droit vers le vide de ce monde aux sept couleurs.
 
-« Cher Cultivateur Zhao, avez-vous assez regardé? »
+« Confrère Cultivateur Zhao, avez-vous assez regardé? »
 
 Le vide se tordit et la belle femme d'âge moyen apparut. Ses mains formèrent un sceau et d'innombrables restrictions surgirent devant elle, créant un vortex qui intercepta les quatre épées.
 
-Toutefois, ces épées dorées étaient singulières. Dès qu'elles touchèrent le vortex, elles se liquéfièrent en or pur pour contourner la restriction, avant de foncer droit sur la femme en vert.
+Toutefois, ces épées dorées étaient singulières. Dès qu'elles touchèrent le vortex, elles se liquéfièrent en or pur pour traverser la restriction, avant de foncer droit sur la femme en vert.
 
 L'expression de la belle femme changea et elle recula de nouveau. Le liquide doré éclata instantanément en une pluie de gouttelettes qui l'assaillit de toutes parts.
 
-« Cher Cultivateur Zhao, bien que j'ignore comment vous avez réussi à vous échapper, vous n'auriez pas dû me suivre! C'est ici que se trouvent les écritures du Dao, alors observez bien! » Maître Pin Cendré riait de déraison. Il s'apprêtait à quitter le monde aux sept couleurs pour retourner sur la montagne via l'arc-en-ciel.
+« Confrère Cultivateur Zhao, bien que j'ignore comment vous avez réussi à vous échapper, vous n'auriez pas dû me suivre! C'est ici que se trouvent les écritures du Dao, alors observez bien! » Maître Pin Cendré riait de déraison. Il s'apprêtait à quitter le monde aux sept couleurs pour retourner sur la montagne via l'arc-en-ciel.
 
 Dès son retour, il quitterait les lieux sans attendre. La fissure de la restriction se refermerait bientôt et la belle femme en vert serait piégée ici pour toujours! Elle ne pourrait s'échapper qu'en abandonnant son corps pour comprendre les écritures du Dao. Mais à ce prix, elle ne serait plus différente d'une morte, devenant l'un des Éveillés.
 
@@ -106,8 +106,8 @@ Deux cultivatrices nommées Zhao! L'une était une belle femme d'âge moyen d'en
 
 Ce sort était terrifiant et allait à l'encontre de toute morale. Sa culture était extrêmement complexe, et jusqu'à ce jour, presque personne n'avait réussi à le maîtriser. Pourtant, Maître Pin Cendré n'avait d'autre choix que d'y croire, car la personne devant lui avait pratiqué cette technique interdite pour atteindre le niveau de trois ancêtres!
 
-Le Sort Ancestral Yang Yin permettait à une cultivatrice de concevoir une fille. Cette enfant grandirait au sein de sa mère grâce à un sort spécial, faisant en sorte que la mère et la fille partagent le même corps!
+Le Sort Ancestral Yang Yin permettait à une cultivatrice, après une double culture avec un partenaire, de concevoir une fille. Cette enfant grandirait au sein de sa mère grâce à un sort spécial, faisant en sorte que la mère et la fille partagent le même corps!
 
-Plus tard, la fille formerait un couple de culture avec un autre individu et donnerait à son tour naissance à une fille. Alors, les trois utiliseraient le sort spécial pour fusionner en une seule entité!
+Des années plus tard, la cultivatrice ainsi unie à sa fille formerait de nouveau un couple de culture avec un autre individu et donnerait naissance à une autre fille. Alors, les trois (grand-mère, mère et fille) utiliseraient le sort spécial pour fusionner en une seule entité!
 
 C'était là la méthode permettant d'augmenter prodigieusement son niveau de culture: grâce à la fusion de trois âmes, leur Sens Divin devenait d'une puissance inouïe!

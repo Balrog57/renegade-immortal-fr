@@ -8,7 +8,7 @@ slug: le-mensonge-des-cieux
 ---
 Aucun cultivateur de la Secte de l'Origine n'avait remarqué ce qui s'était passé dans la cour sud. La cour sud était une terre interdite, si bien qu'aucun disciple n'osait y pénétrer. Même Lu Yanfei et sa suite n'y venaient que sur invitation, et ils n'auraient jamais osé s'y introduire de force.
 
-Après avoir instantanément tué une bête de rang 8 et ordonné aux cultivateurs de la secte de rang 6 de déguerpir, Wang Lin était devenu une figure quasi ancestrale pour les disciples de la Secte de l'Origine. Ils étaient empreints de respect et d'une profonde crainte envers lui.
+Après avoir instantanément tué une bête de rang 8 et ordonné aux cultivateurs des trois sectes de rang 6 de déguerpir, Wang Lin était devenu une figure quasi ancestrale pour les disciples de la Secte de l'Origine. Ils étaient empreints de respect et d'une profonde crainte envers lui.
 
 L'expression de Lu Yuncong était extrêmement disgracieuse alors qu'il fixait Wang Lin. Il se trouvait dans une impasse. Face à cet homme en blanc, il ne pouvait ni avancer, ni reculer. S'il avançait, il avait l'impression que le monde s'effondrerait; mais s'il reculait, son Dao s'écroulerait. C'était comme si son propre Dao n'était qu'un simple jeu d'enfant face à cet homme en blanc.
 
@@ -28,9 +28,9 @@ Une brise légère souffla, faisant flotter quelques mèches de cheveux devant l
 
 « Secte Brise-Ciel, Li Qianmei! »
 
-L'esprit de Wang Lin fut troublé, mais son expression ne changea pas lorsqu'il répondit lentement: « Pourquoi la Compagne de Culture Li est-elle venue ici? »
+L'esprit de Wang Lin fut troublé, mais son expression ne changea pas lorsqu'il répondit lentement: « Pourquoi la Daoïste Li est-elle venue ici? »
 
-Li Qianmei eut un petit rire et cligna des yeux avec un sourire. « Je suis venue poser trois questions au Senior Frère afin d'apaiser les doutes de Qianmei. »
+Li Qianmei eut un petit rire et cligna des yeux avec un sourire. « Je suis venue poser trois questions à Dao Frère afin d'apaiser les doutes de Qianmei. »
 
 « Pourquoi devrais-je dissiper tes doutes? » demanda Wang Lin d'un ton imperturbable.
 
@@ -38,11 +38,11 @@ Le visage de Li Qianmei resta serein. Après une courte réflexion, elle dit: «
 
 Wang Lin fronça les sourcils et trancha calmement: « Je n'en ai pas besoin! »
 
-Li Qianmei sourit et ajouta avec douceur: « Qianmei peut résoudre votre différend avec la Secte du Dao Pourpre. »
+Li Qianmei sourit et ajouta avec douceur: « Qianmei peut résoudre votre différend avec la Secte Dao Pourpre. »
 
 « Je n'en ai pas besoin! »
 
-Visiblement contrariée, Li Qianmei regarda Wang Lin et expliqua doucement: « Dao Frère semble mal comprendre. Qianmei a simplement rencontré le Frère Lu et nous sommes arrivés ensemble par hasard. Je ne suis pas venue ici pour combattre Dao Frère. Qianmei ne se mêlera pas de votre affaire avec la Secte du Dao Pourpre. Je souhaite seulement poser trois questions qui me hantent depuis longtemps. Je n'ai aucune autre intention. » Li Qianmei, qui s'expliquait rarement ainsi, voyait bien que Wang Lin pensait qu'elle était venue avec Lu Yuncong.
+Visiblement contrariée, Li Qianmei regarda Wang Lin et expliqua doucement: « Dao Frère semble mal comprendre. Qianmei a simplement rencontré le Frère Lu et nous sommes arrivés ensemble par hasard. Je ne suis pas venue ici pour combattre Dao Frère. Qianmei ne se mêlera pas de votre affaire avec la Secte Dao Pourpre. Je souhaite seulement poser trois questions qui me hantent depuis longtemps. Je n'ai aucune autre intention. » Li Qianmei, qui s'expliquait rarement ainsi, voyait bien que Wang Lin pensait qu'elle était venue avec Lu Yuncong.
 
 Après l'avoir observée un instant, Wang Lin fronça les sourcils et demanda: « Quel genre de doutes? »
 
@@ -72,13 +72,13 @@ Wang Lin tourna son regard vers Lu Yuncong et demanda avec désinvolture: « Oh?
 
 « Le ciel est une cage! L'ouverture du puits est le ciel! La surface de l'eau est le ciel! » Les paroles de Lu Yuncong étaient posées, mais chargées d'assurance.
 
-Li Qianmei restait pensive, les sourcils froncés. Elle ne parvenait pas à percer le mystère de Wang Lin. En entendant Lu Yuncong, elle dit doucement: « Qianmei a posé cette question à de nombreux compagnons de culture, mais le Senior Frère Lu a donné la réponse la plus convaincante. Pourquoi Dao Frère rit-il? Ma question est-elle erronée? »
+Li Qianmei restait pensive, les sourcils froncés. Elle ne parvenait pas à percer le mystère de Wang Lin. En entendant Lu Yuncong, elle dit doucement: « Qianmei a posé cette question à de nombreux Daoïstes, mais le Frère Lu a donné la réponse la plus convaincante. Pourquoi Dao Frère rit-il? Ma question est-elle erronée? »
 
 Wang Lin regarda Li Qianmei et, après un long silence, demanda calmement: « Existe-t-il un ciel? »
 
 À ces mots, Li Qianmei resta pétrifiée. Elle avait interrogé tant de gens, mais aucun n'avait jamais répondu ainsi. Même les pupilles de Lu Yuncong se rétractèrent et, par réflexe, il leva les yeux vers la voûte céleste.
 
-Lu Yuncong laissa échapper un renâcle méprisant. « Quelles absurdités. Le ciel est partout autour de nous. Demander s'il existe un ciel est une pure folie! »
+Lu Yuncong laissa échapper un reniflement méprisant. « Quelles absurdités. Le ciel est partout autour de nous. Demander s'il existe un ciel est une pure folie! »
 
 Li Qianmei réfléchit un instant et murmura: « Où n'y a-t-il donc pas de ciel? »
 
@@ -122,7 +122,7 @@ Li Qianmei s'inclina et dit doucement: « Dao Frère peut-il me dire son nom? »
 
 Li Qianmei cligna des yeux et esquissa un sourire. Son sourire de jeune fille était très séduisant, mais Lu Yuncong, plongé dans ses amères réflexions, ne le vit pas. Wang Lin le vit, mais resta indifférent.
 
-« Le Frère Lu a mal calculé. La plupart des pilules que possède Qianmei sont incomplètes et doivent être raffinées à nouveau au sein de la secte. La plus haute qualité que j'aie est seulement de rang 10; ce n'est pas une Pilule de Séparation de l'Âme et de la Mort, mais une pilule de guérison. Puisque le Frère Lu la demande, je vous la donnerai. » Après avoir parlé, sa main droite plongea dans le vide et une fente vers son espace de stockage apparut. Une pilule vola vers les mains de Wang Lin.
+« Le Frère Lu a mal calculé. La plupart des pilules que possède Qianmei sont incomplètes et doivent être raffinées à nouveau au sein de la secte. La plus haute qualité que j'aie est seulement de rang 10; ce n'est pas une Pilule de Séparation de l'Âme, mais une pilule de guérison. Puisque le Frère Lu la demande, je vous la donnerai. » Après avoir parlé, sa main droite plongea dans le vide et une fente vers son espace de stockage apparut. Une pilule vola vers les mains de Wang Lin.
 
 Wang Lin fronça les sourcils en acceptant la pilule et la rangea après l'avoir examinée.
 

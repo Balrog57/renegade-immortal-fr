@@ -82,7 +82,7 @@ Dans un fracas de bris, d'innombrables fissures apparurent alors que la partie s
 
 Le visage de Wang Lin devint livide et il cracha du sang. La lumière qui le protégeait vola en éclats et l'anneau de Pang Decai se brisa! Le corps de Wang Lin fut immédiatement projeté en arrière par la violence du choc.
 
-Maître Nuage-Âme se trouvait derrière Wang Lin. En étant placé devant lui, il avait pu absorber une partie de la pression. Néanmoins, son âme originelle tremblait, ses méridiens s'étaient brisés et ses os étaient tous fracturés; il n'était plus qu'un amas sanglant.
+Maître Nuage-Âme se trouvait derrière Wang Lin. Wang Lin étant placé devant lui, il avait pu absorber une partie de la pression. Néanmoins, son âme originelle tremblait, ses méridiens s'étaient brisés et ses os étaient tous fracturés; il n'était plus qu'un amas sanglant.
 
 La vieille femme en vert, étant restée à distance, ne fut que peu affectée par l'onde de choc. Elle avait volé vers le haut et s'était échappée par pur hasard, bien que le choc ait failli provoquer l'effondrement de son corps.
 
@@ -90,7 +90,7 @@ Elle crut d'abord avoir survécu au désastre et se sentit chanceuse, mais son e
 
 Le corps de la vieille femme en vert se mua en un brouillard de sang. Son âme originelle lutta pour s'enfuir, mais alors que Wang Lin reculait, il agita sa manche et captura son essence.
 
-La paume du Royaume aux Sept Couleurs possédait cinq doigts, et désormais, il en manquait la moitié. Cependant, l'auriculaire brisé ne se dissipe pas; il absorbait l'énergie originelle du monde avec une frénésie absolue pour se reformer rapidement!
+La paume du Royaume aux Sept Couleurs possédait cinq doigts, et désormais, il en manquait un demi-doigt. Cependant, l'auriculaire brisé ne s'était pas dissipé; il absorbait l'énergie originelle du monde avec une frénésie absolue pour se reformer rapidement!
 
 Si ce demi-doigt finissait par se reconstruire, tous les efforts de Wang Lin seraient vains. En cette heure critique, les yeux de Wang Lin brillèrent d'une intention de combat mêlée de folie. Il chargea vers l'index qui venait de balayer la vieille femme!
 

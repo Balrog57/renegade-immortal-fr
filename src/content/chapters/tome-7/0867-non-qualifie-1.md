@@ -8,7 +8,7 @@ slug: non-qualifie-1
 ---
 La voix de Maître Yan Leizi était calme lorsqu'il déclara lentement: « C’est bel et bien cette pierre! »
 
-Les yeux du vieil homme s'assombrirent légèrement et il ajouta: « La rumeur prétend que cette pierre est un vestige de l'ancien Royaume Céleste. Si l'on parvient à y inscrire son nom, son âme peut accéder directement à cet ancien Royaume Céleste qui, dit-on, a disparu! Je ne m'attendais pas à ce que la Pierre de l'Investiture Céleste se trouve dans le Temple Céleste du Tonnerre! »
+Le vieil homme nommé Xiang, le visage légèrement sombre, dit d'une voix grave: « La rumeur prétend que cette pierre est un vestige de l'ancien Royaume Céleste. Si l'on parvient à y inscrire son nom, son âme peut accéder directement à cet ancien Royaume Céleste qui, dit-on, a disparu! Je ne m'attendais pas à ce que la Pierre de l'Investiture Céleste se trouve dans le Temple Céleste du Tonnerre! »
 
 L'homme d'âge moyen nommé Gongsun ferma et ouvrit les yeux. À chaque fois qu'il les ouvrait, une lumière en jaillissait, et il dit calmement: « Bien que l'ancien Royaume Céleste ait disparu, des rumeurs subsistent, affirmant que dans d’innombrables années, il rouvrira ses portes. Le moment venu, seuls ceux dont les noms auront été inscrits sur la Pierre de l'Investiture Céleste seront autorisés à y entrer! Ce n'est qu'une rumeur, mais c'est le seul indice qui nous reste! »
 
@@ -16,7 +16,7 @@ Un silence absolu tomba sur les environs. Hormis quelques rares privilégiés, p
 
 Néanmoins, de nombreux cultivateurs ignoraient tout de l'ancien Royaume Céleste et se tournèrent vers les ancêtres de leurs clans respectifs.
 
-Maître Yan Leizi reprit calmement: « La Pierre de l'Investiture Céleste s'est brisée en d'innombrables fragments lors de l'effondrement du Royaume Céleste du Tonnerre. Mon Temple Céleste du Tonnerre ne l'a pas récupérée, inutile donc de s'y attarder. C’est lorsque ce senior a capturé la Bête Lunaire qu'il m’a trouvé et m’a remis un fragment de la taille de mon poing! »
+Maître Yan Leizi reprit calmement: « La Pierre de l'Investiture Céleste s'est brisée en d'innombrables fragments lors de l'effondrement du Royaume Céleste du Tonnerre. Mon Temple Céleste du Tonnerre ne l'a pas récupérée, inutile donc de s'y attarder. C’est lorsque ce senior a capturé la Bête Lunaire qu'il m’a trouvé et m’a remis un fragment de la taille d'une paume! »
 
 À ces mots, tous les vieux monstres installés sur les tapis de prière se turent, cessant toute interrogation à ce sujet.
 
@@ -46,7 +46,7 @@ Cette main colossale fendit l'air avec la rapidité de la foudre et saisit le cu
 
 Le visage du cultivateur devint instantanément livide. Il n'était qu'au stade de l'Yin Illusoire et, après avoir été saisi par cette main démoniaque, il eut la sensation que de la glace s'insinuait dans son corps pour solidifier son énergie d'origine. Dès qu'il toucha le sol, il se précipita pour s'asseoir en position du lotus.
 
-Luo Su laissa paraître son impatience. Il ne considérait pas cette compétition pour le titre céleste comme digne de son temps. S'il n'avait pas été personnellement sollicité par le Seigneur du Temple — ce qui signifiait qu'il ne pouvait refuser — il ne serait jamais venu agir en tant que juge pour la première épreuve. En outre, il y avait une autre raison à sa présence ici.
+Luo Su laissa paraître son impatience. Il ne considérait pas cette compétition pour le titre céleste comme digne de son temps. S'il n'avait pas été personnellement sollicité par le Seigneur du Temple — ce qui signifiait qu'il ne pouvait refuser — il ne serait jamais venu agir en tant que juge pour la première épreuve et aurait depuis longtemps poursuivi sa culture en retraite afin d'atteindre au plus tôt le stade tardif du Scruteur du Nirvana. En outre, il y avait une autre raison à sa présence ici.
 
 Après avoir précipité le cultivateur au sol, son impatience s'accentua. Son sens divin se déploya et le monde parut changer de couleur. Le sens divin de Luo Su était extrêmement singulier et capable de changer de forme; lorsqu'il se manifesta, un géant doré apparut instantanément, faisant résonner un grondement sourd dans le vide.
 
@@ -88,7 +88,7 @@ Le regard de Luo Su était glacial lorsqu'il tendit sa main droite et que la mai
 
 Un éclair de froideur traversa les yeux de Luo Su, puis le géant doré se précipita vers Xu Ting. Ce dernier pivota et renonça à foncer vers Luo Su; au lieu de cela, il rejoignit le géant doré en un seul pas et lança sa pique!
 
-Le géant doré dévia son poing. Cependant, juste au moment où la lance noire allait entrer en collision avec le coup, elle se tordit soudainement. Ce qui était auparavant la pointe de la lance se mua instantanément en un étrange serpent noir au corps gracile. Après avoir ouvert la gueule, il atteignit une centaine de mètres de long. Cette scène, d'une étrangeté absolue, rendit les cultivateurs environnants extrêmement sérieux.
+Le géant doré lança aussitôt son poing droit. Cependant, juste au moment où la lance noire allait entrer en collision avec le coup, elle se tordit soudainement. Ce qui était auparavant la pointe de la lance se mua instantanément en un étrange serpent noir au corps gracile. Après avoir ouvert la gueule, il atteignit une centaine de mètres de long. Cette scène, d'une étrangeté absolue, rendit les cultivateurs environnants extrêmement sérieux.
 
 La gueule du serpent s'ouvrit et dévora directement le géant doré. En voyant cela, les pupilles de Wang Lin se rétractèrent.
 

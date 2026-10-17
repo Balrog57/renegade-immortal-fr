@@ -14,13 +14,13 @@ Wang Lin pouvait facilement tuer un cultivateur du Scruteur du Nirvana!
 
 Les pupilles de l'homme âgé se rétractèrent, empreintes de choc. Il voulut battre en retraite, mais il n'était pas assez puissant pour échapper à Wang Lin! Le doigt de Wang Lin se déplaça comme la foudre, poursuivant l'homme et s'abattant entre ses sourcils.
 
-L'homme âgé cracha du sang et des bruits de craquements résonnèrent de l'intérieur de son corps. Puis, il s'effondra. Son âme originelle tenta de s'échapper, mais Wang Lin la captura. La pierre de jade qu'il convoitait tomba entre les mains de Wang Lin.
+L'homme âgé cracha du sang et des bruits de craquements résonnèrent de l'intérieur de son corps. Puis, il s'effondra. Son âme originelle tenta de s'échapper, mais Wang Lin la captura. La pierre de jade qui n'avait pas été brisée tomba entre les mains de Wang Lin.
 
-Tout cela se produisit en un instant. La rapidité de l'exécution fit trembler les trois autres vieillards. Cependant, étant des vétérans de la guerre, ils dissipèrent leur stupeur immédiate. L'un d'eux cria promptement: « Formez une formation! »
+Tout cela se produisit en un instant. La rapidité de l'exécution fit trembler les trois autres vieillards. Cependant, étant des vétérans des combats magiques, ils se ressaisirent après un bref instant de stupeur. L'un d'eux cria promptement: « Formez une formation! »
 
 À peine eut-il parlé que les trois formèrent un sceau; une puissante vague d'énergie originelle s'accumula devant eux pour façonner une hache géante qui s'abattit sur Wang Lin!
 
-Simultanément, les trois frappèrent leurs sacs de rangement. Un fouet et des perles de jade apparurent devant deux d'entre eux. Le fouet était d'un noir profond et, sous le sceau de son maître, ses brins se déployèrent comme des épées de soie pour fondre sur Wang Lin.
+Simultanément, les trois frappèrent leurs sacs de rangement. Un chasse-mouches et des perles de jade apparurent devant deux d'entre eux. Le chasse-mouches était d'un noir profond et, sous le sceau de son maître, ses brins se déployèrent comme des épées de soie pour fondre sur Wang Lin.
 
 Les filaments tombèrent telle une pluie de lames, agitant l'énergie originelle du monde dans leur chute.
 
@@ -30,13 +30,13 @@ Les visages pleurants de sept bébés apparurent sur les perles, puis ils se dis
 
 Le dernier vieillard ne sortit pas un trésor, mais une pierre de jade. Il comptait utiliser le temps que ses pairs lui offraient pour la briser et transmettre l'information dans le Royaume du Vide Brillant.
 
-Les trois hommes avaient manifestement l'habitude de coopérer; ils agissaient en parfaite symbiose, sans même avoir besoin de se parler. Si Wang Lin avait été un ordinaire cultivateur du Purificateur du Nirvana, bien qu'il n'eût guère craint les attaques de trois experts tardifs du stade Scruteur du Nirvana, il lui aurait été difficile d'empêcher l'un d'eux de briser sa pierre de jade.
+Les trois hommes avaient manifestement l'habitude de coopérer; ils agissaient en parfaite symbiose, sans la moindre hésitation. Si Wang Lin avait été un ordinaire cultivateur du Purificateur du Nirvana, bien qu'il n'eût guère craint les attaques de trois experts tardifs du stade Scruteur du Nirvana, il lui aurait été difficile d'empêcher l'un d'eux de briser sa pierre de jade.
 
 Après tout, ils étaient rompus au combat coordonné et ne laisseraient à leur adversaire la moindre faille.
 
 Cependant, ils faisaient face à Wang Lin!
 
-Wang Lin daigna à peine considérer ces attaques. D'un revers de manche, il fit surgir une mer de flammes qui balaya instantanément les fouets noirs.
+Wang Lin daigna à peine considérer ces attaques. D'un revers de manche, il fit surgir une mer de flammes qui balaya instantanément le chasse-mouches noir.
 
 Au même moment, Wang Lin pointa le doigt en avant et murmura doucement: « Arrêtez! »
 
@@ -56,7 +56,7 @@ Il regarda impuissant Wang Lin s'approcher, le doigt tendu vers son propre front
 
 Aucun cri ne retentit, mais le corps de l'homme se changea instantanément en cendres noires, emportant avec lui son âme originelle.
 
-Sur les quatre cultivateurs du Scruteur du Nirvana, trois furent capturés et un fut tué. Jusqu'au bout, aucun n'avait pu briser sa pierre de jade! Privée de leur contrôle, la hache se dissipa en énergie originelle. Quant au fouet, il fut consumé par les flammes jusqu'à n'être plus que néant.
+Sur les quatre cultivateurs du Scruteur du Nirvana, trois furent capturés et un fut tué. Jusqu'au bout, aucun n'avait pu briser sa pierre de jade! Privée de leur contrôle, la hache se dissipa en énergie originelle. Quant au chasse-mouches, il fut consumé par les flammes jusqu'à n'être plus que néant.
 
 Ces sept âmes infantiles lugubres étaient empreintes de confusion. En les voyant, le cœur de Wang Lin trembla et des souvenirs du passé l'assaillirent. D'un mouvement de manche, il créa un vortex qui absorba les sept âmes.
 
@@ -64,7 +64,7 @@ L'expression de Wang Lin était sereine lorsqu'il atteignit le réseau de transf
 
 Un instant plus tard, la lueur disparut et la formation fut vide.
 
-Le Royaume du Vide Brillant était un nouvel espace qui venait de s'ouvrir. Ce lieu était magnifique, presque semblable au Royaume Céleste. La seule différence résidait dans l'absence d'énergie spirituelle céleste; à la place, il était saturé d'une riche énergie originelle.
+Le Royaume du Vide Brillant se trouvait au sein d'une faille spatiale aménagée. Ce lieu était magnifique, presque semblable au Royaume Céleste. La seule différence résidait dans l'absence d'énergie spirituelle céleste; à la place, il était saturé d'une riche énergie originelle.
 
 Les montagnes perçaient les cieux et les rivières coulaient avec grâce. De petites bêtes gambadaient tandis que des grues fendaient le ciel. La terre respirait l'harmonie.
 
@@ -82,7 +82,7 @@ Le garçon, jusque-là d'un naturel paresseux, se figea brusquement. Il se leva 
 
 Ses pupilles se rétractèrent et il lâcha: « Une odeur de sang émane de votre corps! »
 
-Wang Lin avait déjà perçu le Royaume du Vide Brillant par son sens divin avant d'arriver. En sortant de la formation, il regarda le garçon et joignit calmement les mains. « Je vous prie, messire, de transmettre ce message: je suis Wang Lin, et je viens au nom de la Secte Divine de l'Oiseau Vermillon pour livrer une pierre de jade! »
+Wang Lin avait déjà visité le Royaume du Vide Brillant autrefois, par son esprit. En sortant de la formation, il regarda le garçon et joignit calmement les mains. « Je vous prie, messire, de transmettre ce message: je suis Wang Lin, et je viens au nom de la Secte Divine de l'Oiseau Vermillon pour livrer une pierre de jade! »
 
 Le garçon fronça les sourcils, le regard froid: « Vous avez du cran. Cela faisait longtemps que personne n'avait osé s'introduire dans le Royaume du Vide Brillant. »
 
@@ -98,7 +98,7 @@ Si Wang Lin avait osé venir dans le Royaume du Vide Brillant, c'était par conf
 
 Wang Lin ne chercha pas à découvrir ce que contenait la pierre. Il savait qu'il valait mieux ignorer certaines choses.
 
-Outre l'ancien Empereur Divin, le glyphe que Qing Lin lui avait confié lui permettait de ne point s'inquiéter. Tant qu'il activerait ce glyphe, il pourrait retourner dans le nouveau Royaume Céleste de la Pluie!
+Outre l'ancien Empereur Divin, la rune que Qing Lin lui avait confiée lui permettait de ne point s'inquiéter. Il lui suffirait d'y penser pour activer cette rune et retourner dans le nouveau Royaume Céleste de la Pluie!
 
 Zhou Ru était assise au sommet d'une montagne, cultivant dans le Royaume du Vide Brillant. Petit Blanc était à ses côtés, contemplant paresseusement les nuages, sans que l'on puisse deviner ses pensées.
 

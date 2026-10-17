@@ -16,9 +16,9 @@ Wang Lin hocha la tête et joignit les mains en signe de respect. « Puisqu'il e
 
 Maître Yi Chen rit: « Aucun dérangement! Accueillir le frère Wang Lin sur notre planète est un honneur pour nous. Par ici! » Tout en parlant, il fit quelques pas en arrière et fit signe à Lei Ji de diriger son immense corps vers la planète Esprit d'Eau.
 
-Au fur et à mesure de leur progression, le corps de Lei Ji rétrécissait jusqu'à devenir celui d'un colosse suivant Wang Lin et Da Tou. Quant à Maître Fu Fengzi, il n'osa plus ouvrir la bouche et se contenta de suivre Wang Lin.
+Au fur et à mesure de leur progression, le corps de Lei Ji rétrécissait jusqu'à devenir celui d'un colosse suivant Wang Lin, aux côtés de Da Tou et de Ta Shan. Quant à Maître Fu Fengzi, il n'osa plus ouvrir la bouche et se contenta de suivre Wang Lin.
 
-En chemin, les frères Chen discutèrent avec Wang Lin, mais leurs propos restaient superficiels. Ils ne posèrent aucune question sur les événements survenus aux abords de la ville de Ghost Eye.
+En chemin, les frères Chen discutèrent avec Wang Lin, mais leurs propos restaient superficiels. Ils ne posèrent aucune question sur les événements survenus aux abords de la ville de l'Œil Fantôme.
 
 Étant tous de puissants cultivateurs, il ne leur fallut que peu de temps pour approcher la planète Esprit d'Eau et pénétrer dans son atmosphère. Les vents violents qui y soufflaient furent impuissants à les ébranler; franchir l'atmosphère n'était pour eux qu'une formalité insignifiante.
 
@@ -86,21 +86,21 @@ D'un pas assuré, Wang Lin atteignit la résidence qu'il avait choisie. Après u
 
 Une fois entré dans le palais, Ta Shan s'assit à l'extérieur. Il resta immobile, montant la garde pour Wang Lin.
 
-Le palais était luxueux et richement décoré. Un immense motif ornait le sol, mais il ne dégageait aucune fluctuation; ce n'était donc pas une formation, mais une simple décoration. Au centre trônait un brûle-parfum de la taille de trois hommes. Un bâton d'encens aussi épais qu'un bras y brûlait, et sa fumée s'élevait pour se disperser dans l'immensité de la salle.
+Le palais était luxueux et richement décoré. Un immense motif des Huit Trigrammes ornait le sol, mais il ne dégageait aucune énergie spirituelle; ce n'était donc pas une formation, mais une simple décoration. Au centre trônait un brûle-parfum en bronze que trois hommes auraient peiné à encercler de leurs bras. Un bâton d'encens aussi épais qu'un bras y brûlait, et sa fumée s'élevait pour se disperser dans l'immensité de la salle.
 
 On y trouvait également un tapis de jade violet, indiquant sans équivoque que le lieu était destiné à la culture.
 
-De plus, des fresques reliées entre elles couvraient les murs environnants. Elles dépeignaient une multitude d'êtres célestes entourés de nuages, semblant accueillir le visiteur.
+De plus, des fresques reliées entre elles couvraient les murs environnants. Elles dépeignaient une multitude d'êtres célestes entourés de nuages, accueillant l'Empereur.
 
 Après avoir inspecté les lieux, Wang Lin fut pleinement satisfait. L'espace était vaste et propice au raffinage de trésors. Le calme y régnait, idéal pour la culture en isolement.
 
 Son Sens Divin se déploya pour inspecter soigneusement la zone. Puis, Wang Lin s'assit sur le tapis de jade violet et ferma lentement les yeux.
 
-Son énergie originelle emplit son corps tandis que sa culture de Scruteur du Nirvana, au stade intermédiaire, se propageait. Wang Lin resta ainsi immobile pendant trois jours.
+Son énergie originelle emplit son corps tandis que sa culture de Scruteur du Nirvana, au sommet du stade intermédiaire, se propageait. Wang Lin resta ainsi immobile pendant trois jours.
 
 Durant ce laps de temps, les trois frères Chen passèrent, mais ils ne le dérangèrent pas. Après avoir attendu un moment, ils prirent congé et partirent.
 
-Tard dans la nuit, trois jours plus tard, les étoiles brillaient intensément dans le ciel de la planète Esprit d'Eau et le vent nocturne soufflait doucement. Le vent faisait bruisser les feuilles, mais tout le reste était plongé dans un silence profond.
+Tard dans la nuit, trois jours plus tard, la lune était claire et les étoiles rares dans le ciel de la planète Esprit d'Eau et le vent nocturne soufflait doucement. Le vent faisait bruisser les feuilles, mais tout le reste était plongé dans un silence profond.
 
 Wang Lin était assis au cœur du palais. Après trois jours d'immobilité absolue, il ouvrit soudainement les yeux. Deux rayons de lumière vive jaillirent de ses pupilles.
 

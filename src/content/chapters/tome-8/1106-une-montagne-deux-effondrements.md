@@ -52,15 +52,15 @@ Cet homme était l'un des trois qui avaient attiré les bêtes moustiques loin d
 
 Ayant goûté au sang, ces bêtes moustiques étaient devenues folles. Sous la conduite de leur roi, elles partaient à la recherche des deux autres pour se venger.
 
-Tout cela se produisit en un instant. Sous le pouvoir de la Montagne qui s'effondre, il n'y avait pas de blessures, seulement la mort. L'âme originelle de l'Ancien en violet, qui avait perdu son corps, était terrifiée. Il esquiva les rochers brûlants et la fumée noire tout en serrant les dents pour charger vers la formation.
+Tout cela se produisit en un instant. Sous le pouvoir de la Montagne qui s'effondre, il n'y avait pas de blessures, seulement la mort. L'âme originelle de l'Ancien en pourpre, qui avait perdu son corps, était terrifiée. Il esquiva les rochers brûlants et la fumée noire tout en serrant les dents pour charger vers la formation.
 
-L'autre Ancien en violet était tout aussi pâle; il esquivait la fumée noire et fonçait vers la formation, faisant totalement abstraction de la vie de ses disciples. Il était terrifié, le cœur rempli de regret et de haine. Il regrettait sa cupidité et haïssait les trois disciples qui avaient attiré ces bêtes moustiques géantes, causant ce désastre.
+L'autre Ancien en pourpre était tout aussi pâle; il esquivait la fumée noire et fonçait vers la formation, faisant totalement abstraction de la vie de ses disciples. Il était terrifié, le cœur rempli de regret et de haine. Il regrettait sa cupidité et haïssait les trois disciples qui avaient attiré ces bêtes moustiques géantes, causant ce désastre.
 
 Les yeux de Wang Lin étaient calmes, mais il ne montra aucune pitié envers ces gens. Ils avaient osé songer à voler les bêtes moustiques, ils devaient donc en payer le prix! Il ouvrit les bras et cria: « Montagne, premier effondrement! »
 
 À la suite de ce cri, la montagne trembla une nouvelle fois et une masse colossale de roches tomba dans la lave. La lave environnante jaillit soudainement dans les airs, remplissant la nébuleuse d'une force inimaginable. Certains des cultivateurs restants furent touchés par cette lave et se transformèrent en cendres noires dans un ultime hurlement.
 
-L'âme originelle de l'Ancien en violet le plus rapide parvint à s'approcher du centre de la formation. Grâce au premier effondrement, d'innombrables fissures étaient apparues sur la formation déjà brisée, laquelle dégageait une lueur aveuglante.
+L'âme originelle de l'Ancien en pourpre le plus rapide parvint à s'approcher du centre de la formation. Grâce au premier effondrement, d'innombrables fissures étaient apparues sur la formation déjà brisée, laquelle dégageait une lueur aveuglante.
 
 Alors que la lave s'élançait vers le ciel, la formation ne put résister à cette force destructrice et s'effondra. La lumière intense et vacillante perça soudainement tout ce qui se trouvait à proximité.
 

@@ -30,7 +30,7 @@ Cette aura était très différente de celle de l'Omniscient. Si l'Omniscient é
 
 Les yeux de Situ Nan s'illuminèrent et il murmura: « Briseur du Nirvana! » Il réfléchit un instant avant de ricaner. Ses yeux brillaient de cette arrogance propre à celui qui méprise tout ce qui l'entoure.
 
-« Si je veux m'amuser dans ce monde, j'ai besoin d'une culture capable de le subjuguer. Briseur du Nirvana... Ce vieil homme s'est laissé aller à la paresse... »
+« Si je veux m'amuser dans ce monde, j'ai besoin d'une culture capable de le subjuguer. Briseur du Nirvana... J'ai été bien trop paresseux jusqu'ici... »
 
 Le vieil homme portait une robe dorée et ses cheveux étaient mi-noirs, mi-blancs, dégageant une aura ancestrale. Il regarda Ling Tianhou avec un sourire d'admiration.
 
@@ -38,7 +38,7 @@ Le vieil homme portait une robe dorée et ses cheveux étaient mi-noirs, mi-blan
 
 Ling Tianhou se remémora le passé et répondit respectueusement: « Junior ne s'en souvient pas, cela fait bien trop longtemps. »
 
-Le vieil homme en robe dorée poussa un soupir et dit lentement: « Lorsque toi et l'Omniscient étiez déjà de taille, je vous ai personnellement introduits dans la Terre Sainte du Vide Brillant. Des dizaines de milliers d'années ont passé désormais. L'un de vous est devenu un ancien de l'alliance que même moi je redoute, et la culture de l'autre a également atteint un tel niveau. »
+Le vieil homme en robe dorée poussa un soupir et dit lentement: « Lorsque toi et l'Omniscient avez obtenu en même temps la qualification, je vous ai personnellement introduits dans la Terre Sainte du Vide Brillant. Des dizaines de milliers d'années ont passé désormais. L'un de vous est devenu un ancien de l'alliance que même moi je redoute, et la culture de l'autre a également atteint un tel niveau. »
 
 Ling Tianhou réfléchit, mais la nostalgie dans ses yeux s'intensifia.
 
@@ -50,9 +50,9 @@ L'esprit de Ling Tianhou trembla tandis qu'il contemplait le vieillard: « Merci
 
 Ling Tianhou et l'homme en violet suivirent le mouvement dans le vortex.
 
-Wang Lin réfléchit un instant avant que ses yeux ne s'illuminent; il partit avec Situ Nan, suivi par Maître Vent Creux et la femme en argent. Derrière eux se trouvaient les trois frères Chen et Da Tou. Tous volèrent vers le vortex.
+Wang Lin réfléchit un instant avant que ses yeux ne s'illuminent; il partit avec Situ Nan, suivi par Maître Fu Fengzi et la femme en argent. Derrière eux se trouvaient les trois frères Chen et Da Tou. Tous volèrent vers le vortex.
 
-La silhouette de Lei Ji rétrécit jusqu'à n'être plus qu'un colosse, et il suivit l'assemblée dans le vortex.
+La silhouette de Lei Ji rétrécit jusqu'à n'être plus qu'un homme d'une dizaine de pieds, et il suivit l'assemblée dans le vortex.
 
 Le vieil homme assis sur la calebasse et l'homme froid vêtu de noir entrèrent tous deux dans le trou noir. La belle femme d'âge moyen hésita en regardant la femme en rose à ses côtés.
 
@@ -64,19 +64,19 @@ Une fois ces individus entrés, les cultivateurs environnants se précipitèrent
 
 Certains cultivateurs n'étaient qu'à mi-chemin du vortex lorsqu'il disparut; leurs corps s'effondrèrent et leurs cris de détresse résonnèrent, forçant ceux qui suivaient à battre en retraite précipitamment.
 
-Le trou noir disparut dans une traînée de sang. C'était comme si une immense porte s'était refermée, interdisant tout passage.
+Le trou noir disparut, laissant une légère odeur de sang. C'était comme si une immense porte s'était refermée, interdisant tout passage.
 
 Les cultivateurs alentour se dispersèrent avec regret. Certains restèrent là, réticents, pendant plusieurs jours avant de finalement partir. La Mer des Esprits Démoniaques de l'Est retrouva son calme...
 
-À l'intérieur de la Terre des Esprits Démoniaques, un soleil ardent trônait dans le ciel. Des vagues de chaleur ondulaient au gré du vent sur la terre. Les cadavres jonchant le sol dégageaient une odeur de décomposition, attirant de nombreux vautours qui planaient au-dessus, absorbant l'aura de mort.
+À l'intérieur de la Terre des Esprits Démoniaques, un soleil ardent trônait dans le ciel. Des vagues de chaleur ondulaient au gré du vent sur la terre. Les cadavres jonchant le sol dégageaient une odeur de décomposition, attirant de nombreux esprits démoniaques semblables à des vautours, qui absorbaient l'aura de mort sur ces cadavres.
 
 Ce n'était là qu'un recoin du Pays des Démons de Feu. À l'échelle du pays entier, les cadavres couvraient tout le paysage. Sous cette chaleur accablante, ils se décomposaient plus vite encore, et le vent emportait leurs vêtements, révélant la peau noircie en dessous.
 
 Une guerre immense ravageait le Pays des Démons de Feu sous l'assaut de la Tribu du Raffinement des Âmes. Tous les puissants dispersés dans le pays étaient tombés. Ceux qui ne se rendaient pas mouraient!
 
-La capitale du Pays des Démons de Feu, là où l'un des neuf anciens démons avait autrefois résidé, était désormais le dernier bastion. Ce lieu était occupé par l'une des armées d'élite du pays: l'Armée Spirituelle Démoniaque!
+La capitale du Pays des Démons de Feu, là où l'un des neuf anciens démons avait autrefois résidé, était désormais le dernier bastion. Ce lieu était occupé par l'une des armées d'élite du pays: l'Armée Spirituelle des Démons de Feu!
 
-Elle était commandée par deux chefs et huit généraux démoniaques qui tenaient la position. Bien que l'Armée Spirituelle Démoniaque eût subi de lourdes pertes, elle demeurait la plus puissante des forces en présence, ce qui leur permettait d'occuper la capitale et de préserver ce qu'il restait du Pays des Démons de Feu.
+Elle était commandée par deux chefs et huit généraux démoniaques qui tenaient la position. Bien que l'Armée Spirituelle des Démons de Feu eût subi de lourdes pertes, elle demeurait la plus puissante des forces en présence, ce qui leur permettait d'occuper la capitale et de préserver ce qu'il restait du Pays des Démons de Feu.
 
 À cet instant, l'armée de la Tribu du Raffinement des Âmes encerclait la capitale. D'innombrables individus flottaient dans le ciel, entourés de grands drapeaux. Un épais brouillard noir enveloppait la zone.
 
@@ -86,7 +86,7 @@ Devant les portes de la capitale, au sein de l'armée de la Tribu du Raffinement
 
 Dans le ciel, un vieil homme dégageait une majesté imposante. Vêtu d'une robe noire, il était entouré de dizaines de grands drapeaux formant un tourbillon sombre.
 
-« Généraux Démoniaques Bois Charmant et Scorpion d'Or, allez-vous vous rendre? » La voix du vieil homme tomba comme un vent glacial. À l'instant où sa voix retentit, un sifflement aigu jaillit du tourbillon noir qui l'entourait.
+« Chefs Démoniaques Bois Charmant et Scorpion d'Or, allez-vous vous rendre? » La voix du vieil homme tomba comme un vent glacial. À l'instant où sa voix retentit, un sifflement aigu jaillit du tourbillon noir qui l'entourait.
 
 La voix de l'homme n'était pas le seul son; les millions de membres de la Tribu du Raffinement des Âmes encerclant la capitale rugirent à l'unisson:
 

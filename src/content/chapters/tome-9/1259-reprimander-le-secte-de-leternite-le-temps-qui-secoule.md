@@ -12,7 +12,7 @@ La puissance de ce vieil homme était extrêmement stupéfiante, et la Nuit Bris
 
 Un halo rouge, semblable à du sang, l'entourait. Un halo rouge illusoire apparut derrière lui et devint gigantesque, diffusant une lumière écarlate qui enveloppa toute la zone.
 
-« Puisque tu as dérobé l'un de mes sorts, je vais prendre l'un des tiens! » L'expression du vieil homme aux cheveux blancs était d'une gravité extrême. Il ne dégageait plus aucune aura de vieillesse, mais libérait désormais sa culture terrifiante. Son halo était plus rouge que le sang alors qu'il chargeait en avant; il parcourut 10 000 pieds en un instant pour se précipiter sur Wang Lin.
+« Tu as encaissé l'un de mes sorts, j'encaisserai donc l'un des tiens! » L'expression du vieil homme aux cheveux blancs était d'une gravité extrême. Il ne dégageait plus aucune aura de vieillesse, mais libérait désormais sa culture terrifiante. Son halo était plus rouge que le sang alors qu'il chargeait en avant; il parcourut 10 000 pieds en un instant pour se précipiter sur Wang Lin.
 
 L'expression de Wang Lin demeurait calme. Il ne possédait plus beaucoup d'énergie originelle après avoir utilisé la Nuit Brisée, mais ses yeux aussi dégageaient une intention de combat monstrueuse. L'étoile de la loi entre ses sourcils scintillait follement et tournait rapidement. À mesure qu'elle pivotait, l'énergie originelle du monde commença à se condenser vers Wang Lin avec frénésie.
 
@@ -24,7 +24,7 @@ Les yeux de Wang Lin s'illuminèrent. Au moment où le vieil homme aux cheveux b
 
 Simultanément, une image apparut dans l'esprit de Wang Lin. Dans cette vision, une immense porte de pierre trônait sur un océan infini. Elle était imposante et dégageait une aura antique, comme si elle existait depuis l'aube du monde!
 
-Cette image était la porte du Royaume Céleste du Vent!
+Cette image était la porte du Temps qui s'écoule, celle qu'il avait contenue dans son cœur et emportée du Royaume Céleste du Vent!
 
 Dès que l'image apparut dans son esprit, elle supplanta toutes ses pensées. D'un mouvement de sa main droite, il manifesta cette vision au monde par une méthode étrange!
 
@@ -34,15 +34,15 @@ Dès l'apparition de la porte de pierre, une pression indicible enveloppa le mon
 
 Le vieil homme aux cheveux blancs, en pleine charge, s'arrêta brusquement et haleta. Ses yeux étaient remplis d'incrédulité. Lorsqu'il avait vu la Nuit Brisée, il pensait avoir atteint la limite des sorts de Wang Lin. Mais face à cette porte de pierre, il fut ébranlé. Avec son niveau de culture, il pouvait ressentir le pouvoir du temps avec une clarté accrue, et un mauvais pressentiment l'assaillit.
 
-« Comment cet homme peut-il posséder autant de sorts?! Depuis qu'il est arrivé, il n'a sorti aucun trésor; il n'a fait usage que de sorts. Posséder une telle force par la seule magie... n'est-il pas un peu trop puissant? » Le vieil homme prit une profonde inspiration et l'intention de combat dans ses yeux s'intensifia. Compte tenu de son rang au sein de la Secte de l'Éternité, il ne lui était pas permis de battre en retraite!
+« Comment cet homme peut-il posséder autant de sorts?! Depuis qu'il est arrivé, il n'a sorti aucun trésor; il n'a fait usage que de sorts. Posséder une telle force par la seule magie... n'est-il pas un peu trop puissant? » Le vieil homme prit une profonde inspiration et l'intention de combat dans ses yeux s'intensifia. Compte tenu de son rang au sein de la Secte Éternelle, il ne lui était pas permis de battre en retraite!
 
 Son niveau de culture ne lui permettait pas non plus de fuir sans combattre, bien qu'il ait eu le vague sentiment que le monde avait légèrement changé depuis l'apparition de la porte.
 
-Au moment où la porte de pierre perça la surface de la mer, Wang Lin resta immobile, mais la porte s'éleva rapidement pour le porter vers les cieux. Il semblait désormais veiller sur toute forme de vie!
+Au moment où la porte de pierre perça la surface de la mer, Wang Lin resta immobile, mais la porte s'éleva rapidement pour le porter vers les cieux. Il semblait désormais toiser toute forme de vie!
 
 Les yeux de Wang Lin étaient d'un calme absolu, dépourvus d'émotion, mais il dégageait une aura de désolation. Cette aura était semblable à celle du Royaume Céleste du Vent, si dense qu'elle ne se dissipait point. Au moment même où la porte apparut, une rafale de vent traversa la mer, passa devant la porte et fit le tour du monde.
 
-La silhouette de Wang Lin sur la porte de pierre paraissait encore plus désolée. Il se tenait là comme s'il trônait au sommet du monde; mais outre sa position, le ciel restait le ciel, bien qu'il semblât d'une solitude extrême.
+La silhouette de Wang Lin sur la porte de pierre paraissait encore plus désolée. Il se tenait là comme s'il trônait au sommet du monde; mais à cette hauteur, il n'y avait que le ciel, rien que le ciel, ce qui paraissait d'une solitude extrême.
 
 Ce sentiment de désolation devint plus puissant avec cette solitude, comme si elle l'avait accompagné durant d'innombrables années.
 
@@ -66,7 +66,7 @@ Dès que le regard de Wang Lin l'atteignit, l'esprit du vieil homme trembla. Il 
 
 Le sort « Le Temps qui s'écoule » n'attaquait ni le corps, ni l'âme originelle, mais les souvenirs!
 
-Lors de son voyage vers la Secte de l'Éternité, Wang Lin avait découvert que ce sort avait un effet similaire au sort de Dispersion du Dao utilisé par le vieil homme dans le Royaume aux Sept Couleurs!
+Lors de son voyage vers la Secte Éternelle, Wang Lin avait découvert que ce sort avait un effet similaire au sort de Dispersion du Dao utilisé par le vieil homme dans le Royaume aux Sept Couleurs!
 
 Un souffle équivalait à cent ans!
 
@@ -74,7 +74,7 @@ Le monde sembla devenir éternel. Le flux du temps devint silencieux et s'écoul
 
 Les rides du vieil homme aux cheveux blancs s'estompèrent considérablement et la lutte dans ses yeux devint plus intense. À cet instant, il était immergé dans ses souvenirs alors que mille ans défilaient comme les pages d'un livre que l'on tourne...
 
-Ce qui basculait n'était pas seulement la culture du vieil homme, mais presque les souvenirs des cent mille cultivateurs environnants. Mille ans de souvenirs s'évaporèrent en seulement dix souffles.
+Ce qui se retournait n'étaient pas seulement les souvenirs du vieil homme, mais aussi ceux de près de cent mille cultivateurs environnants, tous ceux dont l'esprit s'était englouti. Mille ans de souvenirs s'évaporèrent en seulement dix souffles.
 
 Le temps éternel apparut dans le monde telle une main géante, libérant la confusion scellée.
 

@@ -10,7 +10,7 @@ slug: la-formation-de-scellement-du-royaume
 
 Les étoiles étaient plongées dans un silence absolu, comme si tout son était englouti par les ténèbres.
 
-Au loin se trouvait une planète abandonnée. Aucune lumière n'atteignait ce monde, enveloppé d'une aura de mort. Elle ressemblait à un vieil homme luttant dans son dernier souffle, l'air qu'il expirait étant imprégné de néant.
+Au loin se trouvait une planète abandonnée. Aucune lumière n'atteignait ce monde, enveloppé d'une aura de mort. Elle ressemblait à un vieil homme luttant dans son dernier souffle, l'air qu'il expirait étant cette épaisse aura de mort.
 
 Un être était assis sur cette planète délaissée.
 
@@ -52,13 +52,13 @@ Sa démarche n'était pas rapide, mais ses enjambées étaient immenses. D'un se
 
 S'avançant vers le vortex, Tuo Sen disparut de Luotian pour s'enfoncer... dans la Mer des Nuages!
 
-À l'instant où il pénétra dans la Mer des Nuages, tous les cultivateurs des sectes de rang 9 ressentirent instantanément une aura qui les ébranla jusqu'à la moelle.
+À l'instant où il pénétra dans la Mer des Nuages, tous les cultivateurs des sectes de rang 1 à 9 du Système Stellaire de la Mer des Nuages ressentirent instantanément une aura qui les ébranla jusqu'à la moelle.
 
 Même les bêtes féroces dans la brume commencèrent à trembler et reculèrent toutes, n'osant s'approcher. Même la marée de bêtes provenant de la fissure trembla de peur et battit en retraite frénétiquement. Cela provoqua une interruption inattendue du massacre qui durait depuis près de cent ans.
 
 Un Sens Divin inimaginable balaya la Mer des Nuages comme une tempête. Tout le brouillard fut repoussé, comme s'il tremblait devant cette puissance mentale.
 
-Simultanément, plusieurs Sens Divins jaillirent de la Mer des Nuages et entrèrent en collision impitoyable avec celui de Tuo Sen.
+Simultanément, plusieurs Sens Divins jaillirent de la région de rang 9 de la Mer des Nuages et entrèrent en collision impitoyable avec celui de Tuo Sen.
 
 Un rugissement, silencieux mais capable de pénétrer l'esprit comme d'innombrables éclats de tonnerre, se propagea follement à travers la Mer des Nuages.
 
@@ -98,7 +98,7 @@ L'expression de Tuo Sen devint féroce alors qu'il fixait la formation. En tant 
 
 L'ensemble de la structure laissa échapper un rare tremblement, mais ne montra aucun signe d'effondrement. Peu importent les assauts de Tuo Sen, elle demeurait immuable, refusant à quiconque de faire le moindre pas en dehors!
 
-Ce qui se passait dans le Royaume Scellé alerta ceux qui observaient la formation, mais avant qu'ils ne puissent arriver, celle-ci avait subi assez de dommages pour que l'esprit de la formation se manifeste de lui-même. Un rayon de lumière se forma au cœur de la structure.
+Ce qui se passait dans le Royaume Scellé alerta les gardiens de la formation du Système Stellaire Antique, mais avant qu'ils ne puissent arriver, celle-ci avait subi assez de dommages pour que l'esprit de la formation se manifeste de lui-même. Un rayon de lumière se forma au cœur de la structure.
 
 Un éclair de lumière argentée, semblable à la foudre, jaillit et prit la forme d'une lance. Cette lance, drapée d'une électricité infinie, fonça droit sur Tuo Sen.
 

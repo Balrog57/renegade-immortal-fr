@@ -44,7 +44,7 @@ Wang Lin bondit par-dessus la femme d'argent et le serpent pour charger directem
 
 L'expression de cette dernière changea radicalement alors qu'elle tentait de fuir pour éviter la lance noire. Cependant, la lance était verrouillée sur elle et accélérait sans cesse, semblant prête à déchirer l'espace lui-même.
 
-En voyant Wang Lin sortir indemne de sa formation mortelle, son visage devint encore plus livide. Elle se mordit la langue, s'apprêtant à cracher davantage de poison, quand l'intention meurtrière brilla dans les yeux de Wang Lin et qu'il pointa vers elle.
+En voyant Wang Lin sortir indemne de son attaque mortelle, son visage devint encore plus livide. Elle se mordit la langue, s'apprêtant à cracher davantage de poison, quand l'intention meurtrière brilla dans les yeux de Wang Lin et qu'il pointa vers elle.
 
 « Arrête! »
 
@@ -80,7 +80,7 @@ Wang Lin scella les sept autres crânes de la même manière. Ces huit crânes f
 
 Il pénétra prudemment dans la vallée, sachant qu'il suffirait d'une pensée pour que les sceaux se rompent et que le siège reprenne de plus belle.
 
-La vallée n'était pas très vaste. La première chose que Wang Lin vit en entrant fut un cadavre. Le corps était en décomposition et il ne put déterminer qu'il s'agissait d'un cultivateur mâle. Une odeur fétide et insupportable s'en dégageait.
+La vallée n'était pas très vaste. La première chose que Wang Lin vit en entrant fut un cadavre. Le corps était en décomposition et il put seulement déterminer qu'il s'agissait d'un homme. Une odeur fétide et insupportable s'en dégageait.
 
 Fronçant les sourcils, Wang Lin avança jusqu'au centre de la vallée. Son sens divin se propagea lentement et il trouva bientôt une silhouette assise, entourée de quatre cadavres morts d'empoisonnement.
 
@@ -90,7 +90,7 @@ L'expression de Wang Lin resta calme alors qu'il avançait pour observer clairem
 
 Les quatre cadavres étaient en pleine décomposition. Leurs yeux étaient ternes, empreints d'une trace de confusion. La même odeur nauséabonde émanait de leurs corps.
 
-L'homme assis était un quadragénaire. Son visage était livide, sans aucune trace de sang, et une ligne noire marquait l'espace entre ses sourcils. Même son âme originelle était au bord du trépas. Il semblait que le poison en lui s'était trop propagé. Ce n'était pas un venin ordinaire, mais un poison d'une puissance extrême!
+L'homme assis était un homme d'âge moyen. Son visage était livide, sans aucune trace de sang, et une ligne noire marquait l'espace entre ses sourcils. Même son âme originelle était au bord du trépas. Il semblait que le poison en lui s'était trop propagé. Ce n'était pas un venin ordinaire, mais un poison d'une puissance extrême!
 
 « Stade avancé du Purificateur du Nirvana! » Les yeux de Wang Lin brillèrent. Un poison assez puissant pour tuer un tel cultivateur était comparable au poison du Septième Ciel!
 

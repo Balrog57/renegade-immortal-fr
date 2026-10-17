@@ -6,7 +6,7 @@ bookTitle: "Alliance's Secret"
 en: The Death of the Avatar
 slug: une-seule-tête
 ---
-Il chargea directement vers l'une des dix-huit têtes; c'était celle de l'homme d'âge moyen qui était déterminée à tuer Wang Lin. L'énergie de massacre était si rapide qu'elle se referma sur sa cible en un instant.
+L'énergie de massacre fonça directement vers l'une des dix-huit têtes du Ji Qiong qui venait d'être libéré; c'était celle de l'homme d'âge moyen, déterminée à tuer Wang Lin. Elle était si rapide qu'elle se referma sur sa cible en un instant.
 
 Elle percuta la tête dans un fracas assourdissant.
 
@@ -54,15 +54,15 @@ Le tonnerre incessant fut figé à l'intérieur, et même les flammes dévorante
 
 Si cela s'était arrêté là, cela n'aurait pas été assez impressionnant, mais cette énergie froide semblait capable de créer de la glace partout. Wang Lin sentit clairement le froid converger vers lui de toutes parts; il remarqua que de la glace commençait à apparaître tout autour de lui.
 
-Ayant combattu toute sa vie, Wang Lin était extrêmement expérimenté et ne paniqua nullement. Son corps s'illumina d'un éclat rouge et l'armure du Oiseau Vermillon apparut autour de lui. Une fois l'armure déployée, le Oiseau Vermillon blanc poussa un cri. Wang Lin chargea et percuta directement la glace qui se formait.
+Ayant combattu toute sa vie, Wang Lin était extrêmement expérimenté et ne paniqua nullement. Son corps s'illumina d'un éclat rouge et l'armure de l'Oiseau Vermillon apparut autour de lui. Une fois l'armure déployée, l'Oiseau Vermillon blanc l'entoura et poussa un cri, et des flammes blanches s'élevèrent de tout le corps de Wang Lin. Wang Lin chargea et percuta directement la glace qui se formait.
 
 Des sons de craquements retentirent dans le vide. Avant même que la glace ne puisse toucher Wang Lin, elle fondait déjà. Cela lui permit de traverser la couche de glace qui se refermait sur lui.
 
 Après avoir brisé sa prison de glace, Wang Lin leva la main droite et un tonnerre infini apparut de nouveau. Cette fois, il ne le dirigea pas vers le Ji Qiong, mais vers le cimetière d'épées.
 
-Instantanément, la foudre frappa le sol dans un fracas assourdissant. Le tonnerre se propagea et affecta toutes les épées brisées. Les lames étant conductrices, l'électricité se répandit rapidement; bientôt, toutes les épées dans un rayon de 10 000 pieds furent parcourues par la foudre.
+Instantanément, la foudre frappa le sol dans un fracas assourdissant. Le tonnerre se propagea et affecta toutes les épées brisées. L'électricité se répandit rapidement; bientôt, toutes les épées dans un rayon de 10 000 pieds furent parcourues par la foudre.
 
-Dans un rugissement, Wang Lin leva sans pitié sa main. Alors que le Ji Qiong se trouvait à moins de 1 000 pieds de lui, toutes les épées au sol furent électrifiées et s'élevèrent dans les airs!
+D'un cri sourd, Wang Lin leva violemment les deux mains. Alors que le Ji Qiong se trouvait à moins de 1 000 pieds de lui, toutes les épées au sol furent électrifiées et s'élevèrent dans les airs!
 
 Ces lames tombèrent sur le Ji Qiong telle une pluie d'acier, portées par la puissance du tonnerre.
 
@@ -70,7 +70,7 @@ Une lueur froide apparut dans les yeux de Wang Lin. Le Ji Qiong nourrissait l'in
 
 Cependant, avec son niveau de culture actuel, il serait trop difficile d'éliminer le Ji Qiong! Sans sa vitesse, la créature l'aurait déjà rattrapé pour le dévorer.
 
-Bien qu'il ne fût ici que par son avatar et que sa mort n'affecterait guère son corps original, il était venu tester la force de Tuo Sen; il n'était donc pas disposé à accepter la mort ici.
+Bien qu'il ne fût ici que par son avatar, qui possédait toute sa culture, et que sa mort n'affecterait pas son corps original resté sur la lune, il était venu tester la force de Tuo Sen; il n'était donc pas disposé à accepter la mort ici.
 
 À cet instant, toutes les épées au sol chargèrent vers le Ji Qiong. Wang Lin recula rapidement tout en projetant des éclairs vers le sol. Chaque décharge provoquait un grondement tonnerre et faisait s'envoler d'innombrables lames.
 
@@ -118,4 +118,4 @@ L'énergie originelle de Wang Lin s'engouffra dans l'épée de fer et brilla de 
 
 L'épée frappa, et le sang jaillit de toutes parts. Après un impact sourd, une ligne de sang apparut sur l'un des dix-huit cous. Les yeux de la tête de l'homme d'âge moyen exprimèrent l'incrédulité... avant qu'il ne s'effondre.
 
-Sans perdre un instant, Wang Lin retira ses épées et s'élança pour s'échapper. Il utilisa l'Évasion par le Feu pour saisir la tête, puis réapparut à 10 000 pieds de là. Il s'éloigna rapidement sans jamais se retourner.
+Sans perdre un instant, Wang Lin rengaina son épée et s'élança pour s'échapper. Il utilisa l'Évasion par le Feu pour saisir la tête, puis réapparut à 10 000 pieds de là. Il s'éloigna rapidement sans jamais se retourner.

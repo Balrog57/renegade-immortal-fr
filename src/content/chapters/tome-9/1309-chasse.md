@@ -102,7 +102,7 @@ Toutefois, la vitesse d'activation de la formation était bien trop lente pour l
 
 Les hurlements de douleur déchirèrent le ciel de cette planète imprégnée de ressentiment. Tous les cultivateurs furent encerclés par le brouillard noir. Leur chair se flétrissait, tandis que toute leur vitalité et leur sang étaient aspirés par l'obscurité.
 
-Un vieil homme vêtu de vert s'élança hors de la planète en rugissant: « Quel démon ose venir dévorer sur ma planète Devil Na?! » Une aura verte l'enveloppait. C'était un cultivateur ayant atteint le premier stade du Fléau Céleste!
+Un vieil homme vêtu de vert s'élança hors de la planète en rugissant: « Quel démon ose venir dévorer sur ma planète Mo Na?! » Une aura verte l'enveloppait. C'était un cultivateur ayant atteint le premier stade du Fléau Céleste!
 
 « Un puissant cultivateur! » Les yeux de Wang Lin devinrent glacials et il se lécha les lèvres. Soudain, son corps entier se mua en un éclair du Royaume Ji qui perça le brouillard pour frapper le vieillard.
 

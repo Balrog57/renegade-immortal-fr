@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1275 - The Four Void Realms
 slug: les-quatre-royaumes-du-vide
 ---
-Les Chars de Guerre Divins avaient été perfectionnés par le célèbre forgeron excentrique du Royaume Céleste. Il cherchait encore les matériaux nécessaires pour les achever lorsque le Royaume Céleste s'est effondré!
+Les Chars de Guerre Divins avaient été perfectionnés par le célèbre forgeron excentrique du Royaume Céleste de la Pluie. Il venait de les fabriquer et ils n'étaient pas encore totalement activés; il cherchait encore les matériaux nécessaires lorsque la grande calamité du Royaume Céleste s'est abattue!
 
 Lors de cette calamité, il était mort dans un regret monstrueux. Il avait consacré tout son savoir et toute sa culture à la création de ces chariots de guerre. N'hésitant pas à parcourir le monde pour trouver les matériaux requis, il y avait dépensé toutes ses forces, ce qui avait provoqué le flétrissement rapide de sa longévité infinie. Vers la fin, il était aux cheveux blancs et presque dépourvu de vitalité. Même si la calamité ne s'était pas produite, il serait mort une fois les Chars de Guerre Divins achevés.
 
@@ -58,7 +58,7 @@ Ce brouillard était noir, et un rugissement terrassant émana de son sein. Neuf
 
 Chaque spectre était l'équivalent de la pleine puissance d'un cultivateur du troisième niveau du Fléau Céleste. Oubliez les deux sorts du Dao Insouciant, ces neuf spectres seuls lui permettraient de faire ce qu'il voulait dans n'importe quel système stellaire, rencontrant rarement la moindre résistance!
 
-À cet instant, ces neuf spectres poussèrent des hurlements monstrueux et se rapprochèrent pour dévorer la lumière aux sept couleurs. Ils tremblèrent sous l'éclat intense de la lueur. Les spectres poussèrent des cris lugubres et reculèrent précipitamment, n'osant pas tenter de l'arrêter. Deux d'entre eux, trop lents, furent percutés par la lumière aux sept couleurs. Ils se désintégrèrent instantanément en une immense quantité d'énergie originelle.
+À cet instant, ces neuf spectres poussèrent des hurlements monstrueux et se rapprochèrent pour dévorer la lumière aux sept couleurs. Ils tremblèrent sous l'éclat intense de la lueur. Les spectres poussèrent des cris lugubres et reculèrent précipitamment, n'osant pas tenter de l'arrêter. Deux d'entre eux, trop lents, furent percutés par la lumière aux sept couleurs. Ils se désintégrèrent instantanément en une immense force du ciel et de la terre qui se dissipa.
 
 L'expression de Shui Daozi était sombre alors qu'il reculait une fois de plus. Ses mains formèrent de nouveaux sceaux pour lancer un autre sort.
 
@@ -94,7 +94,7 @@ Les trois couleurs restantes — rouge, jaune et bleu — libérèrent un gronde
 
 « Quel trésor puissant! Malheureusement, il reste manifestement un sceau; sans quoi, même avec ma culture du stade initial du Vide Nirvana, j'aurais été blessé. De plus, ce vieil homme a été contraint d'utiliser le sort d'Arrêt. Lu Zihao, pour être capable de faire une telle chose, tu peux être considéré comme un génie céleste! »
 
-« Vide Nirvana, Vide Spirituel, Vide Arcane et Vide de la Tribulation! Le troisième niveau possède quatre royaumes. Ce n'est qu'en atteignant le stade du Vide Spirituel que je ne serais pas blessé par ce trésor une fois qu'il sera pleinement activé! » Les yeux de Shui Daozi s'illuminèrent. Ce Char de Guerre Divin l'avait quelque peu surpris. S'il n'avait pas connu un sort qui n'appartenait pas à ce monde, cela aurait pu être problématique. Bien qu'il ne serait pas mort, il aurait subi des blessures avant de pouvoir tuer ce Liu Zihao. Et pour un cultivateur du troisième niveau, subir la contre-attaque d'une fourmi était une honte!
+« Vide Nirvana, Vide Spirituel, Vide Arcane et Vide de la Tribulation! Le troisième niveau possède quatre royaumes. Ce n'est qu'en atteignant le stade du Vide Spirituel que je ne serais pas blessé par ce trésor une fois qu'il sera pleinement activé! » Les yeux de Shui Daozi s'illuminèrent. Ce Char de Guerre Divin l'avait quelque peu surpris. S'il n'avait pas connu un sort qui n'appartenait pas à ce monde, cela aurait pu être problématique. Bien qu'il ne serait pas mort, il aurait subi des blessures avant de pouvoir tuer ce Lu Zihao. Et pour un cultivateur du troisième niveau, subir la contre-attaque d'une fourmi était une honte!
 
 « Tu n'as pas le droit d'utiliser ce trésor, alors ce vieil homme va te le prendre! » Shui Daozi agita ses manches et un vortex apparut entre ses sourcils. Dès son apparition, il jaillit pour dévorer les rayons de lumière rouge, jaune et bleu.
 

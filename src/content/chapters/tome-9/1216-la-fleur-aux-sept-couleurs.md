@@ -58,9 +58,9 @@ Toute la radiance avait été absorbée par le corps de Wang Lin, devenant la so
 
 Au moment où plus aucune lueur ne subsistait dans le Royaume aux Sept Couleurs, Wang Lin poussa un cri de déraison. Ses yeux étaient rouge sang. Il voulait tout détruire, y compris lui-même!
 
-« C'est le feu le plus merveilleux au monde. On l'appelle la "rage"... Prends ta rage, utilise ta folie pour faire bouillir ton âme, et fais croître le Dao pour ce vieil homme. Ajoute la dernière volonté daoïste... Ce vieil homme veut vraiment savoir si tu peux brûler mon doigt... Est-ce que... » Une voix antique émana lentement du vortex céleste. Elle semblait transpercer l'espace et le temps, portant en elle les stigmates de l'éternité.
+« C'est le feu le plus merveilleux au monde. On l'appelle la "rage"... Prends ta rage, utilise ta folie pour faire bouillir ton âme, et fais croître le Dao pour ce vieil homme. Ajoute la dernière volonté daoïste... Ce vieil homme veut vraiment savoir si tu peux brûler mon doigt... Le pourras-tu?... » Une voix antique émana lentement du vortex céleste. Elle semblait transpercer l'espace et le temps, portant en elle les stigmates de l'éternité.
 
-Wang Lin perdit connaissance et son corps s'effondra. Son âme originelle, son âme et tout ce qui l'entourait se transformèrent en un rayon de lumière rouge. C'était comme s'il brûlait alors qu'il s'élançait vers la grotte!
+Wang Lin perdit connaissance et son corps s'effondra. Son âme originelle, son âme et tout ce qui n'était pas son corps physique se transformèrent en un rayon de lumière rouge. C'était comme s'il brûlait alors qu'il s'élançait vers la grotte!
 
 À l'intérieur, une vaste quantité de lave bouillonnante dégageait des vapeurs noires. On y trouvait d'innombrables chaînes, et à chaque chaîne pendait un squelette desséché.
 
@@ -74,13 +74,13 @@ De plus, des gouttes de liquide noir s'égouttaient des squelettes dans la lave,
 
 Au moment où le rayon de lumière rouge représentant Wang Lin pénétra dans la cavité, tous les jades s'effondrèrent brusquement, libérant leur immense intention daoïste dans le magma. Simultanément, les squelettes se désintégrèrent en une masse de liquide noir qui fusionna avec la lave.
 
-En un instant, des bulles encore plus nombreuses jaillirent à la surface. Le magma se mit à tourbillonner et les runes subalternes fondirent, créant une force d'aspiration inimaginable. Dès que Wang Lin entra, il commença à être dévoré.
+En un instant, des bulles encore plus nombreuses jaillirent à la surface. Le magma se mit à tourbillonner et les runes situées sous le magma fondirent, créant une force d'aspiration inimaginable. Dès que Wang Lin entra, il commença à être dévoré.
 
 Le magma tournait de plus en plus vite. En un instant, il sembla percer la grotte pour créer un passage vers un espace connecté!
 
 C'était un espace sans fin peuplé d'innombrables étoiles, formant une immense formation. Cette structure était vaste, au moins de la taille du système stellaire de l'Alliance!
 
-Chaque étoile faisait partie intégrante de la formation. En son centre se trouvaient sept plantes semblables à des fleurs. Chacune arborait une couleur différente, composant ainsi l'arc-en-ciel! Elles n'étaient pas très grandes, ne mesurant que quelques milliers de pieds de large; comparées à cette vaste formation, elles semblaient insignifiantes.
+Chaque étoile faisait partie intégrante de la formation. En son centre se trouvaient sept plantes semblables à des fleurs. Chacune arborait une couleur différente, composant ainsi l'arc-en-ciel! Elles n'étaient pas très grandes, ne mesurant qu'environ mille pieds de large; comparées à cette vaste formation, elles semblaient insignifiantes.
 
 Pourtant, la formation n'existait que par ces sept plantes. Tout cet espace et cette structure n'avaient d'autre but que de fournir des nutriments à ces sept végétaux!
 
@@ -92,15 +92,15 @@ C'était une véritable culture du Dao!
 
 Ce processus durait depuis des éons, absorbant constamment l'intention daoïste de tous ceux qui périssaient dans le Royaume Scellé.
 
-À l'époque des Anciens Célestes, ils ne possédaient pas de Dao; la formation absorbait donc les lois qu'ils cultivaient comme nutriments. À l'ère des anciens cultivateurs, en l'absence de lois, elle puisait dans l'énergie originelle dont ils jouissaient.
+À l'époque des Anciens Célestes, il n'existait pas de domaines; la formation absorbait donc les lois qu'ils cultivaient comme nutriments. À l'ère des anciens cultivateurs, en l'absence de lois, elle puisait dans l'énergie originelle dont ils jouissaient.
 
 Telles étaient les méthodes employées pour nourrir ces sept plantes afin que les fruits du Dao puissent éclore...
 
-Un squelette était assis sur la plante rouge cramoisi. D'innombrables caractères dorés y étaient gravés. Ces mots émettaient une lueur noire qui était promptement absorbée par la plante.
+Un squelette était assis en tailleur à l'intérieur de la plante rouge cramoisi. D'innombrables écritures étaient gravées sur ce squelette. Ces mots émettaient une lueur noire qui était promptement absorbée par la plante.
 
 Cette plante rouge cramoisi possédait de délicats pétales couleur sang, mais la plupart d'entre eux s'étaient déjà envolés, n'en laissant que quelques-uns. Une fois le dernier pétale tombé, cette fleur formerait son fruit.
 
-À cet instant précis, une fissure apparut près de la fleur et un rayon de lumière rouge jaillit pour y pénétrer. Cette lueur contenait l'âme originelle et l'âme de Wang Lin. Elle fut absorbée par la plante située près du squelette.
+À cet instant précis, une fissure apparut près de la fleur et un rayon de lumière rouge jaillit pour y pénétrer. Cette lueur contenait l'âme originelle et l'âme de Wang Lin. Elle fut absorbée par la plante et apparut à l'intérieur, à côté du squelette.
 
 La plante semblait absorber ses ultimes nutriments alors que les derniers pétales tombaient et que son cœur se mettait à s'agiter étrangement. Un fruit rouge cramoisi commença lentement à se former.
 

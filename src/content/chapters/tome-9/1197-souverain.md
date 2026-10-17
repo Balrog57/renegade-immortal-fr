@@ -8,7 +8,7 @@ slug: souverain
 ---
 Wang Lin tenait le jade tandis que son sens divin l'explorait attentivement.
 
-« Cela fait trois ans… Le Deuxième Frère est mort, et le Troisième aussi… Ils sont devenus des Égarés et errent ici… Je les ai vus il y a quatre jours, mais ils ne me reconnaissent plus et sont passés devant moi sans un regard… Je ne peux pas laisser les choses continuer ainsi, je dois trouver une solution. »
+« Cela fait trois ans… Le Deuxième Frère est mort, et le Troisième aussi… Ils sont devenus des Perdus et errent ici… Je les ai vus il y a quatre jours, mais ils ne me reconnaissent plus et sont passés devant moi sans un regard… Je ne peux pas laisser les choses continuer ainsi, je dois trouver une solution. »
 
 « C'est la sixième année depuis que je suis arrivé ici, et j'ai trouvé un jade. Il contient une restriction appelée "Restriction Temporelle". Je dois l'apprendre… »
 
@@ -16,7 +16,7 @@ Wang Lin tenait le jade tandis que son sens divin l'explorait attentivement.
 
 « Combien de temps s'est-il écoulé? Cela doit faire au moins 30 ans. Les Éveillés ont attaqué une fois de plus, et j'ai clairement vu l'Oncle-Maître parmi eux… Ils ont emporté le Cinquième Frère et le Sixième Frère… »
 
-« J'ai enfin maîtrisé la Restriction Temporelle. Avec les restes de ma secte, nous avons instauré une immense Restriction Temporelle dans une vallée. Le Neuvième Frère a sacrifié sa vie pour renforcer l'effet temporel de cette restriction. Avant de mourir, il m'a fait promettre de ramener ses restes à la Secte Brise-Ciel… Je l'ai promis, mais en serai-je capable? »
+« J'ai enfin maîtrisé la Restriction Temporelle. Avec les restes de ma secte, nous avons instauré une immense Restriction Temporelle dans une vallée. Le Neuvième Frère a sacrifié sa longévité pour renforcer l'effet temporel de cette restriction. Avant de mourir, il m'a fait promettre de ramener ses restes à la Secte Brise-Ciel… Je l'ai promis, mais en serai-je capable? »
 
 « La Restriction Temporelle a protégé la vallée, et la vallée est devenue ma demeure… Cependant, je n'y ai trouvé aucune chaleur humaine. Je n'ai vu que des visages familiers devenir peu à peu étrangers. »
 
@@ -26,25 +26,25 @@ Wang Lin réfléchissait silencieusement en contemplant le squelette devant lui.
 
 « Cela fait 100 ans. Il n'y a ni nuit ni jour, je ne peux donc pas calculer le temps avec précision ici. Pourtant, à en juger par la puissance de la Restriction Temporelle, cela devrait faire 100 ans. Mais pourquoi ai-je l'impression que mille ans se sont écoulés… Le Treizième Frère a détruit son propre corps et est mort… Il ne pouvait plus supporter une telle existence. »
 
-« Les gens autour de moi sont devenus des Égarés ou des Éveillés. Seuls le Seizième Frère, l'Oncle et moi restons. Je sais que nous sommes des pécheurs, et que c'est peut-être notre punition. Cependant, je refuse de céder! Je ne céderai pas! »
+« Les gens autour de moi sont devenus des Perdus ou des Éveillés. Seuls le Seizième Frère, le Quatrième Oncle-Maître et moi restons. Je sais que nous sommes des pécheurs, et que c'est peut-être notre punition. Cependant, je refuse de céder! Je ne céderai pas! »
 
-« Aujourd'hui est un jour que je n'oublierai jamais. Cela fait plus de 130 ans que je suis ici, et c'était la première fois que les Défieurs apparaissaient. L'Oncle s'est transformé en Défieur… »
+« Aujourd'hui est un jour que je n'oublierai jamais. Cela fait plus de 130 ans que je suis ici, et c'était la première fois que les Défieurs apparaissaient. Le Quatrième Oncle-Maître s'est transformé en Défieur… »
 
 « Ils ont tous disparu. Seuls le Seizième Frère et moi restons… Cependant, j'ai conçu une méthode pour les sauver. Je dois tenter ma chance, dût-il en coûter ma vie! J'ai fait mes adieux au Seizième Frère et j'ai quitté la vallée. »
 
-« J'ai ramené le Deuxième Frère et le Troisième Frère, ainsi que tous ceux qui étaient devenus des Égarés… Je suis entré dans les profondeurs de la montagne et j'ai retrouvé le Cinquième Frère et le Sixième Frère, devenus des Éveillés, pour les ramener avec moi. J'ai ensuite plongé dans les tréfonds de ce lieu. Le chemin m'était devenu très familier… »
+« J'ai ramené le Deuxième Frère et le Troisième Frère, ainsi que tous ceux qui étaient devenus des Perdus… Je suis entré dans les profondeurs de la montagne et j'ai retrouvé le Cinquième Frère et le Sixième Frère, devenus des Éveillés, pour les ramener avec moi. J'ai ensuite plongé dans les tréfonds de ce lieu. Le chemin m'était devenu très familier… »
 
-« J'ai retrouvé le Deuxième Oncle et je l'ai ramené. »
+« J'ai retrouvé le Deuxième Oncle-Maître et je l'ai ramené. »
 
 Le récit du jade s'arrêtait là. Wang Lin fixa l'objet avant de le reposer. Il médita longuement sur ces paroles, puis saisit le troisième jade!
 
-« Cela fait plus de 300 ans que je suis ici et j'ai exploré tous les lieux accessibles. J'ai trouvé une perle capable de sceller les sorts des Défieurs! J'ignore leur nature exacte, mais pour sauver l'Oncle, j'ai parcouru la majorité des endroits et en ai trouvé quelques autres. »
+« Cela fait plus de 300 ans que je suis ici et j'ai exploré tous les lieux accessibles. J'ai trouvé une perle capable de sceller les sorts des Défieurs! J'ignore leur nature exacte, mais pour sauver le Quatrième Oncle-Maître, j'ai parcouru la majorité des endroits et en ai trouvé quelques autres. »
 
-« C'était la quatrième fois que je m'aventurais dans les profondeurs. Je savais que c'est là que l'Oncle avait affronté ces puissants Défieurs. J'ai utilisé les perles pour sceller tous leurs sorts… J'ai cherché pendant quelques années avant de finalement retrouver l'Oncle… Mais… je ne m'attendais pas à ce qu'il soit là, alors j'ai échoué… Un clou aux sept couleurs a transpercé mon corps… Ce clou était très étrange; il a immédiatement fondu en moi. »
+« C'était la quatrième fois que je m'aventurais dans les profondeurs. Je savais que le Quatrième Oncle-Maître se trouvait là. Face à ces puissants Défieurs, j'ai utilisé les perles pour sceller tous leurs sorts… J'ai cherché pendant quelques années avant de finalement retrouver le Quatrième Oncle-Maître… Mais… je ne m'attendais pas à ce qu'il soit là, alors j'ai échoué… Un clou aux sept couleurs a transpercé mon corps… Ce clou était très étrange; il a immédiatement fondu en moi. »
 
 « J'ai finalement réussi à m'échapper et je suis retourné à la vallée dans un état de confusion. Ma conscience s'estompe peu à peu, et une idée insensée ne cesse de hanter mon esprit. Cette idée folle me pousse à tuer toute créature vivante que mes yeux croisent… Or, la seule autre vie ici, à part moi, c'est le Seizième Frère. »
 
-« J'ai chassé le Seizième Frère hors de la vallée. Je lui ai donné mon jeton d'identité et l'os de bête. Je l'ai poussé à partir et lui ai dit de revenir dans dix ans… Le Seizième Frère est parti… Je suis resté assis dans la vallée, contemplant le ciel aux sept couleurs, attendant que la folie ultime m'emporte. »
+« J'ai chassé le Seizième Frère hors de la vallée. Je lui ai donné mon jeton d'identité et la recette de la pilule d'os de bête. Je l'ai poussé à partir et lui ai dit de revenir dans dix ans… Le Seizième Frère est parti… Je suis resté assis dans la vallée, contemplant le ciel aux sept couleurs, attendant que la folie ultime m'emporte. »
 
 « Deuxième Frère, Troisième Frère, et tous mes compagnons de secte, si l'un de vous s'éveille un jour et trouve mes jades, vous saurez ce qui s'est passé durant ces centaines d'années... »
 
@@ -56,7 +56,7 @@ Le récit du jade s'arrêtait là. Wang Lin fixa l'objet avant de le reposer. Il
 
 Le visage de Wang Lin pâlit et il prit une inspiration saccadée. Inconsciemment, il recula de quelques pas, fixant le jade dans sa main et le squelette. Ses yeux étaient empreints d'incrédulité.
 
-« Souverain… » Ce nom n'était pas inconnu de Wang Lin! Dans la grotte de Qing Lin, il avait appris qu'en dehors du royaume scellé, existait une puissance redoutable nommée le Souverain!
+« Souverain… » Ce nom n'était pas inconnu de Wang Lin! Dans la grotte de Qing Lin, il avait appris que parmi les gens du monde extérieur, existait une puissance redoutable nommée le Souverain!
 
 Cependant, à l'époque, le Souverain était une figure lointaine, un colosse appartenant à l'ère de Qing Lin. Des éons s'étaient écoulés depuis.
 

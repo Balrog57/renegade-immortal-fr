@@ -54,7 +54,7 @@ La terre trembla et d'innombrables montagnes s'effondrèrent au loin. Les riviè
 
 Le rugissement d'un dieu ancien, conjugué à la culture de Wang Lin, pouvait directement briser n'importe quel cultivateur du Purificateur du Nirvana, détruire le corps d'un Briseur du Nirvana au début de son stade et endommager l'âme de tout cultivateur du milieu du stade Briseur du Nirvana!
 
-Il pouvait faire perdre tous ses sens à un Briseur du Nirvana au stade tardif! Même les Briseurs de Nirvana au sommet de leur puissance seraient blessés à une telle proximité, leurs oreilles bourdonnant de douleur!
+Il pouvait faire saigner des sept orifices un Briseur du Nirvana au stade tardif et lui faire perdre tous ses sens! Même les Briseurs de Nirvana au sommet de leur puissance seraient blessés à une telle proximité, leurs oreilles bourdonnant de douleur!
 
 La centipède de 10 000 pieds émit un rugissement misérable avant même d'avoir pu l'engloutir. C'était comme si une rafale de vent dévastatrice l'avait frappée, ou qu'un char pesant des millions de kilogrammes s'était écrasé sur elle!
 
@@ -80,7 +80,7 @@ Le temps passa lentement, les siècles s'écoulèrent. À mesure que les huit ce
 
 Cependant, elles avaient été créées par une force extérieure et ne pouvaient contrôler le jade; elles ne pouvaient utiliser qu'un millième de sa puissance!
 
-D'innombrables années passèrent encore. La terre trembla de nouveau et le jade, autrefois enfoui, fut exposé à la surface.
+D'innombrables années passèrent encore. La terre trembla de nouveau et un coin du jade, autrefois enfoui, émergea à la surface.
 
 Un vieil homme au visage tuméfié fuyait en panique. On entendait des jurons étouffés derrière lui, criant des mots comme « escroc » ou « menteur ».
 
@@ -102,7 +102,7 @@ Liu Jinbiao continuait de se prosterner, terrifié par Wang Lin, implorant sa gr
 
 « Le crime de cet homme ne mérite effectivement pas la mort. Il a trompé autrui pendant des années, mais cela ne me concerne pas. Cependant, il a tenté de duper la Secte de l'Origine, il doit donc être puni! Xu Liguo, tu te plains toujours de ta solitude, je te donne donc cet homme. Donne-lui une bonne leçon ou deux! » Le sens divin de Wang Lin se posa sur Xu Liguo, qui ne s'était pas manifesté depuis longtemps.
 
-Xu Liguo était déprimé et maudissait en son cœur depuis des centaines d'années. Les beautés lui manquaient, et il pensait surtout aux méfaits qu'il avait commis à Luotian; il aspirait constamment à les revivre.
+Xu Liguo était déprimé et maudissait en son cœur depuis cent ans. Les beautés lui manquaient, et il pensait surtout aux méfaits qu'il avait commis à Luotian; il aspirait constamment à les revivre.
 
 Alors qu'il sombrait dans sa mélancolie, il entendit soudain le message de Wang Lin et vit Liu Jinbiao tomber dans son espace de stockage. Ses yeux s'illuminèrent d'excitation et il faillit pousser un rugissement de joie.
 

@@ -8,7 +8,7 @@ slug: les-cultivateurs-comme-nous-ne-reculent-jamais-devant-un-combat
 ---
 La scène vue à travers les yeux de la statue se dissipa. À l'instant même où elle disparut, un éclair jaillit de la formation. Il semblait briser le vide, les cieux et le temps, fonçant droit vers l'œil droit de Wang Lin!
 
-Des grondements tonitruants résonnèrent dans son esprit et il recula de plusieurs dizaines de pieds. Puis, il fixa la statue de pierre avec une expression féroce!
+Des grondements tonitruants résonnèrent dans son esprit et il recula de plusieurs centaines de pieds. Puis, il fixa la statue de pierre avec une expression féroce!
 
 La statue de pierre s'effondra soudainement en un tas de gravats, soulevant une immense poussière...
 
@@ -20,7 +20,7 @@ Pourtant, à cet instant, sans même savoir pourquoi, en voyant cette scène —
 
 Les cris des êtres célestes avant leur trépas semblaient résonner à ses oreilles.
 
-« Je refuse que cela se produise! Je refuse que cela se produise! Un jour viendra où une future génération de cultivateurs brisera cette formation et fera disparaître tous vous, les étrangers! Des rivières de sang couleront dans votre Royaume Extérieur! »
+« Je refuse que cela se produise! Je refuse que cela se produise! Un jour viendra où une future génération de cultivateurs brisera cette formation et vous exterminera tous, vous les étrangers! Des rivières de sang couleront dans votre Royaume Extérieur! »
 
 Fixant la statue effondrée, le motif d'éclair dans l'œil droit de Wang Lin continuait de scintiller. Après un long moment, il se retourna et vola vers la montagne entourée par la Restriction Temporelle!
 
@@ -38,7 +38,7 @@ Cependant, une fois la colère dissipée, il fut envahi par une terreur encore p
 
 « Que faisons-nous? » demanda le jeune homme au motif d'éclair à ses deux compagnons.
 
-Celui au motif de feu déclara lentement: « Si nous libérons tous nos trois sceaux pour atteindre notre puissance maximale, il sera possible de tuer cet individu... »
+Celui au motif de feu déclara lentement: « Si nous trois ouvrons nos sceaux, nous pouvons emprunter notre puissance maximale le temps d'un bâton d'encens; tuer cet individu n'est pas impossible... »
 
 Le jeune homme au motif d'éclair hésita un instant, puis murmura: « Et si nous partions rapporter cette fissure spatiale aux Anciens pour qu'ils s'en occupent... J'ai un mauvais pressentiment. »
 
@@ -68,7 +68,7 @@ Un grondement tonitruant retentit immédiatement et des ondulations violentes pa
 
 Sa vitesse était fulgurante. Le trident s'enfonça instantanément dans la faille, et une force puissante se déversa dans le corps de Wang Lin.
 
-Cependant, Wang Lin laissa échapper un reniflement froid et son pouvoir de Dieu Ancien remplit son corps. Sa main droite poussa impitoyablement et, au son de craquements violents, le trident perça la restriction. Il lâcha alors l'arme et utilisa la fissure qui s'était refermée quelques mois plus tôt pour créer un trou de plusieurs dizaines de pieds de large.
+Cependant, Wang Lin laissa échapper un reniflement froid et son pouvoir de Dieu Ancien remplit son corps. Sa main droite poussa impitoyablement et, au son de craquements violents, le trident perça la restriction. D'un coup de levier, il fit éclater la fissure qui s'était refermée quelques mois plus tôt et l'élargit en une brèche de plusieurs dizaines de pieds de long.
 
 La main gauche de Wang Lin s'étira pour ranger l'épée cristalline. Il se précipita ensuite dans la brèche et chargea vers le sommet de la montagne.
 
@@ -96,7 +96,7 @@ Finalement, la lumière dorée jaillit du squelette pour fusionner avec le mot �
 
 Le mot doré « Bataille » vola directement vers Wang Lin et se logea entre ses sourcils! L'esprit de Wang Lin trembla.
 
-« Ce vieil homme est Zhan Xingye. Je sais que le Souverain tentera de me forcer à céder dans le futur. Cependant, en tant que cultivateur du Système Stellaire de Luotian, je préférerais mourir plutôt que de servir les gens du Royaume Extérieur. Que celui qui hérite de mon Dao comprenne cette intention de combat et se fraye un chemin vers le Royaume Extérieur par le massacre. Qu'il offre leur sang à mon esprit... »
+« Ce vieil homme est Zhan Xingye. Je sais que le Souverain tentera de me forcer à céder dans le futur. Cependant, en tant que cultivateur du Système Stellaire de Luotian, je préférerais que mon Dao s'éteigne plutôt que de pactiser avec les gens du Royaume Extérieur. Que celui qui hérite de mon Dao comprenne cette intention de combat et, le jour où il aura accompli quelque chose, qu'il tue les gens du Royaume Extérieur en sacrifice à l'esprit de ce vieillard... »
 
 Le cœur de Wang Lin fut envahi par une intention de bataille monstrueuse, et d'innombrables scènes de Zhan Xingye affrontant le monde apparurent dans son esprit. Ces images contenaient une compréhension puissante du combat et, à mesure que sa compréhension s'approfondissait, son domaine commença à fusionner avec cette intention de bataille, provoquant un changement stupéfiant.
 
@@ -120,6 +120,6 @@ Le jeune au motif de feu se vit soudainement pousser une paire d'ailes enflammé
 
 Le jeune au motif de croissant lunaire fut le plus étrange. Son corps ne changea guère, mais sa peau prit la couleur de la lune. Cette teinte cristalline offrait un contraste saisissant avec la lumière dorée!
 
-Cependant, alors qu'ils chargeaient pour l'atteindre, Wang Lin se retourna soudainement. Ses yeux retrouvèrent leur clarté et révélèrent une pointe de dédain! C'était le même mépris que les cultivateurs du Royaume Extérieur éprouvaient envers ceux du Domaine Scellé.
+Cependant, alors qu'ils chargeaient pour l'atteindre, Wang Lin se retourna soudainement. Ses yeux retrouvèrent leur clarté et révélèrent une pointe de dédain! C'était le même mépris que les cultivateurs du Royaume Extérieur éprouvaient envers ceux du Royaume Scellé.
 
 « Je suis un héros, tant dans la vie que dans la mort. Les cultivateurs comme nous ne reculent jamais devant un combat! » Les derniers mots de Zhan Xingye face au Souverain résonnèrent dans l'esprit de Wang Lin!

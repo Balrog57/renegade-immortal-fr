@@ -8,7 +8,7 @@ slug: ivresse
 ---
 Situ sourit amèrement. Lorsqu'il prit la cruche de vin, il constata qu'elle était vide. Il sortit alors une grande jarre de son sac et brisa le sceau. Il but directement à la source, laissant le vin couler le long du coin de sa bouche.
 
-Après avoir reposé la cruche, il soupira et dit: « Heureusement que ce vieil homme est rusé et a trouvé un moyen extrême de résister à ce poison. J'ai utilisé une cultivatrice comme fournaise de culture. Grâce à une méthode spéciale de double culture, j'ai pu stimuler le poison pour le maintenir au premier stade. C'est ainsi que j'ai pu retarder l'échéance jusqu'à aujourd'hui! »
+Après avoir reposé la cruche, il soupira et dit: « Heureusement que ce vieil homme est rusé et a trouvé un moyen extrême de résister à ce poison. J'ai utilisé une cultivatrice comme fournaise de culture. Grâce à une méthode spéciale de double culture, j'ai utilisé la stimulation du désir charnel pour empêcher ma culture de se disperser et maintenir le poison dans le stade du paradis. C'est ainsi que j'ai pu retarder l'échéance jusqu'à aujourd'hui! »
 
 L'intention meurtrière explosa dans le regard glacial de Wang Lin alors qu'il levait les yeux vers les étoiles. Son intention de tuer envers la planète Feng Luan, qui avait plongé Situ Nan dans cet état, était monstrueuse!
 
@@ -26,11 +26,11 @@ Situ Nan acquiesça: « D'après les archives que j'ai trouvées, il a bien ét�
 
 Wang Lin réfléchit un instant. Il possédait toujours la pagode de Zhou Yi. À l'intérieur reposait le cadavre du Seigneur Céleste Qing Shuang. Et Qing Shuang était un Seigneur Céleste du Royaume Céleste de la Pluie!
 
-« Autrefois, j'ai trouvé divers indices suggérant que dans cette grotte mystérieuse des Terres de l'Esprit Démoniaque se trouve l'Empereur Céleste le plus puissant du passé, l'Empereur Céleste Qing Lin! Ce Qing Lin était le père de Qing Shuang, et il possède peut-être un moyen de la ressusciter. Une fois qu'elle sera revenue à la vie, il sera facile de guérir ce poison! »
+« Autrefois, j'ai trouvé divers indices suggérant que dans cette grotte mystérieuse de la Terre des Esprits Démoniaques se trouve l'Empereur Céleste le plus puissant du passé, l'Empereur Céleste Qing Lin! Ce Qing Lin était le père de Qing Shuang, et il possède peut-être un moyen de la ressusciter. Une fois qu'elle sera revenue à la vie, il sera facile de guérir ce poison! »
 
-Les yeux de Wang Lin brillèrent alors qu'il regardait Situ Nan et dit lentement: « Peut-être n'est-il pas nécessaire d'aller au Royaume Céleste de la Pluie pour trouver l'antidote! » À cet instant, il raconta à Situ Nan ce qui s'était passé dans les Terres de l'Esprit Démoniaque, ainsi que ses propres déductions.
+Les yeux de Wang Lin brillèrent alors qu'il regardait Situ Nan et dit lentement: « Peut-être n'est-il pas nécessaire d'aller au Royaume Céleste de la Pluie pour trouver l'antidote! » À cet instant, il raconta à Situ Nan ce qui s'était passé dans la Terre des Esprits Démoniaques, ainsi que ses propres déductions.
 
-En écoutant Wang Lin, une lueur mystérieuse brilla dans les yeux de Situ Nan. Une fois le récit terminé, il réfléchit un instant et sourit: « Cela me semble être une bonne idée. Je vais tenter le coup. De toute façon, même si cela ne fonctionnait pas, je serais quand même allé aux Terres de l'Esprit Démoniaque avec toi. Désormais, nous pourrons peut-être faire d'une pierre deux coups! »
+En écoutant Wang Lin, une lueur mystérieuse brilla dans les yeux de Situ Nan. Une fois le récit terminé, il réfléchit un instant et sourit: « Cela me semble être une bonne idée. Je vais tenter le coup. De toute façon, même si cela ne fonctionnait pas, je serais quand même allé à la Terre des Esprits Démoniaques avec toi. Désormais, nous pourrons peut-être faire d'une pierre deux coups! »
 
 « Quant à la planète Feng Luan, ils ne pourront pas s'échapper! » L'intention meurtrière dans les yeux de Wang Lin était intense. Il avait toujours été quelqu'un qui ne s'en prenait pas aux autres s'ils ne l'offensaient pas. Cependant, puisque Situ Nan avait été poussé dans un tel état, ils avaient franchi sa limite!
 
@@ -40,7 +40,7 @@ Wang Lin fut surpris et se frotta machinalement le nez. Il ne comprenait pas vra
 
 « Ne sois pas idiot. Si tu me dis que ta raison de venir sur la planète Esprit d'Eau n'est pas pour ces deux filles, je ne te croirai pas! » Situ Nan afficha un sourire qui n'en était pas un.
 
-« À l'origine, je voulais emmener ces deux filles pour en faire tes concubines, mais je ne pensais pas que tu serais encore plus rapide que moi. Tu y es déjà allé. Bien que gagner de l'influence par la séduction ne soit pas une mauvaise chose, je dois quand même te gronder. Tu n'es plus un jeune homme et pourtant tu joues encore à ces jeux de cour. Si c'était moi, je les aurais prises directement.
+« À l'origine, je voulais emmener ces deux filles pour en faire tes concubines, mais je ne pensais pas que tu serais encore plus rapide que moi. Tu y es déjà allé. Bien que l'avantage de la proximité ne soit pas une mauvaise chose, je dois quand même te gronder. Tu n'es plus un jeune homme et pourtant tu joues encore au jeu de la poursuite. Si c'était moi, je les aurais prises directement.
 
 « Plus tard, une fois le riz cuit, qu'importe si elle n'est pas consentante? Même si elle ne l'était pas, elle finirait par l'être pour ce vieil homme! » Situ Nan renifla et continua: « En repensant à l'époque où j'étais le Suzaku, je faisais cela souvent. Si elles me plaisaient, je les prenais, tout simplement; qui oserait dire non? »
 

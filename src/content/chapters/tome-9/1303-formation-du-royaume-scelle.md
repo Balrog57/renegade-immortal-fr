@@ -14,7 +14,7 @@ Un grondement tonitruant résonna. Dès que l'épée de sang fut brandie, une fi
 
 Des fracas de tonnerre retentirent et l'épée verte laissa échapper un sifflement aigu. La lumière verte s'effondra, subissant l'assaut d'une masse de lueurs sanglantes qui la forçaient à battre en retraite rapidement.
 
-L'épée de sang, intacte, laissa échapper une puissante mélodie de sabre. Elle dégageait une aura d'une férocité indescriptible et entama sa poursuite!
+L'épée de sang, intacte, laissa échapper un puissant chant d'épée. Elle dégageait une aura d'une férocité indescriptible et entama sa poursuite!
 
 À cet instant précis, des fissures apparurent sur l'autre épée de pierre située devant la statue du pavillon de jade blanc. Celle-ci explosa, libérant une puissante lumière bleue qui s'élança pour résister à l'épée de sang aux côtés de l'épée verte!
 
@@ -32,7 +32,7 @@ L'épée de sang possédait sa propre volonté et poussa un rugissement. Elle é
 
 Tout cela se produisit en un instant. Wang Lin fit un pas en avant et les étoiles du Dieu Ancien entre ses sourcils tournèrent frénétiquement. Lorsque la rotation atteignit son paroxysme, Wang Lin pointa son index droit vers l'espace entre ses sourcils. Il perça sa chair et une goutte de sang s'en écoula.
 
-Ce sang n'était pas son essence sanguine, mais le fruit de ses étoiles du Dieu Ancien. La goutte de sang vola vers l'épée de sang et fut absorbée. Celle-ci dégagea immédiatement une pression terrifiante et sa lueur sanglante s'intensifia de plusieurs fois.
+Ce sang n'était pas son essence sanguine, mais issu de la puissance d'Ancien Dieu contenue dans ses étoiles. La goutte de sang vola vers l'épée de sang et fut absorbée. Celle-ci dégagea immédiatement une pression terrifiante et sa lueur sanglante s'intensifia de plusieurs fois.
 
 Une ombre de sang gigantesque émana de l'épée de sang. Cette ombre était floue et ressemblait vaguement à une forme humaine. Une fois apparue, l'épée de sang fendit l'air et les trois épées colorées furent immédiatement contraintes de reculer. Des bruits d'éclatement retentirent; elles ne faisaient manifestement pas le poids.
 
@@ -54,7 +54,7 @@ Cette voix envahit rapidement toute la région de rang 9 et pénétra la formati
 
 « Entrez dans ma terre de Paramita et votre cycle de réincarnation s'effondrera. Il n'y aura plus ni vie, ni mort... »
 
-« Entrez dans ma terre de Paramita et votre cœur sera complet, et votre esprit me suivra... »
+« Entrez dans ma terre de Paramita et que votre cœur pense à la Paramita; pensez-y et vous y viendrez... »
 
 Une voix chargée d'une pression écrasante émanait du monde à l'intérieur du vortex. Cette voix était puissante et, pour une raison obscure, elle inspirait un sentiment de chaleur et de confiance.
 
@@ -84,7 +84,7 @@ Le corps de Wang Lin trembla et il recula de plusieurs pas.
 
 À ce moment précis, le vortex accéléra soudainement sa rotation et disparut dans les nuages. Ces derniers commencèrent à rugir violemment, comme aspirés par le tourbillon, se rassemblant en un point unique.
 
-En un instant, les nuages formèrent une montagne céleste! Cette montagne était d'une hauteur infinie et d'un violet profond. Elle dégageait une pression capable de faire trembler les cieux.
+En un instant, les nuages formèrent une montagne de nuages! Cette montagne était d'une hauteur infinie et d'un violet profond. Elle dégageait une pression capable de faire trembler les cieux.
 
 D'innombrables runes couvraient la montagne, s'entrecroisant pour former le mot « Dao »! Les nuages s'agglutinaient avec frénésie, faisant grandir la montagne sans cesse. C'était un mont colossal qui semblait pouvoir soutenir la voûte céleste elle-même!
 
@@ -106,9 +106,9 @@ Ce vide était l'emplacement de la Formation du Royaume Scellé!
 
 Lorsque la faille fut déchirée, une énergie glaciale s'en échappa. Le corps de Wang Lin s'engouffra dans la brèche et plongea dans le vide! La montagne de nuages, ayant déjà verrouillé sa cible, descendit avec fracas. La fissure se rouvrit et la montagne pénétra à son tour!
 
-Alors que Wang Lin et la montagne entraient dans le vide, une structure semblable à un filet apparut. Elle dégageait une aura si puissante qu'elle interdisait toute intrusion à toute créature vivante!
+Alors que Wang Lin et la montagne entraient dans le vide, une structure semblable à un filet apparut. Elle dégageait une aura si puissante qu'elle empêchait toute créature vivante de la briser!
 
-Une lueur étrange brilla dans les yeux de Wang Lin et il se précipita vers le filet. Ses mains formèrent un sceau et une multitude de formules de scellement s'imprimèrent sur son corps. À cet instant, la montagne de nuages le rattrapa et s'écrasa sur lui.
+Une lueur étrange brilla dans les yeux de Wang Lin et il se précipita vers le filet. Ses mains formèrent un sceau et se changèrent devant lui en une multitude d'empreintes. À cet instant, la montagne de nuages le rattrapa et s'écrasa sur lui.
 
 Wang Lin leva soudainement les bras comme s'il soutenait la montagne elle-même, puis un rugissement indescriptible retentit. Son corps trembla et il cracha du sang tout en transférant cette force colossale vers la Formation du Royaume Scellé.
 

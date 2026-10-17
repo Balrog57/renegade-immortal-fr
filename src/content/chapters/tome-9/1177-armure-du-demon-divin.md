@@ -10,7 +10,7 @@ slug: armure-du-demon-divin
 
 Plutôt que de compter l'un sur l'autre, ne serait-il pas préférable de s'oublier mutuellement?
 
-Deux types d'émotions représentaient deux attitudes divergentes face à la vie, ainsi que deux choix différents. Tout au long de son existence, Wang Lin avait rencontré de nombreuses femmes plus belles, plus talentueuses et supérieures à Li Qianmei à tous égards.
+Deux types d'émotions représentaient deux attitudes divergentes face à la vie, ainsi que deux choix différents. Tout au long de son existence, Wang Lin avait rencontré de nombreuses femmes plus belles, plus talentueuses et supérieures à Li Muwan à tous égards.
 
 Qu'il s'agisse de Papillon Rouge, Xi Zifeng, Liu Mei, Mu Bingmei, Lu Yanfei, ou de simples rencontres éphémères.
 

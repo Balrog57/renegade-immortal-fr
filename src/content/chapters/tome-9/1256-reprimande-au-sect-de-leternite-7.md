@@ -22,7 +22,7 @@ Beaucoup ignoraient l'existence de ce sort capable d'extraire l'âme d'une plan�
 
 Le mouvement ébranlait les cieux et la terre; le calme scellait l'étoile pour en extraire l'âme!
 
-« C’est l'extraction de l'âme planétaire! » Seules quelques personnes dans la région de niveau 7 connaissaient ce sort. Le cultivateur qui s'exclama fut l'un d'eux, et il se redressa brusquement, les yeux écarquillés par l'incrédulité!
+« C’est l'extraction de l'âme planétaire! » Seules quelques personnes dans la région de rang 7 connaissaient ce sort. Le cultivateur qui s'exclama fut l'un d'eux, et il se redressa brusquement, les yeux écarquillés par l'incrédulité!
 
 Non seulement lui, mais tous les vieux monstres et cultivateurs qui connaissaient cette technique furent frappés de stupeur. Ils n'osaient croire que ce qu'ils voyaient était réel!
 
@@ -56,13 +56,13 @@ C’était comme si, d'une simple volonté, il pouvait l'extraire totalement. À
 
 Il était même fort probable que l'astre s'effondre!
 
-Cette vision fit vaciller leurs esprits et les laissa sans voix. Même les membres de la Secte de l'Éternité se levèrent, le regard empreint de terreur.
+Cette vision fit vaciller leurs esprits et les laissa sans voix. Même les membres de la Secte Éternelle se levèrent, le regard empreint de terreur.
 
-Même Feng Hai eut un hoquet involontaire et, pour la première fois, regarda Wang Lin avec crainte. Cependant, il ricana bientôt. Wang Lin avait publiquement tué Zhao Long et fait perdre la face à la Secte Chercheur de Montagnes; il devait en payer le prix. Feng Hai n'était pas le seul à avoir quitté la Secte Chercheur de Montagnes; un autre l'avait précédé. Cet homme était extrêmement puissant mais possédait un caractère excentrique. Il ne se souciait plus des affaires mondaines et n'aidait plus secrètement la Secte Chercheur de Montagnes. Pourtant, il était le premier maître de la secte et occupait désormais le rang de Grand Ancien au sein de la Secte de l'Éternité!
+Même Feng Hai eut un hoquet involontaire et, pour la première fois, regarda Wang Lin avec crainte. Cependant, il ricana bientôt. Wang Lin avait publiquement tué Zhao Long et fait perdre la face à la Secte Recherchant la Montagne; il devait en payer le prix. Feng Hai n'était pas le seul à avoir quitté la Secte Recherchant la Montagne; un autre l'avait précédé. Cet homme était extrêmement puissant mais possédait un caractère excentrique. Il ne se souciait plus des affaires mondaines et n'aidait plus secrètement la Secte Recherchant la Montagne. Pourtant, il était le premier maître de la secte et occupait désormais le rang de Grand Ancien au sein de la Secte Éternelle!
 
-Si Wang Lin n'avait pas tué Zhao Long au sein même de la Secte de l'Éternité, cela aurait été une chose; mais en tuant Zhao Long ici et en forçant la Secte Chercheur de Montagnes à battre en retraite, il allait sans doute provoquer la colère de ce Grand Ancien.
+Si Wang Lin n'avait pas tué Zhao Long au sein même de la Secte Éternelle, cela aurait été une chose; mais en tuant Zhao Long ici et en forçant la Secte Recherchant la Montagne à battre en retraite, il allait sans doute provoquer la colère de ce Grand Ancien.
 
-L'expression du maître de la Secte de l'Éternité changea. En fixant Wang Lin, ses yeux brillèrent intensément.
+L'expression du maître de la Secte Éternelle changea. En fixant Wang Lin, ses yeux brillèrent intensément.
 
 Face à un tel spectacle, il était inutile de parler de Du Lin et Yin Yue qui étaient venus combattre Wang Lin. L'homme et la femme s'arrêtèrent net, le choc se lisant dans leurs yeux, leurs expressions se transformant radicalement!
 
@@ -84,7 +84,7 @@ La sphère n'était pas grande, seulement de la taille d'un poing, et elle ne se
 
 Ce sentiment était absolu. Bien que la sphère fût petite, elle était constituée de l'âme d'une planète et représentait l'astre tout entier. Ils avaient l'illusion que la planète de culture sous leurs pieds s'était éveillée pour les attaquer!
 
-Bien que cela puisse paraître long à décrire, tout fut fulgurant. Lorsque la sphère se rapprocha, elle explosa à quelques centaines de pieds de Du Lin et Yin Yue. Cette fois, la terre trembla véritablement et une force colossale frappa le duo.
+Bien que cela puisse paraître long à décrire, tout fut fulgurant. Lorsque la sphère se rapprocha, elle explosa à quelques dizaines de pieds de Du Lin et Yin Yue. Cette fois, la terre trembla véritablement et une force colossale frappa le duo.
 
 À cet instant, la mer à l'ouest commença à bouillir et se transforma rapidement en vapeur d'eau. La vapeur s'évapora frénétiquement comme si elle était aspirée. D'épais nuages sombres envahirent le ciel et la pluie se mit à tomber. Ce ne fut pas une simple averse, mais toute la planète de culture qui fut enveloppée par les eaux du ciel.
 
@@ -94,7 +94,7 @@ Le corps de Yin Yue trembla également; elle cracha un jet de sang qui se change
 
 Les alentours étaient étrangement silencieux, troublés seulement par le martèlement de la pluie et les coups de tonnerre occasionnels.
 
-À cet instant, tous les regards convergèrent vers la silhouette blanche sous la pluie. Les gouttes, en approchant de lui, étaient repoussées à cinq pieds de son corps; pas une seule ne tombait sur lui!
+À cet instant, tous les regards convergèrent vers la silhouette blanche sous la pluie. Les gouttes, en approchant de lui, étaient repoussées à dix pieds de son corps; pas une seule ne tombait sur lui!
 
 « Ceci... est donc le sort d'extraction de l'âme planétaire?! » Chaque vieux monstre connaissant la technique tremblait. La scène qui venait de se dérouler resterait gravée à jamais dans leurs esprits!
 

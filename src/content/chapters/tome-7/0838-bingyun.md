@@ -64,7 +64,7 @@ Cupidité avait risqué une mort quasi certaine pour obtenir ce grand fourneau. 
 
 Il avait soigneusement gravé la rune sur le fourneau pour en prendre le contrôle, mais désormais, tout cela profitait à Wang Lin.
 
-Alors que son sens divin s'imprégnait de la rune, une sensation étrange envahit Wang Lin. C'était un sentiment très familier qui créa une connexion entre lui et l'Armure de Cuir du Dieu Antique.
+Alors que son sens divin s'imprégnait de la rune, une sensation étrange envahit Wang Lin. C'était un sentiment très familier qui créa une connexion entre lui et l'Armure de Cuir de l'Ancien Dieu.
 
 Cependant, cette sensation était comme une fleur dans la brume, extrêmement vague. Une couche semblait le séparer de cet objet, l'empêchant de le saisir pleinement.
 
@@ -94,9 +94,9 @@ Cependant, rien de tout cela n'influa sur Wang Lin, dont le regard resta aussi c
 
 « La méthode de culture de cette femme est effectivement étrange. Même lorsque son énergie originelle a été séparée d'elle, elle a pu se protéger. Elle a scellé tout l'intérieur de son corps pour que le serpent aux yeux de lune ne puisse rien absorber. »
 
-« Pourtant, elle a sous-estimé le serpent! Bien que cette méthode soit efficace, je peux parier que cette glace finira par s'effondrer d'ici peu. » Les yeux de Wang Lin étaient froids tandis qu'il méditait, puis il leva la main droite et pressa la glace.
+« Pourtant, elle a sous-estimé le serpent! Bien que cette méthode soit efficace, j'en suis certain: cette glace finira par s'effondrer d'ici peu. » Les yeux de Wang Lin étaient froids tandis qu'il méditait, puis il leva la main droite et pressa la glace.
 
-« Vous m'avez traqué tout ce temps et avez failli me tuer à deux reprises. Si je ne prends pas ma revanche, alors je ne suis pas Wang Lin! » Un sourire apparut sur ses lèvres alors qu'il exerçait une pression impitoyable sur la glace.
+« Vous m'avez traqué tout ce temps et avez failli me tuer à deux reprises. Si je ne prends pas ma revanche, ce ne serait pas là ma voie de la causalité! » Un sourire apparut sur ses lèvres alors qu'il exerçait une pression impitoyable sur la glace.
 
 Une immense quantité d'énergie originelle jaillit de son corps par le bout de son doigt pour pénétrer la glace. Un craquement fracassant retentit et une multitude de fissures commencèrent à se propager depuis son doigt vers l'extérieur.
 

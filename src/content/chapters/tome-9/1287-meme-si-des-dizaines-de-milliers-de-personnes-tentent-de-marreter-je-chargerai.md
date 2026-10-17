@@ -6,15 +6,15 @@ bookTitle: Peak of the Cloud Sea
 en: "Chapter 1287 - Even If Tens of Thousands of People Try to Stop Me, Ill Still Charge Forward!"
 slug: même-si-des-dizaines-de-milliers-de-personnes-tentent-de-marreter-je-chargerai
 ---
-Cinq mots très simples!
+Quatre mots très simples!
 
 « Je vais la sauver! » C’était une détermination, une fermeté, une chose qui devait être accomplie sans aucune crainte de la mort! Après avoir entendu la vieille femme en blanc, ces mots furent comme le tonnerre, ces mots furent comme des larmes, ces mots furent comme du sang, et ils furent gravés dans le cœur de Wang Lin! Cette empreinte était de couleur sang! Mais elle ne dégageait aucune intention meurtrière, seulement de la tristesse et de la chaleur!
 
 C'était comme si des millions de coups de tonnerre avaient explosé dans le cœur de Wang Lin, le laissant pétrifié sur place. Une douleur intense jaillit de son cœur, de son sang et de son âme!
 
-« Tu avais promis de m’accompagner pour mon dernier voyage... » Les mots d'adieu de Li Qianmei résonnaient encore faiblement à l'oreille de Wang Lin. Sa requête n'avait jamais été exigeante. Elle voulait seulement un adieu, un sourire d'adieu, une bénédiction, et qu'il n'oublie jamais son engagement envers elle...
+« Tu avais promis de me dire adieu... » Les mots d'adieu de Li Qianmei résonnaient encore faiblement à l'oreille de Wang Lin. Sa requête n'avait jamais été exigeante. Elle voulait seulement un adieu, un sourire d'adieu, une bénédiction, et qu'il n'oublie jamais son engagement envers elle...
 
-Elle ne chercherait pas à voler la place de Li Muwan dans le cœur de Wang Lin, ni à la remplacer. Elle n'agissait ainsi qu'à cause d'un rêve sur sa vie passée...
+Elle ne chercherait pas à voler la place de Li Muwan dans le cœur de Wang Lin, ni à la remplacer. Elle ne faisait que donner, que réaliser un rêve vaguement issu d'une vie antérieure...
 
 Elle ne voulait que cela... Une femme comme celle-là, une femme nommée Li Qianmei, lui avait tout donné en silence... Peut-être n'avait-elle pas attendu des centaines d'années comme Li Muwan, ni déchiré le cœur de Wang Lin comme Liu Mei, mais elle l'avait fait culpabiliser avec ces dix années qu'il ne pourrait jamais rembourser! Cela faisait souffrir le cœur de Wang Lin...
 
@@ -24,7 +24,7 @@ Elle ne voulait que cela... Une femme comme celle-là, une femme nommée Li Qian
 
 Même si cette femme allait disparaître, elle ne voulait pas que Wang Lin sache tout ce qu'elle avait fait. Si elle n'avait pas dû tout raconter à la vieille femme pour que celle-ci lui apporte le sang de l'âme, Li Qianmei n'aurait rien dit. Si la vieille femme ne l'avait pas interrogée en détail après avoir vu son état affaibli, elle n'aurait jamais tout appris.
 
-Li Qianmei ne voulait pas que Wang Lin se sente coupable ou qu'il ait de la pitié pour elle en apprenant la vérité. Elle voulait qu'il accepte son existence. Elle ne désirait pas une affection de ce genre!
+Li Qianmei ne voulait pas que Wang Lin se sente coupable ou qu'il ait de la pitié pour elle en apprenant la vérité, ni qu'il accepte son existence pour cette raison. Elle ne désirait pas une affection de ce genre!
 
 Elle ne s'attendait pas non plus à vivre avec Wang Lin jusqu'à ce que leurs cheveux blanchissent et qu'ils meurent. Tout ce qu'elle souhaitait dans ce vaste monde, c'était que Wang Lin se souvienne d'une femme nommée Li Qianmei...
 
@@ -40,11 +40,11 @@ Wang Lin leva la tête et regarda le ciel sombre. Son cœur était en proie à l
 
 Même si le champ de bataille de la faille spatiale pouvait être relié au Royaume Extérieur. Tuo Sen se trouvait dans le Royaume Extérieur, et dès qu'il y poserait un pied, Tuo Sen le remarquerait. Il risquait de faire face à de grands dangers.
 
-Même s'il avait actuellement besoin de temps pour une culture en porte fermée afin de comprendre ce qu'il avait acquis dans le domaine du Dao, pour atteindre la troisième étape qui fait trembler les cieux!
+Même s'il avait actuellement besoin de temps pour une culture en porte fermée afin de comprendre ce qu'il avait acquis dans le domaine du Dao, pour atteindre la troisième étape, aussi ardue que l'ascension vers les cieux!
 
 Cependant, Wang Lin balaya tout cela d'un revers de main. Il ne voulait pas y penser. Il savait seulement qu'une femme nommée Li Qianmei faisait face à un péril mortel. S'il ne la sauvait pas, il ne pourrait jamais être heureux, car il lui devait dix années qu'il ne pourrait jamais rembourser!
 
-Ces cinq mots simples contenaient tout!
+Ces quatre mots simples contenaient tout!
 
 D'un seul pas, le ciel trembla. Wang Lin se déplaça comme une météorite ardente en chargeant vers l'avant.
 
@@ -52,7 +52,7 @@ Il emporta la vieille femme en blanc dans le vide et tous deux disparurent sans 
 
 La vieille femme en blanc regarda Wang Lin, stupéfaite. Cette vitesse fulgurante donnait l'impression que l'espace lui-même était déchiré; c'était comme si une lame gigantesque transperçait le cosmos. Cette célérité la choqua!
 
-Elle ressentit également la détermination de Wang Lin à travers cette vitesse! C'était une aura qu'on ne pourrait arrêter, même si des dizaines de milliers de personnes voulaient sa mort!
+Elle ressentit également la détermination de Wang Lin à travers cette vitesse! C'était une aura qu'on ne pourrait arrêter, même si des dizaines de milliers de personnes se dressaient devant lui!
 
 « Il n'y a pas de formations de transfert dans les régions de rang 3 ou inférieur. La Secte de l'Âme Marine de rang 4 possède une formation de transfert vers la Secte de la Musique Céleste de rang 6, qui est une branche de la Secte Éternelle. Ils ont une formation vers la Secte Éternelle de rang 8... »
 
@@ -60,11 +60,11 @@ Elle ressentit également la détermination de Wang Lin à travers cette vitesse
 
 « C'est la voie la plus rapide, mais les formations de transfert nécessitent énormément de cristaux d'origine, et je n'en ai pas assez. Ces formations ne sont généralement pas ouvertes, et on ne les prête pas si facilement... »
 
-Les paroles de la vieille femme ne reçurent aucune réponse de Wang Lin. Après avoir prononcé ces cinq mots, il était resté silencieux. Ce silence créa une pression écrasante qui terrifia la vieille femme. Elle regretta soudainement de lui avoir tout révélé.
+Les paroles de la vieille femme ne reçurent aucune réponse de Wang Lin. Après avoir prononcé ces quatre mots, il était resté silencieux. Ce silence créa une pression écrasante qui terrifia la vieille femme. Elle regretta soudainement de lui avoir tout révélé.
 
-Elle eut le vague sentiment qu'après avoir entendu ses paroles et prononcé ces cinq mots, ce jeune homme s'était transformé, passant du statut d'être céleste à celui de... démon!
+Elle eut le vague sentiment qu'après avoir entendu ses paroles et prononcé ces quatre mots, ce jeune homme s'était transformé, passant du statut d'être céleste à celui de... démon!
 
-Les grondements tonitruants dans l'espace résonnaient avec frénésie tandis que Wang Lin accélérait encore. Ses cheveux blancs flottaient et les veines de son visage étaient saillantes. Même si quelque chose se dressait sur son chemin, cela ne le ferait pas reculer!
+Les grondements tonitruants dans l'espace résonnaient avec frénésie tandis que Wang Lin accélérait encore. Ses cheveux blancs flottaient et son visage était livide. Même si quelque chose se dressait sur son chemin, cela ne le ferait pas reculer!
 
 La région de rang 2 était vaste, mais grâce à la vitesse de Wang Lin, le brouillard fut repoussé comme s'il n'osait s'en approcher. Toutes les bêtes cachées dans la brume se retirèrent. Elles sentaient qu'un dieu de la boucherie fonçait à travers la zone, et que si elles osaient lui barrer la route, elles mourraient sans aucun doute!
 

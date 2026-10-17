@@ -50,7 +50,7 @@ Le brouillard noir enveloppa le cadavre du vieil homme et, un instant plus tard,
 
 L'apparition de cette voix attisa la panique et la peur qui s'accumulaient dans le cœur des survivants. Le brouillard noir était un cauchemar; dès qu'on le croisait, on mourait misérablement!
 
-Pour eux, les cultivateurs du Royaume Intérieur n'étaient que des troupeaux de moutons, ne représentant aucune menace. Ils croyaient même que ces derniers incarnaient le Dao Céleste du Royaume Intérieur. Chaque membre du Système Stellaire Antique pouvait être considéré comme la volonté divine pour les habitants du Royaume Intérieur.
+Pour eux, les cultivateurs du Royaume Intérieur n'étaient que des troupeaux de moutons, ne représentant aucune menace. Ils se croyaient même le Dao Céleste du Royaume Intérieur. Chaque membre du Système Stellaire Antique pouvait être considéré comme le Dao Céleste pour les habitants du Royaume Intérieur.
 
 Le Royaume Intérieur n'était, à leurs yeux, qu'une terre sauvage peuplée de barbares!
 
@@ -62,7 +62,7 @@ Le sentiment de satisfaction après la dévoration était comparable à la conso
 
 Ses yeux brillèrent d'une lueur rouge. Dès que les centaines de cultivateurs furent dispersés, Wang Lin laissa échapper un rire et sortit du brouillard noir pour les poursuivre.
 
-Son corps était svelte, entouré de ce brouillard noir qui lui donnait l'apparence d'un spectre surgissant des enfers. Il chargea et atteignit un cultivateur du Royaume Extérieur. Ce dernier n'était pas vieux, il avait l'apparence d'un jeune homme. Ses yeux étaient pétrifiés par une peur indescriptible. En voyant Wang Lin approcher, il en oublia de résister et poussa un cri.
+Son corps était décharné, entouré de ce brouillard noir qui lui donnait l'apparence d'un spectre surgissant des enfers. Il chargea et atteignit un cultivateur du Royaume Extérieur. Ce dernier n'était pas vieux, il avait l'apparence d'un jeune homme. Ses yeux étaient pétrifiés par une peur indescriptible. En voyant Wang Lin approcher, il en oublia de résister et poussa un cri.
 
 Mais son cri fut brusquement étouffé. La main gauche de Wang Lin lui saisit la gorge, et il poursuivit sa course sans s'arrêter.
 
@@ -70,7 +70,7 @@ Alors que Wang Lin avançait, le jeune homme, étranglé, ne pouvait plus émett
 
 Ses yeux s'écarquillèrent et, au moment où son regard se troubla, son corps explosa. Même son sang fut absorbé par Wang Lin. C'était comme si l'intégralité de son être avait été dévorée par cette main gauche.
 
-À peine effondré le premier, Wang Lin rattrapa un autre cultivateur du Royaume Extérieur. C'était une femme délicate dont les yeux exprimaient une terreur infinie. La première fois que Wang Lin avait dévoré quelqu'un, il était couvert de brouillard noir; bien que terrifiant, ce n'était pas aussi sanglant. Mais ce qu'il venait de faire était d'une violence visuelle inouïe.
+À peine effondré le premier, Wang Lin rattrapa un autre cultivateur du Royaume Extérieur. C'était une femme délicate dont les yeux exprimaient une terreur infinie. Les dévorations précédentes de Wang Lin, effectuées par le brouillard noir, étaient certes terrifiantes, mais pas aussi sanglantes. Mais ce qu'il venait de faire était d'une violence visuelle inouïe.
 
 Lorsqu'il s'approcha et que l'odeur du sang lui parvint, elle hurla. Elle tenta de reculer, mais percuta la poitrine de Wang Lin et fut projetée en avant.
 
@@ -84,7 +84,7 @@ Wang Lin rattrapait ses proies en un éclair. Peu importait qu'ils soient hommes
 
 Il n'y avait aucune raison pour cette bataille entre les Royaumes Intérieur et Extérieur, seulement un massacre!
 
-Ce bain de sang frénétique se poursuivit à l'extérieur de la Formation du Royaume Scellé. La formation était le seul témoin de ce carnage. Les rugissements des cultivateurs du Royaume Intérieur, tués par l'esprit de la formation sous le regard froid et indifférent des cultivateurs du Royaume Extérieur, résonnaient dans l'éther.
+Ce bain de sang frénétique se poursuivit à l'extérieur de la Formation du Royaume Scellé. La formation était le seul témoin de ce carnage. Vaguement, il y a d'innombrables dizaines de milliers d'années, un immortel du Royaume Intérieur avait voulu s'élancer hors de la formation, mais avait été tué par l'esprit de la formation sous le regard froid et indifférent du Royaume Extérieur; son rugissement d'avant la mort résonnait en silence dans le ciel et la terre, des deux côtés de la formation.
 
 « Un jour viendra où une future génération de cultivateurs brisera cette formation et provoquera votre extinction, étrangers! Des rivières de sang couleront dans votre Royaume Extérieur! »
 

@@ -94,7 +94,7 @@ Des grondements assourdissants retentirent. Le dragon de tonnerre trembla et pou
 
 Des bruits de craquements retentirent et l'épée se brisa instantanément en d'innombrables fragments. Le visage du vieil homme devint livide et il voulut battre en retraite, mais la foudre rouge était plus rapide encore. Après avoir pulvérisé l'épée, elle s'apprêtait à percer le corps de l'homme!
 
-Les yeux du vieil homme étaient pétris de terreur. La mort ne s'était jamais approchée autant! Juste au moment où la foudre rouge atteignait le point entre ses sourcils, un rugissement démentif jaillit du temple de la terre sainte.
+Les yeux du vieil homme étaient pétris de terreur. La mort ne s'était jamais approchée autant! Juste au moment où la foudre rouge atteignait le point entre ses sourcils, un rugissement frénétique jaillit du temple de la terre sainte.
 
 « Arrête! » Alors que ce rugissement résonnait, un homme grand et d'âge moyen sortit du temple. En une seule enjambée, il franchit la barrière pour se placer aux côtés du cultivateur au Fléau Céleste.
 

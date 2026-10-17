@@ -8,7 +8,7 @@ slug: tie-zhu
 ---
 La lumière jaune semblait être un appel vers les origines. Quiconque était enveloppé par elle ressentait un sentiment de réincarnation, les souvenirs du passé défilant devant ses yeux, rendant impossible toute distinction avec le présent.
 
-Les sorts contrôlaient le pouvoir du monde et se manifestaient de manière singulière. Il s'agissait d'un sort Dao, et sa puissance était liée au niveau de culture de chacun. Les capacités étaient une méthode pour augmenter de façon explosive la puissance des sorts, un moyen de rassembler et de manipuler l'énergie originelle.
+Les sorts contrôlaient le pouvoir du monde et se manifestaient de manière singulière. Leur puissance était liée au niveau de culture de chacun. Les capacités étaient une méthode pour augmenter de façon explosive la puissance des sorts, un moyen de rassembler et de manipuler l'énergie originelle.
 
 Cependant, le Dao était différent. Il était très rare que quelqu'un maîtrise un sort Dao. La rumeur prétendait que seuls ceux qui atteignaient le Royaume du Dao pouvaient en obtenir un. Les sorts Dao étaient similaires aux batailles de domaines, mais leur essence différait grandement.
 

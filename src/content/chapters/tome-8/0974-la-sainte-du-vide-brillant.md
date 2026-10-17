@@ -6,7 +6,7 @@ bookTitle: "Alliance's Secret"
 en: Chapter 974 - The Saintress of Brilliant Void
 slug: la-sainte-du-vide-brillant
 ---
-Ling Tianhou roula des yeux et ricana sans même accorder un regard à l'Omniscient. Au lieu de cela, ses yeux se posèrent sur Wang Lin, et il s'exclama: « Wang Lin, il manque un Ancien à la Secte de l'Épée de Da Lou de ce vieil homme. Es-tu prêt à devenir un Ancien de la Secte de l'Épée de Da Lou? »
+Ling Tianhou roula des yeux et ricana sans même accorder un regard à l'Omniscient. Au lieu de cela, ses yeux se posèrent sur Wang Lin, et il s'exclama: « Wang Lin, il manque un Ancien à la Secte de l'Épée de Da Luo de ce vieil homme. Es-tu prêt à devenir un Ancien de la Secte de l'Épée de Da Luo? »
 
 L'Omniscient fronça les sourcils.
 
@@ -20,11 +20,11 @@ Cette scène fit trembler l'esprit de Wang Lin. Il fixa l'endroit où l'Omniscie
 
 L'expression de Ling Tianhou devint instantanément sombre et il fronça les sourcils. Finalement, il tapota simplement son sac de rangement et cinq coquilles de tortue apparurent. Elles tournèrent dans sa main tandis que Ling Tianhou exécutait occasionnellement quelques sceaux manuels.
 
-Peu après, l'expression de Ling Tianhou devint encore plus lugubre et il marmonna: « Ce maudit fils de pute de Omniscient, qu'est-il en train de manigancer... » Tout en réfléchissant, il leva la tête et regarda Wang Lin.
+Peu après, l'expression de Ling Tianhou devint encore plus lugubre et il marmonna: « Ce vieux maudit d'Omniscient, qu'est-il en train de manigancer... » Tout en réfléchissant, il leva la tête et regarda Wang Lin.
 
-« Si l'Omniscient complote ainsi contre Wang Lin, cela signifie qu'il doit être d'une grande utilité. Je présume qu'il est crucial pour le Dao de l'Omniscient! Surtout si l'on considère que cette personne fait partie de la Série de l'Oiseau Vermillon... Le plan de l'Omniscient à son égard doit être d'une importance capitale, sinon il ne serait pas prêt à offenser les Quatre Sectes Divines pour lui seul! »
+« Si l'Omniscient complote ainsi contre Wang Lin, cela signifie qu'il doit être d'une grande utilité. Je présume qu'il est crucial pour le Dao de l'Omniscient! Surtout si l'on considère que cette personne fait partie de la Série de l'Oiseau Vermillon... Le plan de l'Omniscient à son égard doit être d'une importance capitale, sinon il ne serait pas prêt à offenser la Secte des Quatre Divinités pour lui seul! »
 
-« Si son plan réussit, il pourrait obtenir un pouvoir capable de faire trembler les Quatre Sectes Divines! Si c'est le cas, je dois arrêter ce vieux bâtard. Sinon, si l'Omniscient triomphe, je n'aurai plus jamais l'espoir de me retourner contre lui de mon vivant! »
+« Si son plan réussit, il pourrait obtenir un pouvoir capable de faire trembler la Secte des Quatre Divinités! Si c'est le cas, je dois arrêter ce vieil Omniscient. Sinon, si l'Omniscient triomphe, je n'aurai plus jamais l'espoir de me retourner contre lui de mon vivant! »
 
 Des pensées fulgurantes traversèrent l'esprit de Ling Tianhou.
 
@@ -32,15 +32,15 @@ Des pensées fulgurantes traversèrent l'esprit de Ling Tianhou.
 
 Wang Lin réfléchissait sans relâche à la relation entre Ling Tianhou et l'Omniscient. À cet instant, il joignit ses mains: « Il y a trois personnes dans la Série de l'Oiseau Vermillon, et je ne suis que l'une d'entre elles. En bref, ce junior se souviendra de l'aide du Saint de l'Épée! »
 
-Ling Tianhou hocha la tête avec un sourire. « Lorsque l'Empereur Saint de l'Oiseau Vermillon est monté au pouvoir, je n'étais qu'un cadet. Sa grâce m'a aidé autrefois, mais trop de temps a passé et je doute qu'il s'en souvienne. Tu es de la Série de l'Oiseau Vermillon et, si tu saisis la bonne opportunité, tu seras le prochain Empereur Saint. Il est préférable que nous parlions d'égal à égal. Après tout, tu n'es plus le disciple de ce vieux fils de pute, l'Omniscient. »
+Ling Tianhou hocha la tête avec un sourire. « Lorsque l'Empereur Saint de l'Oiseau Vermillon est monté au pouvoir, je n'étais qu'un cadet. Sa grâce m'a aidé autrefois, mais trop de temps a passé et je doute qu'il s'en souvienne. Tu es de la Série de l'Oiseau Vermillon et, si tu saisis la bonne opportunité, tu seras le prochain Empereur Saint. Il est préférable que nous parlions d'égal à égal. Après tout, tu n'es plus le disciple de ce vieil Omniscient. »
 
 L'expression de Wang Lin resta calme: « Le Saint de l'Épée est trop aimable. Puisqu'il en est ainsi, je suivrai les conseils du Saint de l'Épée. »
 
-Ling Tianhou rit et tendit la main. « Camarade cultivateur Wang, suis ce vieil homme vers la planète Da Lou. Une fois que l'Abîme des Marées s'ouvrira, nous irons à la grotte céleste! »
+Ling Tianhou rit et tendit la main. « Camarade cultivateur Wang, suis ce vieil homme vers la planète Da Luo. Une fois que l'Abîme des Marées s'ouvrira, nous irons à la grotte céleste! »
 
 Wang Lin sourit et hocha la tête. « Je vous prie de me guider! »
 
-Les deux se mirent rapidement en mouvement. La planète Da Lou n'était pas loin et, étant tous deux de puissants cultivateurs, leur vitesse était naturelle et prodigieuse. Il ne fallut pas longtemps avant que la planète Da Lou n'apparaisse devant eux.
+Les deux se mirent rapidement en mouvement. La planète Da Luo n'était pas loin et, étant tous deux de puissants cultivateurs, leur vitesse était naturelle et prodigieuse. Il ne fallut pas longtemps avant que la planète Da Luo n'apparaisse devant eux.
 
 En chemin, Ling Tianhou ne mentionna jamais le fait que Wang Lin avait tué ses disciples; c'était comme s'il l'avait oublié. Au lieu de cela, il discuta avec Wang Lin de sorts célestes et de Dao. On pourrait dire que c'était la première fois qu'ils échangeaient véritablement.
 
@@ -54,33 +54,33 @@ Cependant, il avait la vague intuition que l'action de l'Omniscient ne lui étai
 
 « Est-ce que ce Ling Tianhou était... »
 
-De loin, la planète Da Lou semblait être imprégnée d'une énergie d'épée en plus de sa couleur bleue. Cette énergie paraissait chaotique et dispersée. Pourtant, une fois que votre culture atteint un certain degré, on remarque, après une observation attentive, que cette énergie n'a rien de ordinaire.
+De loin, la planète Da Luo semblait être imprégnée d'une énergie d'épée en plus de sa couleur bleue. Cette énergie paraissait chaotique et dispersée. Pourtant, une fois que votre culture atteint un certain degré, on remarque, après une observation attentive, que cette énergie n'a rien de ordinaire.
 
-Cette énergie d'épée n'était pas émise par des cultivateurs, mais par la planète Da Lou elle-même!
+Cette énergie d'épée n'était pas émise par des cultivateurs, mais par la planète Da Luo elle-même!
 
 C'est ce qui lui donnait cet aspect chaotique. Cependant, Wang Lin réalisa que si quelqu'un parvenait à canaliser cette énergie d'épée, son pouvoir serait capable de secouer la terre!
 
-« La planète Da Lou n'appartient pas à la zone de la planète Tian Yun. Ce vieil homme a déployé des efforts acharnés pour accomplir une requête personnelle de la Secte de Culture du Vide Brillant et a été récompensé par cette planète! »
+« La planète Da Luo n'appartient pas à la zone de la planète Tian Yun. Ce vieil homme a déployé des efforts acharnés pour accomplir une mission de rang Humain de la Secte de Culture du Vide Brillant et a été récompensé par cette planète! »
 
-« Cette planète provient d'une planète illusoire qui brûle éternellement dans l'Enfer du Vide Brillant. Cette planète illusoire était immense, des milliers de fois plus grande que la planète Tian Yun! Elle a été raffinée en une épée par le Maître de l'Esprit du Vide de la Secte de Culture du Vide Brillant. C'est ainsi que la planète Da Lou est née! » La voix de Ling Tianhou était calme, mais empreinte d'une pointe de fierté.
+« Cette planète provient d'une planète illusoire qui brûle éternellement dans le domaine du Vide Brillant. Cette planète illusoire était immense, plus de mille fois plus grande que la planète Tian Yun! » La voix de Ling Tianhou était calme, mais empreinte d'une pointe de fierté.
 
-« À la suite d'un incident, la planète illusoire s'est effondrée, et la planète Da Lou n'est qu'un fragment de cet effondrement. »
+« À la suite d'un incident, la planète illusoire s'est effondrée, et la planète Da Luo n'est qu'un fragment de cet effondrement. Ce fragment a été raffiné comme une épée par le Maître de l'Esprit du Vide de la Secte de Culture du Vide Brillant. C'est ainsi que la planète Da Luo est devenue ce que tu vois! »
 
 « Vide Brillant! » L'expression de Wang Lin changea. C'était la deuxième fois qu'il entendait ce nom. La première fois, c'était par Qing Shui. Il semblait que le Système Stellaire de l'Alliance s'appelait autrefois le Système Stellaire du Vide Brillant.
 
 « Une secte de culture... Serait-ce une secte de culture nommée le Vide Brillant... » Wang Lin réfléchit.
 
-« La Secte de Culture du Vide Brillant est la seule planète de culture de rang 9 dans l'Alliance. Cependant, tout le monde l'appelle simplement la Secte de Culture du Vide Brillant. » Ling Tianhou remarqua naturellement la confusion de Wang Lin et, comprenant qu'il n'en savait pas grand-chose, lui offrit une explication.
+« La Secte de Culture du Vide Brillant est la seule nation de culture de rang 9 dans l'Alliance. Cependant, tout le monde l'appelle simplement la Secte de Culture du Vide Brillant. » Ling Tianhou remarqua naturellement la confusion de Wang Lin et, comprenant qu'il n'en savait pas grand-chose, lui offrit une explication.
 
 « Ils sont les seuls à avoir conservé l'ancien nom: 'Vide Brillant!' » Une pointe de nostalgie brilla dans les yeux de Ling Tianhou.
 
-« Dans le Système Stellaire de l'Alliance, lorsqu'une personne atteint un certain niveau de culture, elle peut choisir de ne pas rejoindre l'Alliance de Culture. Cependant, cette personne respectera toujours la Secte de Culture du Vide Brillant! C'est un honneur d'être invité par eux! »
+« Dans le Système Stellaire de l'Alliance, lorsqu'une personne atteint un certain niveau de culture, elle peut ne pas respecter l'Alliance de Culture. Cependant, cette personne respectera toujours sincèrement la Secte de Culture du Vide Brillant! C'est un honneur d'être invité par eux! »
 
-« Tous les 3 000 ans, la Secte de Culture du Vide Brillant envoie trois jades d'invitation à des cultivateurs reconnus pour qu'ils soient conviés dans l'Enfer du Vide Brillant pour y cultiver... À l'époque, l'Omniscient et moi avions reçu nos invitations ensemble... »
+« Tous les 3 000 ans, la Secte de Culture du Vide Brillant envoie trois jades d'invitation à des cultivateurs reconnus pour qu'ils soient conviés dans le domaine du Vide Brillant pour y cultiver... À l'époque, l'Omniscient et moi avions reçu nos invitations ensemble... »
 
 « Vide Brillant... » Wang Lin digéra silencieusement les paroles de Ling Tianhou. Un instant plus tard, ses yeux s'illuminèrent: « Puisque des gens y entrent tous les 3 000 ans, je suppose que des membres de la Secte de Culture du Vide Brillant en sortent aussi... »
 
-« Bien sûr qu'il y a des gens qui en sortent. Te souviens-tu de la femme qui ressemblait à une mortelle lors de ton retour? À l'époque, la troisième personne qui accompagnait l'Omniscient et moi était elle! Elle avait une disciple féminine à ses côtés et, si je ne me trompe pas, elle est issue de la Secte de Culture du Vide Brillant. »
+« Bien sûr qu'il y a des gens qui en sortent. Te souviens-tu de la femme qui ressemblait à une mortelle lors de ton retour? À l'époque, la troisième personne qui accompagnait l'Omniscient et moi était elle! Elle avait une disciple à ses côtés et, si je ne me trompe pas, cette disciple vient de la Secte de Culture du Vide Brillant. »
 
 Wang Lin fut stupéfait. La première personne à laquelle il pensa fut la femme en rose qui l'avait invité.
 
@@ -94,30 +94,30 @@ Cependant, ces mots firent trembler l'esprit de Wang Lin!
 
 « La Secte des Quatre Divinités était autrefois la puissance dominante du Vide Brillant? » Wang Lin avait déjà conjecturé la puissance de la Secte des Quatre Divinités, mais il semblait qu'elle surpassait de loin son imagination.
 
-À mesure qu'ils avançaient, la planète Da Lou se rapprochait. C'était la première fois que Wang Lin venait sur cette planète. Plus il s'en approchait, plus il ressentait l'énergie d'épée infinie qui s'en dégageait constamment.
+À mesure qu'ils avançaient, la planète Da Luo se rapprochait. C'était la première fois que Wang Lin venait sur cette planète. Plus il s'en approchait, plus il ressentait l'énergie d'épée infinie qui s'en dégageait constamment.
 
-Les océans occupaient la majeure partie de la planète, et la seule secte présente était la Secte de l'Épée de Da Lou! Les tours apparurent une à une sous les yeux de Wang Lin.
+Les océans occupaient la majeure partie de la planète, et la seule secte présente était la Secte de l'Épée de Da Luo! Les tours apparurent une à une sous les yeux de Wang Lin.
 
-Les disciples de la Secte de l'Épée de Da Lou s'élancèrent dans les airs. Ils emplissaient le ciel, et ils étaient au moins des dizaines de milliers! Cependant, ce que Wang Lin trouva étrange, c'est que la plupart d'entre eux étaient au stade Ascendant. Bien qu'il y eût quelques cultivateurs du Yin Illusoire, il n'y avait pas un seul cultivateur du Yang Corporel.
+Les disciples de la Secte de l'Épée de Da Luo s'élancèrent dans les airs. Ils emplissaient le ciel, et ils étaient au moins des dizaines de milliers! Cependant, ce que Wang Lin trouva étrange, c'est que la plupart d'entre eux étaient au stade Ascendant. Bien qu'il y eût quelques cultivateurs du Yin Illusoire, il n'y avait pas un seul cultivateur du Yang Corporel.
 
-Ling Tianhou esquissa un léger sourire: « Trouves-tu étrange que la grande Secte de l'Épée de Da Lou compte si peu de cultivateurs de la deuxième étape? »
+Ling Tianhou esquissa un léger sourire: « Trouves-tu étrange que la grande Secte de l'Épée de Da Luo compte si peu de cultivateurs de la deuxième étape? »
 
 Wang Lin ne chercha pas à le cacher et hocha la tête: « C'est effectivement étrange. »
 
-« Les disciples des sept divisions de la Secte du Destin Céleste répriment leur culture chaque jour, car ils craignent que s'ils perdent le contrôle de leurs sceaux, ils soient dévorés par ce vieux bâtard. Ce n'est pas le cas ici; c'est simplement que ceux qui ont atteint la deuxième étape ont un autre endroit où aller. »
+« Les disciples des sept divisions de la Secte du Destin Céleste répriment leur culture chaque jour, car ils craignent que s'ils perdent le contrôle de leurs sceaux, ils soient dévorés d'une bouchée par ce vieil Omniscient. Ce n'est pas le cas ici; c'est simplement que ceux qui ont atteint la deuxième étape ont un autre endroit où aller. »
 
 Chacun des dizaines de milliers de cultivateurs en dessous portait une grande épée dans le dos. Ils étaient tous très respectueux. Lorsque Wang Lin et Ling Tianhou descendirent, ils s'inclinèrent tous à l'unisson.
 
-« Bienvenue, Maître Secte, Saint de l'Épée! »
+« Bienvenue, Maître de Secte, Saint de l'Épée! »
 
-Ce cri retentit comme un puissant coup de tonnerre à travers la planète Da Lou.
+Ce cri retentit comme un puissant coup de tonnerre à travers la planète Da Luo.
 
-Ling Tianhou rit. À cet instant, une trentaine de personnes s'envolèrent vers lui. Elles étaient très respectueuses, et certaines d'entre elles avaient suivi Ling Tianhou à la Secte du Destin Céleste, elles connaissaient donc Wang Lin. En le voyant, leurs expressions devinrent étranges; elles ne pouvaient comprendre pourquoi Wang Lin se trouvait aux côtés de Ling Tianhou.
+Ling Tianhou rit. À cet instant, quelques dizaines de personnes s'envolèrent vers lui. Elles étaient très respectueuses, et certaines d'entre elles avaient suivi Ling Tianhou à la Secte du Destin Céleste, elles connaissaient donc Wang Lin. En le voyant, leurs expressions devinrent étranges; elles ne pouvaient comprendre pourquoi Wang Lin se trouvait aux côtés de Ling Tianhou.
 
 Le regard de Wang Lin balaya ces dizaines de milliers de personnes et une pensée lui traversa l'esprit: « Lors de la bataille contre l'Alliance dans la région nord, j'ai rencontré Chen Long, mais je ne le vois pas ici. »
 
 Ling Tianhou agita ses manches, s'élança et atteignit la plus grande tour.
 
-« À partir d'aujourd'hui, Wang Lin sera un Ancien de ma Secte de l'Épée de Da Lou! » Ling Tianhou ne prononça que ces mots avant de disparaître dans la grande tour.
+« À partir d'aujourd'hui, Wang Lin sera un Ancien de ma Secte de l'Épée de Da Luo! » Ling Tianhou ne prononça que ces mots avant de disparaître dans la grande tour.
 
-« Ancien Wang, je vais entrer en culture de porte close pour cette période. Vous serez en sécurité sur ma planète Da Lou! » Le Sens Divin de Ling Tianhou résonna dans les oreilles de Wang Lin.
+« Ancien Wang, je vais entrer en culture de porte close pendant quelques mois. Vous serez en sécurité sur ma planète Da Luo! » Le Sens Divin de Ling Tianhou résonna dans les oreilles de Wang Lin.

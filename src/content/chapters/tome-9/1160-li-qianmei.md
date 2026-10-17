@@ -26,7 +26,7 @@ Des éclairs de lumière déchirèrent le ciel tandis que Wang Lin se déplaçai
 
 En un instant, Wang Lin les traqua au-delà des limites du continent de Mo Luo. Les lueurs successives et les hurlements résonnèrent à travers le ciel étoilé. Ce qui attendait toutes les bêtes féroces attirées par les cristaux de sang n'était autre qu'un massacre.
 
-Ce carnage dura environ sept minutes avant de s'estomper progressivement. Finalement, plus aucune bête féroce ne se trouvait dans un rayon de 5 000 kilomètres du continent de Mo Luo. Les rares survivantes gardèrent en elles le souvenir terrifiant d'un être qu'elles ne pourraient jamais oublier: un cultivateur sur le continent de Mo Luo qui était semblable à un dieu.
+Ce carnage dura environ sept minutes avant de s'estomper progressivement. Finalement, plus aucune bête féroce ne se trouvait dans un rayon de plus de 100 000 kilomètres du continent de Mo Luo. Les rares survivantes gardèrent en elles le souvenir terrifiant d'un être qu'elles ne pourraient jamais oublier: un cultivateur sur le continent de Mo Luo qui était semblable à un dieu.
 
 La barrière protectrice entourant le continent de Mo Luo fut réparée et tout sembla revenir à la normale, comme si rien n'avait changé. Pourtant, le choc ressenti par les cultivateurs de la Secte de l'Origine demeurait intact.
 
@@ -106,7 +106,7 @@ Elle commença sa culture à l'âge de cinq ans, atteignit l'Établissement des 
 
 Puis, toute la Secte Brise-Ciel consacra ses efforts à sa progression. Après plus de 400 ans, elle atteignit le sommet du stade Scruteur du Nirvana. Puis, trois cents ans plus tard, elle devint une cultivatrice au milieu du stade Purificateur du Nirvana.
 
-Après 500 ans d'entraînement extérieur, elle devint la plus jeune cultivatrice Briseur du Nirvana de la Secte Brise-Ciel! À ce jour, après plus de 1 300 ans de culture, elle avait atteint le stade avancé du Briseur du Nirvana.
+Après 500 ans d'entraînement extérieur, elle devint la plus jeune cultivatrice Briseur du Nirvana de la Secte Brise-Ciel! À ce jour, après plus de 1 200 ans de culture, elle avait atteint le stade avancé du Briseur du Nirvana.
 
 Dans la Mer des Nuages, le nom de « Li Qianmei » était une légende!
 

@@ -6,9 +6,9 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1362 - Earth Escape, Thunder Refining
 slug: evasion-de-la-terre-raffinement-du-tonnerre
 ---
-« Le signe prédit par l'Impératrice Ancienne est apparu! » L'expression du Maître Dao Bleu Rêve était sombre alors qu'il levait les yeux vers le vide. Son regard semblait capable de percer l'abîme.
+« Le signe prédit par l'Ancienne Concubine Céleste est apparu! » L'expression du Maître du Dao Rêve Bleu était sombre alors qu'il levait les yeux vers le vide. Son regard semblait capable de percer l'abîme.
 
-À cet instant, non seulement le Maître Dao Bleu Rêve, mais l'expression de presque tous les cultivateurs du troisième niveau changea. Ils levèrent les yeux vers le ciel avec des visages extrêmement sombres.
+À cet instant, non seulement le Maître du Dao Rêve Bleu, mais l'expression de presque tous les cultivateurs du troisième niveau changea. Ils levèrent les yeux vers le ciel avec des visages extrêmement sombres.
 
 Une partie du Royaume Céleste Antique existait au sein du Système Stellaire Antique, bien que peu de personnes le sachent. À l'intérieur se trouvaient quelques femmes qui ouvrirent toutes les yeux pour regarder vers le haut!
 
@@ -20,9 +20,9 @@ Tuo Sen s'arrêta soudainement, se retourna, et ses yeux injectés de sang fixè
 
 « L'aura de mon clan. Cette aura est très, très familière. Je le connais vaguement! Non, c'était Tu Si qui le connaissait!! »
 
-La voix résonna dans les oreilles de Wang Lin comme un coup de tonnerre, mais ses mains maintenaient fermement l'Éclair Éternel. Loin de relâcher sa prise, il tira impitoyablement une fois de plus sur l'Éclair Éternel!
+La voix résonna dans les oreilles de Wang Lin comme un coup de tonnerre, mais ses mains maintenaient fermement le tonnerre éternel. Loin de relâcher sa prise, il tira impitoyablement une fois de plus sur le tonnerre éternel!
 
-« Quelle blague. Pourquoi devrais-je lâcher prise simplement parce que vous me le demandez? Cet Éclair Éternel m'appartient!! Si vous persistez dans votre entêtement, ne me reprochez pas ma cruauté! »
+« Quelle blague. Pourquoi devrais-je lâcher prise simplement parce que vous me le demandez? Ce tonnerre éternel m'appartient!! Si vous persistez dans votre entêtement, ne me reprochez pas ma cruauté! »
 
 Le son étouffé provenant de l'intérieur du vortex se transforma en un rugissement, comme si le refus de Wang Lin avait irrité cette existence mystérieuse. Le tonnerre tourbillonnait autour du vortex avec une rapidité telle que quelque chose semblait sur le point d'en jaillir!
 
@@ -30,7 +30,7 @@ Wang Lin pouvait clairement ressentir cette colère, et son regard se glaça.
 
 « De la colère... Si mon essence de feu était complète, je pourrais vous faire souffrir rien qu'avec cette rage. Même sans mourir, vous en seriez gravement blessé! »
 
-Wang Lin tenait l'Éclair Éternel et tira impitoyablement vers le bas, tandis que la puissance du Dieu Ancien déferlait en lui. L'Éclair Éternel fut presque entièrement extirpé du vortex!
+Wang Lin tenait le tonnerre éternel et tira impitoyablement vers le bas, tandis que la puissance du Dieu Ancien déferlait en lui. Le tonnerre éternel fut presque entièrement extirpé du vortex!
 
 Le rugissement issu du vortex devint plus intense encore. Bien qu'il exerçât une force de traction, il était évident qu'elle ne pouvait rivaliser avec la puissance du Dieu Ancien de Wang Lin!
 
@@ -52,7 +52,7 @@ Un ricanement froid provint du vortex, puis un bras s'élança impitoyablement v
 
 Il descendit tel un coup de foudre et atteignit instantanément Wang Lin!
 
-Wang Lin était déjà possédé par la démence. Dans toute sa vie, il n'avait qu'une seule ligne rouge! Tout ce qui touchait à Li Muwan suffisait à le faire passer d'un calme absolu à une folie totale. À cet instant, il n'hésita pas une seconde et lâcha l'Éclair Éternel pour charger le bras.
+Wang Lin était déjà possédé par la démence. Dans toute sa vie, il n'avait qu'une seule ligne rouge! Tout ce qui touchait à Li Muwan suffisait à le faire passer d'un calme absolu à une folie totale. À cet instant, il n'hésita pas une seconde et lâcha le tonnerre éternel pour charger le bras.
 
 Dans son élan, la puissance du Dieu Ancien gronda dans son corps et sa culture s'emballa. Une silhouette gigantesque de Dieu Ancien apparut derrière lui, dégageant une pression si puissante qu'elle écrasait l'espace lui-même!
 
@@ -66,7 +66,7 @@ Dans son élan, la puissance du Dieu Ancien gronda dans son corps et sa culture 
 
 « Bataille!!! » rugit Wang Lin alors que l'Épée de Sang surgissait, atteignant instantanément mille pieds de long. Wang Lin s'en saisit fermement!
 
-Au moment où il empoigna l'Épée de Sang, la silhouette du Dieu Ancien leva les mains. Dans un éclat de lumière écarlate, une épée de sang de dix mille pieds apparut dans ses mains!
+Au moment où il empoigna l'Épée de Sang, la silhouette du Dieu Ancien leva les mains. Dans un éclat de lumière écarlate, une épée de sang longue de plusieurs dizaines de milliers de pieds apparut dans ses mains!
 
 À cet instant, la puissance du Dieu Ancien de Wang Lin pénétra dans l'Épée de Sang. La mer de feu bleu se déversa dans l'arme; même l'Oiseau Vermillon bleu devint une partie intégrante de l'Épée de Sang!
 
@@ -94,21 +94,21 @@ Il regarda le vortex disparaître lentement tout en entendant le rugissement fur
 
 « Je me fiche de qui vous êtes ou d'où vous venez, mais un jour, je briserai les cieux pour vous traquer tous. À l'époque, avant que ma culture ne soit achevée, vous avez dérobé l'âme de ma femme et l'avez condamnée à son état actuel. Je ne laisserai pas cette vendetta s'éteindre! » L'expression de Wang Lin était féroce. C'était la première fois qu'il manifestait une telle rage depuis son arrivée dans le Système Stellaire Antique!
 
-Tout s'était passé trop vite, bien trop vite pour que quiconque puisse réagir. Trop vite pour que l'Éclair Éternel puisse pénétrer le vortex. Le vortex avait disparu, laissant l'Éclair Éternel sans issue.
+Tout s'était passé trop vite, bien trop vite pour que quiconque puisse réagir. Trop vite pour que le tonnerre éternel puisse pénétrer le vortex. Le vortex avait disparu, laissant le tonnerre éternel sans issue.
 
-Wang Lin se retourna soudainement et fixa l'Éclair Éternel. Après avoir été blessé par l'épée dans les 7 Millions de Mondes, il était extrêmement affaibli. Puis, à l'instant, il avait subi le contrecoup de la folie de Wang Lin. Dès que Wang Lin posa les yeux sur lui, l'éclair se retira rapidement, comme s'il possédait une conscience propre.
+Wang Lin se retourna soudainement et fixa le tonnerre éternel. Gravement blessé par l'épée de sept pieds issue des 7 Millions de Mondes, le tonnerre était extrêmement affaibli. Puis, à l'instant, il avait subi le contrecoup de la folie de Wang Lin. Dès que Wang Lin posa les yeux sur lui, le tonnerre se retira rapidement, comme s'il possédait une conscience propre.
 
-« Où comptes-tu fuir?! » Wang Lin, toujours animé par une intention meurtrière, utilisa la Déformation Spatiale pour surgir devant l'Éclair Éternel. Sa main droite s'abattit impitoyablement sur lui.
+« Où comptes-tu fuir?! » Wang Lin, toujours animé par une intention meurtrière, utilisa la Déformation Spatiale pour surgir devant le tonnerre éternel. Sa main droite s'abattit impitoyablement sur lui.
 
-Des grondements tonitruants émanèrent de l'Éclair Éternel. Il cessa de fuir pour charger Wang Lin. Cependant, ce dernier le saisit immédiatement de la main droite, et l'Éclair commença à se débattre. Sans attendre, Wang Lin ouvrit la bouche pour le dévorer!
+Des grondements tonitruants émanèrent du tonnerre éternel. Il cessa de fuir pour charger Wang Lin. Cependant, ce dernier le saisit immédiatement de la main droite, et le tonnerre commença à se débattre. Sans attendre, Wang Lin ouvrit la bouche pour le dévorer!
 
-L'Éclair Éternel fut instantanément englouti par lui!
+Le tonnerre éternel fut instantanément englouti par lui!
 
-« Affiner cet Éclair Éternel, affiner les huit dragons de tonnerre, absorber tout le tonnerre accompagnant le Grand Ancien... alors mon essence de tonnerre sera complète! Ma culture augmentera! »
+« Affiner ce tonnerre éternel, affiner les huit dragons de tonnerre, absorber tout le tonnerre accompagnant le Grand Ancien... alors mon essence de tonnerre sera complète! Ma culture augmentera! »
 
 Wang Lin avait tranché la main du Messager des Cieux. Bien que ce dernier ne se soit pas encore pleinement manifesté, il était bien plus puissant que celui rencontré sur la planète Suzaku. Pourtant, Wang Lin avait réussi à lui couper la main en combinant son tonnerre, son feu, son intention de combat et son Épée de Sang, le forçant ainsi à battre en retraite!
 
-Après avoir récupéré l'Éclair Éternel, Wang Lin réprima la folie et la tristesse qui avaient surgi avec l'apparition du Messager.
+Après avoir récupéré le tonnerre éternel, Wang Lin réprima la folie et la tristesse qui avaient surgi avec l'apparition du Messager.
 
 D'un revers de manche, il fit apparaître la paume du Messager des Cieux devant lui. Une fois tranchée, elle n'était plus faite de chair et de sang, mais s'était transformée en un cristal en forme de paume émettant une lueur éclatante.
 
@@ -120,7 +120,7 @@ Toutes les mains humaines possèdent des empreintes. Peu importe le niveau de cu
 
 Wang Lin détourna le regard, prêt à partir. Quant au nettoyage, le Daoïste Esprit Dispersé s'en chargerait. Tout cela ne concernait plus Wang Lin!
 
-Alors qu'il s'apprêtait à s'éloigner, un individu surgit de la distance après une longue hésitation. Entouré d'une aura stellaire, il volait vers Wang Lin sur un objet semblable à un alène.
+Alors qu'il s'apprêtait à s'éloigner, un individu surgit de la distance après une longue hésitation. Entouré d'une aura stellaire, il volait vers Wang Lin sur un objet semblable à une navette de tisserand.
 
 « Ma... Maître!! Vous vous souvenez encore de moi? » Le corps du cultivateur tremblait. Prononcer ces mots équivalait à trahir le Clan du Tonnerre Dispersé. Bien que le clan soit en pleine crise, il risquait d'être tué par les siens avant tout! Mais porté par sa détermination, il n'eut pas le temps de trop réfléchir!
 
@@ -132,11 +132,11 @@ Son regard croisa celui du cultivateur. Ce dernier tremblait, les dents serrées
 
 L'expression de Wang Lin resta glaciale lorsqu'il demanda lentement: « Tu veux me suivre? »
 
-Zhong Grand Rouge s'élança rapidement pour éviter d'être tué par les siens. En entendant la réponse de Wang Lin, il hocha la tête avec empressement: « Maître, tant que vous me permettez de vous suivre, je ferai tout ce que vous ordonnerez. Allumer des incendies ou voler, je maîtrise tout. Je ne suis pas moins doué que ce Xu Liguo, Maître. Donnez-moi une chance, Maître... »
+Zhong Grand Rouge s'élança rapidement pour éviter d'être tué par les siens. En entendant la réponse de Wang Lin, il hocha la tête avec empressement: « Maître, tant que vous me permettez de vous suivre, je ferai tout ce que vous ordonnerez. Tuer, incendier, piller les biens et les femmes, je maîtrise tout. Je ne suis pas moins doué que ce Xu Liguo, Maître. Donnez-moi une chance, Maître... »
 
 Les yeux de Wang Lin s'illuminèrent en observant Zhong Grand Rouge. Puis il se retourna et agita ses manches. Un courant d'air enveloppa Zhong Grand Rouge et l'envoya dans l'espace de stockage de Wang Lin pour rejoindre Xu Liguo. D'un pas, Wang Lin franchit une distance incommensurable pour réapparaître là où le Daoïste Esprit Dispersé combattait les cultivateurs du Fléau Céleste du Clan du Tonnerre Dispersé.
 
-Les sortilèges fusaient de toutes parts. À l'apparition de Wang Lin, ses yeux brillèrent d'un rouge vif. Son Royaume Ji jaillit comme un éclair rouge, d'une rapidité fulgurante. Il transperça le crâne d'un premier cultivateur du Fléau Céleste, faisant imploser son âme originelle. Puis il frappa un second cultivateur, faisant exploser sa tête.
+Les sortilèges fusaient de toutes parts. À l'apparition de Wang Lin, ses yeux brillèrent d'un rouge vif. Son Royaume Ji jaillit comme un éclair rouge, d'une rapidité fulgurante. Il pénétra dans le corps d'un cultivateur de la première étape du Fléau Céleste, fit s'effondrer son âme originelle et ressortit par son dos, au niveau du cœur. Puis il entra entre les sourcils d'un cultivateur de la deuxième étape du Fléau Céleste, faisant exploser sa tête avant de la traverser.
 
 « Compagnon Daoïste Esprit Dispersé, prends soin de toi. Je m'en vais! » Wang Lin fit un pas de plus, rétracta son Royaume Ji et disparut sans laisser de trace!
 
@@ -160,12 +160,12 @@ Lorsqu'il apparut, ses cheveux étaient noirs et attachés. Vêtu de blanc, il t
 
 La rue était bondée. Hommes et femmes ne s'évitaient pas avec suspicion comme sur la planète Suzaku; ils étaient élégamment vêtus et l'ambiance était très vivante.
 
-Des étals bordaient les trottoirs, certains proposant des places assises où de nombreux clients s'étaient rassemblés. Wang Lin entendit même quelqu'un déclamer un récit en passant devant un restaurant.
+Les boutiques des deux côtés de la rue étaient pleines à craquer, presque aucune place n'y restait vide. Wang Lin entendit même quelqu'un déclamer un récit en passant devant un restaurant.
 
-«... Quant à Xiu Yuhuan de la Secte Zhan Yan, il avait une personnalité singulière et aimait parcourir le monde mortel. Les rumeurs sur ses aventures sont innombrables, et c'est ainsi qu'il rencontra sa partenaire de culture, Chu Yuexuan... Ce dont nous allons vous parler aujourd'hui est la façon dont ces deux êtres célestes se sont rencontrés... L'histoire sera glorieuse et incomparable, alors écoutez bien! »
+«... Quant à Yuhuan, cultivateur immortel du clan Zhenyan, il avait une personnalité singulière et aimait parcourir le monde mortel. Les belles histoires sur ses aventures sont innombrables, et c'est ainsi qu'il rencontra sa partenaire de culture, Chu Yuexuan... Ce dont nous allons vous parler aujourd'hui est la façon dont ces deux cultivateurs immortels se sont rencontrés... L'histoire est d'une sensualité incomparable, alors écoutez bien! »
 
 Wang Lin sourit. Les cités mortelles du Système Stellaire Antique étaient intéressantes. Il était fascinant de voir des mortels parler de cultivateurs, même si l'essentiel était romancé. Cela prouvait néanmoins que les mortels ici n'ignoraient rien de leur existence.
 
 Dès son entrée dans la ville, Wang Lin comprit qu'il y avait de nombreux cultivateurs présents sans même avoir eu besoin de déployer son Sens Divin. Dans le restaurant, un homme et une femme écoutaient l'histoire avec attention. Il y avait près de cent cultivateurs dans la partie est de la capitale.
 
-« C'est préférable ainsi, cela rend la force vitale plus chaotique. Grâce à mes essences qui masquent mon aura, je devrais être en sécurité pour un certain temps. Ce sera suffisant pour raffiner l'Éclair Éternel dans mon âme originelle. Je me demande de combien ma culture augmentera... » Wang Lin marcha calmement vers le restaurant.
+« C'est préférable ainsi, cela rend la force vitale plus chaotique. Grâce à mes essences qui masquent mon aura, je devrais être en sécurité pour un certain temps. Ce sera suffisant pour raffiner le tonnerre éternel dans mon âme originelle. Je me demande de combien ma culture augmentera... » Wang Lin marcha calmement vers le restaurant.

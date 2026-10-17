@@ -58,7 +58,7 @@ Il n'avait jamais imaginé que le réveil de Tuo Sen déclencherait une telle te
 
 Les vagues dans l'esprit de Wang Lin finirent par se calmer. Il s'était déjà préparé mentalement à l'apparition de Tuo Sen, mais les paroles de Mu Bingmei le laissèrent tout de même stupéfait.
 
-« En tant que Sainte du Vide Brillant, je possède l'héritage du Royaume du Vide Brillant. Il y a des dizaines de milliers d'années, une ancienne Sainte du Vide Brillant a sauvé le Grand Ancien de la Secte Divine. Le Grand Ancien nous doit une faveur, j'ai donc utilisé une technique secrète pour fuir ici. Je veux me rendre à la Secte Divine et utiliser leur puissance pour m'aider à me rétablir... » La voix de Mu Bingmei devint basse, puis elle se mit soudainement à trembler.
+« En tant que Sainte du Vide Brillant, je possède l'héritage du Royaume du Vide Brillant. Il y a des dizaines de milliers d'années, une ancienne Sainte du Vide Brillant entretenait des liens avec la Secte Divine. Le Grand Ancien de la Secte Divine lui devait une faveur, j'ai donc utilisé une technique secrète pour fuir ici. Je veux me rendre à la Secte Divine et utiliser leur puissance pour m'aider à me rétablir... » La voix de Mu Bingmei devint basse, puis elle se mit soudainement à trembler.
 
 Ce qui faisait trembler son corps, c'était Wang Lin!
 
@@ -82,7 +82,7 @@ Ses intentions étaient nobles.
 
 Wang Lin baissa la tête. En voyant le visage pâle et éploré de Mu Bingmei ainsi que le remords dans ses yeux, il soupira doucement: « Ce n'est rien. »
 
-« Cette affaire n'a aucun lien avec toi. J'ai personnellement vu le cultivateur du troisième niveau de Luotian, Maître Lu Fu, être vaincu et frôler la mort. Avec la puissance de Tuo Sen, s'il avait voulu laisser une empreinte indétectable en toi, tu n'aurais jamais pu la trouver. »
+« Cette affaire n'a aucun lien avec toi. J'ai personnellement vu le cultivateur de la troisième étape de Luotian, Maître Lu Fu, être vaincu et frôler la mort. Avec la puissance de Tuo Sen, s'il avait voulu laisser une empreinte indétectable en toi, tu n'aurais jamais pu la trouver. »
 
 La voix de Wang Lin était douce. Il percevait naturellement les bonnes intentions de Mu Bingmei.
 
@@ -102,9 +102,9 @@ Mu Bingmei réfléchit un instant et répondit doucement: « Je ne connais pas l
 
 « Cent ans! » Les yeux de Wang Lin brillèrent et il commença à méditer.
 
-Wang Lin avait passé la majeure partie des cent dernières années dans cet endroit étrange. Il pressentait que son emplacement ressemblait à celui de la Formation du Royaume Scellé.
+Wang Lin avait passé la majeure partie des cent dernières années dans cet endroit étrange. Il pressentait que l'endroit où il se trouvait avait un lien avec la Formation du Royaume Scellé.
 
-« Tuo Sen n'a probablement pas trouvé mon aura dans le Royaume Scellé. Si j'avais été à sa place, je me serais demandé si j'avais quitté le Royaume... Et à ce moment-là, je me trouvais dans un lieu lié à la Formation du Royaume Scellé. Lorsque Tuo Sen a tenté de percer, il a remarqué mon aura... Par conséquent... » L'expression de Wang Lin devint étrange.
+« Tuo Sen n'a probablement pas trouvé mon aura dans le Royaume Scellé. Si j'avais été à sa place, je me serais demandé si j'avais quitté le Royaume... Et à ce moment-là, je me trouvais dans un lieu lié à la Formation du Royaume Scellé. Dès que Tuo Sen tenterait de briser la Formation du Royaume Scellé, il risquerait fort de s'en apercevoir... Dans ce cas... » L'expression de Wang Lin devint étrange.
 
 « Si Tuo Sen était resté dans le Royaume Scellé, il n'y aurait aucune raison qu'il ne soit pas venu me chercher, puisque j'avais déjà quitté le Royaume aux Sept Couleurs depuis plusieurs mois. Jusqu'à présent, il n'est toujours pas venu... Je peux donc presque conclure que Tuo Sen a utilisé une méthode inconnue pour entrer dans... le Monde Extérieur! »
 

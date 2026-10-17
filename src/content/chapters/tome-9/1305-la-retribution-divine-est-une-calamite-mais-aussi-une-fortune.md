@@ -48,13 +48,13 @@ Après un long moment, il laissa échapper un soupir et prononça d'une voix anc
 
 Le Grand Ancien de la Secte Démon trembla, comme si le passé l'engloutissait. « Votre subordonné est là! » répondit-il sans la moindre hésitation.
 
-« Utilise mon trésor Dao pour organiser la Mer des Nuages et rassemble toute sa force afin d'être prêt pour... la guerre contre le Royaume Extérieur qui approche! Tue quiconque se rebellera! »
+« Utilise mon trésor Dao pour organiser la Mer des Nuages et rassemble toute sa force afin d'être prêt pour... la grande guerre contre le Royaume Extérieur dans quelques années! Tue quiconque se rebellera! »
 
 Le corps du Grand Ancien de la Secte Démon frémit et il leva les yeux. Une lueur de froideur passa dans son regard lorsqu'il s'écria: « À vos ordres! »
 
-« Sous mes commandements, une fois la Mer des Nuages stabilisée, dirige-toi vers les trois autres grands systèmes stellaires. Va trouver Maître Sud Nuage, Maître Rouge Shan et Maître Céleste de la Guerre. Dis-leur qu'ils peuvent enfin honorer l'accord passé...
+« Sous mes commandements, une fois la Mer des Nuages stabilisée, dirige-toi vers les trois autres grands systèmes stellaires. Va trouver Maître Nan Yunzi, Maître Hong Shan et Maître Céleste de la Guerre. Dis-leur qu'ils peuvent enfin honorer l'accord passé...
 
-« Je veux que tu utilises ta vitesse maximale pour organiser les trois autres grands systèmes stellaires. Unissez les Royaumes Célestes du Vent, de la Pluie, du Tonnerre et de l'Éclair en un seul pour mener... la grande guerre qui va bientôt éclater! »
+« Je veux que tu utilises ta vitesse maximale pour organiser les trois autres grands systèmes stellaires. Unissez les Royaumes Célestes du Vent, de la Pluie, du Tonnerre et de l'Éclair en un seul pour mener... la grande guerre qui éclatera dans quelques années! »
 
 « À vos ordres! » Le Grand Ancien de la Secte Démon était transporté par l'excitation.
 
@@ -68,15 +68,15 @@ Les yeux de l'ombre démoniaque située à l'extérieur de la Secte Fantôme s'i
 
 Puis, le visage humain sur le grand arbre fixa profondément Wang Lin et dit doucement: « La rétribution divine est une calamité mais aussi une fortune. En raison des lois du Royaume Céleste Antique, je ne peux t'en dire davantage. Prends soin de toi... La rétribution divine n'est pas un phénomène propre au Royaume Céleste Antique. Même l'Empereur Céleste a sa propre rétribution...
 
-« La rétribution divine remonte aux temps primordiaux, à l'aube du monde, issue du Dao céleste déchu... La rétribution à laquelle tu fais face n'est qu'une infime part, ce n'est ni une grande, ni la Rétribution Ji capable de détruire toute vie... » Tandis qu'il parlait, ses yeux se fanèrent lentement et l'arbre gigantesque s'effondra, se dissipant dans le vide.
+« La rétribution divine remonte aux temps primordiaux, à l'aube du monde, issue du Dao céleste mort... La rétribution à laquelle tu fais face n'est qu'une infime part, ce n'est ni une grande, ni la Rétribution Ji capable de détruire toute vie... » Tandis qu'il parlait, il ferma lentement les yeux et l'arbre gigantesque s'effondra, se dissipant dans le vide.
 
-Le jade se mua en une lumière cristalline et retomba sur la Formation du Royaume Scellé. Cette dernière brilla intensément et trembla. Les esprits précieux apparurent les uns après les autres, comme pour tenter de résister à cette lumière.
+Le jade se mua en une lumière cristalline et retomba sur la Formation du Royaume Scellé. Cette dernière brilla intensément et trembla. Les esprits d'artefact apparurent les uns après les autres, comme pour tenter de résister à cette lumière.
 
 Cependant, la puissance contenue dans le jade était d'une étrange nature. Elle se transforma lentement en d'innombrables fils verts qui se déployèrent sur l'immense formation avant de s'évanouir progressivement.
 
 Dès que les fils verts disparurent, les Huit Diagrammes qui étaient figés dans l'air rugirent et foncèrent à nouveau vers Wang Lin.
 
-« La rétribution divine est une calamité mais aussi une fortune... La rétribution divine du Ciel... La Rétribution Ji... Le Royaume Ji!!! » Les yeux de Wang Lin s'illuminèrent alors qu'il fixait les Huit Diagrammes. Son regard devint encore plus intense! Il semblait avoir saisi quelque chose, sans toutefois en être certain.
+« La rétribution divine est une calamité mais aussi une fortune... La Rétribution Ji du Ciel... La Rétribution Ji... Le Royaume Ji!!! » Les yeux de Wang Lin s'illuminèrent alors qu'il fixait les Huit Diagrammes. Son regard devint encore plus intense! Il semblait avoir saisi quelque chose, sans toutefois en être certain.
 
 « Avec ton niveau de culture actuel, ne t'encombre pas de comprendre le Royaume Ji... Lorsque tu atteindras le stade du Briseur du Nirvana, peut-être... pourras-tu le comprendre à travers la rétribution divine... » Les paroles de Qing Shui résonnaient encore à ses oreilles.
 
@@ -94,7 +94,7 @@ Cependant, les Huit Diagrammes étaient d'une nature extrêmement singulière. I
 
 Des craquements secouèrent l'intérieur du corps de Wang Lin, et son corps de dix mille pieds fut recouvert de diagrammes. Le sang jaillissait de chaque pore de sa peau!
 
-Wang Lin affichait une expression féroce alors qu'il levait les yeux vers le vortex dans le vide et rugissait: « Une simple combinaison des Neuf Lieux et des Huit Diagrammes ne me tuera pas! Existe-t-il une rétribution divine plus puissante encore? »
+Wang Lin affichait une expression féroce alors qu'il levait les yeux vers le vortex dans le vide et rugissait: « Une simple combinaison des Neuf Palais et des Huit Diagrammes ne me tuera pas! Existe-t-il une rétribution divine plus puissante encore? »
 
 Alors qu'il hurlait, le vortex rugit à son tour et sept rayons de lumière en jaillirent. Ces sept lumières étaient composées de poussière d'étoiles!
 
@@ -102,7 +102,7 @@ La lueur stellaire était éclatante et, au moment où elles s'élancèrent hors
 
 Les sept planètes de culture brillèrent intensément, formant la Grande Ourse!
 
-Après les Neuf Palais vinrent les Huit Diagrammes, et après les Huit Diagrammes surgirent les Sept Étoiles de la Grande Ourse! Les sept étoiles: Alpha, Bêta, Gamma, Delta, Epsilon et Zeta!
+Après les Neuf Palais vinrent les Huit Diagrammes, et après les Huit Diagrammes surgirent les Sept Étoiles de la Grande Ourse! Les sept étoiles: Tianshu, Tianxuan, Tianji, Tianquan, Yuheng, Kaiyang et Yaoguang!
 
 « Sept Étoiles... Infini... » Dès que cette voix indistincte retentit, les sept étoiles brillèrent avec une intensité folle et transpercèrent le vide. Leur lumière inonda le ciel étoilé et l'intégralité de la Mer des Nuages, supplantant toute autre lueur. C'était comme si toute la lumière stellaire du monde avait été absorbée par ces sept astres pour former une intention meurtrière capable de faire trembler les cieux!
 
@@ -114,7 +114,7 @@ Les Sept Étoiles incarnaient l'intention meurtrière et la Grande Ourse, l'abat
 
 « Six Directions... Infini... »
 
-Huit Désolations, Six Directions. Ensemble, cela représentait l'immensité du vide universel!
+Huit Désolations, Six Directions. Les Six Directions étaient le haut, le bas, l'est, l'ouest, le nord et le sud, et représentaient tout ce qui existe sous le ciel! Associées aux Huit Désolations, elles représentaient toutes les directions de l'immensité de l'univers!
 
 Il n'y avait aucune issue face aux Six Directions. Même si votre corps s'effondrait, votre âme originelle ne pourrait s'échapper. C'était une formation de scellement céleste; une fois encerclé, le seul recours était le combat!
 

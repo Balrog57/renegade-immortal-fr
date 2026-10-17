@@ -10,13 +10,13 @@ Le vieil homme aux cheveux blancs n'avait pas maîtrisé l'essence de l'Empreint
 
 Bien qu'il ne pût être comparé à la véritable Empreinte de l'Esprit Guerrier, il en épousait la forme et en contenait 30 % de la puissance. De plus, il avait utilisé sa culture au stade avancé du Briseur du Nirvana pour forcer le déploiement de ce sort, le rendant presque impossible à distinguer de l'original!
 
-L'Empreinte de l'Esprit Guerrier de Wang Lin provenait du Royaume Céleste de la Pluie. Après l'avoir contemplée et comprise maintes fois, il avait enfin pu s'en servir. Lui aussi n'en avait appris que la surface, mais la puissance de l'être ayant laissé cette empreinte dans le Royaume Céleste de la Pluie était capable de faire trembler les cieux. Autrement, cette empreinte n'aurait pas dégagé une telle aura d'innombrables années plus tard, et n'aurait pas laissé de si fines fissures sur le sol.
+L'Empreinte de l'Esprit Guerrier de Wang Lin provenait du Royaume Céleste de la Pluie. Après l'avoir contemplée et comprise maintes fois, il avait enfin pu s'en servir. Lui aussi n'en avait appris que la surface, mais la puissance de l'être ayant laissé cette empreinte dans le Royaume Céleste de la Pluie était capable de faire trembler les cieux. Autrement, cette empreinte n'aurait pas dégagé une telle aura d'innombrables années plus tard, et n'aurait pas laissé sur le sol des fissures manquant de le briser.
 
 Par conséquent, bien que la culture de Wang Lin fût encore insuffisante, son Empreinte de l'Esprit Guerrier intégrait sa puissance du tonnerre ainsi que sa puissance de Dieu Ancien. Cela rendait son empreinte presque indiscernable de la véritable!
 
 À cet instant, les deux paumes perçantes le ciel grondèrent, donnant l'impression que le Royaume aux Sept Couleurs allait s'effondrer. Alors que les vents s'engouffraient, les deux empreintes de paume entrèrent en collision!
 
-Rumble, rumble, rumble, rumble!
+Boum, boum, boum, boum!
 
 La terre trembla et le ciel fut déchiré. L'impact des deux paumes créa une onde de choc capable de détruire le monde. Le Royaume aux Sept Couleurs commença à s'effondrer et la grande faille fut scindée en deux. L'ensemble du Royaume aux Sept Couleurs fut littéralement divisé!
 
@@ -86,7 +86,7 @@ Ce que Wang Lin avait hérité, c'était cette volonté et une expérience de co
 
 La main du vieil homme traça un sceau et une quantité colossale d'énergie originelle s'accumula. Sans se soucier du gaspillage, il provoqua un effondrement devant lui pour utiliser l'impact comme levier afin de se distancier de Wang Lin. Son visage était livide, marqué par la peur. Alors que Wang Lin se rapprochait à nouveau, il leva les mains en un sceau et ferma les yeux. Une ondulation invisible sembla se propager du corps du vieil homme à travers tout le Royaume aux Sept Couleurs.
 
-« J'invoque les Dao perdus, les Dao éclairés et toutes les âmes de Dao égarées. Je fonds votre âme de Dao! » À l'instant où il prononça ces mots, les Perdus et les Éclairés qui avaient disparu à cause du feu et de la foudre réapparurent dans chaque recoin du Royaume aux Sept Couleurs.
+« J'invoque les Dao perdus, les Dao éclairés et toutes les âmes de Dao retournées au néant en ces lieux depuis des dizaines de milliers d'années. Je fonds votre âme de Dao! » À l'instant où il prononça ces mots, les Perdus et les Éclairés qui avaient disparu à cause du feu et de la foudre réapparurent dans chaque recoin du Royaume aux Sept Couleurs.
 
 Dès leur apparition, ils s'effondrèrent aussitôt. Tous les Perdus affichèrent un instant de clarté dans leurs yeux, mais durant ce bref instant, ils se changèrent en poussière et se dissipèrent.
 
@@ -96,14 +96,14 @@ Les Éclairés disparurent également, libérant une immense quantité d'intenti
 
 Même les bêtes féroces du royaume extérieur qui luttaient dans les flammes s'effondrèrent les unes après les autres. Leurs âmes furent arrachées et aspirées vers le vieil homme!
 
-« Hauts Anciens, prêtez-moi votre puissance pour disperser son Dao! »
+« J'emprunte la puissance de l'Antiquité pour disperser le Dao qu'il a cultivé! »
 
 Les innombrables âmes de Dao du Royaume aux Sept Couleurs se rassemblèrent devant le vieil homme. Elles fusionnèrent en une seule entité, puis une lumière jaune envahit le monde, enveloppant Wang Lin.
 
-« Dispersion du Dao! » La voix féroce du vieil homme résonna alors qu'il engageait toute sa puissance. Hormis le sceau céleste, c'était le sort qui terrifiait le plus les mortels. C'est ce sort qui permit au Clan de l'Extermination du Sceau de diriger les Hauts Anciens Clans; il n'était surpassé que par les anciens démons, diables et dieux!
+« Dispersion du Dao! » La voix féroce du vieil homme résonna alors qu'il engageait toute sa puissance. Hormis le sceau céleste, c'était le sort qui terrifiait le plus les mortels. C'est ce sort qui permit au Clan de l'Extermination Scellée de diriger les Hauts Anciens Clans; ce clan n'était surpassé que par les anciens dieux, démons et monstres!
 
 Ce n'était pas un simple sort ou une capacité, mais le rare Sortilège du Dao!
 
-Quiconque était enveloppé par cette lumière jaune verrait tous les Dao accumulés se disperser! Le vieil homme ne pouvait pas utiliser ce sort pleinement par lui-même et ne pouvait le maintenir que trois secondes! Ces trois seules secondes consommeraient plus de 90 % de son espérance de vie. Cependant, pour accomplir l'ordre du Souverain, il n'hésita pas une seconde!
+Quiconque était enveloppé par cette lumière jaune verrait tous les Dao accumulés se disperser, et même un immortel pourrait sombrer au rang de mortel! Le vieil homme ne pouvait pas utiliser ce sort pleinement par lui-même et ne pouvait le maintenir que trois secondes! Ces trois seules secondes consommeraient plus de 90 % de son espérance de vie. Cependant, pour accomplir l'ordre du Souverain, il n'hésita pas une seconde!
 
 Le vainqueur serait décidé ici!

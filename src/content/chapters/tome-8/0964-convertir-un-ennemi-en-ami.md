@@ -6,19 +6,19 @@ bookTitle: "Alliance's Secret"
 en: Chapter 964 - Converting an Enemy to a Friend
 slug: convertir-un-ennemi-en-ami
 ---
-Se déplaçant avec la fluidité de l'eau, la main de Wang Lin se referma en un poing et il lança un coup sans effort. Une tempête noire inimaginable se forma. L'une des perceptions divines qui composaient le dragon de perception divine fut frappée par le coup de Wang Lin.
+Se déplaçant avec la fluidité de l'eau, la main de Wang Lin se referma en un poing et il lança un coup sans effort. Une tempête noire inimaginable se forma. L'un des sens divins qui composaient le dragon de sens divin fut frappé par le coup de Wang Lin.
 
-Cette perception divine s'effondra avant même d'avoir pu résister.
+Ce sens divin s'effondra avant même d'avoir pu résister.
 
-Au moment où la perception divine se dissipa, dans l'imposant bâtiment de la Cité aux Yeux Fantômes, un homme d'âge moyen vêtu de violet buvait du thé dans la deuxième pièce à partir de l'est. Soudain, il brisa sa tasse et le thé s'évapora. L'homme pâlit et cracha du sang, ses yeux remplis d'effroi.
+Au moment où le sens divin se dissipa, dans l'imposant bâtiment de la Cité aux Yeux Fantômes, un homme d'âge moyen vêtu de violet buvait du thé dans la deuxième pièce à partir de l'est. Soudain, il brisa sa tasse et le thé s'évapora. L'homme pâlit et cracha du sang, ses yeux remplis d'effroi.
 
 Son rythme cardiaque s'accéléra et il s'exclama: « Serait-ce un Purificateur du Nirvana?! » Son expression changea avant qu'il ne serre les dents et ne disparaisse de la pièce.
 
-Alors que Wang Lin flottait dans les airs, sa perception divine revint dans son corps. Il regarda froidement la dernière perception divine résiduelle. Le propriétaire de cette perception n'était autre que Maître Yi Chen.
+Alors que Wang Lin flottait dans les airs, son sens divin revint dans son corps. Il regarda froidement le dernier sens divin résiduel. Le propriétaire de ce sens divin n'était autre que Maître Yi Chen.
 
-Tout s'était passé trop vite, en un éclair. La dernière perception divine battit en retraite rapidement.
+Tout s'était passé trop vite, en un éclair. Le dernier sens divin battit en retraite rapidement.
 
-D'un geste indifférent, Wang Lin tendit la main. La dernière perception divine sembla être comprimée par le monde et fut attirée vers lui. Wang Lin l'attrapa et l'écrasa directement.
+D'un geste indifférent, Wang Lin tendit la main. Le dernier sens divin sembla être comprimé par le monde et fut attiré vers lui. Wang Lin l'attrapa et l'écrasa directement.
 
 Dans la première pièce à partir de l'est de cet imposant bâtiment se trouvait un vieil homme aux cheveux blancs. Debout derrière une table, un pinceau à la main, il écrivait avec vigueur sur le papier étalé devant lui.
 
@@ -28,13 +28,13 @@ Réaliser plusieurs tâches simultanément était trop facile pour des cultivate
 
 Une onde de choc parcourut la Cité aux Yeux Fantômes alors que l'effondrement de la restriction attirait l'attention de tous les cultivateurs. Tous, de niveaux de culture variés, levèrent les yeux vers le ciel.
 
-L'expression de Wang Lin était calme. Il s'était déjà montré très indulgent. Si les trois d'entre eux n'avaient pas libéré leur perception divine, cela ne serait pas arrivé.
+L'expression de Wang Lin était calme. Il s'était déjà montré très indulgent. Si les trois d'entre eux n'avaient pas libéré son sens divin, cela ne serait pas arrivé.
 
 Trois rayons de lumière blanche jaillirent de la ville et arrivèrent devant Wang Lin. Ces rayons se révélèrent être les trois frères Chen!
 
-Le vieil homme aux cheveux blancs était Maître Yi Chen. Derrière lui se trouvaient le vieillard en robe verte et l'homme d'âge moyen en robe violette. Tous trois affichaient des expressions amères. Ils ne comprenaient pas comment cet individu avait pu détruire si facilement leurs perceptions divines alors que sa propre perception divine était clairement au stade initial du Scruteur du Nirvana.
+Le vieil homme aux cheveux blancs était Maître Yi Chen. Derrière lui se trouvaient le vieillard en robe verte et l'homme d'âge moyen en robe violette. Tous trois affichaient des expressions amères. Ils ne comprenaient pas comment cet individu avait pu détruire si facilement leurs sens divins alors que son propre sens divin était clairement au stade initial du Scruteur du Nirvana.
 
-S'il s'était contenté de détruire leurs perceptions, ils n'auraient pas été si effrayés, car ils auraient pu unir leurs forces. Cependant, ce qui les terrifiait, c'était la facilité avec laquelle Wang Lin l'avait fait.
+S'il s'était contenté de détruire leurs sens divins, ils n'auraient pas été si effrayés, car ils auraient pu unir leurs forces. Cependant, ce qui les terrifiait, c'était la facilité avec laquelle Wang Lin l'avait fait.
 
 Une prise, un coup de poing, une pression. Tout était d'une simplicité déconcertante, des actions purement spontanées. Les trois pouvaient sentir qu'il n'avait même pas fourni le moindre effort, et c'était là la racine de leur terreur.
 
@@ -42,7 +42,7 @@ Aucun cultivateur du Scruteur du Nirvana ne pouvait faire cela; pas même un cul
 
 « Veuillez nous pardonner, Camarade Cultivateur Wang Lin. Cette affaire est de notre faute... » Maître Yi Chen sourit amèrement. Les trois se tenaient devant Wang Lin, très embarrassés. Ils étaient tous les trois célèbres sur la planète Tian Yun et venaient de provoquer quelqu'un qu'ils n'auraient pas dû. Bien que leur cœur fût amer, ils ne ressentaient aucune rancœur.
 
-Après tout, puisque l'autre partie était un cultivateur du Purificateur du Nirvana, qu'il s'agisse d'une simple vérification de perception divine ou d'un balayage arrogant, cela restait compréhensible.
+Après tout, puisque l'autre partie était un cultivateur du Purificateur du Nirvana, qu'il s'agisse d'une simple vérification de sens divin ou d'un balayage arrogant, cela restait compréhensible.
 
 S'ils avaient connu son niveau de culture au préalable, ils n'auraient jamais osé l'arrêter. Personne n'oserait remettre en question un Purificateur du Nirvana venu à la Cité aux Yeux Fantômes. Même sans invitation, un tel être serait traité comme un hôte d'honneur.
 
@@ -104,7 +104,7 @@ Wang Lin s'assit tranquillement, les yeux mi-clos. Il semblait contempler la fen
 
 « Se pourrait-il que ce que Bai Wei voulait dire soit caché derrière ces banalités? Si c'est le cas, il doit faire face à des difficultés qui l'empêchent de s'exprimer directement. Il n'a certainement pas peur de moi, mais... mon Maître? » Wang Lin sentit qu'il tenait peut-être un indice, sans toutefois en être certain.
 
-« Peut-être existe-t-il des restrictions qui l'empêchent de parler... et il ne peut que donner des indices... » Wang Lin réfléchissait silencieusement à la façon dont l'expression de Bai Wei avait radicalement changé lorsque lui avait interrogé sur sa méthode de culture.
+« Peut-être existe-t-il des restrictions qui l'empêchent de parler... et il ne peut que donner des indices... » Wang Lin réfléchissait silencieusement à la façon dont l'expression de Bai Wei avait radicalement changé lorsqu'il l'avait interrogé sur sa méthode de culture.
 
 C'est aussi à ce moment-là que Wang Lin remarqua l'étrange marque formée par les mouvements de l'énergie Yin à l'intérieur de Bai Wei.
 

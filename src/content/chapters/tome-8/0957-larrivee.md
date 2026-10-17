@@ -56,7 +56,7 @@ Tout cela sembla s'étirer, mais tout se produisit à l'instant même où Wang L
 Les yeux de l'Omniscient brillèrent d'une lueur étrange en fixant la marque entre les sourcils de Wang Lin. Après un long moment, il sourit et dit avec bienveillance: « Il est bon que tu sois de retour. Wang Lin, ces anciens souhaitent te poser des questions, et tu devras y répondre avec sincérité. »
 
 Un homme d'âge moyen derrière Ling Tianhou le pointa du doigt et s'écria: « Petit morveux, Wang Lin, tu as vraiment osé revenir!! »
-« Autrefois, tu as tué des membres de ma Secte de l'Épée Da Lou dans la Terre des Esprits Démoniaques. Aujourd'hui, tu vas payer en sang! »
+« Autrefois, tu as tué des membres de ma Secte de l'Épée Da Luo dans la Terre des Esprits Démoniaques. Aujourd'hui, tu vas payer en sang! »
 
 Wang Lin esquissa un sourire, mais ses yeux étaient aussi froids que la glace. Il regarda froidement l'homme et dit calmement: « Ancien Ling Tianhou, ce disciple a-t-il les qualifications pour me parler de la sorte? »
 
@@ -74,17 +74,17 @@ Bai Wei eut un souffle coupé et fixa Wang Lin, l'esprit vide. Il ne pouvait cro
 
 Quant à Zhao Xingsha, son corps trembla; il n'en croyait pas ses oreilles. Il resta pétrifié sur place. Ils n'étaient pas les seuls: presque tous les cultivateurs éprouvaient la même stupeur. Après tout, c'était tout simplement incroyable.
 
-« Ce Wang Lin a réellement atteint le stade du Scruteur du Nirvana. Bien qu'il y ait encore un fossé entre lui et nous, il est désormais quelqu'un qui a accompli tant de choses qu'on ne peut plus le traiter comme un simple cadet. » Le vieil homme sur la gourde sourit et dit: « Wang Lin, je veux te demander: pourquoi as-tu fui à travers le vortex avant nous à l'époque? As-tu fait quelque chose que tu ne voulais pas que nous sachions? »
+« Ce Wang Lin a réellement atteint le stade du Scruteur du Nirvana. Bien qu'il y ait encore un fossé entre lui et nous, il peut désormais être considéré comme quelqu'un de qualifié, qu'on ne peut plus traiter comme un simple cadet. » Le vieil homme sur la gourde sourit et dit: « Wang Lin, je veux te demander: pourquoi as-tu fui à travers le vortex sous nos yeux à l'époque? As-tu fait quelque chose que tu ne voulais pas que nous sachions? »
 
 L'expression de Wang Lin resta neutre lorsqu'il répondit calmement: « Ce junior a effectivement causé une calamité dans la Terre des Esprits Démoniaques, j'ai donc dû partir. »
 
 Les yeux du vieillard maigre brillèrent et il demanda froidement: « Quelle calamité? »
 
-Wang Lin répliqua avec calme: « Pour me défendre, ce junior a dû piéger la fille de l'Ancêtre Sanguin! Lorsque les anciens sont arrivés avec l'Ancêtre Sanguin, ce junior avait naturellement le choix de s'échapper! »
+Wang Lin répliqua avec calme: « Pour me défendre, ce junior a dû emprisonner la fille de l'Ancêtre Sanguin! Ce jour-là, voyant les anciens et l'Ancêtre Sanguin arriver à sa poursuite, ce junior devait naturellement fuir! »
 
 Après ces paroles, le vieil homme au corps de montagne de chair se redressa et demanda: « Le jeton de la grotte céleste est-il entre tes mains? »
 
-« Je me demande bien qui a ébruité cela! » répondit Wang Lin en regardant le colosse. Cet homme n'était qu'au stade initial du Scruteur du Nirvana, et de plus, Wang Lin ne se souvenait pas de lui parmi ceux qui l'avaient poursuivi.
+« Je me demande bien qui a ébruité cela! » répondit Wang Lin en regardant le colosse. Cet homme n'était qu'au stade initial du Purificateur du Nirvana, et de plus, Wang Lin ne se souvenait pas de lui parmi ceux qui l'avaient poursuivi.
 
 L'esprit du vieil homme vacilla sous le regard de Wang Lin. Son expression changea, trahissant un éclair d'incrédulité.
 
@@ -108,4 +108,4 @@ Tout fut ainsi doucement neutralisé.
 
 « Ling Tianhou, attaquer un disciple de ma Secte du Destin Céleste au sein même de ma secte… penses-tu vraiment que je ne suis pas là? » La voix de l'Omniscient était douce alors qu'il fixait Ling Tianhou.
 
-Les quatre épées d'origine derrière Ling Tianhou s'envolèrent alors qu'il criait vers l'Omniscient: « Omniscient, se pourrait-il que tu veuilles prendre le jeton pour toi-même?! »
+Les quatre épées d'âme originelle derrière Ling Tianhou s'envolèrent alors qu'il criait vers l'Omniscient: « Omniscient, se pourrait-il que tu veuilles prendre le jeton pour toi-même?! »

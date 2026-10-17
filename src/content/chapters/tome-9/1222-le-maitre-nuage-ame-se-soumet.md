@@ -56,7 +56,7 @@ Le Maître Nuage-Âme poussa secrètement un soupir de soulagement, puis, devena
 
 Avec son niveau de culture, il pouvait naturellement comprendre que la marque n'avait pas pour but de tuer, mais de contrôler. Bien que l'autre partie ne l'ait pas explicitement formulé, les actions de Wang Lin révélaient son intention.
 
-Soit vivre comme l'esclave de Wang Lin, soit mourir!
+Soit vivre comme l'esclave de Wang Lin, soit mourir pour devenir son âme!
 
 C'était précisément l'idée de Wang Lin. Si le Maître Nuage-Âme ne se soumettait pas, il n'hésiterait pas à l'éliminer. Wang Lin détourna son regard et demanda calmement: « Depuis combien de temps dormais-je? »
 

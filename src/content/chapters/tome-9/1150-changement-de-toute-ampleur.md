@@ -14,7 +14,7 @@ Pour les régions de rang 1 à 4, la région de rang 5 représentait une existen
 
 Le brouillard se mit à tourbillonner avec une intensité accrue, et les bêtes environnantes s'éparpillèrent, terrifiées. Plusieurs autres rayons de lumière passèrent en revue le paysage.
 
-Ce n'était pas un cas isolé. En l'espace de sept courtes minutes, pas moins d'une douzaine de traînées lumineuses percèrent la brume pour traverser rapidement la région de rang 5.
+Ce n'était pas un cas isolé. En l'espace de sept courtes minutes, plusieurs dizaines de traînées lumineuses percèrent la brume pour traverser rapidement la région de rang 5.
 
 Diverses bêtes spirituelles se trouvaient au sein de ces éclats de lumière, chacune portant un cultivateur sur son dos.
 
@@ -32,15 +32,15 @@ Un instant plus tard, une silhouette gigantesque de plus de mille pieds de haut 
 
 Des bêtes semblables à des taureaux aux yeux rouges poursuivaient le singe noir, labourant le brouillard et soulevant une tempête de poussière.
 
-Outre ces taureaux, sept autres types de troupeaux de bêtes se mêlaient dans une longue file. Il semblait qu'ils refusassent d'abandonner leur poursuite du singe noir, fût-ce au prix de leur vie.
+Outre ces taureaux, plus de sept autres types de troupeaux de bêtes se mêlaient dans une longue file. Il semblait qu'ils refusassent d'abandonner leur poursuite du singe noir, fût-ce au prix de leur vie.
 
 Dans le ciel, des bêtes aviaires chassaient avec frénésie. Quiconque contemplait cette scène en aurait le cuir chevelu hérissé. Même les puissants cultivateurs auraient été stupéfaits par une telle multitude! On distinguait manifestement certaines bêtes de rang 5 mêlées à la foule, lançant des sorts contre le singe noir.
 
 Cependant, le singe noir était extrêmement agile et possédait une peau très épaisse; il esquivait la plupart des sortilèges, et ceux qui l'atteignaient n'avaient que peu d'effet sur lui.
 
-Le singe noir galopait sur le sol, et chaque grondement était le fruit de ses pas! Il se déplaçait à une vitesse fulgurante, créant de puissantes bourrasques dans sa course. Une montagne se dressait devant lui. Tandis qu'il courait, il enfonça sans pitié le sol de ses pattes, faisant éclater la terre. Il franchit directement la montagne d'un bond et chargea vers une autre montagne.
+Le singe noir galopait sur le sol, et chaque grondement était le fruit de ses pas! Il se déplaçait à une vitesse fulgurante, créant de puissantes bourrasques dans sa course. Un ravin se dressait devant lui. Tandis qu'il courait, il enfonça sans pitié le sol de ses pattes, faisant éclater la terre. Il franchit directement le ravin d'un bond et chargea vers une autre montagne.
 
-En quelques respirations à peine, il atteignit le sommet. Plusieurs bêtes semblables à des aigles chargèrent le singe noir.
+En quelques respirations à peine, il atteignit le sommet. D'innombrables bêtes semblables à des aigles, qui tournoyaient au-dessus du sommet, chargèrent le singe noir.
 
 Pourtant, avant même de pouvoir s'approcher, elles explosèrent en une pluie de sang sous un revers de bras du singe. Il semblait qu'aucune bête féroce ne puisse l'arrêter. Il déferla sur le sommet de la montagne, où se trouvait un nid.
 
@@ -58,7 +58,7 @@ Le singe écrasa le rocher qu'il tenait dans sa main, libérant l'herbe rouge, e
 
 Wang Lin tapota doucement le corps du singe noir. La bête le sentit immédiatement et poussa un autre rugissement, plus joyeux encore, semblant gagner en vitesse.
 
-La terre tremblait. De loin, on voyait le singe noir bondir et s'élancer, soulevant de la poussière partout sur son passage. Derrière lui, l'estampée de bêtes ne le lâchait pas d'une semelle.
+La terre tremblait. De loin, on voyait le singe noir bondir et s'élancer, soulevant de la poussière partout sur son passage. Derrière lui, la ruée de bêtes ne le lâchait pas d'une semelle.
 
 Très peu de cultivateurs osaient provoquer ainsi des bêtes féroces sur un continent sauvage pour voler des herbes avec une telle arrogance. La puissance d'une seule bête n'était peut-être pas une menace, mais une fois que des milliers, des dizaines de milliers ou des centaines de milliers de créatures se rassemblaient, leur force combinée était suffisante pour terrasser n'importe qui!
 
@@ -78,7 +78,7 @@ L'expression de Wang Lin resta neutre, comme s'il ne l'avait même pas remarqué
 
 L'aigle poussa un cri de douleur tandis que le sang jaillissait de toutes parts. Le singe noir ne s'attarda pas pour combattre, mais utilisa l'élan du choc pour bondir au loin.
 
-D'autres bêtes encore plus féroces se mirent à sa poursuite.
+Les bêtes lancées à sa poursuite étaient encore plus nombreuses.
 
 ***
 
@@ -86,7 +86,7 @@ Shi Luoxing était assis en position de lotus dans une vallée sombre. Son visag
 
 Un hurlement fantomatique continuait de résonner et de siffler dans la zone. Peu de temps après, quatre silhouettes titubèrent dans la vallée et, lorsqu'elles furent à moins de trente pieds de Shi Luoxing, l'une d'elles cracha une bouchée de sang.
 
-— Maître, le troisième frère est mort. Nous... nous ne pouvons pas nous échapper... Ces cinq jeunes hommes portaient des robes blanches couvertes de taches de sang.
+— Maître, le troisième frère est mort. Nous... nous ne pouvons pas nous échapper... Ces quatre jeunes hommes portaient des robes blanches couvertes de taches de sang.
 
 Shi Luoxing resta pensif. Il n'ouvrit pas les yeux, mais la tristesse se lut sur son visage.
 
@@ -104,12 +104,12 @@ Une voix lugubre résonna dans toute la vallée, pénétrant clairement les orei
 
 — Shi Luoxing, il ne vaut pas la peine de perdre la vie pour un simple bien matériel. Bien que votre niveau de culture soit élevé, vous avez été empoisonné par le venin de ma Secte des Cinq Poisons. Si vous tentez d'utiliser toute votre puissance prochainement, vous mourrez à coup sûr. Réfléchissez-y à deux fois.
 
-Le visage de Shi Luoxing se crispa alors qu'il ouvrait lentement les yeux. Son regard brillait intensément, mais une pointe d'amertume marquait ses traits. Il était le disciple principal de la Secte du Flux Clair dans la région 6, et il se trouvait au stade avancé du Nirvana Purificateur. Après avoir trouvé quelques indices, il avait secrètement emmené ses disciples dans la région 3 pour mener des recherches.
+Le visage de Shi Luoxing se crispa alors qu'il ouvrait lentement les yeux. Son regard brillait intensément, mais une pointe d'amertume marquait ses traits. Il était le disciple principal de la Secte de la Fleur Claire dans la région 6, et il se trouvait au stade avancé du Purificateur du Nirvana. Après avoir trouvé quelques indices, il avait secrètement emmené ses disciples dans la région 3 pour mener des recherches.
 
 À l'origine, il ne pensait pas que ces indices soient fiables, mais il s'avéra qu'ils étaient vrais et que tout se déroulait sans encombre. Cependant, une fois l'objet trouvé, non seulement sa position fut révélée, mais la nature même de ce qu'il avait obtenu fut divulguée. Il fut alors assiégé et perdit d'innombrables disciples. Il avait même été frappé par un poison étrange et avait dû fuir vers cette vallée pour tenter de l'expulser.
 
-Toutefois, avant qu'il ne puisse dissiper ce venin mystérieux, il fut intercepté par cette vieille femme de la Secte des Cinq Poisons. Elle avait utilisé la formation de sa secte pour le piéger dans la vallée. Il avait déjà envoyé un message secret à son propre secteur, mais il faudrait du temps avant que les renforts n'arrivent.
+Toutefois, avant qu'il ne puisse dissiper ce venin mystérieux, il fut intercepté par cette vieille femme de la Secte des Cinq Poisons. Elle avait utilisé la formation de sa secte pour le piéger dans la vallée. Il avait déjà envoyé un message secret à sa propre secte, mais il faudrait du temps avant que les renforts n'arrivent.
 
-— Compagnon cultivateur Shi, même si votre Secte du Flux Clair envoie des renforts, cela sera inutile! D'après ce que cette vieille femme sait, au sein de la région 6, outre ma Secte des Cinq Poisons, les sectes du Pic Spirituel, des Sorts Daoïstes, de l'Évasion et de la Collection Démoniaque sont déjà sur les talons et convoitent ce que vous détenez!
+— Compagnon cultivateur Shi, même si votre Secte de la Fleur Claire envoie des renforts, cela sera inutile! D'après ce que cette vieille femme sait, au sein de la région 6, outre ma Secte des Cinq Poisons, les sectes du Pic Spirituel, des Sorts Daoïstes, de l'Évasion et de la Collection Démoniaque sont déjà sur les talons et convoitent ce que vous détenez!
 
-— Le jade de la Secte Céleste Briseur de Cieux de la région 8 et la recette légendaire d'une pilule du Nirvana Vide!
+— Le jade de la Secte Céleste Brise-Ciel de la région 8 et la recette légendaire d'une pilule du Nirvana Vide!

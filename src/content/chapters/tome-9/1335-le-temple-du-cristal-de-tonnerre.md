@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1335 - Thunder Crystal Temple
 slug: le-temple-du-cristal-de-tonnerre
 ---
-On ne pouvait pas échanger des cristaux de tonnerre à tout moment au sein du Clan du Tonnerre Dispersé. Le Temple du Cristal de Tonnerre n'était ouvert que trois jours sur chacun des treize planètes du clan. L'échange de ces cristaux n'était possible que durant cette période.
+On ne pouvait pas échanger des cristaux de tonnerre à tout moment au sein du Clan du Tonnerre Dispersé. Le Temple du Cristal de Tonnerre n'était ouvert que trois jours par an, sur chacune des treize planètes de culture du clan. L'échange de ces cristaux n'était possible que durant cette période.
 
 Pendant ces trois jours, la plupart des cultivateurs de la planète de culture se précipitaient pour échanger leurs ressources auprès de l'Ancien responsable. De même, ils pouvaient utiliser les cristaux de tonnerre pour acquérir divers trésors appartenant au Clan du Tonnerre Dispersé.
 

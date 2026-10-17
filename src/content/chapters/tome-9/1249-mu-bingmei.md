@@ -70,7 +70,7 @@ Au moment où il franchit la limite du Royaume Céleste du Vent, les yeux du vie
 
 Wang Lin sortit de la fissure et pénétra dans la région de rang 8. Il contempla le brouillard familier avec un certain inconfort. Après tout, dans le Royaume Céleste du Vent, il n'y avait pas de brouillard, ce qui lui permettait de voir à perte de vue. Dans la Mer des Nuages, le brouillard stellaire rendait la vue difficile.
 
-« Secte Éternelle... » Wang Lin s'élança en avant.
+« Secte Éternelle... » Wang Lin s'élança dans la Mer des Nuages et, suivant la direction que lui indiquaient les nombreux jades dont il avait mémorisé le contenu, fonça droit vers la Secte Éternelle!
 
 « J’ai obtenu une grande quantité de bêtes moustiques lors de ce voyage dans le Royaume Céleste du Vent, bien que cela ne suffise pas encore. Cependant, si mes blessures guérissent et que je peux compter sur la coopération des bêtes moustiques, je ne serai plus impuissant face à Tuo Sen! J’ai juste besoin de plus de temps pour permettre au roi des moustiques d'évoluer, puis je pourrai obtenir encore plus de bêtes! »
 
@@ -78,7 +78,7 @@ Dans la Secte Éternelle de rang 8, la compétition régionale de rang 5 se dér
 
 Des grondements résonnèrent sur la plateforme, attirant l'attention des 100 000 cultivateurs environnants. Feng Hai et les autres membres de la Secte Éternelle étaient assis dans la partie la plus intérieure des gradins. À ses côtés se trouvaient le vieil homme aux cheveux roux et quelques puissants cultivateurs de la Secte Éternelle.
 
-Au sommet des gradins, un vieil homme vêtu de blanc pointait du doigt un disciple du Dao Pourpre qui combattait un disciple d'une autre secte de rang 5, tout en riant. « L’ascension de la Secte du Dao Pourpre est entièrement due à Lu Yuncong! Camarade cultivateur Wang, la Secte Divine ne pourra pas l’emporter. »
+Au sommet des gradins, un vieil homme vêtu de blanc pointait du doigt un disciple du Dao Pourpre qui combattait un disciple d'une autre secte de rang 5, tout en riant. « L’ascension de la Secte du Dao Pourpre est entièrement due à Lu Yuncong! Camarade cultivateur Wang, cette fois, la Secte Divine ne doit pas emmener Lu Yuncong. »
 
 Le vieil homme en blanc était gracieux et rayonnait de vitalité. Ses yeux brillaient à chaque mouvement de paupières. Son niveau de culture était élevé; il révélait sans hésitation l'aura d'un cultivateur Briseur du Nirvana.
 
@@ -108,6 +108,6 @@ Elle ignorait pourquoi, mais en voyant Lu Yuncong, l'image d'une autre personne 
 
 « C'est possible », répondit Mu Bingmei, peu disposée à poursuivre la conversation.
 
-« Cela m'intéresse. Lu Yuncong a cultivé pendant environ 3 000 ans sans s'appuyer sur aucun élixir. Il a atteint le stade Ascendant en 1 000 ans, puis le stade de l'Observateur du Nirvana 1 000 ans plus tard, et enfin le stade de Purification du Nirvana après encore 1 000 ans. Sa compréhension du Dao est très profonde. Même Li Qianmei de la Secte Briseur de Ciel l'a sollicité pour discuter du Dao. Je me demande s'il existe des gens comme lui dans la région d'origine de la Camarade Cultivatrice Mu? » L'homme qui parla n'était pas le vieil homme en blanc, mais un homme d'âge mûr assis à ses côtés.
+« Cela m'intéresse. Lu Yuncong a cultivé pendant environ 3 000 ans sans s'appuyer sur aucun élixir. Il a atteint le stade Ascendant en 1 000 ans, puis le stade de l'Observateur du Nirvana 1 000 ans plus tard, et enfin le stade de Purification du Nirvana après encore 1 000 ans. Sa compréhension du Dao est très profonde. Même Li Qianmei de la Secte Brise-Ciel l'a sollicité pour discuter du Dao. Je me demande s'il existe des gens comme lui dans la région d'origine de la Camarade Cultivatrice Mu? » L'homme qui parla n'était pas le vieil homme en blanc, mais un homme d'âge mûr assis à ses côtés.
 
-Mu Bingmei réfléchit longuement, puis dit doucement, comme si elle se remémorait des souvenirs: « Je connais une personne qui a atteint la Formation du Noyau en 200 ans, la Transformation de l'Âme en 500 ans, l'Ascendant en 800 ans et le stade Yin et Yang en 1 000 ans. Avant mon départ, il avait cultivé pendant moins de 2 000 ans et avait déjà atteint le début du stade de Purification du Nirvana. Son domaine était la vie et la mort, qui avait évolué vers le karma. Il y a très peu de gens dans ce monde capables de se comparer à lui! Peut-être que ce Lu Yuncong possède un niveau de culture plus élevé, mais en termes de Dao, il n'est pas son égal! Même dans un combat à mort, il ne ferait toujours pas le poids! »
+Mu Bingmei réfléchit longuement, puis dit doucement, comme si elle se remémorait des souvenirs: « Je connais une personne qui a atteint la Formation du Noyau en 200 ans, la Transformation de l'Âme en 500 ans, l'Ascendant en 800 ans et le stade du Yin Illusoire et du Yang Corporel en 1 000 ans. Avant mon départ, il avait cultivé pendant moins de 2 000 ans et avait déjà atteint le début du stade de Purification du Nirvana. Toute sa vie, il a médité sur le Dao, vu à travers la vie et la mort, et les a transformées en karma. Il y a très peu de gens dans ce monde capables de se comparer à lui! Peut-être que ce Lu Yuncong possède un niveau de culture plus élevé, mais en termes de Dao, il n'est pas son égal! Même dans un combat à mort, il ne ferait toujours pas le poids! »

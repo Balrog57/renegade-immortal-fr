@@ -74,9 +74,9 @@ Cette immense structure trônait au sein de la Perle Défiant le Ciel et semblai
 
 À cet instant, alors que Wang Lin approchait, la gigantesque porte de pierre gronda et s'ouvrit lentement. Une immense fissure s'en détacha dans un fracas de tonnerre.
 
-« Ici... Ici... » La voix émanait de la faille, et elle était plus claire que jamais. À cette proximité, le murmure pénétra les oreilles de Wang Lin comme une onde de choc, faisant distordre son âme originelle!
+« Ici... Ici... » La voix émanait de la faille, et elle était plus claire que jamais. À cette proximité, le murmure pénétra les oreilles de Wang Lin comme une onde de choc, faisant se distordre son âme originelle!
 
-« C'est bien lui! » Les pupilles de Wang Lin se contractèrent tandis qu'il fixait la porte de pierre en silence. Il avait émis plusieurs hypothèses concernant cette voix durant ces années, et il avait naturellement pensé à cette porte surgissant de la Perle Défiant le Ciel. En la voyant enfin, bien que choqué, il fut frappé par la surprise.
+« C'est bien lui! » Les pupilles de Wang Lin se contractèrent tandis qu'il fixait la porte de pierre en silence. Il avait émis plusieurs hypothèses concernant cette voix durant ces années, et il avait naturellement pensé à cette porte surgissant de la Perle Défiant le Ciel. En la voyant enfin, bien que choqué, cela ne dépassait pas ses attentes.
 
 Grâce à la lumière rouge sang qui l'avait nourri au fil des ans, son âme originelle s'était solidifiée et ses souvenirs étaient revenus en force. Il se remémora le jade qui était apparu soudainement lors de son combat contre le Shui Daozi!
 
@@ -90,13 +90,13 @@ Puis il avait fouillé l'âme de Wang Lin à la recherche de la Perle Défiant l
 
 Wang Lin avait tout percé à jour. Voilà pourquoi le garçon aux cheveux blancs avait été si alarmé et avait manifesté une terreur infinie en voyant le jade!
 
-Le Seigneur du Royaume Scellé n'était visiblement pas mort. En retrouvant la mémoire, Wang Lin se rappelait distinctement qu'un doigt était sorti du jade. Il avait enfoncé l'ongle multicolore dans le crâne du garçon aux cheveux blancs, le forçant à s'enfuir grièvement blessé!
+Le Seigneur du Royaume Scellé n'était visiblement pas mort. En retrouvant la mémoire, Wang Lin se rappelait distinctement qu'un doigt était sorti du jade. Il avait enfoncé définitivement le clou aux sept couleurs dans le crâne du garçon aux cheveux blancs, le forçant à s'enfuir grièvement blessé!
 
 « Ici... Entrez... Ici... » Devant la porte de pierre, les murmures devinrent encore plus nets. Ils balayèrent lentement l'espace, transformant le monde à l'intérieur de la Perle Défiant le Ciel!
 
 Wang Lin resta calme face à la structure monumentale et demanda lentement: « Qui êtes-vous? »
 
-Après un long silence, une voix murmurante s'éleva. « Je... Je suis le Seigneur du Royaume Scellé, le souverain du Royaume Scellé... entrez... je n'ai aucune malice... je ne vous ferai aucun mal... »
+Après un long silence, une voix murmurante s'éleva. « Je... Je suis le Seigneur du Royaume Scellé, le maître du Royaume Scellé... entrez... je n'ai aucune malice... je ne vous ferai aucun mal... »
 
 Les yeux de Wang Lin s'illuminèrent. Il sentait vaguement qu'un secret capable de faire trembler les cieux se cachait derrière cette porte. Un secret lié à la Perle Défiant le Ciel et un chemin pour quitter ce lieu!
 
@@ -119,3 +119,5 @@ Quatre ans s'étaient écoulés. Durant ces quatre années, Li Qianmei n'avait p
 Il y a quatre ans, elle n'avait besoin que de recouvrir la statue de sang, puis disposait de dix heures de repos. Quatre ans plus tard, la statue était devenue encore plus brillante et exigeait davantage de sang. Elle devait désormais la couvrir de sang quatre fois par jour, et son temps de repos n'était plus que de quatre heures...
 
 « Je vais vous réveiller... » Li Qianmei regarda la statue de pierre. Aucune larme ne coulait de ses yeux, si ce n'est une fissure tracée par un flux de pleurs constants. Au cours de ces quatre années, elle s'était demandé maintes fois: tout cela... en valait-il la peine?
+
+Elle ne pouvait se répondre comme elle avait répondu autrefois aux paroles de son maître. Elle-même ignorait si tout cela en valait la peine ou non. Elle savait seulement que, confusément, comme si une voix venue d'une vie antérieure s'éveillait peu à peu à son oreille, au cours de ses cent ans de carnage sur les champs de bataille, elle murmurait doucement et lui faisait entrevoir, vaguement, qu'elle était devenue un poisson sous la surface de l'eau, regardant l'oiseau dans le ciel au-dessus qui s'éloignait peu à peu...

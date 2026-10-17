@@ -54,7 +54,7 @@ L'endroit était déjà très éloigné de la terre sainte du Clan du Tonnerre D
 
 Après avoir parlé, il leva la main droite et fit un geste désinvolte. Instantanément, l'espace trembla et un vortex géant apparut de manière inattendue. Un rugissement fracassant s'échappa de l'intérieur du tourbillon.
 
-Des dragons de tonnerre en sortirent frénétiquement. Un, deux, trois... en un clin d'œil, neuf cent quatre-vingt-dix-neuf dragons de tonnerre apparurent. À leur apparition, une foudre infinie les enveloppa et tous poussèrent des rugissements en chargeant Wang Lin!
+Des dragons de tonnerre en sortirent frénétiquement. Un, deux, trois... en un clin d'œil, neuf cent quatre-vingt-dix-neuf dragons de tonnerre apparurent, chacun long de cent mille pieds. À leur apparition, une foudre infinie les enveloppa et tous poussèrent des rugissements en chargeant Wang Lin!
 
 Les pupilles de Wang Lin se contractèrent. C'était la première fois qu'il affrontait quelqu'un au cinquième niveau du Fléau Céleste. Bien que ce ne fût pas encore le troisième pas, c'était la puissance la plus élevée sous ce stade! L'adversaire était capable de créer neuf cent quatre-vingt-dix-neuf dragons de tonnerre d'un simple revers de main. Ce sortilège faisait trembler les cieux et dépassait déjà tout ce que l'on pouvait qualifier de simple technique!
 
@@ -66,21 +66,21 @@ Il projeta ses mains en avant, et le halo autour de son âme originelle se propa
 
 Wang Lin leva la main droite et pointa le vide à plusieurs reprises. La confusion qui habitait chaque dragon qu'il désignait s'effondra, puis ils se retournèrent pour attaquer l'Ancien!
 
-Ce changement soudain plongea le sortilège de l'Ancien dans le chaos! Les yeux du Grand Ancien s'illuminèrent et il ricana.
+Ce changement soudain plongea le sortilège de l'Ancien dans le chaos! Les yeux de l'Ancien principal s'illuminèrent et il ricana.
 
 « Intéressant, vraiment intéressant! » Tout en parlant, sa main droite forma un sceau et pointa vers le ciel. Il déclara lentement: « En tant qu'Ancien principal du Clan du Tonnerre Dispersé, esclave du tonnerre sacré, je commande au tonnerre du monde par ma volonté infinie pour désintégrer la création! »
 
-À ces mots, les près de mille dragons de tonnerre entourant Wang Lin déchaînèrent une foudre incessante et rugirent comme des déments en chargeant vers lui. Même les dragons contrôlés par Wang Lin commencèrent à lutter. Il ne fallut qu'un instant pour qu'ils se libèrent de son emprise et retombent sous le contrôle du Grand Ancien!
+À ces mots, les près de mille dragons de tonnerre entourant Wang Lin déchaînèrent une foudre incessante et rugirent comme des déments en chargeant vers lui. Même les dragons contrôlés par Wang Lin commencèrent à lutter. Il ne fallut qu'un instant pour qu'ils se libèrent de son emprise et retombent sous le contrôle de l'Ancien principal!
 
-*Rumble, rumble, rumble, rumble!*
+*Boum, boum, boum, boum!*
 
 Ces dragons bombardèrent Wang Lin, menaçant de faire s'effondrer son âme originelle. Il continua de reculer, son âme devenant de plus en plus transparente!
 
-Chaque dragon de tonnerre contenait la volonté du Grand Ancien. Non seulement cela endommageait son âme originelle, mais cette volonté tentait de l'envahir pour le soumettre!
+Chaque dragon de tonnerre contenait la volonté de l'Ancien principal. Non seulement cela endommageait son âme originelle, mais cette volonté tentait de l'envahir pour le soumettre!
 
 C'était la première fois que Wang Lin était confronté à une telle force, et son esprit vacilla. Sous le bombardement, il recula encore plus vite!
 
-Tout se déroula en un éclair, à une vitesse dépassant l'imagination. Cependant, lorsqu'il eut reculé de dix mille pieds, son expression changea. Sans hésiter, il cracha une bouffée d'énergie essentielle et fit un pas en avant, tandis que son âme originelle se contractait rapidement.
+Tout se déroula en un éclair, à une vitesse dépassant l'imagination. Cependant, lorsqu'il eut reculé de plusieurs dizaines de milliers de pieds, son expression changea. Sans hésiter, il cracha une bouffée d'énergie essentielle et fit un pas en avant, tandis que son âme originelle se contractait rapidement.
 
 Au moment même où il changeait brusquement de direction, des ondulations apparurent là où il se trouvait. Une main antique surgit et frappa impitoyablement vers lui!
 
@@ -96,7 +96,7 @@ L'Ancien principal ricana et agita la main droite. Les centaines de dragons rest
 
 Un ancien dragon de tonnerre en tête, suivi par des centaines d'autres, tandis qu'un homme d'âge moyen marchait lentement derrière eux, les mains dans le dos.
 
-« Tu veux fuir vers l'infini lac de tonnerre pour l'utiliser contre ce vieil homme... Mais tout le tonnerre ici contient ma volonté, comment pourrais-tu en emprunter la moindre parcelle! » La voix du Grand Ancien résonnait avec une clarté absolue parmi les grondements incessants.
+« Tu veux fuir vers l'infini lac de tonnerre pour l'utiliser contre ce vieil homme... Mais tout le tonnerre ici contient ma volonté, comment pourrais-tu en emprunter la moindre parcelle! » La voix de l'Ancien principal résonnait avec une clarté absolue parmi les grondements incessants.
 
 Wang Lin resta silencieux et se déplaça comme un possédé, rejoignant instantanément le lac de tonnerre rugissant!
 

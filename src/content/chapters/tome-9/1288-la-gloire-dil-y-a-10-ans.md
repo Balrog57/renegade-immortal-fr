@@ -16,9 +16,9 @@ Un réseau de transfert se trouvait sur un continent de la région de rang 6. Pl
 
 L'homme cessa de parler et tourna les yeux vers lui.
 
-« Je me demande quelle région de rang inférieur a activé le réseau de transfert », dit-il avec morgue. Il était un disciple de la Secte de la Musique Céleste. Il était chargé de la garde du réseau, et chaque fois que quelqu'un arrivait, les voyageurs offraient des cristaux d'origine au gardien. C'était devenu une règle établie dans la Mer des Nuages.
+« Je me demande quelle région de rang inférieur a activé le réseau de transfert », dit-il avec morgue. Il était un disciple de la Secte de la Musique Céleste. Il était chargé de la garde du réseau, et chaque fois que quelqu'un arrivait, les voyageurs offraient des cristaux au gardien. C'était devenu une règle établie dans la Mer des Nuages.
 
-Cependant, à cet instant précis, le réseau de transfert brilla avec encore plus d'intensité, sa lumière atteignant son apogée. Le monde trembla, le vent hurla et les couleurs du ciel changèrent. Des grondements incessants émanèrent du réseau et des craquements résonnèrent alors qu'une fissure apparut sur la structure!
+Cependant, à cet instant précis, le réseau de transfert brilla avec encore plus d'intensité, sa lumière atteignant son apogée. Le monde trembla, le vent hurla et les couleurs du ciel changèrent. Une énergie d'origine infinie se condensa et s'engouffra frénétiquement dans le réseau; des craquements résonnèrent alors qu'une fissure apparut sur la structure!
 
 Cet événement soudain fit changer l'expression des cultivateurs qui entouraient le dispositif, et tous se levèrent d'un bond.
 
@@ -30,7 +30,7 @@ Pourtant, juste au moment où l'épée s'approchait, un grondement tonitruant ja
 
 Cela provoqua un changement radical dans son expression!
 
-« Lu Zihao!! » Cet homme appartenait à la Secte Éternelle et avait personnellement vu les combats prodigieux de Wang Lin. Il avait également été témoin de la mort du Maître de secte, de l'Ancien en chef et du disciple aîné!
+« Lu Zihao!! » Cet homme était l'un de ceux qui s'étaient rendus à la Secte Éternelle à l'époque et avait personnellement vu les combats prodigieux de Wang Lin. Il avait également été témoin de la mort du Maître de secte, de l'Ancien en chef et du disciple aîné!
 
 Wang Lin n'accorda aucune attention à ces jeunes gens. Après s'être élancé, il fonça droit devant lui, créant un fracas tonitruant dans son sillage.
 
@@ -94,7 +94,7 @@ En tant que secte de rang 6, la Secte de la Musique Céleste avait le droit d'ou
 
 Bien entendu, ce transfert était réglementé. Un seul passage ne pouvait excéder trois personnes, et elles seraient strictement interrogées. En l'absence de motif impérieux, elles seraient sévèrement punies!
 
-Il y a dix ans, la renommée de Wang Lin avait laissé une trace indélébile chez ceux qui avaient assisté à ses actes à la Secte Éternelle. De plus, dix ans est une période très courte pour des cultivateurs. Sa réapparition provoqua un séisme au sein de la Secte de la Musique Céleste. Après tout, cette secte connaissait Wang Lin d'autant mieux que son propre Maître de secte, son Ancien et son disciple principal avaient tous été éliminés par lui.
+Il y a dix ans, la renommée de Wang Lin avait, à mesure que les témoins de l'époque se dispersaient, soulevé une tempête dans toute la Mer des Nuages. De plus, dix ans est une période très courte pour des cultivateurs. Sa réapparition provoqua un séisme au sein de la Secte de la Musique Céleste. Après tout, cette secte connaissait Wang Lin d'autant mieux que son propre Maître de secte, son Ancien et son disciple principal avaient tous été éliminés par lui.
 
 À cet instant, toute la Secte de la Musique Céleste s'activait pour ouvrir le passage au plus vite. Le nouveau Maître de secte pleurait amèrement intérieurement; il ne voulait qu'une chose: renvoyer ce démon le plus rapidement possible. Il craignait de provoquer Wang Lin. Autrefois, Wang Lin avait tué le précédent Maître de secte, et aujourd'hui, il était fort probable qu'il recommence.
 

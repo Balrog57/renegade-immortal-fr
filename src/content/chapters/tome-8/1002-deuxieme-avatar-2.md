@@ -6,7 +6,7 @@ bookTitle: "Alliance's Secret"
 en: Chapter 1002 - Second Avatar (2)
 slug: deuxieme-avatar-2
 ---
-« Si j'avais eu cent ans de plus, j'aurais pu achever le Sortilège de la Division Démoniaque… Malheureusement, ce sens démoniaque est trop faible et le corps principal a été dévoré. Ce sens démoniaque est comme un arbre sans racines et pourrait se dissiper à tout moment… La Tour du Démon s'est effondrée, je ne peux plus rester! Je n'ose pas pénétrer dans un autre pays démon pour absorber l'énergie démoniaque… »
+« Si j'avais eu cent ans de plus, j'aurais pu achever le Sortilège de la Division Démoniaque… Malheureusement, ce sens démoniaque est trop faible et le corps principal a été dévoré. Ce sens démoniaque est comme un arbre sans racines et pourrait se dissiper à tout moment… Le Pays du Démon des Nuages s'est effondré et la Tour du Démon n'existe plus, je ne peux pas rester! Je n'ose pas pénétrer dans un autre pays démon pour absorber l'énergie démoniaque… »
 
 Ce sens démoniaque volait prudemment vers l'avant; cependant, il était bien trop faible et pouvait être anéanti à tout instant.
 
@@ -36,7 +36,7 @@ En combinant ses propres spéculations, Wang Lin acquit une compréhension déta
 
 Après avoir réfléchi un instant, les yeux de Wang Lin s'illuminèrent; il fixa le démon ancien et murmura: « Pour qu'un démon ancien soit livré sur un plateau à ma porte, ce serait dommage de ne pas l'accepter… Puisque même lui pense être moi, alors… qu'il devienne mon deuxième avatar! »
 
-« Mon corps original est un dieu antique, mon premier avatar est un cultivateur, et mon deuxième avatar est un démon ancien. Je me demande si je pourrai créer un troisième avatar qui soit un diable ancien! Le moment venu, lorsqu'ils fusionneront tous… je me demande si je pourrai revenir à l'Ordre Antique! » Le cœur de Wang Lin battait la chamade alors qu'il regardait le démon ancien qui s'était offert à lui, et il sourit.
+« Mon corps original est un dieu antique, mon premier avatar est un cultivateur, et mon deuxième avatar est un démon ancien. Je me demande si je pourrai créer un troisième avatar qui soit un diable ancien! Le moment venu, lorsqu'ils fusionneront tous… je me demande si je pourrai retourner à l'état ancestral et devenir un être antique! » Le cœur de Wang Lin battait la chamade alors qu'il regardait le démon ancien qui s'était offert à lui, et il sourit.
 
 Son corps vacilla et il quitta la statue. Son sens divin et sa culture retournèrent dans son propre corps. Il regarda la statue noire devant lui et son sourire s'élargit.
 
@@ -76,7 +76,7 @@ Même la capitale du Pays du Démon Céleste, autrefois si prospère, n'était p
 
 On trouvait encore des boutiques le long des rues, mais peu de passants. Les rares piétons ne jetaient que quelques regards furtifs aux échoppes avant de repartir rapidement.
 
-Une longue rivière traversait la ville intérieure et rejoignait celle de la ville extérieure, formant une boucle. En cet instant, Wang Lin était assis tranquillement au bord de l'eau, observant le courant.
+Une longue rivière traversait la ville de Hong et rejoignait la rivière extérieure de la capitale, formant une boucle. En cet instant, Wang Lin était assis tranquillement au bord de l'eau, observant le courant.
 
 Si un pouvoir pouvait remonter le temps de plusieurs centaines d'années, on trouverait qu'il était assis exactement là où il l'était autrefois.
 
@@ -84,7 +84,7 @@ Si un pouvoir pouvait remonter le temps de plusieurs centaines d'années, on tro
 
 Une trace de mélancolie envahit le cœur de Wang Lin alors qu'il contemplait la rivière déserte. C'était comme s'il pouvait entendre l'écho de la musique de la cithare d'autrefois. Cependant, cette mélodie était très ténue, comme si un simple souffle de vent pouvait la dissiper pour toujours.
 
-En y repensant, si ce n'avait pas été pour cette nuit passée à boire avec l'Empereur Démon, Wang Lin n'aurait probablement jamais vu le visage de la femme qui jouait de la cithare.
+En y repensant, si ce n'avait pas été pour cette nuit passée à boire avec l'Empereur Démon, Wang Lin n'aurait probablement jamais vu le visage de la femme aveugle qui jouait de la cithare.
 
 Même aujourd'hui, il ne gardait en mémoire que sa silhouette solitaire et cette musique empreinte de tristesse.
 

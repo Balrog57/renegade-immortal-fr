@@ -48,13 +48,13 @@ Après tout, au sein de la région de rang 5, la Secte Dao Pourpre était assez 
 
 Cependant, toutes ces menaces étaient vaines face à Wang Lin. Un simple Lu Yuncong ou une simple Secte Dao Pourpre n'étaient pas dignes, aux yeux de Wang Lin, de constituer une menace pour son existence!
 
-Qu'il s'agisse du Céleste du Tonnerre de Luotian, de l'Empereur Divin de l'Oiseau Vermillon, du disciple de la génération suivante du Céleste Empereur Bai Fang, du jeune apprenti du Seigneur Céleste Qing Shui ou du disciple de l'actuel Céleste Empereur Qing Lin, chacun de ces titres pesait bien plus lourd que tout ce que la Secte Dao Pourpre pouvait offrir.
+Qu'il s'agisse du Céleste du Tonnerre de Luotian, de l'Empereur Divin de l'Oiseau Vermillon, de l'héritier d'une génération plus tard de l'Empereur Céleste Bai Fan, du jeune frère d'apprentissage du Seigneur Céleste Qing Shui ou du disciple de l'Empereur Céleste Qing Shuang récemment éveillé, chacun de ces titres pesait bien plus lourd que tout ce que la Secte Dao Pourpre pouvait offrir.
 
-Les plus de 1 000 ans d'expérience de culture de Wang Lin n'avaient rien à voir avec le talent d'un génie comme Lu Yuncong. La menace de la Secte Dao Pourpre était une plaisanterie; elle ne représentait même pas un cheveu sur la tête de Tuo Sen!
+Les plus de 1 000 ans d'expérience de culture de Wang Lin n'avaient rien à voir avec le talent d'un génie comme Lu Yuncong. La menace de la Secte Dao Pourpre était une plaisanterie; elle ne valait même pas un poil du corps de Tuo Sen!
 
 D'un revers de la main droite, Wang Lin rangea la gigantesque bête spirituelle noire qui tremblait après avoir perdu son maître. Elle n'osa opposer aucune résistance.
 
-Le ciel s'éclaircissait déjà et un nouveau jour pointait avec le soleil. L'arc-en-ciel n'était plus une traînée floue mais devint limpide et éclatant. En traversant le firmament, il dégageait une lumière douce qui enveloppa le monde, le continent, et le regard de tous les disciples de la Secte de l'Origine.
+Le ciel s'éclaircissait déjà et un nouveau jour pointait avec le soleil. L'arc-en-ciel n'était plus une traînée floue mais devint limpide et éclatant. En traversant le firmament, il dégageait une lumière douce qui enveloppa le monde, le continent, et les yeux comme le cœur de tous les disciples de la Secte de l'Origine.
 
 Les cheveux blancs de Wang Lin flottèrent au vent, et d'un seul pas, il disparut.
 
@@ -92,7 +92,7 @@ Les deux femmes étaient d'un charme remarquable. Lorsqu'elles se tenaient ensem
 
 « Maître, il... il vit juste ici. » Le cœur de Xu Yun battait la chamade alors qu'elle s'adressait à son maître.
 
-Au sein du brouillard stellaire du domaine de rang 5, se trouvait un continent pourpre trois fois plus vaste que le continent de Mo Luo. De loin, il ressemblait à une bête féroce enroulée qui fixait froidement le ciel.
+Au sein du brouillard stellaire du domaine de rang 5, se trouvait un continent pourpre plus de trois fois plus vaste que le continent de Mo Luo. De loin, il ressemblait à une bête féroce enroulée qui fixait froidement le ciel.
 
 La différence frappante avec le continent de Mo Luo résidait dans la présence de quatre grandes tours noires émettant une lumière douce, protégeant chaque recoin du continent.
 
@@ -102,10 +102,10 @@ Dans un rugissement, elle fonça vers le continent avec la rapidité de l'éclai
 
 Elle fut si rapide qu'elle atteignit le continent en un clin d'œil. Elle percuta la barrière lumineuse entourant le continent pourpre, faisant vaciller violemment cette dernière.
 
-La bête tigrée poussa un nouveau rugissement et chargea à nouveau. Cependant, à cet instant précis, un rayon de lumière pourpre jaillit à une vitesse inimaginable. À l'intérieur se trouvait un homme d'âge moyen vêtu d'une robe pourpre et or. Il paraissait très digne, le regard profond, bien qu'une pointe de mélancolie assombrisse son visage.
+La bête tigrée poussa un nouveau rugissement et chargea à nouveau. Cependant, à cet instant précis, un rayon de lumière pourpre jaillit à une vitesse inimaginable. À l'intérieur se trouvait un homme d'âge moyen vêtu d'une robe pourpre et or. Il paraissait très digne, le regard profond, les sourcils fins et bas, bien qu'il eût un air quelque peu sinistre.
 
 Il était si rapide que des images rémanentes apparaissaient derrière lui. Il perça instantanément la barrière et apparut parmi les étoiles. D'un geste de la main, une lumière pourpre jaillit et enveloppa le tigre.
 
 « Affine! » Sa voix froide résonna alors que la lumière pourpre entourant la bête féroce se transformait en un fourneau gigantesque. Des rugissements plaintifs retentirent, avant de s'éteindre progressivement.
 
-« Félicitations, Maître de la Secte, pour avoir attiré une autre Bête Tigre Stellaire. Il ne faudra plus longtemps avant que le Maître de la Secte n'affine son Épée d'Os de Tigre! » Un rire retentit, puis un vieil homme portant la même robe pourpre apparut aux côtés de l'homme.
+« Félicitations, Maître de la Secte, pour avoir attiré une autre Bête Tigre Stellaire. Il ne faudra plus longtemps avant que le Maître de la Secte n'affine son Sabre d'Âme d'Os de Tigre! » Un rire retentit, puis un vieil homme portant la même robe pourpre apparut aux côtés de l'homme.

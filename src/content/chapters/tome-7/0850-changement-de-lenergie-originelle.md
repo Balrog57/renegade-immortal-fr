@@ -66,9 +66,9 @@ Cependant, son corps était déjà vieux et ne pouvait supporter la force de l'�
 
 Wang Lin dit calmement: « Il ne vous reste plus beaucoup de temps à vivre. Cultiver le dao n'est pas une chose qui s'obtient aisément. Y avez-vous mûrement réfléchi? »
 
-Le vieil homme Xie regarda Wang Lin, les yeux empreints de détermination: « À trois ans, j'apprenais les caractères. À six ans, je composais des poèmes. Mon nom fit trembler la capitale à mes quatorze ans. Pourtant, mon cœur a toujours été dans le brouillard. Je me disais comprendre l'humain, mais je ressentais toujours ce sentiment d'être opprimé par le monde. Je suis vieux et je m'étais résigné à enseigner aux générations futures. J'étais prêt à passer le reste de mes jours dans la confusion et l'oppression. »
+Le vieil homme Xie regarda Wang Lin, les yeux empreints de détermination: « À trois ans, j'apprenais les caractères. À six ans, je composais des poèmes. Mon nom fit trembler la capitale à mes quatorze ans. Pourtant, mon cœur a toujours été dans le brouillard. Je me disais comprendre l'humain, mais je ressentais toujours ce sentiment d'être opprimé par le monde. Vieux, j'ai quitté mes fonctions officielles et je m'étais résigné à instruire les élèves. J'étais prêt à passer le reste de mes jours dans la confusion et l'oppression. »
 
-« Cependant, ce vent qui a pénétré ma chambre m'a permis de trouver la source de ce brouillard. Qu'est-ce que le dao...? L'illumination au bord de la rivière m'a contraint à choisir. Même si je dois mourir, je devais venir ici pour... trouver le dao! Veuillez m'enseigner le dao! Acceptez-moi comme disciple! »
+« Cependant, ce vent qui a pénétré ma chambre m'a permis de trouver la source de ce brouillard. Qu'est-ce que le dao...? L'illumination au bord de la rivière a fait lutter en moi une force qui me poussait à venir ici, même si je devais mourir, pour... trouver le dao! Veuillez m'enseigner le dao! Acceptez-moi comme disciple! »
 
 Le regard de Wang Lin se posa sur Xie Qing. Il scruta les yeux du vieil homme comme s'il pouvait lire dans son esprit. Il entrevint vaguement une scène de réincarnation derrière lui!
 

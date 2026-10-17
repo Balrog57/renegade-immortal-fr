@@ -37,11 +37,11 @@ Les yeux de Wang Lin s'illuminèrent et sa main droite se tendit. Il tira la fem
 
 La femme en violet serra les dents, leva les yeux vers lui et dit doucement: « Si tu n'avais pas fui à l'époque, il est probable que tu aurais disparu mystérieusement au cours des derniers siècles! »
 
-« Je présume que tu as déjà remarqué qu'au sein de la Secte du Destin Céleste, aucun des milliers de disciples internes et externes, et même aucun de nous, les disciples directs, n'a atteint le stade Yin Illusoire! »
+« Je présume que tu as déjà remarqué qu'au sein de la Secte du Destin Céleste, hormis Maître, aucun des milliers de disciples internes et externes, et même aucun de nous, les disciples directs, n'a atteint le stade Yin Illusoire! »
 
 L'expression de Wang Lin resta sereine tandis qu'il contemplait silencieusement la femme.
 
-« Lorsqu'un cultivateur franchit le stade avancé de l'Ascendant pour atteindre le stade Yin Illusoire, il disparaît mystérieusement dans l'année qui suit. Cette affaire est un tabou au sein de la Secte du Destin Céleste. À l'époque, ton niveau de culture n'était pas assez élevé pour le savoir, et tu l'ignores probablement encore. »
+« Lorsqu'un cultivateur atteint la perfection de l'Ascendant pour accéder au stade Yin Illusoire, il disparaît mystérieusement dans l'année qui suit. Cette affaire est un tabou au sein de la Secte du Destin Céleste. À l'époque, ton niveau de culture n'était pas assez élevé pour le savoir, et tu l'ignores probablement encore. »
 
 Le visage de Wang Lin ne trahit aucune émotion.
 
@@ -55,7 +55,7 @@ Wang Lin réfléchit un instant, puis regarda Zhao Xinmeng: « Est-ce pour cela 
 
 Zhao Xinmeng ne fut pas choquée par la clairvoyance de Wang Lin. Elle laissa poindre une trace d'amertume: « Que puis-je faire d'autre? Une partie de mon âme est entre les mains de Maître, je ne peux tout simplement pas partir. Même si je tentais de m'enfuir, il lui suffirait d'une pensée pour me détruire totalement. »
 
-« Beaucoup de gens scellent leur culture comme moi. Parmi eux, Sun Hong, de la Division Rouge, possède le niveau le plus élevé. Elle porte onze sceaux sur son corps, ce qui la force à rester au stade avancé de l'Ascendant. Elle a même altéré sa propre compréhension pour qu'elle ne corresponde pas à son véritable niveau de culture. Si elle levait les sceaux, elle pourrait rapidement atteindre le début du stade Scruteur du Nirvana. »
+« Beaucoup de gens scellent leur culture comme moi. Parmi eux, Sun Hong, de la Division Rouge, possède le niveau le plus élevé. Elle porte onze sceaux sur son corps, ce qui la force à rester au stade intermédiaire de l'Ascendant. Elle a même altéré sa propre compréhension pour qu'elle ne corresponde pas à son véritable niveau de culture. Si elle levait les sceaux, elle pourrait rapidement atteindre le début du stade Scruteur du Nirvana. »
 
 « Il y a aussi Lu Hai, de la Division Rouge. S'il levait son sceau, son niveau de culture deviendrait immédiatement celui du sommet du Corporel Yang. »
 
@@ -109,7 +109,7 @@ Bai Wei haussa les sourcils et le fixa de son regard aquatique.
 
 Malgré sa culture au stade initial du Scruteur du Nirvana et son corps de Dieu Antique, Wang Lin fut presque incapable de soutenir ce regard. Il sourit amèrement: « Bai... Junior Sœur Bai, que me voulez-vous? »
 
-L'expression de Bai Wei se détendit et elle murmura: « Wang Lin, tu n'aurais pas dû revenir! C'est difficile à dire ici, mais es-tu libre? Sur la planète Tian Yun, il existe un marché appelé l'Œil Fantôme. Si tu es disponible, j'ai quelque chose à t'informer en chemin. »
+L'expression de Bai Wei se détendit et elle murmura: « Wang Lin, tu n'aurais pas dû revenir! C'est difficile à dire ici, mais es-tu libre? Sur la planète Tian Yun, il existe un marché appelé l'Œil Fantôme, qui doit ouvrir prochainement. Si tu es disponible, j'ai quelque chose à t'informer en chemin. »
 
 Wang Lin réfléchit. Cela faisait longtemps qu'il n'était pas revenu; ce serait donc une excellente occasion d'apprendre de la bouche de Bai Wei ce qui s'était passé durant ces siècles. De plus, sa relation avec elle était bonne, il n'y avait aucune raison de refuser.
 

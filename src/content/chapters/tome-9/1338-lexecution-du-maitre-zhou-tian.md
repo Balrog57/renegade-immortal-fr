@@ -8,27 +8,27 @@ slug: lexecution-du-maitre-zhou-tian
 ---
 Wang Lin avait cultivé pendant deux mille ans, et chaque pas de son parcours avait été d'une extrême dangerosité. Grâce à sa sagesse et à sa volonté indomptable, il avait triomphé de multiples situations de vie ou de mort. Cela lui avait insufflé le courage nécessaire pour défier les cieux.
 
-Il osait même affronter un cultivateur du troisième niveau tel que le Shui Daozi. Si ce n'était le fait d'être poursuivi par Tuo Sen, puis d'avoir rencontré le Maître du Dao Rêve Bleu — une rencontre qui lui avait fait réaliser l'insondable immensité de l'ancien système stellaire — Wang Lin n'aurait sans doute pas choisi une méthode aussi subtile pour traiter avec le Clan Tonnerre Dispersé.
+Il osait même affronter un cultivateur de la troisième étape tel que le Shui Daozi. Si ce n'était le fait d'être poursuivi par Tuo Sen, puis d'avoir rencontré le Maître du Dao Rêve Bleu — une rencontre qui lui avait fait réaliser l'insondable immensité du Système Stellaire Antique — Wang Lin n'aurait sans doute pas choisi, en entrant dans le Clan Tonnerre Dispersé, d'attendre le bon moment pour agir.
 
 Cependant, tout cela avait ses limites. Si quelqu'un franchissait cette ligne rouge, la nature impétueuse de Wang Lin se déchaînerait. Même s'il comptait agir avec plus de prudence, il n'en tuerait pas moins!
 
-L'intention martiale de Zhang Xingye avait pris racine dans l'esprit de Wang Lin!
+L'intention martiale de Zhan Xingye avait pris racine dans l'esprit de Wang Lin!
 
 À cet instant, ce Maître Zhou Tian, qui n'était qu'un simple cultivateur du niveau Scruteur du Nirvana, osait montrer les crocs. Le regard de Wang Lin se glaça tandis qu'il fixait le Maître Zhou Tian, un sourire narquois étirant le coin de sa bouche.
 
 En voyant l'expression de Wang Lin, le cœur du Maître Zhou Tian rata un battement et il ressentit un vague sentiment de danger. Pourtant, en observant Wang Lin, il ne percevait qu'un simple cultivateur Ascendant. Qu'un petit cultivateur puisse afficher une telle expression fit froncer les sourcils du Maître Zhou Tian, et une intention meurtrière germa dans son cœur.
 
-Il n'aurait jamais imaginé que quelqu'un puisse pénétrer en ces lieux, usurper l'identité d'un membre du Clan Tonnerre Dispersé et s'introduire dans le Temple des Cristaux de Tonnerre! Il ignorait que l'individu face à lui était une bête primitive d'une férocité extrême!
+Il n'aurait jamais imaginé que quelqu'un puisse pénétrer en ces lieux, usurper l'identité d'un membre du Clan Tonnerre Dispersé et s'introduire dans le Temple du Cristal de Tonnerre! Il ignorait que l'individu face à lui était une bête primitive d'une férocité extrême!
 
 À ce moment précis, les six cultivateurs du Clan Tonnerre Dispersé chargés de la garde ouvrirent soudainement les yeux. L'un d'eux se leva et interpella Wang Lin: « Ton nom est Yu Fei? »
 
-Les yeux de Wang Lin s'illuminèrent. Grâce à sa sagesse, il comprit immédiatement que si cet homme le reconnaissait, c'était lié au junior du type Yang Corporel qui lui avait remis le jade.
+Les yeux de Wang Lin s'illuminèrent. Grâce à sa sagesse, il comprit immédiatement que si cet homme le reconnaissait, c'était lié au junior du Yang Corporel qui lui avait remis le jade.
 
 Sans un mot, il agita la main droite et le jade apparut, volant vers l'interlocuteur.
 
 Le cultivateur plissa les yeux en saisissant le jade. Après l'avoir inspecté, il examina Wang Lin avant de joindre les mains en signe de respect devant le Maître Zhou Tian: « Senior Zhou Tian, je vous en prie, faites preuve d'indulgence. Cette personne a été chargée par un vieil ami de se rendre dans les 7 Millions de Mondes pour passer l'épreuve. La mission ne concerne pas qu'une seule personne. Ne pourriez-vous pas aussi le laisser passer? »
 
-Le Maître Zhou Tian affichait une expression indifférente face au cultivateur qui venait de parler. Ces gardiens de la porte ouest n'étaient pour lui que des fourmis. Mais en fin de compte, ils occupaient des positions respectables au sein de la famille et bénéficiaient du soutien d'un Ancien. Malgré son arrogance, il devait peser sa décision.
+Le Maître Zhou Tian affichait une expression indifférente face au cultivateur qui venait de parler. Ces gardiens de la porte ouest n'étaient pour lui que des fourmis. Mais en fin de compte, ils occupaient des positions respectables au sein du clan et bénéficiaient du soutien d'un Ancien. Malgré son arrogance, il devait peser sa décision.
 
 « Tuer quelqu'un ici compliquerait la tâche de l'Ancien. Laissons ce gamin entrer dans les 7 Millions de Mondes, là où personne ne pourra détecter sa mort. Après tout, avec les restrictions qui entourent les 7 Millions de Mondes, même le Sens Divin de l'Ancêtre ne peut y pénétrer. C'est précisément pour cela que cet endroit sert au clan pour régler ses griefs personnels. C'est aussi là que chacun traite ses affaires en secret! » Le Maître Zhou Tian prit sa décision et cessa de prêter attention à Wang Lin. Il hocha légèrement la tête avant de disparaître dans le jade vers les 7 Millions de Mondes.
 
@@ -40,7 +40,7 @@ Les cultivateurs du Clan Tonnerre Dispersé en charge des lieux froncèrent les 
 
 « Laisse tomber. Je comptais justement le persuader de ne pas entrer dans les 7 Millions de Mondes. Il y avait une intention meurtrière manifeste dans les yeux du Maître Zhou Tian. Cet enfant ne pouvait pas la voir, mais nous, nous l'avons perçue clairement. Une fois qu'il y sera entré, je crains qu'il ne soit confronté à une crise de vie ou de mort! »
 
-« C'est dommage pour la requête du Compagnon Cultivateur Hao Ran. D'après ce qu'il disait, il avait cet homme à l'œil. »
+« C'est dommage pour la requête du Compagnon Cultivateur Hao Ran. D'après ses paroles, il semblait beaucoup apprécier cet homme. »
 
 « Cette affaire ne nous concerne pas. Que sa vie ou sa mort soit décidée par le destin! »
 
@@ -52,7 +52,7 @@ Sous l'observation attentive de Wang Lin, il sentit distinctement un mur épais 
 
 « Cet endroit est extrêmement étrange. À en juger par l'épaisseur du mur, il est impossible que le Sens Divin provenant de l'extérieur puisse pénétrer ici. Personne ne pourrait détecter un meurtre dans ces conditions! » Les yeux de Wang Lin devinrent froids. Il s'élança en avant avec une vitesse fulgurante.
 
-Les turbulences spatiales se déchaînèrent sous la poussée de sa course, créant de larges fissures dans l'espace. Cependant, cela ne fit rien entraver Wang Lin; les déchirures spatiales se brisaient et se dissipaient sous la force de sa progression!
+Les turbulences spatiales se déchaînèrent sous la poussée de sa course, créant de larges fissures dans l'espace. Cependant, cela n'entrava en rien Wang Lin; les déchirures spatiales se brisaient et se dissipaient sous la force de sa progression!
 
 Comment Wang Lin aurait-il pu ignorer l'intention meurtrière dans le regard du Maître Zhou Tian? Son tempérament avait toujours été ainsi: si les autres ne l'offensent pas, il ne les offense pas; mais si l'autre partie décide de le tuer, alors il la tuera!
 
@@ -76,11 +76,11 @@ Cette voix était comme un souffle glacial venu des profondeurs de l'enfer. Dès
 
 Ses pupilles se rétractèrent brusquement dans un élan d'incrédulité. C'était la première fois qu'il voyait quelqu'un marcher si calmement à travers cet espace chaotique menant aux millions de mondes.
 
-La turbulence chaotique s'effondrait devant cet homme, laissant derrière lui des fragments brisés. À première vue, on aurait dit que chaque mouvement de ce prétendant faisait s'écrouler le monde!
+La turbulence chaotique s'effondrait devant cet homme, laissant derrière lui des fragments brisés. À première vue, on aurait dit que cet homme venait d'un monde en train de s'effondrer!
 
 Conjuguée à cette voix glaciale, l'impression était pour le Maître Zhou Tian que cet être venait de déchirer le vide pour venir l'exterminer!
 
-« Tu... Tu... Tu cachais ta culture! » Le visage du Maître Zhou Tian était livide, mais une lueur meurtrière brilla dans ses yeux. Ayant cultivé durant de longues années, il avait affronté maintes crises de vie ou de mort. Malgré le choc, il se reprit rapidement et, sans hésiter, frappa le point entre ses sourcils. Lorsque ce point fut libéré, un grondement tonnerreux secoua l'espace et d'innombrables éclairs surgirent du vide!
+« Tu... Tu... Tu cachais ta culture! » Le visage du Maître Zhou Tian était livide, mais une lueur meurtrière brilla dans ses yeux. Ayant cultivé durant de longues années, il avait affronté maintes crises de vie ou de mort. Malgré le choc, il se reprit rapidement et, sans hésiter, frappa le point entre ses sourcils. La marque s'envola alors, et un grondement tonnerreux secoua l'espace et d'innombrables éclairs surgirent du vide!
 
 Le tonnerre qu'il déchaîna était monstrueux dans ce tunnel étroit; il semblait s'être métamorphosé en un dragon de tonnerre. La créature ouvrit sa gueule et chargea Wang Lin.
 
@@ -88,7 +88,7 @@ Le tonnerre qu'il déchaîna était monstrueux dans ce tunnel étroit; il sembla
 
 Il engageait le combat avec toute sa force, trahissant ainsi sa peur et ses soupçons face à la présence de Wang Lin.
 
-Wang Lin resta calme, une pointe de moquerie dans le regard. Il leva la main droite et l'agita avec légèreté! « Quelles absurdités! Tout tonnerre du monde, écoutez mon ordre: effondrez-vous! »
+Wang Lin resta calme, une pointe de moquerie dans le regard. Il leva la main droite et l'agita avec légèreté! « Tu te surestimes! Tout tonnerre du monde, écoutez mon ordre: effondrez-vous! »
 
 Des grondements violents éclatèrent soudainement. Le dragon de tonnerre poussa un cri déchirant tandis que sa tête commençait à se désagréger. L'effondrement se propagea rapidement sur tout son corps et le dragon vola en éclats après seulement quelques respirations!
 

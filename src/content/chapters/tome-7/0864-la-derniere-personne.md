@@ -10,7 +10,7 @@ Certains cultivateurs de l'étape Scruteur du Nirvana avaient participé à la c
 
 Si ces personnes s'engageaient dans une compétition peuplée de juniors, elles laisseraient derrière elles une réputation de prédateurs s'appropriant la gloire des plus jeunes. En fin de compte, cela nuirait gravement à leur prestige.
 
-Après tout, beaucoup avaient remarqué que les cent huit compétitions pour les titres célestes organisées par le Temple Céleste du Tonnerre étaient destinées à des juniors animés par une féroce intention de combat! Bien que cela ne fût pas explicitement déclaré, d'autres pouvaient le déduire grâce à divers indices.
+Après tout, beaucoup avaient remarqué que les cent huit titres célestes du Temple Céleste du Tonnerre visaient des juniors forts, animés d'une féroce intention de combat! Bien que cela ne fût pas explicitement déclaré, d'autres pouvaient le déduire grâce à divers indices.
 
 Par conséquent, il était rare que des cultivateurs au stade Scruteur du Nirvana y participent. Il en existait quelques-uns dans le Domaine Sud, mais comme ils étaient tous les ancêtres de différents clans, ils n'avaient aucun intérêt à se faire un ennemi de Wang Lin.
 

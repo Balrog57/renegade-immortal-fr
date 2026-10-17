@@ -40,7 +40,7 @@ Après avoir été fixé par le roi moustique, Li Yuanlei trembla et une sueur f
 
 Li Yuanlei prit une profonde inspiration. Il n'avait pas l'esprit à s'émerveiller devant la majestueuse porte, et se concentra sur Wang Lin. Il joignit respectueusement les mains: « Le Junior Li Yuanlei salue le Senior. Nous avons dérangé le Senior involontairement et espérons qu'il ne nous en tiendra pas rigueur. »
 
-Les dix cultivateurs derrière lui firent de même.
+La dizaine de cultivateurs derrière lui firent de même.
 
 Cependant, malgré leurs paroles, Wang Lin ne répondit pas et resta là, les yeux clos. En l'absence de réponse, Li Yuanlei et sa troupe restèrent prisonniers des bêtes-moustiques. Pris au piège d'un dilemme, ils ne pouvaient qu'attendre dans la terreur.
 
@@ -48,17 +48,17 @@ Si seule l'attente était requise, cela n'aurait pas été si grave, mais être 
 
 En réalité, ce n'était pas que Wang Lin les ignorait, mais son esprit était plongé dans un état étrange qui le rendait imperméable à ce qui l'entourait. C'était le roi moustique qui avait pris l'initiative de piéger ces cultivateurs ici.
 
-Si Li Yuanlei et les autres avaient manifesté une intention meurtrière ou utilisé leur énergie originelle, Wang Lin se serait immédiatement réveillé. Cependant, la vie de ses compagnons étant entre les mains de Wang Lin, ils n'osaient émettre la moindre intention meurtrière ni utiliser leur énergie, craignant d'irriter les bêtes-moustiques environnantes.
+Si Li Yuanlei et les autres avaient manifesté une intention meurtrière ou utilisé leur énergie originelle, Wang Lin se serait immédiatement réveillé. Cependant, leur vie étant entre les mains de Wang Lin, ils n'osaient émettre la moindre intention meurtrière ni utiliser leur énergie, craignant d'irriter les bêtes-moustiques environnantes.
 
 Ils n'avaient donc d'autre choix que de patienter.
 
-« Ce second sort s'appellera... le Temps qui S'écoule... » Dans l'esprit de Wang Lin, il était assis sur la porte de pierre et semblait s'adresser à Wang Ping, mais nul ne pouvait entendre ses paroles. Dans son esprit, seul résonnait le fracas des vagues. Après un long moment, Wang Lin leva lentement sa main droite et fit un geste gracieux.
+« Ce second sort s'appellera... le Temps qui S'écoule... » Dans l'esprit de Wang Lin, il était assis sur la porte de pierre et semblait s'adresser à Wang Ping, mais nul ne pouvait entendre ses paroles. Dans son esprit, seul résonnait le fracas des vagues. Après un long moment, Wang Lin leva lentement sa main droite et fit un léger geste vers l'avant.
 
 Les vagues s'animèrent soudainement et devinrent impétueuses. La mer se souleva violemment et commença à s'étendre.
 
 Alors que Wang Lin agitait la main dans son esprit, Li Yuanlei et ses compagnons ressentirent immédiatement un impact monstrueux se propager. Sans force pour résister, ils furent instantanément enveloppés par un monde étrange.
 
-Tous, y compris Li Yuanfei, ne sentirent que leur vision se brouiller; lorsqu'ils retrouvèrent la vue, tout avait disparu, à l'exception de la porte géante. Cette porte s'élevait vers les cieux, dont ils ne pouvaient percevoir le sommet.
+Tous, y compris Li Yuanlei, ne sentirent que leur vision se brouiller; lorsqu'ils retrouvèrent la vue, tout avait disparu, à l'exception de la porte géante. Cette porte s'élevait vers les cieux, dont ils ne pouvaient percevoir le sommet.
 
 Une aura antique émanait de la porte de pierre, se transformant en une force inimaginable qui les submergea. Face à cette aura, Li Yuanlei et ses compagnons n'étaient que de frêles barques perdues dans des vagues déchaînées.
 

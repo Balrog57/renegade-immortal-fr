@@ -8,9 +8,9 @@ slug: le-debut-de-la-bataille-decisive
 ---
 Le tatouage blanc de l'Oiseau Vermillon sur son armure écarlate et ses cheveux blancs conféraient à Wang Lin une aura singulière. Bien qu'il fusionnât avec l'esprit véritable de l'Oiseau Vermillon, imprégné d'une puissante énergie originelle de feu, il ne pouvait masquer la pâleur de son visage.
 
-Nuit Brisée était extrêmement puissant, mais il n'avait qu'une compréhension infime de la loi originelle. L'utiliser par la force lui avait infligé de graves conséquences.
+Nuit Brisée était extrêmement puissant, mais il n'avait qu'une compréhension infime de la loi d'origine. L'utiliser par la force lui avait infligé de graves conséquences.
 
-L'effet de ce sortilège était sans précédent en raison de l'apparition de la loi originelle, de l'esprit véritable de l'Oiseau Vermillon, du second éveil de Wang Lin et de son désespoir. Tous ces éléments avaient permis d'atteindre un paroxysme. C'était une prouesse qu'il ne pourrait reproduire, et même s'il y parvenait, elle ne serait pas aussi dévastatrice.
+L'effet de ce sortilège était sans précédent en raison de l'apparition de la loi d'origine, de l'esprit véritable de l'Oiseau Vermillon, du second éveil de Wang Lin et de sa contre-attaque désespérée. Tous ces éléments avaient permis d'atteindre un paroxysme. C'était une prouesse qu'il ne pourrait reproduire, et même s'il y parvenait, elle ne serait pas aussi dévastatrice.
 
 Son âme originelle était encore affaiblie, et il devait composer avec l'épée de sang de l'Omniscient aux robes grises, issue de son attaque désespérée. Bien que la partie de l'épée située à l'extérieur de son corps ait disparu, la lame demeurait en lui et avait pénétré son âme originelle.
 
@@ -22,17 +22,17 @@ Cette douleur intense ne fit pas chanceler Wang Lin. Au contraire, il serra les 
 
 L'énergie originelle de feu dans son corps l'empêchait normalement de ressentir le froid. Mais, en raison de la faiblesse de son âme originelle, il avait l'impression d'être plongé dans un monde de neige, le corps recouvert de glace.
 
-Le vieil homme qui avait crié auparavant joignit les mains en signe de respect envers Wang Lin: « Nous sommes l'avant-garde de la Secte Divine de l'Oiseau Vermillon, envoyée pour vous retrouver. Presque toute ma secte a été déployée pour assurer votre sécurité absolue! »
+Le vieil homme qui avait crié auparavant joignit les mains en signe de respect envers Wang Lin: « Nous sommes le premier groupe de la Secte Divine de l'Oiseau Vermillon venu vous montrer la voie. Ensuite, presque toute ma secte arrivera successivement pour assurer votre sécurité absolue! »
 
 « La Secte Divine de l'Oiseau Vermillon... » Wang Lin regarda le vieil homme et hocha la tête. Ce simple geste fit irradier une pointe de douleur dans sa poitrine, mais il l'endura. Peu importe les raisons de leur venue, Wang Lin n'oublierait pas leur aide.
 
 Pourtant, bien qu'entouré par les membres de la Secte Divine de l'Oiseau Vermillon, il ne ressentait aucune sécurité. Non loin de là, le regard de l'Ancien Démon Ta Jia les balaya d'une expression extrêmement étrange.
 
-L'Impératrice Fleur, Situ Nan, Wang Wei, Hu Juan et les autres se dirigèrent vers la Secte Divine de l'Oiseau Vermillon, traçant une ligne de démarcation nette entre eux et l'Omniscient ainsi que l'Ancien Démon Ta Jia.
+La Concubine Impériale des Fleurs, Situ Nan, Wang Wei, Hu Juan et les autres se dirigèrent vers la Secte Divine de l'Oiseau Vermillon, traçant une ligne de démarcation nette entre eux et l'Omniscient ainsi que l'Ancien Démon Ta Jia.
 
 « Ceux qui devaient arriver sont presque tous là... » Ta Jia se lécha les lèvres. Ses yeux étaient injectés de sang alors qu'il fixait Wang Lin, encerclé par la foule. Il devait tuer cet homme!
 
-Auparavant, l'ancien démon ne se souciait guère de Wang Lin. Même la lignée royale de ce dernier ne pouvait égaler l'héritage de l'ordre ancien qu'il projetait d'obtenir.
+Auparavant, l'ancien démon ne se souciait guère de Wang Lin. Même le corps de dieu ancien de lignée royale de ce dernier ne pouvait égaler l'héritage ancien qu'il projetait d'obtenir dans les ruines antiques où il comptait se rendre.
 
 Cependant, les bouleversements choquants que Wang Lin avait subis et ce sortilège qui l'avait lui-même stupéfié l'avaient forcé à s'y intéresser. De plus, il avait le vague sentiment que la présence de Wang Lin ici faisait partie du plan de Qing Lin. Par conséquent, tant que Ta Jia n'aurait pas éliminé cet homme, il resterait habité par un pressentiment funeste.
 
@@ -40,13 +40,13 @@ C'était un sentiment mystérieux, mais Ta Jia le ressentait avec une clarté ab
 
 « Ce Wang Lin a maintes fois contrecarré mes plans et est devenu une variable au sein de la Grotte de l'Empereur Céleste. Une fois qu'il sera mort, cette variable disparaîtra et tous les plans de Qing Lin seront vains! » La voix de l'Omniscient résonna lentement, renforçant encore la détermination de Ta Jia.
 
-Ta Jia poussa un rugissement, un sourire sanguinaire aux lèvres, et s'élança. L'entité humanoïde bougea à ses côtés. Les mains de l'Omniscient formèrent un sceau, tandis que ses cinq avatars restants chargèrent contre l'assemblée.
+Ta Jia poussa un rugissement, un sourire sanguinaire aux lèvres, et s'élança. L'entité humanoïde bougea à ses côtés. Les mains de l'Omniscient formèrent un sceau, tandis que ses six avatars restants chargèrent contre l'assemblée.
 
 Quant à lui, d'un revers de main, il fit onduler ses robes sans qu'aucun vent ne soufflât. Des traînées de noir et de blanc s'échappèrent de son corps pour s'élancer vers les cieux.
 
 Ces couleurs noire et blanche s'entrelacèrent dans le ciel, formant un chaos étrange. Puis, la main gauche de l'Omniscient traça un sceau; il s'assit, ferma les yeux et commença à murmurer. Sa voix était si ténue qu'elle était presque inaudible.
 
-Tandis qu'il murmurait, un vide ancestral sembla émerger du chaos. C'était comme si une entité indistincte psalmodiait, impossible à saisir. Pourtant, en l'entendant, chacun ressentit une terreur primale, comme s'ils faisaient face à leur ennemi naturel. La pression émanant du ciel fit trembler la terre avec fracas.
+Tandis qu'il murmurait, une voix ancestrale, chargée de siècles, sembla émerger lentement du chaos. C'était comme un murmure indistinct, impossible à saisir. Pourtant, en l'entendant, chacun ressentit une terreur primale, comme s'ils faisaient face à leur ennemi naturel. La pression émanant du ciel fit trembler la terre avec fracas.
 
 En un clin d'œil, les secousses atteignirent un point critique et des grondements tonitruants éclatèrent. D'innombrables fissures apparurent soudainement et, en se propageant, commencèrent à se rejoindre.
 
@@ -58,7 +58,7 @@ L'Ancien Démon Ta Jia se déplaça avec une rapidité fulgurante. Les six ancie
 
 Ta Jia ricana et fit tournoyer la lame qu'il tenait. L'énergie tranchante fendit l'air et repoussa la mer de feu; sous cette pression, les flammes furent littéralement scindées en deux!
 
-Les avatars de l'Omniscient convergèrent également. Wang Wei et Hu Juan serrèrent les dents et chargèrent. L'Impératrice Fleur soupira et partit pour les affronter.
+Les avatars de l'Omniscient convergèrent également. Wang Wei et Hu Juan serrèrent les dents et chargèrent. La Concubine Impériale des Fleurs soupira et partit pour les affronter.
 
 Simultanément, les quelque cent disciples de la Secte Divine de l'Oiseau Vermillon n'attendirent aucun ordre. Ils s'assirent tous en position de lotus. Leurs mains tracèrent des sceaux et, en un instant, toutes leurs âmes originelles jaillirent.
 
@@ -70,9 +70,9 @@ Pourtant, ces cent âmes fusionnèrent rapidement pour former un géant de flamm
 
 En voyant cela, les pupilles de Wang Lin se contractèrent. Une pointe de curiosité envers la Secte Divine de l'Oiseau Vermillon naquit en lui.
 
-Les six grands cultivateurs Briseurs de Nirvana et le géant de feu formé par les âmes des disciples affrontaient l'Ancien Démon Ta Jia. Wang Wei, Hu Juan et l'Impératrice Fleur combattirent les cinq avatars de l'Omniscient. Sur le flanc, Maître Fu Fengzi, Situ Nan — qui réprimait de force son poison —, Da Tou et les autres utilisaient leurs sorts pour prêter main-forte. En un instant, la bataille devint d'une intensité extrême.
+Les six grands cultivateurs Briseurs de Nirvana et le géant de feu formé par les âmes des disciples affrontaient l'Ancien Démon Ta Jia. Wang Wei, Hu Juan et la Concubine Impériale des Fleurs combattirent les six avatars de l'Omniscient. Sur le flanc, Maître Fu Fengzi, Situ Nan — qui réprimait de force son poison —, Da Tou et les autres utilisaient leurs sorts pour prêter main-forte. En un instant, la bataille devint d'une intensité extrême.
 
-L'Impératrice Fleur ne devait pas seulement lutter contre l'avatar de l'Omniscient, elle devait aussi gérer l'entité humanoïde. La terre dans un rayon de cinquante kilomètres grondait et divers sortilèges illuminaient le paysage.
+La Concubine Impériale des Fleurs ne devait pas seulement lutter contre l'avatar de l'Omniscient, elle devait aussi gérer l'entité humanoïde. La terre dans un rayon de cinquante kilomètres grondait et divers sortilèges illuminaient le paysage.
 
 Wang Lin était assis en position de lotus au sol. Gravement blessé, la douleur constante qui lui déchirait la poitrine rendait son visage de plus en plus pâle. Cependant, l'acharnement du combat l'empêchait de guérir; il ne pouvait que dévorer de grandes quantités de pilules pour tenter de contenir ses blessures par la force.
 

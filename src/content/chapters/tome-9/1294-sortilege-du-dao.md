@@ -68,7 +68,7 @@ Un grondement assourdissant retentit, mais la carapace fut incapable d'arrêter 
 
 Le corps de l'individu chancela et du sang s'écoula du coin de sa bouche. Il recula une fois de plus, puis agita violemment la main. L'énergie originelle commença à converger avec frénésie.
 
-Sa voix résonna soudainement: « Terre, Empereur, Dipper, Céleste, Explosion! Empreinte de l'Esprit Guerrier! » Cinq runes apparurent brusquement, fusionnant pour former une empreinte de paume gigantesque!
+Sa voix résonna soudainement: « Chen, Empereur, Dipper, Immortel, Explosion! Empreinte de l'Esprit Guerrier! » Cinq runes apparurent brusquement, fusionnant pour former une empreinte de paume gigantesque!
 
 Il s'agissait de l'Empreinte de l'Esprit Guerrier, la véritable Empreinte de l'Esprit Guerrier. Dès son apparition, l'énergie originelle du monde se condensa rapidement pour devenir solide. Elle fonça vers le front de Wang Lin avec une force inimaginable!
 
@@ -78,7 +78,7 @@ Il n'était plus qu'une lame!
 
 Les deux doigts de sa main droite formaient la pointe d'une épée capable de percer le ciel et la terre. Il pointa ces deux doigts vers l'empreinte. Dix millions de rayons d'énergie d'épée l'entourèrent, formant une tempête de lames qui percuta l'empreinte.
 
-*Rumble, rumble, rumble!*
+*Boum, boum, boum!*
 
 Le ciel et la terre tremblèrent lors de la collision entre les dix millions de rayons d'énergie et l'empreinte de paume. Les rayons d'épée s'effondrèrent et l'empreinte vacilla un instant. C'est à ce moment que les deux doigts de Wang Lin, enveloppés de lumière rouge, transpercèrent le centre de l'empreinte!
 

@@ -12,7 +12,7 @@ Dans la partie sud du territoire du Clan Dévorant la Lune, il existait une terr
 
 Neuf statues gigantesques trônaient dans ce lieu interdit. Il s'agissait de statues de neuf anciens dieux! Chaque statue était surmontée d'un vieil homme assis en méditation; ils tenaient des sceaux étranges et semblaient absorber de force le pouvoir des anciens dieux contenu dans les statues.
 
-Depuis l'Antiquité, après avoir trahi les anciens dieux, le Dieu Lune avait toujours cherché un moyen de s'approprier leur puissance. Ils espéraient un jour laver l'humiliation du passé et faire des anciens dieux les esclaves du Clan Dévorant la Lune!
+Depuis l'Antiquité, après avoir trahi les anciens dieux, le Clan Dévorant la Lune avait toujours cherché un moyen de s'approprier leur puissance. Ils espéraient un jour laver l'humiliation du passé et faire des anciens dieux les esclaves du Clan Dévorant la Lune!
 
 Afin d'y parvenir, l'ensemble du Clan Dévorant la Lune avait déployé tous ses efforts et mené des recherches pendant d'innombrables années avant de finalement trouver une méthode pour dévorer les anciens dieux!
 
@@ -90,7 +90,7 @@ Tandis que des grondements tonitruants résonnaient, la Restriction Temporelle s
 
 À l'instant de son effondrement, le monde fut ébranlé! Des quantités massives de feu jaillirent et se répandirent dans tout le Royaume aux Sept Couleurs. Dans la montagne située aux profondeurs du royaume, le vieil homme aux cheveux blancs ouvrit soudainement les yeux, frappé par la stupeur. Il se leva précipitamment et regarda vers l'endroit où se trouvait Wang Lin!
 
-Dans le Système Stellaire Antique, au sein du palais flottant parmi les étoiles infinies, la lumière n'était plus présente. Seules les pierres de jade flottantes émettaient une douce lueur qui semblait éclairer le temple.
+Dans le Système Stellaire Antique, au sein du palais flottant parmi les étoiles infinies, la lumière n'était plus présente. Seules les tablettes de jade flottantes émettaient une douce lueur qui semblait éclairer le temple.
 
 Le temple était plongé dans un silence absolu, d'une tranquillité terrifiante. Pourtant, à cet instant précis, l'un des chandeliers s'alluma soudainement. La flamme vacillait, faisant alterner le temple entre l'ombre et la lumière, ce qui accentuait sa mélancolie sinistre.
 
@@ -98,6 +98,6 @@ Le temple était plongé dans un silence absolu, d'une tranquillité terrifiante
 
 « N'as-tu pas peur que ce feu ardent ne brûle ton doigt? » Une seconde voix résonna dans le temple. Ces mots étaient d'une froideur glaciale.
 
-« Serait-ce... » Le doigt s'étira vers la flamme, laissant la bougie le consumer...
+« Le feriez-vous?... » Le doigt s'étira vers la flamme, laissant la bougie le consumer...
 
 Au même moment, au plus profond du Royaume aux Sept Couleurs, les pupilles du vieil homme se rétractèrent. Comme s'il avait reçu un ordre, il chargea vers la position de Wang Lin!

@@ -60,20 +60,20 @@ Wang Lin réfléchit un instant, puis d'un geste de la main, il fit revenir le b
 
 Même avec sa force mentale, Wang Lin ne put s'empêcher d'être ému.
 
-« Un sortilège qu'un Ancien Dieu à 8 étoiles considérerait comme un moyen de survie... À quel point peut-il être puissant... » Wang Lin prit une profonde inspiration et fixa le bouclier. Ses yeux s'illuminèrent et l'objet rétrécit à nouveau, s'engouffrant directement dans son œil droit.
+« Un sortilège qu'un Ancien Dieu à 8 étoiles considérerait comme un moyen de survie... À quel point peut-il être puissant... » Wang Lin prit une profonde inspiration et fixa le bouclier. Ses yeux s'illuminèrent et l'objet rétrécit à nouveau, se changeant en un rayon vert qui s'engouffra directement dans la pupille de son œil droit.
 
 L'actuel Wang Lin arborait de longs cheveux et son œil droit était devenu extrêmement singulier. Il était d'un bleu profond, d'une apparence absolument inoubliable.
 
-À ce moment précis, loin de la planète Esprit d'Eau, un rayon de lumière convergeait vers la planète Tian Yun. À l'intérieur de ce rayon se trouvait Situ Nan. Il était entouré d'une énergie d'origine dense. Ses cheveux noirs flottaient au vent, révélant une carrure robuste, tandis qu'une pointe de malicieuse arrogance marquait son visage. Cela lui donnait l'apparence d'un dieu démon!
+À ce moment précis, loin de la planète Esprit d'Eau, un rayon de lumière convergeait vers la planète Tian Yun. À l'intérieur de ce rayon se trouvait Situ Nan. Il était entouré d'une énergie d'origine dense. Ses cheveux noirs flottaient au vent, révélant une carrure robuste, tandis que son visage rude était empreint d'une aura maléfique. Cela lui donnait l'apparence d'un dieu démon!
 
 Il n'était pas seul; une femme l'accompagnait. Elle était d'une beauté saisissante, dotée d'un charme irrésistible. Elle portait une robe de soie qui, en plein vol, collait à son corps, révélant ses courbes parfaitement dessinées.
 
-« Cette maudite planète Tian Yun, pourquoi est-elle si difficile à trouver? Si je n'avais pas rencontré la petite sœur fée ici, je ne l'aurais jamais débusquée. » On ignorait si Situ Nan disait vrai, mais cela fit rire la magnifique femme.
+« Cette maudite planète Tian Yun, pourquoi est-elle si difficile à trouver? J'ai tourné en rond ici plusieurs fois; si je n'avais pas rencontré la petite sœur fée, je ne l'aurais jamais débusquée. » On ignorait si Situ Nan disait vrai, mais cela fit rire la magnifique femme.
 
-D'un regard enjôleur, elle demanda: « Pourquoi l'Senior Situ vient-il sur la planète Tian Yun? »
+D'un regard enjôleur, elle demanda: « Pourquoi le Senior Situ vient-il sur la planète Tian Yun? »
 
 « Haha, je suis venu chercher un frère. Cela fait de nombreuses années que nous ne nous sommes pas vus; je me demande où en est sa culture. » Situ Nan laissa paraître une trace de nostalgie et poussa un soupir intérieur.
 
 « Cela fait des centaines d'années que je n'ai pas vu Wang Lin. Je me demande ce qu'est devenu ce garçon. »
 
-La femme séduisante rit: « Oh? Quel est le nom du frère de l'Aîné? Cette junior pourrait peut-être le connaître. »
+La femme séduisante rit: « Oh? Quel est le nom du frère du Senior? Cette junior pourrait peut-être le connaître. »

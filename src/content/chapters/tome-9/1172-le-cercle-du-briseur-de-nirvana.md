@@ -58,7 +58,7 @@ Wang Lin tint le jade et le parcourut de son Sens Divin. Il vit instantanément 
 
 Wang Lin examina calmement chaque bête féroce contenue dans le jade. Il n'était pas un expert en créatures sauvages; tout ce qu'il savait provenait des archives de la Secte de l'Origine, ce qui s'avérait insuffisant. La plupart des bêtes présentes ne figuraient pas dans les registres de sa secte.
 
-Wang Lin acquit ainsi de nombreuses connaissances sur les bêtes féroces en inspectant le jade. Voyant que la majorité des autres avaient déjà lancé leurs jades, Wang Lin choisit une bête nommée « Vent et Nuage », plaça cent jades célestes et le renvoya à Ouyang Long.
+Wang Lin acquit ainsi de nombreuses connaissances sur les bêtes féroces en inspectant le jade. Voyant que la majorité des autres avaient déjà lancé leurs jades, Wang Lin choisit une bête nommée « Nuage Ailé », plaça cent jades célestes et le renvoya à Ouyang Long.
 
 Le vieil homme aux cheveux blancs sourit et dit: « Aujourd'hui, je souhaite voir lequel d'entre nous possède le meilleur jugement. Nous connaîtrons la réponse plus tard. À présent, j'ai trois trésors ici. Si l'un de vous est intéressé, n'hésitez pas à faire une offre. » Tandis qu'il parlait, il agita sa main droite et trois cristaux s'envolèrent pour flotter dans les airs.
 

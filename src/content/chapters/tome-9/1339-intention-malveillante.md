@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1339 - Malicious Intent
 slug: intention-malveillante
 ---
-L'entrée vers les 7 Millions de Mondes se trouvait à moins de cinq kilomètres! Bien qu'un cultivateur au stade Scruteur du Nirvana ne puisse pas s'y téléporter, c'était une distance qu'il pouvait parcourir en un clin d'œil!
+La sortie menant aux 7 Millions de Mondes se trouvait à moins de cinq kilomètres! Bien qu'un cultivateur au stade Scruteur du Nirvana ne puisse pas s'y téléporter, c'était une distance qu'il pouvait parcourir en un clin d'œil!
 
 Cependant, le Maître Zhou Tian n'aurait même pas eu ce laps de temps!
 
@@ -60,9 +60,9 @@ La statue représentait un homme enveloppé de tonnerre. De loin, il ressemblait
 
 C'était la place centrale des 7 Millions de Mondes, le point d'arrivée de tous ceux qui acceptaient une mission!
 
-Une foule immense de cultivateurs se pressait devant ces pavillons, pas moins de dix mille individus! La plupart étaient au stade de la Transformation de l'Âme, et beaucoup au stade Ascendant. Il n'y avait que quelques rares êtres au stade Yin et Yang!
+Une foule immense de cultivateurs se pressait devant ces pavillons, pas moins de plusieurs dizaines de milliers d'individus! La plupart étaient au stade de la Transformation de l'Âme, et beaucoup au stade Ascendant. On croisait même un peu partout des êtres aux stades Yin Illusoire et Corporel Yang!
 
-Nombreux étaient ceux dépassant le stade Scruteur du Nirvana. La plupart semblaient pressés!
+Rares étaient ceux dépassant le stade Scruteur du Nirvana: on en apercevait quelques-uns de temps à autre, mais ils arrivaient et repartaient en hâte!
 
 Une immense formation de transfert se trouvait devant chaque grand pavillon. Wang Lin scruta immédiatement les alentours dès sa sortie de la formation. Bien qu'il s'y soit préparé, il restait stupéfait.
 
@@ -74,11 +74,11 @@ Wang Lin sortit le jade clanique de Yu Fei et le lui lança. Le cultivateur l'ex
 
 « Prenez ceci et allez étudier les détails de votre côté. »
 
-Trois objets se trouvaient dans cette lueur: un jade, un jeton et un éclair de tonnerre.
+Trois objets se trouvaient dans cette lueur: un jade, un talisman et un éclair de tonnerre.
 
 L'expression de Wang Lin resta imperturbable tandis qu'il saisissait la lueur fantomatique pour sortir de la formation de transfert. L'endroit était très animé, personne ne lui prêta attention. Il s'écarta pour examiner le jade. Ce dernier lui indiquait les points de vigilance dans les 7 Millions de Mondes, tout en présentant les deux autres objets.
 
-Le jeton était la clé pour entrer dans les 7 Millions de Mondes; il était indispensable pour accéder au lieu. Quant à l'éclair, il attira l'attention de Wang Lin.
+Le talisman était la clé pour entrer dans les 7 Millions de Mondes; lui seul permettait d'y pénétrer. Quant à l'éclair, il attira l'attention de Wang Lin.
 
 Bien que cet éclair semblât réel, il ne pouvait pas le toucher physiquement. Il paraissait former une sorte de formation en soi. D'un balayage de son Sens Divin, Wang Lin découvrit qu'il contenait l'équivalent de la puissance d'un lac de tonnerre de cent mille pieds de large!
 
@@ -86,9 +86,9 @@ Ce qui choqua encore plus Wang Lin était l'indescriptible volonté émanant de 
 
 Wang Lin prit une profonde inspiration.
 
-« C'est une trace d'Éclair Spirituel... Le jade mentionne que chaque fois qu'un nouveau cultivateur entre, le Clan de la Foudre Dispersée lui en remet un. »
+« C'est une trace de Tonnerre Spirituel... Le jade mentionne que chaque fois qu'un nouveau cultivateur entre, le Clan du Tonnerre Dispersé lui en remet un, afin qu'il puisse collecter ici le Tonnerre Spirituel. »
 
-Ce n'était qu'une simple trace d'Éclair Spirituel, et elle était incomplète. Il faudrait mille éclats pour former l'entité complète. Cette mesure visait à empêcher les gens d'abuser de la règle du sceau.
+Ce n'était qu'une simple trace de Tonnerre Spirituel, et elle était incomplète. Il faudrait mille éclats pour former un Tonnerre Spirituel complet. Cette mesure visait à empêcher les membres du clan de s'arracher mutuellement ces éclats en abusant des règles du clan.
 
 Les membres du clan n'avaient qu'une seule chance dans leur vie d'obtenir cet éclair. Une fois perdu, ils ne pouvaient plus en obtenir auprès du clan; ils devaient alors compter sur le vol ou l'échange privé.
 
@@ -98,7 +98,7 @@ Malgré cela, certains gardaient toujours l'idée de dérober ces éclats aux no
 
 Tandis que Wang Lin observait l'éclair, un homme d'âge moyen s'approcha. Il affichait un sourire et semblait être au milieu du stade Ascendant. « Cher Compagnon Cultivateur, je suis Zhang Jingyun. Ce doit être votre première fois dans les 7 Millions de Mondes. »
 
-Wang Lin leva les yeux. D'un revers de main, l'Éclair Spirituel disparut. Il regarda le cultivateur devant lui et hocha la tête.
+Wang Lin leva les yeux. D'un revers de main, le Tonnerre Spirituel disparut. Il regarda le cultivateur devant lui et hocha la tête.
 
 « Nous appartenons au même clan. C'est ma deuxième visite dans les 7 Millions de Mondes, je m'y connais donc un peu. Que diriez-vous de former un groupe? Je pourrais vous présenter à quelques personnes. Ce serait plus pratique pour tout le monde de se déplacer ainsi. Qu'en pensez-vous, cher Compagnon? » L'homme d'âge moyen paraissait sincère et son expression était douce.
 
@@ -116,8 +116,8 @@ L'homme ajouta quelques mots, pensant avoir percé à jour Wang Lin, puis reprit
 
 Après l'accord de Wang Lin, l'homme le guida à travers la foule. Un autre cultivateur, témoin de la scène, secoua discrètement la tête.
 
-« Encore une victime... Quiconque se laisse emmener par ce Zhang Jingyun ne perdra pas seulement son Éclair Spirituel, sa vie elle-même n'est pas garantie... »
+« Encore une victime... Quiconque se laisse emmener par ce Zhang Jingyun ne perdra pas seulement son Tonnerre Spirituel, sa vie elle-même n'est pas garantie... »
 
-Zhang Jingyun connaissait manifestement très bien la place centrale, car ils atteignirent rapidement une grande formation. Des centaines de cultivateurs s'y trouvaient, répartis en groupes. L'un d'eux comptait plus de dix personnes: six nouveaux comme Wang Lin, et quatre autres aux niveaux de culture plus élevés, au stade Yin Illusoire.
+Zhang Jingyun connaissait manifestement très bien la place centrale, car ils atteignirent rapidement une grande formation. Des centaines de cultivateurs s'y trouvaient, répartis en groupes. L'un d'eux comptait plus de dix personnes: six nouveaux comme Wang Lin, et quatre autres aux niveaux de culture élevés, dont l'un avait atteint le stade Yin Illusoire.
 
 Zhang Jingyun s'avança avec un sourire: « Tout le monde, j'en ai ramené un de plus. Je parie que vous avez déjà tous entendu parler du nom "Yu Fei". »

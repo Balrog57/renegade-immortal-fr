@@ -16,7 +16,7 @@ Pourtant, ses cheveux blancs ne bougèrent pas d'un iota. Ses yeux calmes observ
 
 Wang Lin n'avait pas empêché Ta Jia de briser ses étoiles. Qing Lin avait rassemblé la puissance de Wang Wei, Hu Juan, Qing Shuang et Zhou Yi, ainsi que sa propre culture, pour offrir à Wang Lin cette chance unique.
 
-Wang Lin n'avait jamais cherché à obtenir une telle fortune. Il la chérirait éternellement, car il devait se battre pour atteindre l'illumination. Plus son éveil serait profond, plus ses gains seraient immenses!
+Wang Lin n'avait jamais imaginé une telle fortune. Il la chérissait, car il devait se battre pour atteindre l'illumination. Plus son éveil serait profond, plus ses gains seraient immenses!
 
 Une telle opportunité ne peut être espérée, elle ne peut être exigée; elle est d'une fugacité extrême. Ce que Wang Lin obtiendrait dépendait de sa compréhension du Dao et de sa chance.
 
@@ -24,9 +24,9 @@ C'est pourquoi il ne permettrait pas à cette bataille de se terminer prématur�
 
 Plus l'Ancien Démon Ta Jia serait puissant et plus il ressentirait le désespoir, plus Wang Lin en retirerait dans ce combat.
 
-À cet instant, après avoir brisé trois étoiles et alors que l'énergie démoniaque saturait son corps, celui de Ta Jia se rétracta de manière inattendue. Cependant, à mesure qu'il rétrécissait, il devenait plus dense, presque corporel.
+À cet instant, après avoir brisé trois étoiles et alors que l'énergie démoniaque saturait son corps, celui de Ta Jia se rétracta de manière inattendue, ne mesurant bientôt plus que mille pieds. Cependant, à mesure qu'il rétrécissait, il devenait plus dense, presque corporel.
 
-« Moi, Ta Jia, j'ai dévoré l'Ancien Démon Bei Lou ainsi que trois anciens démons de mon propre clan! J'utilise mon ombre démoniaque comme catalyseur pour raffiner ma colère, ma tristesse, mon envie et ma cupidité en un sortilège surpuissant de mon clan d'anciens démons! » Le corps de l'Ancien Ta Jia s'éleva, entouré d'une énergie démoniaque semblable à un vent hurlant balayant le monde.
+« Moi, Ta Jia, j'ai dévoré l'Ancien Démon Bei Luo ainsi que trois anciens démons de mon propre clan! J'utilise ces démons raffinés comme catalyseur pour condenser ma colère, ma tristesse, mon envie et ma cupidité en un sortilège surpuissant de mon clan d'anciens démons! » Le corps de l'Ancien Ta Jia s'éleva, entouré d'une énergie démoniaque semblable à un vent hurlant balayant le monde.
 
 « Dao céleste de l'Ancien Démon: le Doigt des Quatre Désirs! » Les yeux de Ta Jia brillèrent d'une colère monstrueuse. Cette rage se mua rapidement en une tristesse infinie, laquelle se transforma bientôt en une envie démente, pour finir en une cupidité capable de dévorer le monde.
 
@@ -70,7 +70,7 @@ Tout cela s'était déroulé avec une fluidité déconcertante, et Wang Lin para
 
 Voyant les 128 épées bleues fondre sur lui, Ta Jia recula précipitamment. Empruntant l'énergie démoniaque résiduelle de ses trois étoiles brisées, il poussa un rugissement et ses mains formèrent des sceaux à une vitesse fulgurante, une pointe de folie dans le regard.
 
-« J'utilise mon âme d'ancien démon pour invoquer la Marque du Dao de l'Ancien Démon! » La main de Ta Jia tremblait. À chaque spasme, une ondulation noire apparaissait autour de lui. En un instant, des dizaines de milliers d'ondes noires surgirent devant lui et chargèrent les 128 épées bleues.
+« J'utilise mon âme d'ancien démon pour invoquer la Marque du Dao de l'Ancien Démon! » La main de Ta Jia tremblait. À chaque spasme, une ondulation noire apparaissait autour de lui. En un instant, des milliers et des milliers d'ondes noires surgirent devant lui et chargèrent les 128 épées bleues.
 
 Des bruits de claquements résonnèrent et, alors que les ondes infinies se propageaient, les épées bleues commencèrent à vaciller. Finalement, lorsque les ondulations pénétrèrent les lames, celles-ci firent demi-tour et furent projetées vers Wang Lin.
 
@@ -90,7 +90,7 @@ Par ce simple geste, la loi des cieux descendit. Cette loi était invisible, mai
 
 Wang Lin s'approcha et frappa doucement le front de Ta Jia de sa main droite. Un grand fracas retentit et une quantité massive d'énergie démoniaque fut expulsée du dos de l'ancien démon. Ce gaz noir monstrueux était constamment repoussé vers l'intérieur.
 
-Un cri misérable résonna tandis que le corps de Ta Jia était projeté en arrière. Cependant, la loi qui l'entourait s'étant dissipée, il ne pouvait plus bouger, ni même utiliser son énergie démoniaque.
+Un cri misérable résonna tandis que le corps de Ta Jia était projeté en arrière. Cependant, la loi qui l'entravait ne s'était pas dissipée: il ne pouvait plus bouger, ni même utiliser son énergie démoniaque.
 
 « Étoile brisée! » Wang Lin poursuivit l'ancien démon de près, sa main droite pointant sans relâche sur tout le corps de ce dernier. Des quantités infinies d'énergie démoniaque furent expulsées du corps de l'ancien démon.
 

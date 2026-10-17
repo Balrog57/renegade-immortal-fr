@@ -6,17 +6,17 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1313 - The First Predestined Battle (3)
 slug: la-première-bataille-predeterminee-3
 ---
-« Pensez-vous vraiment que Tu Si soit mort?! » Ces mots furent comme un coup de tonnerre fendant le ciel. Ils pénétrèrent l'esprit de Tuo Sen et frappèrent son point faible!
+« Crois-tu vraiment que Tu Si soit mort?! » Ces mots furent comme un coup de tonnerre fendant le ciel. Ils pénétrèrent l'esprit de Tuo Sen et frappèrent son point faible!
 
 Tuo Sen était d'une arrogance extrême; il ne craignait même pas les cieux. Cependant, s'il y avait une personne qu'il redoutait par-dessus tout, c'était Tu Si!
 
-Il était né d'un démon niché dans le cœur de Tu Si et avait toujours nourri une peur inimaginable envers lui. Bien qu'il ait contrôlé le corps de Tu Si durant ces innombrables années, il entretenait une spéculation incroyable...
+Il était né d'une once de pensée démoniaque de Tu Si et avait toujours nourri une peur inimaginable envers lui. Bien qu'il ait contrôlé le corps de Tu Si durant ces innombrables années, il entretenait une spéculation incroyable...
 
 « Tu Si est-il mort ou non... »
 
 Il n'en était pas certain, et il n'osait même pas y songer, bien que tous les signes indiquent que Tu Si avait péri sous l'effet de la Technique Divine de Transformation d'Encre Fluide!
 
-« Si vous voulez me dévorer, essayez. Le moment où moi, Wang Lin, je mourrai, sera aussi celui où Tu Si s'éveillera. Et alors, vous serez anéantis vous aussi!! » La voix de Wang Lin résonna à travers le vide.
+« Si tu veux me dévorer, essaie. Le moment où moi, Wang Lin, je mourrai, sera aussi celui où Tu Si s'éveillera. Et alors, toi, Tuo Sen, tu seras réduit en cendres toi aussi!! » La voix de Wang Lin résonna à travers le vide.
 
 L'esprit de Tuo Sen trembla et les six étoiles cessèrent de tourner. Un rare signe d'hésitation et de choc apparut dans ses yeux.
 
@@ -46,7 +46,7 @@ S'ils pouvaient sceller un ancien dieu royal vivant pour en faire leur esclave, 
 
 Une fois qu'ils auraient réussi, le Clan de la Lune pourrait renaître de ses cendres!
 
-Pour attendre ce jour, le Clan de la Lune s'était préparé durant des années sans compter, afin qu'un jour, il puisse sceller un ancien dieu vivant!
+Pour attendre ce jour, le Clan de la Lune s'était préparé depuis d'innombrables dizaines de milliers d'années, afin qu'un jour, il puisse sceller un ancien dieu vivant!
 
 Lorsque Tuo Sen était arrivé des années auparavant, bien qu'ils aient ressenti de la peur, ils étaient aussi empreints d'excitation. Ils avaient préparé la formation laissée par leur ancêtre et attendu l'arrivée de Tuo Sen.
 
@@ -78,7 +78,7 @@ Wang Lin était lui aussi encerclé par une soie sans fin. L'épée de sang form
 
 À cet instant, l'Éventail d'Extinction Divine s'agita et la tempête le frappa également. Lorsque le vent hurlant balaya Wang Lin, celui-ci recula. En se retirant, les éclats de lumière lunaire de la tempête jaillirent comme des épées et transpercèrent son corps!
 
-S'il ne s'était agi que d'épées de lumière lunaire ordinaires, Wang Lin aurait pu les ignorer, mais cette lumière contenait la même aura que la Hache Brise-Cieux. Elle était extrêmement délétère pour les anciens dieux.
+S'il ne s'était agi que d'épées de lumière lunaire ordinaires, Wang Lin aurait pu les ignorer, mais cette lumière contenait la même aura que la Hache Brise-Ciel. Elle était extrêmement délétère pour les anciens dieux.
 
 Tuo Sen subissait le même sort. Alors qu'il rugissait, son poing percuta la tempête. Celle-ci se brisa en d'innombrables épées qui transpercèrent son corps, laissant de multiples marques sanglantes!
 
@@ -102,7 +102,7 @@ Ces milliers de cultivateurs n'étaient que la première vague. Après eux, plus
 
 Alors que cette lumière rouge continuait de se condenser, deux ailes couleur de sang apparurent et chargèrent vers Wang Lin et Tuo Sen!
 
-« Invoquer le trésor du Clan de la Lune, les Neuf Os de l'Ancien Dieu! » La voix antique était très nette cette fois. Un homme vêtu de noir apparut dans le vide, à l'extérieur de la formation. Son expression était empreinte d'une cupidité démente.
+« Invoquer le trésor du Clan de la Lune, les Neuf Os de l'Ancien Dieu! » La voix antique était très nette cette fois. Un vieil homme vêtu de noir apparut dans le vide, à l'extérieur de la formation. Son expression était empreinte d'une cupidité démente.
 
 Après que le vieil homme eut parlé, une immense fissure spatiale se forma devant lui et neuf crânes géants d'anciens dieux en sortirent!
 
@@ -112,4 +112,4 @@ Ces neuf crânes dégageaient une aura dense d'ancien dieu et étaient couverts 
 
 Les cultivateurs du Clan de la Lune sur les centaines de planètes formant la formation mordirent également leur langue et crachèrent un sang noir exhalant une odeur puissante!
 
-Ce sang semblait doué d'une forme d'intelligence; il se rassembla pour former une mer écarlate à l'odeur entêtante, avant de se précipiter dans la formation!
+Ce sang semblait doué d'une forme d'intelligence; il se rassembla pour former une mer de sang noir à la puissante puanteur, avant de se précipiter dans la formation!

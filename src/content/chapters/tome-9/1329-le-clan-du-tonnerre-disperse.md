@@ -38,7 +38,7 @@ Cette grotte, située près d'une veine spirituelle, était considérée comme e
 
 Au cours des 200 années qui suivirent cet incident, sa culture resta stagnante. S'il n'avait pas bénéficié de la physiologie du Clan du Tonnerre Dispersé, qui lui accordait une longévité accrue, il serait mort depuis longtemps. Pourtant, ces deux siècles furent pour lui un calvaire. Maltraité par son propre clan, sa vie était pire que la mort!
 
-Il était récemment tombé sous la domination d'un cultivateur de l'Âme Naissante, le même niveau que celui qui lui avait volé sa grotte des années auparavant. À l'intérieur de cette grotte se trouvait un Arbre aux Fruits de Tonnerre, laissé par les parents de Yu Fei.
+Il était récemment tombé sous la domination d'un cultivateur de l'Âme Naissante, et ce cultivateur était précisément celui qui lui avait volé sa grotte des années auparavant. À l'intérieur de cette grotte se trouvait un Arbre aux Fruits de Tonnerre, laissé par les parents de Yu Fei.
 
 Le cultivateur de l'Âme Naissante avait permis à Yu Fei de faire pousser ces fruits. Les Fruits de Tonnerre pouvaient rendre la marque du clan encore plus puissante et augmenter leur longévité.
 

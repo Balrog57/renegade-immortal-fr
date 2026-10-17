@@ -8,11 +8,11 @@ slug: arrivee
 ---
 Le mirage du palais suspendu dans le ciel au-dessus de la Terre des Esprits Démoniaques se mua progressivement en une forme solide. C'était comme s'il avait été téléporté depuis la grotte de Qing Lin.
 
-Au moment où l'Impératrice Fleur sortit du palais, l'édifice entier ainsi que les milliers de fleurs violettes qui l'entouraient se rétractèrent pour ne devenir qu'une broche de la taille d'une paume.
+Au moment où l'Impératrice Fleur sortit du palais, l'édifice entier ainsi que les milliers de fleurs violettes qui l'entouraient se rétractèrent pour ne devenir qu'une miniature de la taille d'une paume.
 
-Elle referma ses mains de jade et la broche disparut, fusionnant avec son corps.
+Elle referma ses mains de jade et la miniature disparut, fusionnant avec son corps.
 
-Elle leva sa main délicate, une main capable de faire battre le cœur de n'importe qui. L'Impératrice Fleur regarda l'Ancien Démon Ta Jia avec mélancolie et tristesse dans les yeux. Ils étaient si proches, et pourtant ils ne s'étaient pas revus depuis qu'ils s'étaient séparés il y a d'innombrables années. Maintenant qu'elle pouvait enfin le rencontrer, c'était comme contempler la lune dans l'eau ou une fleur dans un miroir. Ce n'était plus la même âme qu'autrefois...
+Elle leva sa tête délicate, capable de faire battre le cœur de n'importe qui. L'Impératrice Fleur regarda calmement l'Ancien Démon Ta Jia, avec mélancolie et tristesse dans les yeux. Ils étaient si proches, et pourtant ils ne s'étaient pas revus depuis qu'ils s'étaient séparés il y a d'innombrables années. Maintenant qu'elle pouvait enfin le rencontrer, c'était comme contempler la lune dans l'eau ou une fleur dans un miroir. Ce n'était plus la même âme qu'autrefois...
 
 C'était comme se tenir au bord d'une rivière et regarder l'autre rive. Sous vos pieds coule l'eau bleue, et face à vous s'élève la montagne verte. Pourtant, après avoir traversé le fleuve, on découvre qu'il manque quelque chose... La montagne est toujours là, la rivière aussi, mais une chose fait défaut: l'âme.
 
@@ -34,7 +34,7 @@ Ce n'était plus le son d'un être humain; c'était le râle d'une bête.
 
 Plus terrifiant encore, non seulement sa respiration était rauque, mais une salive épaisse coulait de sa bouche, s'étirant comme des fils de soie. La vue même de cela provoquait la nausée.
 
-Ses yeux étaient tuméfiés, ses globes injectés de sang semblaient léthargiques mais empreints de folie. Son apparence déjà vieillissante ne ressemblait plus à celle d'un homme; ses traits étaient déformés comme s'il avait sombré dans la démence.
+Ses yeux étaient exorbités, ses globes injectés de sang semblaient léthargiques mais empreints de folie. Son apparence déjà vieillissante ne ressemblait plus à celle d'un homme; ses traits étaient déformés comme s'il avait sombré dans la démence.
 
 Il fixait également Wang Lin. Son dernier vestige de mémoire était sa haine et son intention meurtrière envers lui. Le Maître du Vide poussa un rugissement et fonça sur Wang Lin, juste après l'entité humanoïde.
 

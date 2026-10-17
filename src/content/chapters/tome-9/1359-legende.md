@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1359 - Legend
 slug: legende
 ---
-L'âme originelle du Grand Ancien était en train de mourir. Blessée par le sixième coup, elle avait subi l'onde de choc provoquée par le tonnerre éternel et l'épée de sept pieds. L'impact avait causé l'effondrement d'une grande partie de son âme originelle; il n'avait désormais plus aucune chance de survie.
+L'âme originelle du Grand Ancien était en train de mourir. Blessée auparavant par l'énergie de l'épée, elle avait subi l'onde de choc provoquée par le tonnerre éternel et l'épée de sept pieds. L'impact avait causé l'effondrement d'une grande partie de son âme originelle; il n'avait désormais plus aucune chance de survie.
 
 Il ne restait qu'une âme originelle brisée, dont la majeure partie des souvenirs s'était évanouie. Tandis qu'il sombrait dans l'inconscience, le Fouet de l'Âme de Wang Lin l'enveloppa et le tira vers lui.
 
@@ -66,9 +66,9 @@ Le Daoïste Esprit Dispersé agita la main, et des éclairs jaillirent de sa pau
 
 Wang Lin garda un visage impassible tandis qu'il les recueillait d'un geste de la main. C'était son dû, bien que chaque éclair représentât la vie d'un cultivateur subissant une rétribution divine.
 
-« Le tonnerre éternel du Clan du Tonnerre Dispersé a été affaibli à l'instant. Je vais attaquer le clan et dévorer ce tonnerre éternel. Que comptez-vous faire? » Le regard de Wang Lin se posa sur le Maître Tonnerre Dispersé.
+« Le tonnerre éternel du Clan du Tonnerre Dispersé a été affaibli à l'instant. Je vais attaquer le clan et dévorer ce tonnerre éternel. Que comptez-vous faire? » Le regard de Wang Lin se posa sur le Daoïste Esprit Dispersé.
 
-Une intention meurtrière traversa les yeux du Maître Tonnerre Dispersé: « Très bien. Je ne peux laisser le Clan du Tonnerre Dispersé impuni. Si je ne profite pas de cette opportunité pour les anéantir, je ne pourrai jamais apaiser la haine d'avoir perdu 90 % de mon clan pour fuir les 7 Millions de Mondes! »
+Une intention meurtrière traversa les yeux du Daoïste Esprit Dispersé: « Très bien. Je ne peux laisser le Clan du Tonnerre Dispersé impuni. Si je ne profite pas de cette opportunité pour les anéantir, je ne pourrai jamais apaiser la haine d'avoir perdu 90 % de mon clan pour fuir les 7 Millions de Mondes! »
 
 Wang Lin ne perdit plus une seconde et chargea. Des éclairs jaillirent de sa main droite et il se mua en tonnerre. Il agissait avec son corps originel, ce qui le rendait bien plus puissant que lorsqu'il pratiquait la possession!
 

@@ -6,9 +6,9 @@ bookTitle: "Alliance's Secret"
 en: Chapter 987 - Self Created Spell, Sundered Night
 slug: sortilege-auto-cree-nuit-brisee
 ---
-Liu Wen n'était à l'origine qu'un cultivateur sans renom. Bien que talentueux, il ne se distinguait pas du commun des mortels. Pourtant, il laissa derrière lui le tout premier enregistrement de la Perception Divine Shi!
+Liu Wen n'était à l'origine qu'un cultivateur sans renom. Bien que talentueux, il ne se distinguait pas du commun des mortels. Pourtant, il laissa derrière lui le tout premier enregistrement du Sens Divin Shi!
 
-Nul ne savait comment il avait atteint cet état de Perception Divine, ni combien de temps celui-ci avait duré. Était-ce un simple instant ou une éternité?
+Nul ne savait comment il avait atteint cet état de Sens Divin Shi, ni combien de temps celui-ci avait duré. Était-ce un simple instant ou une éternité?
 
 Cependant, Wang Lin savait que Liu Wen n'était auparavant qu'un cultivateur sans aucun renom dans le monde de la culture. Après s'être retiré en méditation solitaire et en en ressortant, il était devenu une existence terrifiante. Ce qui le rendait si redoutable, c’est que personne n'avait jamais vu l'un de ses sorts auparavant.
 
@@ -52,7 +52,7 @@ Wang Lin ne prêta aucune attention à Ling Er; son regard restait verrouillé s
 
 Ce sentiment étrange s'intensifia de nouveau. Cependant, même après que le soleil fut monté dans les airs, Wang Lin n'atteignit pas l'éveil.
 
-Le temps passa lentement et les jours défilèrent. Wang Lin avait oublié depuis combien de temps il était assis là. Il remarqua même que les frères Chen, Maître Vent Creux et Da Tou étaient tous venus s'installer à proximité.
+Le temps passa lentement et les jours défilèrent. Wang Lin avait oublié depuis combien de temps il était assis là. Il ne remarqua même pas que les frères Chen, Maître Fu Fengzi et Da Tou étaient tous venus s'installer à proximité.
 
 Il scrutait sans cesse l'horizon, ses yeux injectés de sang. Pourtant, cela ne l'importait guère. C'était comme si tout le reste avait disparu du monde, et que seule importait l'instant où le soleil se lèverait.
 
@@ -68,13 +68,13 @@ Maître Yi Chen réfléchit longuement avant de secouer la tête à son tour. «
 
 Maître Yi Xing ajouta: « Bien qu'il n'y ait aucune énergie originelle, si quelqu'un pénètre dans un rayon de cinq kilomètres autour de lui, une force puissante le repousse après seulement trois pas! »
 
-« Quant à cette force qui nous empêche d'entrer, j'ai découvert qu'elle semble être créée par le monde lui-même. Lorsque j'ai tenté de m'approcher, c'était comme si je faisais face à une mer déchaînée », dit Maître Yi Long en fronçant les sourcils.
+« Quant à cette force qui nous empêche d'entrer, j'ai découvert qu'elle semble être créée par le monde lui-même. Il y a quelques jours, lorsque j'ai tenté de m'approcher, c'était comme si je faisais face à une mer déchaînée », dit Maître Yi Long en fronçant les sourcils.
 
 Maître Yi Chen dit calmement: « Contentons-nous d'observer pour l'instant. S'il comprend vraiment le Dao, c'est une expérience rare pour nous trois. Peut-être que l'observer nous apportera aussi un éclairage. » Puis, tous les trois s'assirent dans les airs et contemplèrent Wang Lin sur la montagne lointaine.
 
-Loin d'eux, les yeux de Maître Vent Creux brillèrent. Il regarda le sommet et pensa: « Il ne semble pas comprendre le Dao... Cependant, quoi qu'il fasse, c'est une opportunité unique pour moi... Mais que se passera-t-il une fois que j'aurai brisé ce sceau... »
+Loin d'eux, les yeux de Maître Fu Fengzi brillèrent. Il regarda le sommet et pensa: « Il ne semble pas comprendre le Dao... Cependant, quoi qu'il fasse, c'est une opportunité unique pour moi... Mais que se passera-t-il une fois que j'aurai brisé ce sceau... »
 
-Maître Vent Creux était tiraillé intérieurement.
+Maître Fu Fengzi était tiraillé intérieurement.
 
 Da Tou, Ta Shan et Lei Ji étaient également venus. Après tout, Wang Lin cultivait ici depuis un mois entier, et les trois ne pouvaient s'empêcher d'être préoccupés.
 
@@ -108,10 +108,10 @@ La Nuit Brisée était née du soleil s'élevant au-dessus de la mer!
 
 « C'est ce pouvoir! » Les yeux de Wang Lin brillèrent intensément et son esprit entra dans un état mystérieux. Le moment de l'aurore fut gravé dans sa mémoire: le pouvoir de déchirer la nuit!
 
-« Maintenant! » Le regard de Maître Vent Creux devint glacial. Il avait attendu deux mois sans trouver comment gérer les conséquences de la rupture du sceau. Cependant, il avait trouvé une autre méthode: tuer Wang Lin!
+« Maintenant! » Le regard de Maître Fu Fengzi devint glacial. Il avait attendu deux mois sans trouver comment gérer les conséquences de la rupture du sceau. Cependant, il avait trouvé une autre méthode: tuer Wang Lin!
 
-« Tuez-le et le sceau sera brisé! » Les yeux de Maître Vent Creux s'illuminèrent; il chargea au moment même où Wang Lin comprenait cette force.
+« Tuez-le et le sceau sera brisé! » Les yeux de Maître Fu Fengzi s'illuminèrent; il chargea au moment même où Wang Lin comprenait cette force.
 
-Cependant, alors qu'il franchissait la limite des cinq kilomètres, l'expression de Maître Vent Creux changea radicalement. C'était comme s'il voyait quelque chose qu'il n'osait pas croire. Le choc et la peur envahirent son regard!
+Cependant, alors qu'il franchissait la limite des cinq kilomètres, l'expression de Maître Fu Fengzi changea radicalement. C'était comme s'il voyait quelque chose qu'il n'osait pas croire. Le choc et la peur envahirent son regard!
 
 « Ceci... Qu'est-ce que c'est que ça... »

@@ -28,23 +28,23 @@ Cette fois, l'Omniscient n'osa pas la poursuivre. Son visage était livide et so
 
 L'Omniscient esquissa un sourire amer. S'il n'avait pas pris l'initiative d'attaquer, ses pertes n'auraient pas été aussi lourdes. Cependant, pour l'heure, il ne pouvait que soupirer.
 
-« Je n'ai été capturé par cette main géante que pendant dix respirations, mais s'il s'était agi d'un autre cultivateur du Briseur du Nirvana, sa chair, son sang et son âme originelle auraient été totalement drainés... »
+« Je n'ai été capturé par cette main géante que pendant dix respirations, mais s'il s'était agi d'un autre cultivateur du Briseur du Nirvana, sa chair, son sang, son énergie originelle et tout le reste auraient été totalement drainés... »
 
-En soupirant, l'Omniscient semblait avoir vieilli. Il savait que ce qu'il avait perdu n'était pas seulement son énergie originelle. Une fissure venait de se former sur son cœur taoïste parfait.
+En soupirant, l'Omniscient semblait avoir vieilli. Il savait que ce qu'il avait perdu n'était pas seulement son énergie originelle. Une fissure venait de se former sur son cœur Dao parfait.
 
-« Avant cela, je n'avais commis qu'une seule erreur dans ma vie. » En ces mots, l'Omniscient retourna à la Secte de la Destination Céleste et s'assit sur un rocher bleu. Son visage commença à vieillir à vue d'œil.
+« Avant cela, je n'avais commis qu'une seule erreur dans ma vie. » En ces mots, l'Omniscient retourna à la Secte du Destin Céleste et s'assit sur un rocher bleu. Son visage commença à vieillir à vue d'œil.
 
-« Autrefois, j'avais commis une erreur de divination concernant le groupe des Anciens de l'Alliance, et une fissure était apparue dans mon cœur taoïste. Puis, j'ai fait une rencontre fortuite avec... lui! Bien que ce ne fût qu'un seul regard, j'en ai tiré une illumination. La fissure causée par mon erreur avait montré des signes de guérison. Puis, après des dizaines de milliers d'années de compréhension, mon cœur taoïste était redevenu complet. Je formerais alors mon propre Tao céleste pour remplacer celui des Cieux. »
+« Autrefois, j'avais commis une erreur de divination concernant le groupe des Anciens de l'Alliance, et une fissure était apparue dans mon cœur Dao. Puis, j'ai fait une rencontre fortuite avec... lui! Bien que ce ne fût qu'un seul regard, j'en ai tiré une illumination. La fissure causée par mon erreur avait montré des signes de guérison. Puis, après des dizaines de milliers d'années de compréhension, mon cœur Dao était redevenu complet. Je formerais alors mon propre Dao céleste pour remplacer celui des Cieux. »
 
 « Cependant, j'ai commis deux erreurs consécutives! » L'Omniscient afficha une expression amère.
 
-« Bien que mon erreur concernant Wang Lin dans les Terres de l'Esprit Démoniaque ait fini par ramener les choses sur le chemin que j'avais prévu... Pourtant... Cette fois, j'ai d'abord eu tort à son sujet, puis j'ai eu tort concernant cette main... » L'Omniscient secoua la tête et fixa le ciel pendant un long moment. Il ferma lentement les yeux, laissant un soupir peser sur son cœur.
+« Bien que mon erreur concernant Wang Lin dans la Terre des Esprits Démoniaques ait fini par ramener les choses sur le chemin que j'avais prévu... Pourtant... Cette fois, j'ai d'abord eu tort à son sujet, puis j'ai eu tort concernant cette main... » L'Omniscient secoua la tête et fixa le ciel pendant un long moment. Il ferma lentement les yeux, laissant un soupir peser sur son cœur.
 
 Quant à Ling Tianhou, le visage déformé par la panique et le cuir chevelu engourdi, il chargea vers le centre de la planète. Il sentait la lumière invisible le poursuivre, et aucun des sceaux qu'il avait posés ne semblait avoir d'effet sur elle.
 
 Presque à bout de nerfs, Ling Tianhou atteignit la lisière du noyau planétaire et s'y engouffra en serrant les dents.
 
-« Lorsque j'ai obtenu la planète Da Lou, je savais qu'une étincelle de flamme utilisée pour son raffinage subsistait encore! En ce moment de crise, j'espère pouvoir utiliser cette flamme pour résister. » À l'instant où il pénétra le noyau, une vague de chaleur lui cingla le visage.
+« Lorsque j'ai obtenu la planète Da Luo, je savais qu'une étincelle de flamme utilisée pour son raffinage subsistait encore! En ce moment de crise, j'espère pouvoir utiliser cette flamme pour résister. » À l'instant où il pénétra le noyau, une vague de chaleur lui cingla le visage.
 
 La lumière invisible s'approcha rapidement et pénétra directement dans le noyau. En un éclair, elle se mua en une main géante qui tendit les doigts vers Ling Tianhou.
 
@@ -66,7 +66,7 @@ Malgré ses luttes acharnées, rien n'y faisait.
 
 Au bout de six respirations, les yeux de Ling Tianhou s'écarquillèrent, emplis de désespoir. À ce moment précis, il ne pouvait même plus rugir.
 
-Cependant, au paroxysme du désespoir, une lueur fantomatique brilla entre ses sourcils, provoquant un bref sursis de la force d'aspiration.
+Cependant, au paroxysme du désespoir, une lueur noire et sinistre brilla entre ses sourcils et se répandit sur tout son corps, provoquant un bref sursis de la force d'aspiration.
 
 Simultanément, la main géante qui retenait Ling Tianhou se relâcha inopinément et disparut. Ling Tianhou, témoin de tout cela, eut le sentiment d'avoir frôlé la mort.
 
@@ -78,7 +78,7 @@ Quant à retrouver Wang Lin pour se venger, Ling Tianhou en avait trop peur. À 
 
 Il ne voulait plus jamais affronter cette étrange main.
 
-Wang Lin était assis devant la tour, au sein de la Secte de l'Épée Da Lou. La mer de flammes avait disparu, remplacée par une onde de lumière éclatante émanant de la Perle Défiant le Ciel.
+Wang Lin était assis devant la tour, au sein de la Secte de l'Épée Da Luo. La mer de flammes dans son corps avait disparu, remplacée par une onde de lumière éclatante émanant de la Perle Défiant le Ciel.
 
 Dès que cette lumière apparut, il sentit qu'elle se scindait en deux. Un rayon se dirigea vers Ling Tianhou dans la tour géante, tandis que l'autre s'engouffra dans le vide. Il ignorait où elle était disparue.
 

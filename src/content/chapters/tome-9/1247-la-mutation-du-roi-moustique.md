@@ -38,7 +38,7 @@ Simultanément, le roi moustique de Wang Lin rugit une fois de plus, arborant un
 
 Les moustiques rouges, bleus et blancs s'immobilisèrent. Une bataille entre rois moustiques était une chose à laquelle ils ne pouvaient prendre part; cela était gravé dans leurs âmes. Seuls les moustiques violets ou de rang supérieur étaient éligibles.
 
-Malgré cet arrêt, près de mille moustiques violets chargèrent avec frénésie, exhalant une odeur fétide. Leur vitesse était prodigieuse; chacun d'eux possédait une aura comparable à celle d'un cultivateur au sommet du stade de Briseur du Nirvana, et ils convergèrent en un instant.
+Malgré cet arrêt, plusieurs milliers de moustiques violets chargèrent avec frénésie, exhalant une odeur fétide. Leur vitesse était prodigieuse; chacun d'eux possédait une aura comparable à celle d'un cultivateur au sommet du stade de Briseur du Nirvana, et ils convergèrent en un instant.
 
 Les cheveux blancs de Wang Lin flottaient dans les airs tandis que le trident de sa main droite balayait l'espace. Des craquements résonnèrent en lui alors que la puissance de l'Ancien Dieu emplissait son corps. L'Étoile de la Loi apparut entre ses sourcils et, d'un mouvement de trident, il fit trembler les cieux. Le tonnerre tonna et une mer de feu bleu surgit.
 
@@ -76,7 +76,7 @@ Un fracas assourdissant ébranla l'univers. Le trident gigantesque, tel un drago
 
 L'arme portait la puissance de l'Ancien Dieu et l'Étoile de la Loi. Au moment du lancer, le tonnerre du monde convergea pour former une sphère de foudre qui grondait sans fin.
 
-Une mer de feu bleu s'étendit. La chaleur était telle que même les moustiques violets durent l'éviter. Plus incroyable encore, l'énergie originelle injectée par Wang Lin se transforma en sorts célestes de Bai Fang. À cet instant, cela ressemblait à l'apocalypse.
+Une mer de feu bleu s'étendit. La chaleur était telle que même les moustiques violets durent l'éviter. Plus incroyable encore, l'énergie originelle injectée par Wang Lin se transforma en sorts célestes de Bai Fan. À cet instant, cela ressemblait à l'apocalypse.
 
 Les bêtes environnantes hésitèrent un instant. Profitant de ce moment, Wang Lin saisit son roi moustique et le projeta en avant!
 

@@ -8,11 +8,11 @@ slug: une-seule-ligne
 ---
 Le vieil homme en noir afficha un sourire sardonique alors qu'il s'avançait pour lancer un sort! Les yeux du maître de la Secte Éternelle étaient également empreints d'une intention meurtrière tandis qu'il convergeait vers sa cible!
 
-Les six cultivateurs du Premier Ciel de la Souffrance lancèrent tous leurs attaques simultanément. Il semblait qu’ils étaient déterminés à tuer Wang Lin!
+Les six cultivateurs du premier Fléau Céleste lancèrent tous leurs attaques simultanément. Il semblait qu’ils étaient déterminés à tuer Wang Lin!
 
-Le vieil homme en noir s'écria immédiatement: « Il prétend que l'Ancien Suprême de la Secte Divine, le Shui Daozi, a échoué à le tuer. Quelle absurdité! Cet homme a offensé la Secte Divine et a survécu à une calamité, pour ensuite venir provoquer notre Secte Éternelle. Nous allons le capturer et le livrer à la Secte Divine afin de toucher une récompense! »
+Le vieil homme en noir s'écria immédiatement: « Il prétend que l'Ancien Suprême de la Secte Divine, Shui Daozi, a échoué à le tuer. Quelle absurdité! Cet homme a offensé la Secte Divine et a survécu à une calamité, pour ensuite venir provoquer notre Secte Éternelle. Nous allons le capturer et le livrer à la Secte Divine afin de toucher une récompense! »
 
-Les six auras étaient assourdissantes. Il s'agissait d'une attaque combinée de six cultivateurs du Premier Ciel de la Souffrance. Seuls ceux atteignant le deuxième stade du Ciel de la Souffrance seraient capables de riposter; tous les autres périraient!
+Les six auras étaient assourdissantes. Il s'agissait d'une attaque combinée de six cultivateurs du premier Fléau Céleste. Seuls ceux atteignant le deuxième Fléau Céleste seraient capables de riposter; tous les autres périraient!
 
 Un éclair de froideur passa dans les yeux de Wang Lin, et les dix millions de rayons d'énergie d'épée hurlèrent autour de lui. Un grondement tonnerre retentit alors que les six Anciens de la Secte Éternelle attaquaient!
 
@@ -56,7 +56,7 @@ Bien qu'elle ne fût pas encore totalement constituée, un vortex se forma!
 
 À cet instant, Wang Lin bondit dans les airs et tendit sa main droite vers la montagne dévastée. Le ciel changea de couleur et une aura d'une puissance extrême jaillit des ruines!
 
-C’était un rayon de lumière rouge, une lueur rouge sang! Au cœur de cette lumière se trouvait une épée de la taille d'un poing! Cette épée était faite de sang, et le fluide à l'intérieur circulait, émettant une lueur écarlate qui imprégnait le monde!
+C’était un rayon de lumière rouge, une lueur rouge sang! Au cœur de cette lumière se trouvait une épée de la taille d'une paume! Cette épée était faite de sang, et le fluide à l'intérieur circulait, émettant une lueur écarlate qui imprégnait le monde!
 
 Un chant d'épée s'éleva, contenant une pointe d'excitation et de joie, comme si elle se libérait de millénaires de suppression. Dès que l'épée de sang atterrit dans la main de Wang Lin, il ressentit un lien sanguin immédiat avec elle!
 
@@ -78,7 +78,7 @@ Les quatre autres crachèrent du sang et reculèrent comme des possédés. Leurs
 
 « Quel est le niveau de culture de Lu Zihao?! »
 
-Une seule entaille! Sur les six cultivateurs du Premier Ciel de la Souffrance, deux avaient perdu leur corps et les autres étaient tous blessés. Tout cela n'était dû qu'au fait que Wang Lin ne souhaitait pas tuer. Autrement, ceux qui avaient perdu leur enveloppe physique n'auraient eu aucune chance de s'échapper!
+Une seule entaille! Sur les six cultivateurs du premier Fléau Céleste, deux avaient perdu leur corps et les autres étaient tous blessés. Tout cela n'était dû qu'au fait que Wang Lin ne souhaitait pas tuer. Autrement, ceux qui avaient perdu leur enveloppe physique n'auraient eu aucune chance de s'échapper!
 
 Cette épée choqua tout le monde et provoqua un séisme dans leurs cœurs!
 

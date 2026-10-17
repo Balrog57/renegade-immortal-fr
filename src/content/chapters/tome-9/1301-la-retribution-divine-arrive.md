@@ -22,7 +22,7 @@ Pourtant, malgré ce calme, une odeur de sang s'échappait continuellement de la
 
 Ce silence mêlé à l'effluve de sang créait une pression invisible qui ne cessait de croître. Ce poids accablant pesait sur le cœur de chaque cultivateur, rendant toute méditation impossible.
 
-À cet instant précis, un rayon de lumière verte jaillit de la faille spatiale. Dès son apparition, tous les regards convergèrent. La lueur se dispersa, révélant le vieil homme parmi les six génies.
+À cet instant précis, un rayon de lumière verte jaillit de la faille spatiale. Dès son apparition, tous les regards convergèrent. La lueur se dispersa, révélant le vieil homme, l'un des six grands experts parmi les milliers de cultivateurs.
 
 Quelques jours plus tôt, il avait décidé de s'infiltrer dans la faille pour voir ce qui s'y tramait. Personne ne l'avait retenu, car chacun brûlait de découvrir les secrets de cette crevasse.
 
@@ -108,4 +108,4 @@ Les nuages s'étendaient avec frénésie. En peu de temps, ils enveloppèrent to
 
 Alors que les nuages continuaient leur progression, la brèche vers l'autre monde s'élargissait. Le gigantesque pavillon blanc était désormais à moitié sorti!
 
-Les pupilles du Grand Ancien de la Secte Démon se contractèrent lorsqu'il aperçut le pavillon de jade blanc émergeant des nuages. Il vit qu'une statue, représentant un être assis, trônait devant le pavillon, et que deux épées de pierre étaient plantées dans le sol, juste devant lui.
+Les pupilles du Grand Ancien de la Secte Démon se contractèrent lorsqu'il aperçut le pavillon de jade blanc émergeant des nuages. Il vit que sur le pavillon trônait une statue assise en tailleur, et que deux épées de pierre étaient plantées juste devant elle.

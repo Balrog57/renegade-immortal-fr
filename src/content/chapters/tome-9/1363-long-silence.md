@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1363 - Long Silence
 slug: long-silence
 ---
-La capitale mortelle était vaste et la population dense. Les habitants de la zone ouest étaient plus nombreux que dans les trois autres secteurs. Wang Lin apprit également que, contrairement à la planète Suzaku, on n'y utilisait ni l'argent ni l'or comme monnaie.
+La capitale mortelle était vaste et la population dense. Les habitants de la zone ouest étaient plus nombreux que dans les trois autres secteurs. Wang Lin apprit également que, contrairement à la planète Suzaku, on n'y utilisait pas l'argent comme monnaie.
 
 Il existait une substance appelée « cristaux mortels » qui servait de monnaie aux mortels, leur valeur variant selon leur taille.
 
@@ -18,11 +18,11 @@ Il en fit le tour et raffina une partie du filon. Lorsque cette fraction de son 
 
 Traversant la ville sans utiliser le moindre sort, il atteignit progressivement la partie ouest. Les maisons y étaient innombrables et les rues étaient en ruines. Même les habitations semblaient vieilles et délabrées, comme si elles n'avaient pas été entretenues depuis des lustres.
 
-Cependant, un détail étrange frappait l'observateur: presque chaque maison arborait une branche de feuilles suspendue sous son toit. Cela semblait être une coutume unique à cet endroit.
+Cependant, un détail étrange frappait l'observateur: presque chaque maison arborait une guirlande de feuilles enfilées, suspendue sous son avant-toit. Cela semblait être une coutume unique à cet endroit.
 
 Les passants portaient des vêtements simples et marchaient d'un pas rapide.
 
-L'arrivée de Wang Lin n'attira nul regard. Après avoir observé les environs, il trouva aisément quelques maisons à vendre et, après avoir repéré un quartier très dense, il en fit acquérir une.
+L'arrivée de Wang Lin n'attira nul regard. Après avoir observé les environs, il trouva aisément quelques maisons à vendre; il choisit le quartier le plus dense et en acheta une.
 
 La demeure se situait au milieu de la rue, avec un grand arbre devant. Sous cet arbre se trouvait un stand de nouilles qui vendait également du vin de riz. Les familles pauvres, n'ayant pas les moyens de fréquenter les restaurants, se contentaient d'un bol de nouilles et d'une coupe de vin pour se rassasier.
 
@@ -32,15 +32,15 @@ Assis au seuil de sa maison, Wang Lin souriait en contemplant la scène. Lors de
 
 À mesure que le ciel s'obscurcissait, les travailleurs fatigués rentraient chez eux et le calme s'installa.
 
-La lumière lunaire émergea peu à peu. Sous l'arbre, un homme regardait ses deux ouvriers ranger l'étal. Une pipe à la main, il fit quelques pas et aperçut Wang Lin qui contemplait le ciel non loin de là. Il saisit une cruche de vin et se dirigea vers lui.
+La lumière lunaire émergea peu à peu. Sous l'arbre, un vieil homme voûté regardait ses deux employés ranger l'étal. Une pipe à la main, il fit quelques pas et aperçut Wang Lin qui contemplait le ciel non loin de là. Il saisit une cruche de vin et se dirigea vers lui.
 
 « Petit enfant, la nuit est froide, voici une cruche de vin de riz pour toi. Bois-en un peu tard dans la nuit pendant tes études pour réchauffer ton corps. Si tu deviens riche plus tard, tu pourras me rembourser. » Il tendit la cruche à Wang Lin avant de repartir avec ses ouvriers.
 
 Wang Lin tint la cruche et constata qu'elle était encore à moitié pleine. Il sourit dans la direction de l'homme et son cœur s'apaisa. Comparé à la cruauté du monde de la culture, il préférait nettement cet environnement.
 
-Le clair de lune gagna en intensité tandis qu'un vent glacial s'élevait. Le vent résonnait dans la rue et les branches suspendues aux maisons commencèrent à bruisser.
+Le clair de lune gagna en intensité tandis qu'un vent glacial s'élevait. Le vent résonnait dans la rue et les guirlandes de feuilles suspendues aux maisons commencèrent à bruisser.
 
-Ce vent était glacial et se mêlait à la pluie, rendant cette dernière encore plus froide. Les petits cailloux de la rue étaient emportés par les bourrasques et la poussière s'élevait, donnant l'impression que tout était enveloppé d'un brouillard épais.
+Ce vent était glacial, et la lumière de la lune le rendait plus froid encore. Les petits cailloux de la rue étaient emportés par les bourrasques et la poussière s'élevait, donnant l'impression que tout était enveloppé d'un brouillard épais.
 
 Dans chaque foyer, les lampes à huile étaient déjà allumées. La lumière qui s'échappait des fenêtres conférait au quartier un certain charme. Wang Lin prit sa cruche de vin, jeta un dernier regard autour de lui, puis rentra chez lui.
 
@@ -50,7 +50,7 @@ Une fois la lampe allumée, sa lueur vacillante rendit la pièce bien plus chale
 
 « Même mon esprit s'est apaisé en ce lieu... » Wang Lin posa la cruche de vin près de la lampe et s'assit. Il prit une profonde inspiration et ferma lentement les yeux.
 
-À l'instant où ses paupières se fermèrent, son âme originelle s'anima avec une rapidité fulgurante, générant une force puissante. C'était comme une tempête au cœur de son âme, mais rien de tout cela ne pouvait être détecté de l'extérieur. Wang Lin restait assis paisiblement, bien que la flamme de la lampe à huile semblât s'agiter frénétiquement.
+À l'instant où ses paupières se fermèrent, son âme originelle s'anima avec une rapidité fulgurante, générant une force puissante. C'était comme une tempête au cœur de son âme, mais rien de tout cela ne pouvait être détecté de l'extérieur. Wang Lin restait assis paisiblement, bien que la flamme de la lampe à huile semblât vaciller comme sous une brise légère.
 
 La silhouette de Wang Lin, baignée par la lumière, commença à se tordre...
 
@@ -68,15 +68,15 @@ Le temps s'écoulait lentement. Les huit anciens dragons poussaient des cris dé
 
 La maison de Wang Lin était plongée dans un silence absolu, à l'image de tout le quartier. Au plus profond de la nuit, les lumières des foyers s'éteignirent une à une. Presque toutes les habitations du côté ouest étaient désormais sombres, à quelques exceptions près.
 
-Un bruit ténu provenant de l'extérieur s'éleva, devenant progressivement plus fort jusqu'à rompre le silence, sans pour autant être intrusif.
+Des coups sourds retentirent faiblement dans la rue, puis la voix d'un veilleur de nuit rompit peu à peu le silence, sans pour autant être intrusive.
 
-« La vague de froid arrive, fermez la porte et éteignez la lumière... » Une voix murmura, puis s'effaça, laissant place au silence.
+« La vague de froid arrive, fermez la porte et éteignez la lumière... » La voix s'éloigna lentement, laissant place au silence.
 
-Cependant, sitôt cette personne partie, Wang Lin ouvrit soudainement les yeux, et son regard brilla intensément. Sa main se tendit et la cruche de vin vola vers sa paume. Il prit une grande gorgée!
+Cependant, sitôt le veilleur parti, Wang Lin ouvrit soudainement les yeux, et son regard brilla intensément. Sa main se tendit et la cruche de vin vola vers sa paume. Il prit une grande gorgée!
 
 Le vin épicé descendit dans son abdomen et une chaleur envahit son corps, laissant un arrière-goût piquant sur ses lèvres. Wang Lin referma alors les yeux. Son énergie originelle jaillit, et davantage de flammes apparurent dans son âme originelle.
 
-La puissance du feu pénétra son âme, rendant la mer de flammes encore plus monstrueuse. Elle raffina le vin jusqu'à n'en extraire que l'essence pure. Cette essence fut alors projetée vers la mer de feu qui s'acharnait sur les huit anciens dragons de tonnerre.
+La puissance du feu pénétra son âme, rendant la mer de flammes encore plus monstrueuse. Elle raffina le vin jusqu'à n'en extraire que l'essence pure. Cette essence fut alors projetée dans son âme originelle et, devenue une pluie fine, retomba sur la mer de feu qui s'acharnait sur les huit anciens dragons de tonnerre.
 
 Durant cette période, la mer de feu entra en éruption et brûla avec une intensité accrue. Alors que les flammes faisaient rage, l'un des huit anciens dragons se mit à hurler de douleur.
 
@@ -84,11 +84,11 @@ L'ancien dragon de tonnerre trembla, puis s'effondra soudainement. À l'instant 
 
 L'âme du dragon effondré, ayant perdu toute résistance après avoir été totalement raffinée par Wang Lin, devint une partie intégrante de lui!
 
-À l'intérieur de la maison, le visage de Wang Lin prit des teintes rosées, comme s'il avait consommé un élixir hautement nutritif. Bien que ses yeux fussent clos, une faible marque de tonnerre scintillait sous ses paupières.
+À l'intérieur de la maison, le visage de Wang Lin prit des teintes rosées, comme s'il avait consommé un élixir hautement nutritif. Bien que ses yeux fussent clos, une faible marque de tonnerre transparaissait sur sa paupière droite et s'étendait rapidement.
 
 La pièce était très calme, mais la flamme sur la table vacillait violemment et l'ombre de Wang Lin se déformait de plus en plus. Un instant plus tard, la lumière s'éteignit, plongeant la pièce dans une obscurité identique à celle de la nuit.
 
-Seule la marque de tonnerre de Wang Lin émettait encore une faible lueur...
+Seule la marque de tonnerre sur la paupière droite de Wang Lin émettait encore une faible lueur...
 
 Il ne restait plus que sept des huit obstinés dragons de tonnerre, qui se débattaient avec acharnement. La mer de feu, autrefois divisée en huit parts, ne comptait plus que sept secteurs, ce qui rendit le brasier enduré par chaque dragon encore plus impitoyable.
 

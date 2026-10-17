@@ -18,7 +18,7 @@ Son regard était serein, sans la moindre perturbation. En ouvrant les paupière
 
 « Maître plaisantait en disant que si quelqu'un parvenait à apprendre l'un de ses sorts, il pourrait être considéré comme un disciple de Bai Fan... Cette personne a appris l'Appel du Vent par pur hasard... » Qing Shui réfléchit silencieusement un instant et ses yeux révélèrent une pointe de mélancolie.
 
-« Maître, votre disciple est incompétent... Cependant, même après d'innombrables années, je dois découvrir la raison pour laquelle le Royaume Céleste s'est effondré et pourquoi j'ai perdu la raison. Je prendrai ma revanche pour vous! »
+« Maître, votre disciple est incompétent... Cependant, puisque j'ai survécu après d'innombrables années, je dois découvrir la raison pour laquelle le Royaume Céleste s'est effondré et pourquoi j'ai perdu la raison. Je prendrai ma revanche pour vous! »
 
 Sur la planète Qing Ling, Wang Lin détourna son regard du ciel. Après son éveil, il se trouvait à une demi-étape de l'étape Scruteur du Nirvana. Il ne lui manquait qu'une simple pensée pour devenir un véritable cultivateur du second niveau.
 

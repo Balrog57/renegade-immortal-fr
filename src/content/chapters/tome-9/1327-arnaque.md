@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1327 - Scam
 slug: arnaque
 ---
-L'autre planète de culture du Clan des Scorpions Démoniaques remarqua l'agitation, et une multitude de cultivateurs s'élança dans les airs.
+Les autres planètes de culture du domaine stellaire du Clan des Scorpions Démoniaques remarquèrent l'agitation, et une multitude de cultivateurs s'élança dans les airs.
 
 Cependant, la femme en blanc sentit qu'elle n'était plus accompagnée que par le géant d'ombre lumineuse. Le coup de poing titanesque se rapprochait, et nul ne pourrait l'intercepter pour elle!
 
@@ -32,7 +32,7 @@ Dans la partie orientale du Système Stellaire Antique, des ondulations se dissi
 
 Cependant, juste au moment où elle levait le pied droit, le monde trembla et l'espace lui-même fut ébranlé. Des éclairs de lumière sanglante percèrent le vide de toutes parts pour charger la femme en blanc.
 
-La femme en blanc ne daigna même pas regarder Wang Lin, qui surgissait avec une expression venimeuse et moqueuse. Lorsque l'épée de sang frappa, son corps était déjà devenu transparent. Peu importe les assauts de l'épée, elle ne parvenait pas à blesser sa forme.
+La femme en blanc ne daigna même pas jeter un regard à ces éclairs; elle fixa seulement Wang Lin, qui la poursuivait au loin, les yeux emplis de rancœur et de moquerie. Lorsque les épées de sang la traversèrent, son corps était déjà devenu transparent. Peu importe les assauts de l'épée, elle ne parvenait pas à blesser sa forme.
 
 Alors qu'elle était sur le point de s'évanouir dans le néant, elle lança ces paroles glaciales: « Je vous laisserai partir pour le moment, mais vous mourrez à coup sûr la prochaine fois. Gardez votre divinité en sécurité… Il ne faudra pas attendre longtemps avant que nous nous revoyions! »
 
@@ -54,7 +54,7 @@ N'ayant pas le temps de fouiller son âme, Wang Lin était réticent à l'abando
 
 C'était ainsi qu'il dérobait l'âme du cycle des réincarnations et volait les Flammes Joss de la Concubine Bleue!
 
-Au moment où la femme en blanc trembla une dernière fois avant de mourir complètement, l'âme d'une femme apparut dans son Monde des Vents et des Pluies. Une puissante Flamme Joss émana de son âme et fut absorbée par Wang Lin!
+Au moment où la femme en blanc trembla une dernière fois avant de mourir complètement, l'âme d'une femme apparut dans son Monde du Vent et de la Pluie. Une puissante Flamme Joss émana de son âme et fut absorbée par Wang Lin!
 
 Après la mort de la femme en blanc, sa chair fondit en une mare de sang. Cependant, un fil doré s'en échappa et fonça vers le vide!
 
@@ -98,7 +98,7 @@ Une pointe de douleur marqua son expression. Elle secoua la tête et se tourna v
 
 Cependant, au moment où elle allait pénétrer dans la fissure spatiale, elle s'arrêta. Une trace de clarté apparut dans ses yeux confus. Elle hésita un instant, puis se tourna vers Wang Lin.
 
-« Bien que je ne puisse pas me souvenir de beaucoup de choses, je sais vaguement certaines choses. Je vois que vous possédez des Flammes Joss dans votre corps… Je me souviens vaguement que la Flamme Joss est un poison… C'était une arnaque… céleste… J'ai l'impression d'avoir tout perdu à cause de cela… »
+« Bien que je ne puisse pas me souvenir de beaucoup de choses, je sais vaguement certaines choses. Je vois que vous possédez des Flammes Joss dans votre corps… Je me souviens vaguement que la Flamme Joss est un poison… C'était une énorme… arnaque… J'ai l'impression d'avoir tout perdu à cause de cela… »
 
 La fissure de l'espace de stockage se referma après que la femme en argent fut entrée.
 
@@ -112,9 +112,9 @@ Pour une raison inconnue, Wang Lin sentit un frisson le parcourir. Il leva les y
 
 Après avoir réfléchi un instant, Wang Lin fusionna avec le monde.
 
-« La femme en blanc est morte et son âme réside désormais dans mon Monde des Vents et des Pluies. Personne ne devrait prêter attention à moi pour l'instant… De cette façon, j'ai une chance de compléter mes essences! » Wang Lin se fondit dans le monde et déploya son Sens Divin.
+« La femme en blanc est morte et son âme réside désormais dans mon Monde du Vent et de la Pluie. Personne ne devrait prêter attention à moi pour l'instant… De cette façon, j'ai une chance de compléter mes essences! » Wang Lin se fondit dans le monde et déploya son Sens Divin.
 
-« D'après les souvenirs des cultivateurs du Royaume Extérieur que j'ai dévorés, le Clan Tonnerre Dispersé ne possède pas de cultivateur de la troisième étape… Il existe un éclair qui existe depuis l'origine des temps, et c'est l'objet sacré du clan! C'est aussi la source qui permet au clan de contrôler le tonnerre! »
+« D'après les souvenirs des cultivateurs du Royaume Extérieur que j'ai dévorés, le Clan Tonnerre Dispersé ne possède pas de cultivateur de la troisième étape… Il existe un éclair qui semble exister depuis la création du ciel et de la terre. Cet éclair ne s'éteint pas depuis cent millions d'années, traversant sans cesse le ciel et la terre, et c'est l'objet sacré du clan! C'est aussi la source qui permet au clan de contrôler le tonnerre! »
 
 « Si je dévore ce tonnerre, cela permettra à mon essence de tonnerre de croître… Quant aux Flammes Joss… Au final, laquelle de ces versions dit la vérité? » Wang Lin utilisa la Déformation Spatiale pour apparaître dans un domaine stellaire étranger. Un éclat de froideur passa dans ses yeux.
 

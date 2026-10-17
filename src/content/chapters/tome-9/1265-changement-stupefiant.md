@@ -18,7 +18,7 @@ Avant de s'en aller, la silhouette de Mu Bingmei, baignée par la lumière lunai
 
 Domaine des Mille Illusions Impitoyables... Domaine des Dix Mille Illusions Démoniaques... Finalement, il changea lentement.
 
-Parmi les Saintesses du Vide Brillant, une seule personne avait réussi à maîtriser le sort hérité de la lignée, toutes les autres ayant échoué. Mu Bingmei avait tenté un raccourci en utilisant des avatars, mais elle avait échoué avec Liu Mei. Son cœur dao était incomplet et une fissure était ainsi apparue sur le sort le plus puissant du Royaume du Vide Brillant.
+Parmi les Saintesses du Vide Brillant, une seule personne avait réussi à maîtriser le sort hérité de la lignée, toutes les autres ayant échoué. Mu Bingmei avait tenté un raccourci en y fusionnant sa propre voie, mais elle avait échoué avec Liu Mei. Son cœur dao était incomplet et une fissure était ainsi apparue sur le sort le plus puissant du Royaume du Vide Brillant.
 
 Cette fissure, c'était Liu Mei, aussi Wang Lin, mais surtout Wang Ping! Cependant, à cet instant, forte de tout ce qu'elle avait vécu, Mu Bingmei ne cherchait plus à éviter cette faille. Elle choisit de l'affronter, de l'accepter.
 
@@ -36,7 +36,7 @@ Dans la cour, sous la lune, flottaient les fragrances des deux femmes qui avaien
 
 Le temps passa lentement. En un clin d'œil, plusieurs jours s'écoulèrent. La compétition entre les sectes de rang 8 approchait; l'heure du départ avait sonné.
 
-Mu Bingmei quitta la Secte Éternelle avec Wang Shanshan. Cette dernière avait reçu l'ordre de son maître de regagner rapidement la Secte Divine. Naturellement, la Secte Éternelle n'osa pas s'y opposer. Avant de partir, Mu Bingmei ne se retourna pas. Elle était fière, elle était la Saintesse du Vide Brillant!
+Trois jours plus tôt, Mu Bingmei avait quitté la Secte Éternelle avec Wang Shanshan. Cette dernière avait reçu l'ordre de son maître de regagner rapidement la Secte Divine. Naturellement, la Secte Éternelle n'osa pas s'y opposer. Avant de partir, Mu Bingmei ne se retourna pas. Elle était fière, elle était la Saintesse du Vide Brillant!
 
 Le Royaume du Vide Brillant avait été détruit, et elle seule en subsistait. Dès cet instant, elle n'appartenait plus à elle-même. Il lui incombait de cultiver pour restaurer le Royaume du Vide Brillant, d'assumer ses responsabilités de Saintesse. C'était une charge qu'elle avait fuie longtemps, mais elle choisissait désormais de l'affronter sans plus jamais s'en dérober.
 
@@ -86,7 +86,7 @@ Le Grand Ancien tenant le jade fit un geste de la main droite et l'objet vola ve
 
 Il n'y avait qu'une seule phrase inscrite dans le jade!
 
-« Il n'est plus nécessaire de poursuivre la compétition des sectes de rang 8. Elle prend fin maintenant! Jade de la Secte Divine! »
+« Il n'est plus nécessaire de poursuivre la compétition des sectes de rang 8. Elle prend fin maintenant! Édit de la Secte Divine! »
 
 Dès que le Sens Divin de Wang Lin s'y propagea, il sentit une puissance indescriptible jaillir de ces mots. Celle-ci semblait prendre la forme d'une immense empreinte de main.
 
@@ -102,12 +102,12 @@ Tout en réfléchissant, il retourna rapidement vers la Secte de l'Origine pour 
 
 Wang Lin avait le vague pressentiment que le malheur approchait. Cette sensation terrifiante ne cessait de croître. Même en tentant de cultiver, il ne parvenait pas à apaiser son esprit.
 
-« Vite, organisez les affaires de la Secte de l'Origine. Je vous emmènerai tous dans la région de rang 7 dans trois jours, puis je partirai! » Dès son retour, il donna ses ordres et se lança immédiatement en culture en ermitage. Son âme originelle pénétra rapidement le Sceau Céleste pour fusionner avec l'âme de l'Omniscient.
+« Vite, organisez les affaires de la Secte de l'Origine. Je vous emmènerai tous dans la région de rang 7 dans trois jours, puis je partirai! » Dès son retour, il donna ses ordres et se lança immédiatement en culture en ermitage. Son Sens Divin plongea dans son âme originelle pour fusionner rapidement avec l'âme de l'Omniscient.
 
 Cette fois, il ne fusionnait pas avec l'Omniscient pour combattre un ennemi, mais pour emprunter sa puissance afin de forcer la prédiction de l'inconnu!
 
 Au même moment, dans la Secte Briseur de Ciel de rang 9, dès que Li Qianmei regagna la secte, son visage changea radicalement. Sa sérénité disparut totalement face au choc de ce qu'elle découvrit.
 
-Trois des dix Grands Anciens étaient assis autour de la formation de transfert où elle venait d'apparaître. La formation n'avait plus sa fonction de transfert; elle était devenue une formation de scellement! Son maître avait interrompu sa quasi-éternelle culture en ermitage et se tenait à l'extérieur de la structure. Dès que Li Qianmei apparut, ses yeux s'illuminèrent et il la fixa intensément!
+Trois des dix Grands Anciens étaient assis autour de la formation de transfert où elle venait d'apparaître. La formation n'avait plus sa fonction de transfert; elle était devenue une formation de scellement! Son maître était sorti de sa culture en ermitage de près de dix mille ans et se tenait à l'extérieur de la structure. Dès que Li Qianmei apparut, ses yeux s'illuminèrent et il la fixa intensément!
 
 « Il est interdit de franchir cette formation pendant trois mois! Faute de quoi, tu seras punie conformément aux lois de la secte! »

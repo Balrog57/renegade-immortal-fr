@@ -20,9 +20,9 @@ La tempête vola en éclats, comme déchirée par une force invisible. En un ins
 
 « Je n'ai d'autre choix que de tenter le tout pour le tout! » La main de Maître Fu Fengzi traça un sceau et sa culture de Purificateur du Nirvana explosa. La capacité de rassembler l'énergie originelle était le propre des cultivateurs de ce rang, et il mobilisa cette faculté avec précipitation.
 
-Des filaments d'énergie originelle surgirent du vide pour converger devant Maître Fu Fengzi tels des dragons rugissants. Rapidement, ils formèrent une sphère d'énergie originelle devant lui.
+Des filaments d'énergie originelle surgirent du vide pour converger devant Maître Fu Fengzi tels des dragons rugissants. Rapidement, ils formèrent devant sa main droite une sphère d'énergie originelle de la taille d'un poing.
 
-Bien que cette sphère ne fût pas de grande taille, la force destructrice qu'elle recelait était de nature à terrasser n'importe quel cultivateur de le Scruteur du Nirvana!
+Bien que cette sphère ne fût pas de grande taille, la force destructrice qu'elle recelait était de nature à terrasser n'importe quel Scruteur du Nirvana!
 
 Dès que la sphère apparut, les couleurs du monde basculèrent et la planète trembla. L'expression des trois frères Chen changea radicalement et ils furent contraints de battre en retraite.
 
@@ -38,7 +38,7 @@ Cette boule d'énergie jaillit comme un éclair vers le soleil flamboyant!
 
 La sphère d'énergie était extrêmement rapide et fonça droit sur le soleil. À mesure qu'elle approchait, une force colossale jaillit du disque solaire et percuta sans pitié la boule d'énergie originelle.
 
-Un grondement tonnerre résonna à travers le monde. Ce fracas se propagea même dans l'espace entourant la planète Esprit d'Eau, faisant apparaître de vastes fissures sur sa surface.
+Un grondement de tonnerre résonna à travers le monde. Ce fracas se propagea même dans l'espace entourant la planète Esprit d'Eau, faisant apparaître de vastes fissures sur sa surface.
 
 La sphère d'énergie s'effondra!
 
@@ -104,7 +104,7 @@ Da Tou haleta en contemplant l'indifférent Wang Lin. Son cœur était partagé 
 
 « L'écart entre nous ne cesse de croître... Ce voyage à l'Alliance a provoqué une progression fulgurante de son niveau de culture! »
 
-Une passion ardente brilla dans les yeux de Lei Ji, qui pensa: « Plus Maître est fort, plus je suis confiant pour reprendre la planète Giant Demon. »
+Une passion ardente brilla dans les yeux de Lei Ji, qui pensa: « Plus Maître est fort, plus je suis confiant pour reprendre la planète Géant Démon. »
 
 Ta Shan restait aussi impassible qu'auparavant.
 
@@ -114,7 +114,7 @@ Alors que Wang Lin contemplait silencieusement le soleil, une clarté nouvelle i
 
 Avant de partir, il adressa un signe de tête aux trois frères Chen et disparut.
 
-« Après plus de deux mois d'attente, j'ai enfin réussi à saisir cet instant. C'était similaire au moment où j'étais entré dans cet espace mystérieux offert par l'Ancien Démon Bei Lou dans la Terre des Esprits Démoniacs... Cependant, ce n'était qu'une similitude; comparé à cela, l'espace de l'Ancien Démon Bei Lou était véritablement insignifiant... »
+« Après plus de deux mois d'attente, j'ai enfin réussi à saisir cet instant. C'était similaire au moment où j'étais entré dans cet espace mystérieux offert par l'Ancien Démon Bei Luo dans la Terre des Esprits Démoniaques... Cependant, ce n'était qu'une similitude; comparé à cela, l'espace de l'Ancien Démon Bei Luo était véritablement insignifiant... »
 
 Tout en méditant, Wang Lin apparut devant son palais et y pénétra.
 

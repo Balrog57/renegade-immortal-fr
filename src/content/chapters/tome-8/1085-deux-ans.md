@@ -45,7 +45,7 @@ Cependant, à ce moment-là, le quartier général de l'Alliance de Culture rest
 
 Près de deux ans s'étaient écoulés depuis l'apparition des rumeurs de la Grotte de l'Empereur Céleste. Durant ces deux années, le quartier général de l'Alliance n'avait transmis aucune information. La formation interdisait absolument tout accès. De loin, le quartier général ne semblait plus animé; il ressemblait à un royaume mort. Des rumeurs circulaient selon lesquelles le siège de l'Alliance avait été déraciné, ne laissant aucun survivant.
 
-Les cultivateurs de l'ancienne Alliance passèrent progressivement de l'espoir immense à la déception, puis au désespoir final. Ils formèrent diverses factions, grandes ou petites, divisant le système. De nombreuses nouvelles sectes apparurent, telles des pousses de bambou jaillissant du tronc. Ces forces occupaient trois à cinq planètes en regroupant leurs cultivateurs. Certaines, fortes de plus de dix planètes, fondèrent leurs propres sectes. D'autres, qui étaient autrefois des pays de culture de rang 7, devinrent indépendantes comme la Secte des Cadavres, faute d'une Alliance pour les régir.
+Les cultivateurs de l'ancienne Alliance passèrent progressivement de l'espoir immense à la déception, puis au désespoir final. Ils formèrent diverses factions, grandes ou petites, divisant le système. De nombreuses nouvelles sectes apparurent, telles des pousses de bambou après la pluie. Ces forces occupaient trois à cinq planètes en regroupant leurs cultivateurs. Certaines, fortes de plus de dix planètes, fondèrent leurs propres sectes. D'autres, qui étaient autrefois des pays de culture de rang 7, devinrent indépendantes comme la Secte des Cadavres, faute d'une Alliance pour les régir.
 
 Parmi ces puissances, quatre se distinguaient, dont deux trônaient au sommet: les seuls pays de culture de rang 8 de l'Alliance, le Pays du Nuage Ascendant et le Pays de la Flûte de Roseau. La puissance de ces deux nations était restée largement intacte. Un an et demi après la disparition de l'Alliance de Culture, elles déclarèrent toutes deux leur indépendance!
 
@@ -67,7 +67,7 @@ En complément de cet ordre, l'Alliance de Culture émit un décret scellé:
 
 De plus, lors de l'ouverture du quartier général, une quantité prodigieuse de trésors et de jades fut envoyée aux anciens membres de l'Alliance. Tous ces trésors et sorts célestes avaient été accumulés par l'Alliance durant d'innombrables années; les distribuer en si grande quantité témoignait de la gravité du péril auquel le quartier général faisait face.
 
-Après avoir diffusé ces deux ordres et distribué ces richesses, la formation extérieure se réactiva, scellant à nouveau le lieu. Cependant, cette brève ouverture avait glacé le cœur des anciens cultivateurs de l'Alliance. La plupart d'entre eux ne possédaient pas leur âme originelle sur eux. Plus un cultivateur était puissant, plus l'Alliance s'imposait avec force pour la lui confier. Résister signifiait mourir. C'était ainsi que l'Alliance de Culture avait pu régner sur le système stellaire durant des éons.
+Après avoir diffusé ces deux ordres et distribué ces richesses, la formation extérieure se réactiva, scellant à nouveau le lieu. Cependant, cette brève ouverture avait glacé le cœur des anciens cultivateurs de l'Alliance. La plupart d'entre eux ne possédaient pas leur âme originelle sur eux. Plus un cultivateur était puissant, plus l'Alliance s'imposait avec force pour la lui prendre. Résister signifiait mourir. C'était ainsi que l'Alliance de Culture avait pu régner sur le système stellaire durant des éons.
 
 Au moment même où les ordres étaient envoyés, les Quatre Sectes Divines surgirent dans la région est! Elles avaient agi exactement comme Luotian le soupçonnait: elles avaient anéanti toutes les autres forces de la région est, à l'exception du Royaume du Vide Brillant!
 
@@ -83,4 +83,4 @@ Il était assis là depuis deux ans, sans jamais quitter cet endroit. Il y culti
 
 Le jeune homme tressaillait également, et ses cheveux blancs s'agitaient sans aucun vent. La température intense à l'intérieur de son corps ne cessait de croître.
 
-« Dans la Secte Divine de l'Oiseau Vermillon, chaque génération d'Empereur Divin doit maîtriser la Transformation Mystérieuse de l'Oiseau Vermillon. Ce sort, hérité des temps primordiaux, est l'un des plus puissants qui existent encore aujourd'hui. »
+« Dans la Secte Divine de l'Oiseau Vermillon, chaque génération d'Empereur Divin doit maîtriser les Neuf Transformations Mystérieuses de l'Oiseau Vermillon. Ce sort, hérité des temps primordiaux, est l'un des plus puissants qui existent encore aujourd'hui. »

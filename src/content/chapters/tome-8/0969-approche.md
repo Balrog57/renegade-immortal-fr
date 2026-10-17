@@ -16,9 +16,9 @@ Cependant, l'Omniscient était très discret et peu d'étrangers connaissaient s
 
 Bien que son mouvement parût lent, il était en réalité d'une rapidité extrême. Une pression capable de faire trembler les cieux rugit à travers l'éther. Les cultivateurs de la planète Tian Yun ressentirent une majesté terrifiante descendre sur le monde.
 
-En raison de l'immense quantité d'énergie d'origine accumulée devant le doigt, un arc de lumière apparut devant lui et toucha la planète Tian Yun en premier.
+En raison de l'immense quantité d'énergie originelle accumulée devant le doigt, un arc de lumière apparut devant lui et toucha la planète Tian Yun en premier.
 
-La planète entière sembla vaciller et une onde gigantesque se propagea dans l'atmosphère, comme si une force colossale s'y déplaçait. Cette énergie d'origine précéda le doigt, provoquant même l'effondrement de certaines parties de la planète et une distorsion totale de l'espace.
+La planète entière sembla vaciller et une onde gigantesque se propagea dans l'atmosphère, comme si une force colossale s'y déplaçait. Cette énergie originelle précéda le doigt, provoquant même l'effondrement de certaines parties du ciel étoilé et une distorsion totale de l'espace.
 
 Un grondement tonitruant retentit à travers le monde lorsque le doigt percuta l'atmosphère. Celle-ci s'effondra instantanément, laissant une lumière aux sept couleurs se répandre sur toute la zone.
 
@@ -26,7 +26,7 @@ Le doigt força l'ouverture d'une fissure. Cette brèche continuait de s'étendr
 
 En levant les yeux vers le ciel, on aurait dit que le doigt avait percé un trou dans les cieux et descendait lentement pour s'y engouffrer! Il visait la vallée située à cinq cents kilomètres de la Cité aux Yeux Fantômes!
 
-Avant que le doigt ne frappe, une pression inimaginable descendit et la terre craquela. Les expressions de tous les cultivateurs qui pensaient avoir accompli quelque chose changèrent radicalement; aucun d'eux n'osa s'approcher pour observer.
+Avant que le doigt ne frappe, une pression inimaginable descendit et la terre craquela. Les expressions de tous les cultivateurs qui s'estimaient dotés d'un certain niveau de culture changèrent radicalement; aucun d'eux n'osa s'approcher pour observer.
 
 Alors que cette puissance se propageait, leurs esprits tremblèrent. Un sentiment de fin des temps, comme si le ciel et la terre allaient être anéantis, naquit au plus profond de leurs cœurs.
 
@@ -40,32 +40,32 @@ Un tonnerre violent résonna dans les cieux. Tandis que le doigt géant descenda
 
 Wang Lin se tenait au milieu de la vallée et contemplait le doigt descendant lentement du ciel avec une expression sombre. Il pouvait clairement ressentir l'aura émanant de cette attaque: c'était l'Omniscient!
 
-« Quel genre de sort est-ce là?! » Wang Lin serra l'Extrême Yang dans sa main. Au moment où l'objet entra en contact avec lui, il sentit la perle défiant le ciel, située à l'intérieur de son âme d'origine, trembler.
+« Quel genre de sort est-ce là?! » Wang Lin serra le Yang extrême dans sa main. Au moment où l'objet entra en contact avec lui, il sentit la perle défiant le ciel, située à l'intérieur de son âme d'origine, trembler.
 
-Sans avoir le temps de réfléchir aux changements subis par la perle défiant le ciel, Wang Lin rangea l'Extrême Yang dans son sac et fixa le doigt géant qui descendait des cieux.
+Sans avoir le temps de réfléchir aux changements subis par la perle défiant le ciel, Wang Lin rangea le Yang extrême dans son sac et fixa le doigt géant qui descendait des cieux.
 
 Ce doigt était colossal. Il dégageait une lueur aux sept couleurs et faisait trembler sans cesse le ciel et la terre. Des fissures se creusèrent dans l'espace à mesure qu'il s'approchait de Wang Lin. Une pression inimaginable tomba du ciel pour converger autour de lui.
 
 « L'Omniscient! » Wang Lin fronça les sourcils, le visage sombre. Sa main droite tapota son sac et un objet apparut dans sa paume. C'était un présent de Qing Shui: un cristal permettant d'Invoquer la Pluie!
 
-À l'époque, Qing Shui lui avait dit que trois utilisations de l'Invoquation de la Pluie étaient scellées à l'intérieur. L'Invoquation de la Pluie lancée par Qing Shui ne serait pas ordinaire. Wang Lin ne l'avait pas encore utilisée, car il souhaitait la garder comme un atout ultime pour sa survie!
+À l'époque, Qing Shui lui avait dit que trois utilisations de l'Invocation de la Pluie étaient scellées à l'intérieur. L'Invocation de la Pluie lancée par Qing Shui ne serait pas ordinaire. Wang Lin ne l'avait pas encore utilisée, car il souhaitait la garder comme un atout ultime pour sa survie!
 
 Cependant, le moment était venu de s'en servir!
 
 Le doigt géant descendait lentement et chargeait vers Wang Lin. Un grondement assourdissant retentit, et la pression de sa descente fit à nouveau éclater la terre! Même la Cité aux Yeux Fantômes fut affectée: de larges pans de ses murs s'effondrèrent et des cris de détresse s'élevèrent de la ville.
 
-À cet instant, il existait une planète éloignée de Tian Yun, mais qui restait sous l'influence de celle-ci. C'était une planète de culture nommée Da Lou! Il n'y avait qu'une seule secte sur cette planète: la Secte de l'Épée Da Lou!
+À cet instant, il existait une planète éloignée de Tian Yun, mais qui restait sous l'influence de celle-ci. C'était une planète de culture nommée Da Luo! Il n'y avait qu'une seule secte sur cette planète: la Secte de l'Épée Da Luo!
 
-La Secte de l'Épée Da Lou occupait une vaste partie de la planète, s'étendant sur des centaines de milliers de kilomètres. Il était bien plus vaste que la Secte du Destin Céleste. Ling Tianhou avait été prêt à payer le prix fort lors de sa fondation, ce qui expliquait son échelle monumentale.
+La Secte de l'Épée Da Luo occupait une vaste partie de la planète, s'étendant sur des centaines de milliers de kilomètres. Il était bien plus vaste que la Secte du Destin Céleste. Ling Tianhou avait été prêt à payer le prix fort lors de sa fondation, ce qui expliquait son échelle monumentale.
 
-Des montagnes imprégnées d'énergie spirituelle parsemaient le domaine de la Secte de l'Épée Da Lou. On y trouvait de nombreux pavillons et des tours monumentales disposées à intervalles réguliers. Il y avait au total 999 tours, comme si elles avaient été érigées pour former une formation géante!
+Des montagnes imprégnées d'énergie spirituelle parsemaient le domaine de la Secte de l'Épée Da Luo. On y trouvait de nombreux pavillons et des tours monumentales disposées à intervalles réguliers. Il y avait au total 999 tours, comme si elles avaient été érigées pour former une formation géante!
 
 Parmi elles, une tour se distinguait par son apparence et sa hauteur unique. Elle était extrêmement élevée, faisant au moins dix fois la taille des autres! Sa cime semblait percer le ciel. Même de très loin, on pouvait ressentir la pression colossale qu'elle dégageait!
 
-Au sommet de cette tour siégeait le Saint de l'Épée, Ling Tianhou. Les quatre épées d'origine brillaient tandis qu'elles gravitaient autour de lui comme une gueule béante. Une intention d'épée féroce rayonnait de la tour, plongeant la planète Da Lou dans un état d'intention tranchante et terrifiante!
+Au sommet de cette tour siégeait le Saint de l'Épée, Ling Tianhou. Les quatre épées d'origine brillaient tandis qu'elles gravitaient autour de lui en formant un carré. Une intention d'épée féroce rayonnait de la tour, plongeant la planète Da Luo dans un état d'intention tranchante et terrifiante!
 
 « Intéressant! Très intéressant! » Ling Tianhou ouvrit soudainement les yeux, laissant apparaître une lueur de froideur. Un sourire étira ses lèvres.
 
-« Combien de fois le maître a-t-il trahi son disciple? Ce vieil homme adore observer ces moments de l'Omniscient... Cependant, ce Wang Lin est un membre de la Série Oiseau Vermillon. Même les Anciens de l'Alliance doivent réfléchir à deux fois avant d'agir contre un membre de cette série. Après tout, nul ne souhaite provoquer l'ancien souverain du Système Stellaire du Vide Brillant: les Quatre Sectes Divines! »
+« Combien de fois maître et disciple se sont-ils retournés l'un contre l'autre? Ce vieil homme adore observer ces moments de l'Omniscient... Cependant, ce Wang Lin est un membre de la Série Oiseau Vermillon. Même les Anciens de l'Alliance doivent réfléchir à deux fois avant d'agir contre un membre de cette série. Après tout, nul ne souhaite provoquer l'ancien souverain du Système Stellaire du Vide Brillant: les Quatre Sectes Divines! »
 
 « Peu importe. Wang Lin, si tu peux résister à un seul sort sans mourir, ce vieil homme viendra à ton aide! » Ling Tianhou sourit. Sa passion favorite consistait à causer des ennuis à l'Omniscient.

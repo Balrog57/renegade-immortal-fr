@@ -10,7 +10,7 @@ La traque ne s'interrompait pas, devenant même plus intense. D'innombrables cul
 
 La silhouette de Wang Lin réapparut dans le vide. Il tituba en surgissant et cracha une nouvelle bouchée de sang, le visage livide. Ses yeux étaient sombres et son intention de tuer s'en trouvait décuplée.
 
-« Si je n'avais pas eu l'Armure de Cuir de l'Ancien Dieu, je serais déjà mort! » Wang Lin fendit l'air sur une dizaine de mètres avant de fusionner avec le monde pour s'enfuir rapidement.
+« Si je n'avais pas eu l'Armure de Cuir de l'Ancien Dieu, face à cette technique du doigt, je serais déjà mort! » Wang Lin fendit l'air sur une dizaine de mètres avant de fusionner avec le monde pour s'enfuir rapidement.
 
 L'obstacle devant lui ayant disparu, l'énergie originelle de la zone était redevenue calme. Cependant, Wang Lin ne chercha pas à fuir directement ses poursuivants; il savait que tant que cette femme le traquerait, elle finirait par le rattraper.
 
@@ -64,15 +64,15 @@ Cependant, les cultivateurs du Domaine Septentrional savaient qu'il ne s'agissai
 
 Un brouillard noir et dense enveloppait progressivement la planète, dégageant une aura glaciale. Au cours des dernières années, cet endroit était devenu une véritable zone interdite du Domaine Septentrional!
 
-C'était le Serpent Observateur de Lune d'autrefois!
+C'était le Serpent aux yeux de lune d'autrefois!
 
-Ce jour-là, la silhouette de Wang Lin apparut à l'extérieur de la planète formée par le Serpent Observateur de Lune. Il observa la créature avec prudence, mais n'hésita pas pour autant à s'élancer dans la brume.
+Ce jour-là, la silhouette de Wang Lin apparut à l'extérieur de la planète formée par le Serpent aux yeux de lune. Il observa la créature avec prudence, mais n'hésita pas pour autant à s'élancer dans la brume.
 
 Au moment où il pénétra dans le brouillard entourant le serpent, Yao Bingyun fit son apparition. Elle fixa la brume et fronça les sourcils.
 
-« Il nous a attirés ainsi tout ce long, il doit forcément comploter quelque chose! » Les yeux de Yao Bingyun brillèrent, comme si son regard pouvait percer l'obscurité du brouillard pour en voir l'intérieur.
+« Il nous a attirés ainsi tout ce chemin, il doit forcément comploter quelque chose! » Les yeux de Yao Bingyun brillèrent, comme si son regard pouvait percer l'obscurité du brouillard pour en voir l'intérieur.
 
-À cet instant précis, des lueurs de lumière surgirent au loin. Les cultivateurs et les membres de la famille Yao, poursuivant Wang Lin, venaient d'arriver. Les cultivateurs du Domaine Septentrional avaient déjà un mauvais pressentiment; en voyant la planète formée par le Serpent Observateur de Lune, leurs visages s'assombrirent.
+À cet instant précis, des lueurs de lumière surgirent au loin. Les cultivateurs et les membres de la famille Yao, poursuivant Wang Lin, venaient d'arriver. Les cultivateurs du Domaine Septentrional avaient déjà un mauvais pressentiment; en voyant la planète formée par le Serpent aux yeux de lune, leurs visages s'assombrirent.
 
 « Cette chose n'est pas une planète de culture, mais une bête étrange! J'ai vu de mes propres yeux cette créature se transformer en planète! »
 
@@ -80,8 +80,8 @@ Au moment où il pénétra dans le brouillard entourant le serpent, Yao Bingyun 
 
 Yao Bingyun n'agit pas avec précipitation, mais observa la situation avec prudence.
 
-À ce moment-là, Wang Lin perça directement le brouillard noir et atteignit le sommet du Serpent Observateur de Lune. Le sol était criblé de fissures et les tentacules oscillaient de gauche à droite. On aurait dit que rien n'avait changé depuis tout ce temps.
+À ce moment-là, Wang Lin perça directement le brouillard noir et atteignit le sommet du Serpent aux yeux de lune. La couche de terre était extrêmement mince et les tentacules oscillaient de gauche à droite. On aurait dit que rien n'avait changé depuis tout ce temps.
 
-Un sourire narquois étira les lèvres de Wang Lin alors qu'il s'engouffrait dans le corps du Serpent Observateur de Lune. Il suivit le chemin qu'il avait emprunté autrefois, se dirigeant vers l'endroit où se trouvait l'os du serpent.
+Un sourire narquois étira les lèvres de Wang Lin alors qu'il s'engouffrait dans le corps du Serpent aux yeux de lune. Il suivit le chemin qu'il avait emprunté autrefois, se dirigeant vers l'endroit où se trouvait l'os du serpent.
 
-« Venez m'attaquer. Dès que vous aurez provoqué la colère du Serpent Observateur de Lune, tout sera réglé! » Les yeux de Wang Lin brillaient d'une lueur sinistre.
+« Venez m'attaquer. Dès que vous aurez provoqué la colère du Serpent aux yeux de lune, tout sera réglé! » Les yeux de Wang Lin brillaient d'une lueur sinistre.

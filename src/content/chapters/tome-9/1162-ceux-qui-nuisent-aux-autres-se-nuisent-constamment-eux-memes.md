@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1162 - Those Who Harm Others are Constantly Hurting Themselves
 slug: ceux-qui-nuisent-aux-autres-se-nuisent-constamment-eux-memes
 ---
-La Secte des Cinq Poisons de rang 6 était considérée comme une force relativement puissante parmi les sectes de ce niveau; il était l'égal de la Secte de la Fleur Claire. De nombreuses frictions existaient entre les deux sectes, et elles se livraient à de constantes joutes.
+La Secte des Cinq Poisons de rang 6 était considérée comme une force relativement puissante parmi les sectes de ce niveau; elle était l'égale de la Secte de la Fleur Claire. De nombreuses frictions existaient entre les deux sectes, et elles se livraient à de constantes joutes.
 
 Zhou Hai était un disciple central de la Secte des Cinq Poisons. Son niveau de culture n'était pas aussi élevé que celui de la Vieille Femme Poisonneuse, se situant seulement au début du stade de la Purification du Nirvana. Cependant, il était un membre influent de la Secte des Cinq Poisons, et la secte lui accordait une importance considérable.
 
@@ -16,13 +16,13 @@ Zhou Hai était un disciple central de la Secte des Cinq Poisons. Son niveau de 
 
 Un éclair de froideur passa dans les yeux de Zhou Hai alors qu'il fixait le cultivateur en noir: « Zhao Yu, j'ai enduré tes provocations tout au long du voyage. Si tu continues tes sarcasmes, ne me reproche pas de ne plus me retenir! »
 
-« La Secte des Cinq Poisons est donc bien puissant. Je veux voir si votre secte oserait affronter ma Secte de la Collection Démoniaque! » Le cultivateur en noir sourit, mais ce sourire était d'une froideur extrême.
+« La Secte des Cinq Poisons est donc bien puissante. Je veux voir si votre secte oserait affronter ma Secte de la Collection Démoniaque! » Le cultivateur en noir sourit, mais ce sourire était d'une froideur extrême.
 
 La lueur bleue de l'œil droit de Zhou Hai s'intensifia, mais à cet instant précis, un reniflement glacial retentit près d'eux.
 
-« Cela suffit! Nous sommes trois représentants de nos sectes respectives pour traquer le traître de la Secte des Cinq Poisons. Nous ne pouvons nous battre entre nous! » L'homme qui venait de parler était un quadragénaire au milieu du stade de la Purification du Nirvana. Après son intervention, Zhou Hai et Zhao Yu se lancèrent des regards hostiles avant de laisser échapper des reniflements froids et de réprimer l'énergie originelle qu'ils s'apprêtaient à déchaîner.
+« Cela suffit! Nous sommes trois représentants de nos sectes respectives pour traquer le traître de la Secte des Cinq Poisons. Nous ne pouvons nous battre entre nous! » L'homme qui venait de parler était un homme d'âge moyen au milieu du stade de la Purification du Nirvana. Après son intervention, Zhou Hai et Zhao Yu se lancèrent des regards hostiles avant de laisser échapper des reniflements froids et de réprimer l'énergie originelle qu'ils s'apprêtaient à déchaîner.
 
-Cet homme d'âge moyen était un disciple central de la puissante secte de rang 6, la Secte du Sort Dao. En raison de la Vieille Femme Poisonneuse, il était extrêmement difficile pour la Secte des Cinq Poisons de justifier la situation. Finalement, ils avaient payé un lourd tribut pour clore l'affaire. Ils avaient également dû envoyer des disciples centraux en guise d'otages sous prétexte de rechercher la Vieille Femme Poisonneuse; la véritable raison était de surveiller les membres de la Secte des Cinq Poisons.
+Cet homme d'âge moyen était un disciple central de la première secte de rang 6, la Secte du Sort Dao. En raison de la Vieille Femme Poisonneuse, il était extrêmement difficile pour la Secte des Cinq Poisons de justifier la situation. Finalement, ils avaient payé un lourd tribut pour clore l'affaire. Ils avaient également dû envoyer des disciples centraux en guise d'otages sous prétexte de rechercher la Vieille Femme Poisonneuse; la véritable raison était de surveiller les membres de la Secte des Cinq Poisons.
 
 Si la Vieille Femme Poisonneuse n'était pas retrouvée rapidement, la Secte des Cinq Poisons ferait face à une crise majeure.
 
@@ -48,9 +48,9 @@ L'homme d'âge moyen joignit ses mains à son tour: « Je suis Feng Peishan, de 
 
 Li Xiangdong inspira profondément et échangea un regard sérieux avec les deux anciens à ses côtés. Ces trois sectes détenaient près de 40 % de la puissance de la région de rang 6. Elles étaient si dominantes qu'une simple pensée de leur part suffirait à anéantir la Secte de l'Origine.
 
-Si leurs chefs étaient dans cet état, il n'en était rien pour leurs disciples. Tous baissèrent la tête, n'osant lever les yeux. Seule Lu Yanfei resta impassible et silencieuse.
+Si leurs chefs étaient déjà dans cet état, que dire de leurs disciples. Tous baissèrent la tête, n'osant lever les yeux. Seule Lu Yanfei resta impassible et silencieuse.
 
-Li Xiangdong réprima ses pensées et esquissa un sourire de circonstance: « J'ignore les raisons qui amènent les sectes supérieures ici. Si la Secte de l'Origine peut vous être utile, il fera de son mieux pour vous assister. »
+Li Xiangdong réprima ses pensées et esquissa un sourire de circonstance: « J'ignore les raisons qui amènent les sectes supérieures ici. Si la Secte de l'Origine peut vous être utile, elle fera de son mieux pour vous assister. »
 
 Zhou Hai laissa échapper un reniflement froid, s'avança et se posta devant un disciple de la Secte de l'Origine. Sa main bougea avec la rapidité de l'éclair et frappa le jeune homme. Le corps du disciple trembla et il cracha du sang avant d'être projeté au loin.
 
@@ -68,7 +68,7 @@ Cependant, le petit serpent était affaibli, au bord de la mort. Même l'Âme Na
 
 L'expression de Zhou Hai resta sombre. Après avoir jeté un regard sur l'Âme Naissante, il passa outre. Ses yeux brillèrent de nouveau d'un bleu intense alors qu'il balayait les disciples restants de la Secte de l'Origine. Un instant plus tard, il fit un pas et se dirigea droit sur Xu Yun, qui soutenait le disciple!
 
-Le visage de Xu Yun changea. Il serait impossible pour quelqu'un de son niveau de culture de résister. À cet instant, une intention meurtrière jaillit des yeux de Lu Yanfei qui chargea. Sa main droite traça un sceau avant d'être projetée en un mouvement: une rafale de vent s'élança vers Zhou Hai.
+Le visage de Xu Yun changea. Avec son niveau de culture, elle était incapable de résister. À cet instant, une intention meurtrière jaillit des yeux de Lu Yanfei qui chargea. Sa main droite traça un sceau avant d'être projetée en un mouvement: une rafale de vent s'élança vers Zhou Hai.
 
 Zhou Hai ricana et son œil droit brilla d'un bleu éclatant. Sept marques bleues apparurent autour de lui. Il ignora totalement le vent et avança sans la moindre hésitation.
 
@@ -88,7 +88,7 @@ La terre en trembla légèrement et les nuages furent repoussés.
 
 « Une Parole de Loi! » haleta Li Xiangdong.
 
-Feng Peishan afficha un regard de dédain envers la Secte de l'Origine. Son regard balaya les lieux avant qu'il ne fronce les sourcils en observant la cour sud de la Secte de l'Origine.
+Zhao Yu afficha un regard de dédain envers la Secte de l'Origine. Son regard balaya les pavillons de la montagne avant qu'il ne fronce les sourcils en observant la cour sud de la Secte de l'Origine.
 
 À ce moment, Zhou Hai fixa la pâle Xu Yun et dit d'une voix sombre: « Petite, tu portes l'odeur de l'Herbe au Poison de Poisson. Cette herbe ne croît que dans le nid d'une bête de rang 6, nulle part ailleurs. Il serait impossible pour les membres de la Secte de l'Origine de s'en procurer, et pourtant l'odeur est encore fraîche. Où l'as-tu trouvée? »
 

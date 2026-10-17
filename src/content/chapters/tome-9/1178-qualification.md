@@ -50,7 +50,7 @@ Wang Lin s'arrêta pour réfléchir. Il se tourna vers Maître Pin Cendré et di
 
 Maître Pin Cendré sourit et tendit un jade à Wang Lin. Puis il rit et ajouta: « Le camarade cultivateur Lu peut se rendre à l'endroit indiqué sur la carte. Quelques vieux amis m'y attendront. »
 
-Sur ce, il regarda Li Qianmei, joignit les mains et disparut dans la brume. Il ne craignait pas que Wang Lin ne le rejoigne.
+Sur ce, il regarda Li Qianmei, joignit les mains et disparut dans la brume. Il ne craignait pas que Wang Lin ne vienne pas le rejoindre.
 
 Wang Lin fixa Li Qianmei et, après une courte réflexion, demanda calmement: « Vous n'étiez pas partie? Pourquoi êtes-vous revenue? »
 
@@ -58,7 +58,7 @@ Li Qianmei cligna des yeux et murmura: « J'allais partir, mais je me suis souve
 
 Wang Lin fronça les sourcils: « Je vais vous accompagner jusqu'ici... Avec votre niveau de culture, il ne devrait pas y avoir trop de danger là-bas, mais restez prudente malgré tout. »
 
-Li Qianmei secoua la tête: « Qui sait? Peut-être ne nous reverrons-nous jamais après mon départ... À en juger par le ton du Maître, cette épidémie semble assez grave. »
+Li Qianmei secoua la tête: « Qui sait? Peut-être ne nous reverrons-nous jamais après mon départ... À en juger par le ton du Maître, ce soulèvement des bêtes semble assez grave. »
 
 Wang Lin resta silencieux, plongé dans ses pensées.
 
@@ -80,17 +80,17 @@ Li Qianmei lança calmement le bracelet de jade sur le côté. Celui-ci se chang
 
 Wang Lin la regarda en silence.
 
-« Puisque vous refusez mon présent, prenez plutôt ce tableau. » Li Qianmei fit un geste de la main et un tableau apparut, qu'elle tendit à Wang Lin.
+« Puisque vous refusez mes présents, reprenez donc aussi ce tableau. » Li Qianmei fit un geste de la main et un tableau apparut, qu'elle tendit à Wang Lin.
 
 Elle ajouta d'un ton serein: « Le lac et la rivière sur ce tableau sont magnifiques, mais ils manquaient de vitalité, alors j'y ai ajouté quelques éléments. »
 
 Après avoir pris le tableau, Wang Lin ne l'ouvrit pas immédiatement. Après un instant de réflexion silencieuse, il tendit sa main droite vers son espace de stockage. Une fente s'ouvrit et un rayon de lumière dorée en jaillit.
 
-La lumière atterrit dans la main de Wang Lin, se dissipant pour révéler un stylo.
+La lumière atterrit dans la main de Wang Lin, se dissipant pour révéler un pinceau.
 
-Wang Lin fit un mouvement de la main et commença à tracer une rune avec le stylo. Sa main ne faiblit pas, traçant trait après trait jusqu'à ce que la rune, d'une complexité extrême, soit achevée.
+Wang Lin fit un mouvement de la main et commença à tracer une rune avec le pinceau. Sa main ne faiblit pas, traçant trait après trait jusqu'à ce que la rune, d'une complexité extrême, soit achevée.
 
-« Ce stylo est un trésor céleste; utilisé avec cette rune, il vous permettra de manifester une puissance phénoménale malgré votre niveau de culture! » Wang Lin lâcha le stylo. Une lueur dorée enveloppa l'objet alors qu'il flottait dans le vide.
+« Ce pinceau est un trésor céleste; utilisé avec cette rune, il vous permettra de manifester une puissance phénoménale malgré votre niveau de culture! » Wang Lin lâcha le pinceau. Une lueur dorée enveloppa l'objet alors qu'il flottait dans le vide.
 
 Sans plus regarder Li Qianmei, Wang Lin se détourna et s'élança vers l'horizon.
 
@@ -100,7 +100,7 @@ En entendant la musique au loin, Wang Lin regarda le tableau qu'il tenait. Il l'
 
 Wang Lin fronça les sourcils avec un sourire amer. Il rangea le tableau et s'envola, porté par les échos de la flûte.
 
-Après un long moment, Li Qianmei cessa de jouer et fit un geste de la main. Elle rangea le stylo doré et s'évanouit dans le vide...
+Après un long moment, Li Qianmei cessa de jouer et fit un geste de la main. Elle rangea le pinceau doré et s'évanouit dans le vide...
 
 Wang Lin progressait tel un éclair en suivant la carte de Maître Pin Cendré à travers la brume. Soudain, il s'arrêta net, fixant l'espace devant lui.
 
@@ -110,11 +110,11 @@ Même si elle l'avait lancé dans la bonne direction, l'immensité de l'espace e
 
 Wang Lin observa silencieusement le bracelet de jade pendant un long moment avant de tendre la main. L'objet tomba dans sa paume. Il poussa un soupir et reprit sa course.
 
-Non loin de Peng Lai, dans la région de rang 5, se trouvait un minuscule continent sauvage. C'était une terre sans bêtes où les cultivateurs se rendaient rarement. Pourtant, à cet instant précis, trois cultivateurs y étaient assis.
+Non loin de Peng Lai, dans la région de rang 5, se trouvait un minuscule continent sauvage. C'était une terre où les bêtes féroces étaient peu nombreuses et où les cultivateurs se rendaient rarement. Pourtant, à cet instant précis, trois cultivateurs y étaient assis.
 
 « Maître Pin Cendré, cet endroit est le plus secret parmi nous. Pourquoi voulez-vous faire venir cet homme nommé Lu? » demanda un vieil homme au visage balafré. C'était le même qu'il avait croisé lors de l'enchère de Maître Pin Cendré.
 
-Maître Pin Cendré, d'un air serein, répondit: « Cet homme peut utiliser l'Empreinte de l'Esprit Guerrier. Sa présence augmentera mes chances de succès de 20 %! De plus, je devrai solliciter le sortilège du camarade cultivateur Zhao pour nous guider. Une fois la tâche accomplie, conformément à notre accord, le camarade cultivateur Zhao pourra choisir les trois premiers matériaux! »
+Maître Pin Cendré, d'un air serein, répondit: « Cet homme peut utiliser l'Empreinte de l'Esprit Guerrier. Sa présence augmentera mes chances de succès de 20 %! De plus, je devrai solliciter le sortilège du camarade cultivateur Zhao pour nous guider. Une fois la tâche accomplie, conformément à notre accord, le camarade cultivateur Zhao pourra choisir en premier trois des objets obtenus! »
 
 Le regard de Maître Pin Cendré se posa sur une autre personne, également familière à Wang Lin: une vieille femme vêtue de vert.
 

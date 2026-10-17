@@ -36,7 +36,7 @@ C'était une vision inoubliable!
 
 « Mon Seigneur! » Le fanatisme dans les yeux de Shengong Hu redoubla d'intensité.
 
-Zhan Konglie eut un haut-le-cœur en regardant Wang Lin. Il se remémora son combat contre Shengong Hu au lac de tonnerre. C'était sous la guidance de Wang Lin que Shengong Hu semblait avoir commencé à entrevoir les lois du tonnerre!
+Zhan Konglie inspira brusquement en regardant Wang Lin. Il se remémora son combat contre Shengong Hu dans la prison de tonnerre. C'était sous la guidance de Wang Lin que Shengong Hu semblait avoir commencé à entrevoir les lois du tonnerre!
 
 Non seulement eux, mais les cultivateurs environnants remarquèrent également la scène. Leurs esprits furent ébranlés et leurs regards se remplirent de choc.
 
@@ -102,7 +102,7 @@ Le rythme du tambour ne s'arrêta pas. Tandis que les coups continuaient, Wang L
 
 Au moment où il s'élança, le tonnerre gronda sans fin. Alors que l'énergie se concentrait sur l'esprit, des fissures apparurent à la surface de la place.
 
-*Roar!* L'esprit du tonnerre, prenant une forme serpentine, s'élança avec une cupidité monstrueuse. Il fonça sur Wang Lin, déterminé à devenir un dragon!
+*Grooaar!* L'esprit du tonnerre, prenant une forme serpentine, s'élança avec une cupidité monstrueuse. Il fonça sur Wang Lin, déterminé à devenir un dragon!
 
 C'était comme si tout le lac de tonnerre avait été aspiré dans cette charge. Une force inimaginable se referma soudainement sur Wang Lin. À cet instant précis, un éclair jaillit entre les sourcils de Wang Lin et son âme originelle de dragon du tonnerre antique surgit!
 

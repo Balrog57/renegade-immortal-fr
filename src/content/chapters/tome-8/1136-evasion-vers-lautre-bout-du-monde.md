@@ -8,7 +8,7 @@ slug: evasion-vers-lautre-bout-du-monde
 ---
 Alors que cette voix résonnait, le savant d'âge moyen assis sur la quatrième étoile au sommet de la tête de Tuo Sen ouvrit les yeux. Son regard était empreint de cruauté, mais il contenait également une pointe d'amertume.
 
-« Maître Lufu, je n'ai pas oublié notre promesse, mais je suis impuissant. Vous... partez vite... »
+« Maître Lu Fu, je n'ai pas oublié notre promesse, mais je suis impuissant. Vous... partez vite... »
 
 Une voix ancienne, lourde de tristesse, se propagea lentement dans le vide. Cependant, la quatrième étoile commença à briller de plus en plus intensément et, au moment où elle atteignit l'éclat des trois autres étoiles, cette voix disparut complètement.
 
@@ -48,7 +48,7 @@ L'épée brisée siffla dans les airs, portée par une intention meurtrière cé
 
 L'épée brisée pénétra inopinément le pied droit de Tuo Sen. Portant une force irrésistible, elle traversa la jambe et chargea vers le visage du colosse.
 
-Le sortilège de cette épée brisée dépassait de loin ce qu'un cultivateur du Briseur du Nirvana pouvait accomplir. Même les cultivateurs du Fléau Céleste ne pouvaient égaler la vitesse de cette arme.
+La vitesse de cette épée brisée dépassait de loin celle d'un cultivateur du Briseur du Nirvana. Même les cultivateurs du Fléau Céleste ne pouvaient égaler la vitesse de cette arme.
 
 Tout cela ne prit qu'un instant: l'épée perça la jambe droite de Tuo Sen! En un éclair, elle atteignit le visage de ce dernier et chargea vers la quatrième étoile.
 
@@ -76,11 +76,11 @@ L'étoile se détacha du front de Tuo Sen et fonça vers le vieil homme en noir.
 
 Cependant, au moment où l'étoile quittait la tête de Tuo Sen, la quatrième étoile brilla d'un éclat fulgurant. Une lumière jaillit et enveloppa la cinquième étoile en plein vol, bloquant sa trajectoire.
 
-« Maître Lufu, partez vite! Cet homme s'est trompé, profondément trompé. Je n'aurais pas dû tenter de convoiter le pouvoir de l'ancien dieu royal pour franchir le stade initial du Nirvana Vide... et me voilà dans cet état... »
+« Maître Lu Fu, partez vite! Cet homme s'est trompé, profondément trompé. Je n'aurais pas dû tenter de convoiter le pouvoir de l'ancien dieu royal pour franchir le stade initial du Vide du Nirvana... et me voilà dans cet état... »
 
-À l'intérieur de la quatrième étoile, Maître Wuji cracha du sang, le corps tremblant. Il utilisait sa connexion avec l'ancien dieu pour empêcher la cinquième étoile d'absorber Maître Lufu. Il savait que si Maître Lufu était dévoré, il n'aurait plus jamais la moindre chance de s'échapper!
+À l'intérieur de la quatrième étoile, Maître Wuji cracha du sang, le corps tremblant. Il utilisait sa connexion avec l'ancien dieu pour empêcher la cinquième étoile d'absorber Maître Lu Fu. Il savait que si Maître Lu Fu était dévoré, il n'aurait plus jamais la moindre chance de s'échapper!
 
-S'il voulait survivre, il devait tout risquer pour sauver Maître Lufu. C'était le prix à payer pour espérer un avenir!
+S'il voulait survivre, il devait tout risquer pour sauver Maître Lu Fu. C'était le prix à payer pour espérer un avenir!
 
 Le vieil homme en noir ne vacilla pas et fit un pas en avant. Des ondulations apparurent devant lui pour former un vortex. À cet instant précis, les yeux de Tuo Sen devinrent glacials; il ignora que la dévoration par sa cinquième étoile avait été entravée. Il leva sa main droite et tira dans le vide. Des éclairs violets apparurent instantanément, formant une lance gigantesque de la taille de plusieurs planètes de culture!
 
@@ -118,7 +118,7 @@ L'obstruction de Wang Lin et ce bref sursis permirent au vieil homme d'entrer da
 
 La Lance Tueuse de Dieux percuta directement le vortex, provoquant une onde de choc dévastatrice. Maître Yan Leizi venait à peine de franchir le vortex lorsqu'il fut frappé par cette force. Il cracha du sang et parut instantanément affaibli. Ses deux jambes explosèrent et même son âme originelle devint instable.
 
-Il laissa échapper un sourire misérable, sa haine envers Tuo Sen n'ayant d'égale que celle qu'il vouait à Maître Zong Xuan! Voyant la force revenir, une folie dévorante s'empara de Maître Yan Leizi. Il était sur le point de sacrifier son corps pour permettre l'évasion de son âme originelle.
+Il laissa échapper un sourire misérable, sa haine envers Tuo Sen n'ayant d'égale que celle qu'il vouait à Maître Zhong Xuan! Voyant la force revenir, une folie dévorante s'empara de Maître Yan Leizi. Il était sur le point de sacrifier son corps pour permettre l'évasion de son âme originelle.
 
 Le vieil homme en noir apparut aux côtés de Maître Yan Leizi, l'attrapa et disparut.
 
@@ -126,7 +126,7 @@ Les huit rois de la Secte des Cadavres réussirent enfin à s'échapper, mais la
 
 Les trois restants sortirent des cercueils en hâte pour obtenir de nouveaux corps et tenter de fuir. Mais la force frappa à nouveau, faisant s'effondrer leurs nouveaux corps.
 
-Ce cycle se répéta. Cette distance de moins de dix mille pieds était pour eux un véritable apocalypse. Ils laissaient derrière eux une traînée de brume sanglante à chaque nouvelle mort.
+Ce cycle se répéta. Cette distance de moins de dix mille pieds était pour eux une véritable apocalypse. Ils laissaient derrière eux une traînée de brume sanglante à chaque nouvelle mort.
 
 Les deux derniers rois de la Secte des Cadavres étaient sur le point de perdre la raison. Voyant la force se refermer sur eux, ils sombrèrent dans le désespoir. À cet instant, un vortex noir apparut soudainement près d'eux et deux bras s'étendirent pour les saisir et les aspirer à l'intérieur.
 
@@ -138,6 +138,6 @@ Lorsqu'il réapparut, il était déjà très loin de la planète Suzaku. Pourtan
 
 « Je garderai la première étoile de l'ancien dieu pour toi! »
 
-« Si j'avais dû affronter Tuo Sen, même si mon corps originel avait traversé les Trois Épreuves et Sept Calamités, même si je possédais la lance, je ne survivrais pas à un seul de ses coups... » Wang Lin afficha une expression amère. Il ignorait si Tuo Sen s'était échappé, mais il savait qu'il ne pouvait rester dans le Système Stellaire de l'Alliance. Il devait partir au plus vite et ne jamais... jamais revenir... À moins d'acquérir la puissance nécessaire pour résister à Tuo Sen...
+« Si j'avais dû affronter Tuo Sen, même si mon corps originel avait traversé les Trois Épreuves et Sept Calamités, même si j'avais le trident en main, je ne survivrais pas à un seul de ses coups... » Wang Lin afficha une expression amère. Il ignorait si Tuo Sen s'était échappé, mais il savait qu'il ne pouvait rester dans le Système Stellaire de l'Alliance. Il devait partir au plus vite et ne jamais... jamais revenir... À moins d'acquérir la puissance nécessaire pour résister à Tuo Sen...
 
 Il disparut une nouvelle fois, le visage marqué par l'amertume, utilisant la Déformation Spatiale pour rejoindre l'endroit où il avait préparé une voie de secours. C'était une planète isolée et désertique... Il y avait installé une formation avant sa rencontre avec l'Empereur Divin du Dragon Azure.

@@ -30,7 +30,7 @@ Wang Lin ne comprenait pas ce que sont les Flammes de Joss ni comment elles éta
 
 Ces âmes de guerriers étaient toutes des personnes qu'il avait tuées, mais elles étaient devenues des disciples lui fournissant des Flammes de Joss. C'était la fortune de Wang Lin, l'héritage du Seigneur du Royaume Scellé et une mutation presque impossible à reproduire. Même le Maître du Dao Rêve Bleu n'aurait jamais imaginé que l'enseignement du sort de fusion à Wang Lin engendrerait un tel changement.
 
-Le Sceau Céleste était formé d'un fragment du Royaume Céleste du Tonnerre. Ce dernier avait été créé il y a des éons par le Seigneur du Royaume Scellé afin d'empêcher la Formation de Scellement du Royaume d'absorber les Flammes de Joss du Royaume Intérieur, permettant ainsi à ces dernières d'apparaître dans le Royaume Intérieur.
+Le Sceau Céleste était formé d'un fragment du Royaume Céleste du Tonnerre. Ce dernier avait été créé il y a des éons par le Seigneur du Royaume Scellé afin d'empêcher la Formation du Royaume Scellé d'absorber les Flammes de Joss du Royaume Intérieur, permettant ainsi à ces dernières d'apparaître dans le Royaume Intérieur.
 
 Bien que les quatre Royaumes Célestes fussent détruits, ils constituaient les meilleurs matériaux pour produire des Flammes de Joss! Toutefois, cela seul n'aurait pas suffi; mais ce fragment avait également subi la rétribution divine. C'était comme si le Ciel lui-même avait raffiné ce fragment pour en faire un trésor destiné à Wang Lin!
 
@@ -40,11 +40,11 @@ Wang Lin avait involontairement utilisé cet objet pour son Arsenal Magique. En 
 
 Cependant, sans une opportunité de l'activer, ce pouvoir se serait lentement dissipé. Wang Lin n'aurait jamais remarqué d'anomalie, car ces âmes de guerriers étaient simplement entourées du pouvoir créateur des Flammes de Joss sans jamais le libérer.
 
-Cette opportunité survint lorsque le Maître du Dao Rêve Bleu fusionna l'Appel du Vent et la Convocation de la Pluie en un monde! C'était comme donner des racines à une plante dépourvue de racines!
+Cette opportunité survint lorsque le Maître du Dao Rêve Bleu fusionna l'Appel du Vent et l'Invocation de la Pluie en un monde! C'était comme donner des racines à une plante dépourvue de racines!
 
 Puis, Wang Lin tenta de fusionner l'Arsenal Magique et le Monde du Vent et de la Pluie. Cela permit à ce changement, à cette opportunité, d'éclore!
 
-Bien que les âmes de guerriers fussent nombreuses et les Flammes de Joss très faibles — bien plus que les deux milliards de disciples du Shui Daozi — il s'agissait là de véritables Flammes de Joss. La clé pour atteindre la troisième étape, un trésor de Dao pour lequel les cultivateurs de ce niveau se disputeraient avec acharnement!
+Bien que les âmes de guerriers fussent peu nombreuses et les Flammes de Joss très faibles — bien loin des deux milliards de disciples du Shui Daozi — il s'agissait là de véritables Flammes de Joss. La clé pour atteindre la troisième étape, un trésor de Dao pour lequel les cultivateurs de ce niveau se disputeraient avec acharnement!
 
 L'expression de Wang Lin était très singulière. Il ouvrit les yeux et médita silencieusement un instant avant de mettre cette pensée de côté. Après tout, le danger représenté par la femme en blanc à l'extérieur du Clan de la Soie Bleue persistait. Même s'il avait créé ce trésor par inadvertance, cela ne lui serait d'aucun secours si cela ne l'aidait pas à résoudre la crise posée par cette femme.
 
@@ -64,7 +64,7 @@ Le vieil homme avait les yeux clos. La marque en croissant de lune entre ses sou
 
 « Puisque le Clan de la Lune possédait l'os de doigt du dieu ancien, ils doivent avoir une méthode pour l'utiliser... » Le regard de Wang Lin se posa sur l'âme originelle du vieillard.
 
-Le niveau de culture de cet homme était extrêmement élevé, presque comparable à celui de l'Empereur Divin du Dragon Azure, frôlant le quatrième Fléau Céleste. Si Wang Lin l'avait rencontré plus tôt, il n'aurait pas été son égal.
+Le niveau de culture de cet homme était extrêmement élevé, presque comparable à celui de l'Empereur Divin du Dragon Azure, frôlant le quatrième Fléau Céleste. Si Wang Lin l'avait rencontré seul, il n'aurait pas été son égal.
 
 Cependant, cet homme s'était évidemment montré incapable de résister aux attaques dévastatrices de Tuo Sen et finit gravement blessé par ce dernier. Puis, lorsque l'os fut brisé en deux, son corps s'effondra sous la force de l'onde de choc de l'aura du dieu ancien.
 
@@ -104,7 +104,7 @@ L'âme originelle du vieil homme aux cheveux blancs était désormais totalement
 
 Au moment même de sa mort, l'âme du vieil homme apparut sur un continent à l'intérieur du Monde du Vent et de la Pluie. Il s'y assit, dégageant une quantité phénoménale d'aura blanc laiteux...
 
-« Le Clan de la Lune est extrêmement vaste. Le groupe que Tuo Sen et moi avons détruit n'était qu'une branche. Dans le Système Stellaire Antique, le Clan de la Lune possède encore trois autres branches... Et dans la branche principale, il existe un ancêtre du Clan de la Lune. Cette personne est... un cultivateur de la troisième étape! »
+« Le Clan de la Lune est extrêmement vaste. Le groupe que Tuo Sen et moi avons détruit n'était qu'une branche. Dans le Système Stellaire Antique, le Clan de la Lune possède encore trois autres branches... Et dans la branche située plein est, il existe un ancêtre du Clan de la Lune. Cette personne est... un cultivateur de la troisième étape! »
 
 « Ce vieil homme n'avait jamais vu le Souverain de sa vie. Il savait seulement qu'il y a fort longtemps, le Souverain avait fui le Royaume Intérieur gravement blessé et s'était réfugié dans un lieu mystérieux pour guérir! »
 

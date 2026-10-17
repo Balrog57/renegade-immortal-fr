@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 832 - Moongazer Serpents Joy
 slug: la-joie-des-serpents-lunaires
 ---
-Après avoir saisi l'âme originelle de Yao Yunhai, Wang Lin n'hésita pas à la placer dans le drapeau spirituel qu'il portait dans son sac. Sans s'arrêter, il disparut en un éclair.
+Après avoir saisi l'âme originelle de Yao Yunhai, Wang Lin n'hésita pas à la placer dans le Drapeau de l'Âme Honorée qu'il portait dans son sac. Sans s'arrêter, il disparut en un éclair.
 
 Le Serpent aux yeux de lune, long de 330 mètres, surgit de derrière lui et une aura glaciale emplit les environs. Après avoir cherché un instant, la créature ouvrit sa gueule et aspira toute l'aura résiduelle de Wang Lin. Tous les tentacules de son corps s'enroulèrent autour d'elle, comme si elle savourait ce moment.
 
@@ -54,11 +54,11 @@ Cependant, le sort était trop puissant et perça presque instantanément les d�
 
 Il transperça son corps et se divisa en quatre rayons de lumière rouge qui chargèrent vers son âme originelle.
 
-Un craquement retentit dans le corps de Wang Lin. Son visage devint livide, mais ses yeux brûlaient d'une intention meurtrière monstrueuse. Il recula en emportant le Sceau Céleste avec lui.
+Un craquement retentit dans le corps de Wang Lin. Son visage devint livide et une gorgée de sang remonta, mais il la refoula; ses yeux brûlaient d'une intention meurtrière monstrueuse. Il recula en emportant le Sceau Céleste avec lui.
 
 En un instant, il se retira très loin.
 
-« Toujours vivant! » Les yeux en phénix de Yao Bingyun brillèrent intensément. Ce Xu Mu était extrêmement étrange. Si sa survie la fois précédente pouvait s'expliquer par la chance, cette fois, elle avait utilisé toute sa puissance et n'avait toujours pas réussi à tuer un cultivateur du stade Corporel Yang. Ses yeux se plissèrent.
+« Toujours vivant! » Les yeux en phénix de Yao Bingyun brillèrent intensément. Ce Xu Mu était extrêmement étrange. Si sa survie la fois précédente pouvait s'expliquer par la chance, cette fois, elle avait déployé toute la puissance du Sceau de Dommage Spirituel des Dix Cycles et, avec sa culture du milieu du stade Scruteur du Nirvana, n'avait toujours pas réussi à tuer l'âme originelle d'un cultivateur du stade Corporel Yang. Ses yeux se plissèrent.
 
 « Il doit posséder un trésor céleste qui protège son âme originelle! » ricana Yao Bingyun en faisant un pas en avant, tandis que la glace continuait de progresser derrière elle vers Wang Lin.
 
@@ -70,7 +70,7 @@ Le Coup Céleste apparut soudainement, mais il ne visa pas Yao Bingyun, plutôt 
 
 Une pointe de dédain apparut dans les yeux de Yao Bingyun. Si elle avait été à l'extérieur, elle n'aurait pu le rattraper; elle admirait d'ailleurs grandement ce Xu Mu pour sa maîtrise de la Distorsion Spatiale.
 
-Cependant, ici, la téléportation et la fusion avec le monde étaient impossibles. Pour la rattraper, la tâche serait aisée. Une lumière bleue jaillit sous ses pieds et, en un éclair, elle se déplaça. Bien que ce ne fût pas une téléportation, sa vitesse était équivalente et elle rejoignit immédiatement Wang Lin.
+Cependant, ici, la téléportation et la fusion avec le monde étaient impossibles. Pour le rattraper, la tâche était aisée. Une lumière bleue jaillit sous ses pieds et, en un éclair, elle se déplaça. Bien que ce ne fût pas une téléportation, sa vitesse était équivalente et elle rejoignit immédiatement Wang Lin.
 
 Pourtant, au moment où elle le rattrapa et qu'elle commença à former un sceau, elle remarqua que les yeux de Xu Mu étaient d'un calme absolu, sans la moindre trace de panique. Yao Bingyun fut surprise, mais n'eut pas le temps de réfléchir avant de lancer son attaque.
 
@@ -138,7 +138,7 @@ Peu après, tout en évitant soigneusement les dangers, Wang Lin atteignit le so
 
 Arrivé là, il redoubla de prudence. Normalement, la jonction entre l'os et le serpent devait être hermétiquement scellée. Cependant, comme il avait extrait l'os précédemment, de nombreuses brèches étaient apparues.
 
-Ces interstices étaient insignifiants pour le Serpent aux yeux de lune, mais pour Wang Lin, ils étaient aussi larges que des canons. Son corps vacilla et il s'engouffra dans les failles. Dès qu'il eut pénétré, il marqua un arrêt brusque.
+Ces interstices étaient insignifiants pour le Serpent aux yeux de lune, mais pour Wang Lin, ils étaient aussi larges que des canyons. Son corps vacilla et il s'engouffra dans les failles. Dès qu'il eut pénétré, il marqua un arrêt brusque.
 
 Devant lui se déployaient des fils rouges semblables à une toile d'araignée. Ces filaments semblaient infinis et couvraient toute la zone.
 

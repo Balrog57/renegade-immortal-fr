@@ -6,13 +6,13 @@ bookTitle: "Alliance's Secret"
 en: Chapter 962 - Xu Liguos Favorite
 slug: la-preferee-de-xu-liguo
 ---
-Bai Wei sourit à Wang Lin, ses yeux de phénix emplis d'attente, puis elle partit.
+Bai Wei sourit à Wang Lin, ses yeux de phénix lançant une œillade, puis elle partit.
 
 Wang Lin esquissa un sourire amer. Cette Bai Wei lui donnait mal à la tête. À cet instant, une ondulation apparut dans son sac et la voix de Xu Liguo résonna dans son esprit.
 
-« Qualité supérieure! Qualité supérieure! Maître, c'est de la qualité supérieure! Moi, Xu Liguo, j'ai rencontré d'innombrables personnes, mais je n'ai jamais vu quelqu'un d'aussi gracieux. Surtout son regard au moment de partir, il a même fait fléchir les os du Grand-père Xu. Maître, si vous ne l'aimez pas, moi je l'aime! En la voyant, cela m'a rappelé Mei Ji [1]. »
+« Qualité supérieure! Qualité supérieure! Maître, c'est de la qualité supérieure! Moi, Xu Liguo, j'ai rencontré d'innombrables personnes, mais je n'ai jamais vu quelqu'un d'aussi gracieux. Surtout son regard au moment de partir, il a même fait fléchir les os du Grand-père Xu. Elle vaut bien plus que toutes ces petites donzelles. Maître, laissez-moi sortir: si vous ne l'aimez pas, moi je l'aime! En la voyant, cela m'a rappelé Mei Ji [1]. »
 
-Wang Lin ignora les paroles de Xu Liguo et lui coupa la parole.
+Wang Lin ignora les paroles de Xu Liguo; d'un mouvement de son âme originelle, il chassa sa voix.
 
 À ce moment, un petit rire parvint du côté de Wang Lin. Zhao Xinmeng apparut, et son regard envers Wang Lin était quelque peu différent.
 
@@ -30,9 +30,9 @@ Wang Lin resta seul dans la pièce et réfléchit. Aider Zhao Xinmeng serait fac
 
 « Si ce que dit Zhao Xinmeng est vrai, alors il doit y avoir une signification profonde derrière l'indifférence de Maître... Vraisemblablement... Il est lui aussi tiraillé par cette question dans son esprit. »
 
-Pendant qu'il réfléchissait, l'épée céleste où se trouvait Xu Liguo commença à s'agiter, et les fluctuations émanant du sac perturbèrent ses pensées. Wang Lin fronça les sourcils et frappa son sac de rangement. L'épée céleste s'envola immédiatement et une grande quantité de brume noire apparut. Cette brume se condensa rapidement pour révéler la silhouette de Xu Liguo.
+Pendant qu'il réfléchissait, l'épée céleste où se trouvait Xu Liguo commença à s'agiter, et les fluctuations émanant du sac perturbèrent ses pensées. Wang Lin fronça les sourcils et frappa son sac de rangement. Xu Liguo s'échappa aussitôt de l'épée céleste et une brume noire se répandit devant Wang Lin. Cette brume se condensa rapidement pour révéler la silhouette de Xu Liguo.
 
-Les yeux de Xu Liguo brillèrent. Dès qu'il apparut, il inspira profondément à l'endroit où Bai Wei se tenait auparavant. Son visage était empreint d'une expression enivrée et il marmonna: « Qualité supérieure! Vraiment de la qualité supérieure! Comparée à elle, même la petite fille du Territoire de l'Esprit Démoniaque ne vaut rien. Si je pouvais... » Xu Liguo esquissa un sourire pervers.
+Les yeux de Xu Liguo brillèrent. Dès qu'il apparut, il inspira profondément à l'endroit où Bai Wei se tenait auparavant. Son visage était empreint d'une expression enivrée et il marmonna: « Qualité supérieure! Vraiment de la qualité supérieure! Comparée à elle, même la petite fille de la Terre des Esprits Démoniaques ne vaut rien. Si je pouvais... » Xu Liguo esquissa un sourire pervers.
 
 Wang Lin lança un regard froid à Xu Liguo. Ce dernier trembla, sentant une intention glaciale se répandre sur son corps. Cette froideur pénétra son âme, le ramenant brusquement à la raison, et il commença à se plaindre intérieurement.
 
@@ -44,7 +44,7 @@ Sans attendre qu'il finisse, Wang Lin l'interrompit d'un ton calme: « Pourquoi 
 
 Du point de vue de Wang Lin, il fallait parfois mater Xu Liguo; sinon, ce dernier deviendrait trop indiscipliné. Ce démon était une créature qu'il avait lui-même façonnée, et peut-être était-il le seul à vraiment le comprendre.
 
-Avant que Xu Liguo ne soit raffiné en démon, il nourrissait beaucoup de ressentiment, et sa personnalité s'était intensifiée après sa transformation. Il savait que si Xu Liguo retrouvait sa forme véritable, la seule façon de le contrôler serait d'être toujours plus fort que lui.
+Avant que Xu Liguo ne soit raffiné en démon, il nourrissait beaucoup de ressentiment, et sa personnalité s'était intensifiée après sa transformation. Comme doté d'un os rebelle de naissance, la seule façon de le dompter était d'être toujours plus fort que lui.
 
 Lorsqu'ils étaient dans la Bête des Abysses, le vieil homme pensait que Xu Liguo était quelqu'un de loyal, mais en réalité, il n'avait aucune loyauté. Au mieux, c'était une habitude acquise après avoir été sous le contrôle de Wang Lin pendant près de mille ans.
 
@@ -108,7 +108,7 @@ Les yeux de Bai Wei s'illuminèrent et elle sourit: « Le Frère Aîné Wang a b
 
 Bien que l'expression de Wang Lin fût neutre, Xu Liguo fixait Bai Wei derrière lui. Si Wang Lin n'avait pas été là, peu importait le risque, il se serait jeté sur Bai Wei.
 
-« Qu'est-ce que c'est? » Le regard de Bai Wei se posa sur Xu Liguo. Le corps de ce dernier était enveloppé d'une brume noire qui, à cet instant, se contracta pour révéler son apparence de cultivateur. Ses yeux brillaient d'un éclat maléfique, mais son expression était sérieuse. Juste au moment où il allait parler, un reniflement froid le fit sursauter, le forçant à arborer immédiatement un air flatteur.
+« Qu'est-ce que c'est? » Le regard de Bai Wei se posa sur Xu Liguo. Le corps de ce dernier était enveloppé d'une brume noire qui, à cet instant, se contracta pour révéler son apparence de cultivateur. Ses yeux brillaient d'un éclat lubrique, mais son expression était sérieuse. Juste au moment où il allait parler, un reniflement froid le fit sursauter, le forçant à arborer immédiatement un air flatteur.
 
 Ce changement soudain surprit Bai Wei.
 
@@ -120,9 +120,9 @@ Bai Wei fronça les sourcils et dit: « Frère Aîné Wang! »
 
 Wang Lin fut immédiatement embarrassé. Il était très rare qu'il ressente de l'embarras, et Bai Wei venait de le lui faire subir deux fois.
 
-Pendant que Wang Lin rougissait, les yeux de Xu Liguo s'illuminèrent en fixant Bai Wei. Il pensa: « Le Ciel a souri à Xu Liguo en lui faisant rencontrer l'amour de sa vie. Je n'en reviens pas! » Une fumée noire apparut autour de lui et il se transforma en une immense gueule qui semblait prête à dévorer Bai Wei.
+Pendant que Wang Lin rougissait, les yeux de Xu Liguo s'illuminèrent en fixant Bai Wei. Il pensa: « Le Ciel a souri à Xu Liguo en lui faisant rencontrer l'amour de sa vie. Je n'y tiens plus! » Une fumée noire apparut autour de lui et il se transforma en une immense gueule qui semblait prête à dévorer Bai Wei.
 
-À cet instant, toutes les pensées de Wang Lin furent balayées par son esprit; il ne voyait plus que le sourire de Bai Wei. Alors qu'il s'élançait, une lueur froide traversa les yeux de Wang Lin et sa main perça la brume noire pour saisir directement l'âme de Xu Liguo.
+À cet instant, Xu Liguo avait tout oublié, Wang Lin comme son effroi; il ne voyait plus que les sourires et les froncements de sourcils de Bai Wei. Alors qu'il s'élançait, une lueur froide traversa les yeux de Wang Lin et sa main perça la brume noire pour saisir directement l'âme de Xu Liguo.
 
 Xu Liguo sursauta et lança un regard féroce à Wang Lin au moment où celui-ci le saisissait. Puis, il retrouva aussitôt son air flatteur en répétant: « Maître, Maître, je sais que j'ai eu tort. J'ai eu tort! »
 

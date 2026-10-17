@@ -36,13 +36,13 @@ En regardant les disciples de la Secte de l'Origine s'éloigner, Wang Lin prit u
 
 « Cultivateur de la troisième étape... Si je ne succombe pas à cette calamité, un jour, je ferai fléchir les cultivateurs de la troisième étape devant moi! » Les yeux de Wang Lin devinrent encore plus sombres.
 
-D'un geste de la main droite, il fit apparaître son espace de stockage. Deux épées courtes en sortirent. Il les avait obtenues dans le Royaume aux Sept Couleurs. Un sceau marquait chacune d'elles, et il n'avait pas eu le temps de les briser. Face à cette crise, il décida de les ouvrir par la force pour accroître sa puissance.
+D'un geste de la main droite, il fit apparaître son espace de stockage. Deux épées courtes en sortirent. Il les avait obtenues dans le Royaume aux Sept Couleurs. Un sceau marquait chacune d'elles, et il ne les avait jamais brisés. Face à cette crise, il décida de les ouvrir par la force pour accroître sa puissance.
 
-Tandis que Wang Lin se préparait à affronter la calamité de vie ou de mort, loin de là, dans la région de rang 9, au sein de l'Étape Brise-Ciel, Li Qianmei se trouvait piégée par une formation dressée par trois Anciens. Li Qianmei regarda son maître et dit doucement: « Maître, ne voulez-vous pas que Qianmei parte? Pouvez-vous m'en donner la raison? »
+Tandis que Wang Lin se préparait à affronter la calamité de vie ou de mort, loin de là, dans la région de rang 9, au sein de la Secte Brise-Ciel, Li Qianmei se trouvait piégée par une formation dressée par trois Anciens. Li Qianmei regarda son maître et dit doucement: « Maître, ne voulez-vous pas que Qianmei parte? Pouvez-vous m'en donner la raison? »
 
 Le maître de Li Qianmei, le chef de la Secte Brise-Ciel, resta silencieux. Il semblait avoir perdu toute étincelle de vie, n'étant plus qu'une enveloppe vide.
 
-Li Qianmei baissa la tête et reprit: « Maître, Qianmei a grandi à vos côtés, et c'est vous qui m'avez recueillie pour ma culture. Alors que la bataille fait rage à la Secte Démon, Qianmei ne demande rien de plus que de retourner sur le champ de bataille. »
+Li Qianmei baissa la tête et reprit: « Maître, Qianmei a grandi à vos côtés, et c'est vous qui m'avez enseigné la voie de la culture et m'avez donné mon niveau actuel. Alors que la bataille fait rage à la Secte Démon, Qianmei ne demande rien de plus que de retourner sur le champ de bataille. »
 
 Le maître de Li Qianmei réfléchit un instant et dit d'une voix rauque: « Le Maître a déjà envoyé un message à la Secte Démon. Tu y retourneras dans trois mois, nul besoin de se précipiter! »
 
@@ -50,11 +50,11 @@ Les yeux de Li Qianmei se rétrécirent alors qu'elle fixait son maître. Son es
 
 Ces trois Anciens jouaient manifestement le rôle de surveillants et de témoins. Ils étaient là pour observer...
 
-Le visage de Li Qianmei pâlit instantanément. Elle pensait initialement que les trois Anciens n'étaient pas là pour la surveiller elle, mais son maître! Elle croyait que son maître agissait ainsi parce qu'elle avait quitté le champ de bataille de la Secte Démon. Cependant, en entendant son maître lui dire de retourner à la Secte Démon dans trois mois, il semblait bien que cette affaire n'ait aucun lien avec la Secte Démon!
+Le visage de Li Qianmei pâlit instantanément. Elle en déduisit que les trois Anciens ne la surveillaient pas elle, mais son maître! Elle avait d'abord cru que son maître agissait ainsi parce qu'elle avait quitté le champ de bataille de la Secte Démon. Cependant, en entendant son maître lui dire de retourner à la Secte Démon dans trois mois, il semblait bien que cette affaire n'ait aucun lien avec la Secte Démon!
 
 « Quelle affaire a bien pu pousser le Maître à agir ainsi... » Li Qianmei fut frappée par le choc. Elle ne s'inquiétait pas pour elle-même, mais pour une raison obscure, la silhouette de Wang Lin apparut dans son esprit.
 
-« Maître, qu'ai-je fait pour que vous me contriez à rester ici pendant trois mois? » Li Qianmei leva la tête, le regard empreint de détermination.
+« Maître, qu'ai-je fait pour que vous me contraigniez à rester ici pendant trois mois? » Li Qianmei leva la tête, le regard empreint de détermination.
 
 Le maître de Li Qianmei soupira avant de contempler sa disciple la plus précieuse et la plus aimée. Ses yeux brillaient d'une affection mêlée de complexité. Après un long silence, il murmura: « Toi... »
 
@@ -86,4 +86,4 @@ L'esprit du maître de Li Qianmei trembla. Il la contempla, son regard devenant 
 
 « Vous m'avez enseigné la culture et m'avez aidée à raffiner des pilules, permettant à Qianmei d'atteindre le stade de Briseur du Nirvana en seulement mille ans. Qianmei sait que vous avez utilisé une quantité immense de ressources de la secte, allant jusqu'à provoquer certains Anciens! Ils n'étaient pas ravis de vos actes... Maître, je ne peux oublier cette bienveillance. Si j'avais une autre vie, même si je ne devenais qu'un bœuf ou un cheval, je vous rendrais toujours cette faveur. » Li Qianmei s'inclina une seconde fois. Elle sentait qu'elle ne pourrait jamais égaler la dette envers son maître.
 
-« Qianmei sait aussi que ces Anciens ont toujours soupçonné que j'appartenais à un clan étranger à cause de la couleur de mes cheveux. Parce qu'ils doutaient de mes origines, ils étaient indignés que vous dépensiez tant de pilules de la secte pour moi. Ils étaient même hostiles au fait que vous m'enseigniez le Dao! Pourtant, cela ne vous a jamais détourné de votre bienveillance et vous avez été pour moi un père. Vous m'avez même aidée à raffiner des pilules pour consolider mes fondations, au détriment de votre propre âme originelle. Comment Qianmei pourrait-elle vous rendre tant de gratitude... »
+« Qianmei sait aussi que ces Anciens ont toujours soupçonné que j'appartenais à un clan étranger à cause de la couleur de mes cheveux, disant que ceux qui ne sont pas de notre race ont forcément un cœur différent. Parce qu'ils doutaient de mes origines, ils étaient indignés que vous dépensiez tant de pilules de la secte pour moi. Ils étaient même hostiles au fait que vous m'enseigniez le Dao! Pourtant, cela ne vous a jamais détourné de votre bienveillance et vous avez été pour moi un père. Vous m'avez même aidée à raffiner des pilules pour consolider mes fondations, au détriment de votre propre énergie originelle. Comment Qianmei pourrait-elle vous rendre tant de gratitude... »

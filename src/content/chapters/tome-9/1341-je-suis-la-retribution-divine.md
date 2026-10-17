@@ -8,9 +8,9 @@ slug: je-suis-la-retribution-divine
 ---
 Des grondements tonitruants résonnèrent, et les milliers de cultivateurs repoussés poussèrent des cris plaintifs. Ils contemplèrent le ciel, l'expression stupéfaite, et restèrent sans voix pendant un long moment.
 
-Les nuages de la rétribution divine disparurent progressivement. Zhang Jingyun semblait n'en pas avoir assez.
+Les nuages de la rétribution divine disparurent progressivement. Zhang Jingyun, n'en ayant pas assez, retourna dans les nuages.
 
-« Désolé, désolé, cela faisait longtemps que je n'avais pas incarné la Rétribution Divine et j'ai un peu trop forcé... C'est dommage qu'il ait cultivé jusqu'au sommet du stade de la Formation de l'Âme, mais il est tout simplement trop médiocre pour avoir donné naissance au moindre Tonnerre Spirituel. » Zhang Jingyun secoua la tête, savourant encore la sensation.
+« Désolé, désolé, cela faisait longtemps que je n'avais pas incarné le Dao Céleste et je n'ai pas su me retenir... C'est dommage qu'il ait cultivé jusqu'au sommet du stade de la Formation de l'Âme, mais il est tout simplement trop médiocre pour avoir donné naissance au moindre Tonnerre Spirituel. » Zhang Jingyun secoua la tête, savourant encore la sensation.
 
 « Peu importe. Il y a de nombreuses opportunités dans les 7 Millions de Mondes, et la naissance du Tonnerre Spirituel n'est pas aisée. Il y en aura d'autres plus tard; traitons d'abord ces nouveaux venus. » Le cultivateur nommé Zhou agita indifféremment sa main droite pour que les nuages de rétribution divine ne soient plus visibles. Puis, il lança un regard froid à Wang Lin et son groupe.
 
@@ -22,7 +22,7 @@ Il n'était pas le seul. Outre le cultivateur à l'aura Yin Illusoire qui était
 
 « Nous sommes tous du même clan, que comptez-vous faire? »
 
-« Allez-y! » Le cultivateur nommé Zhao ricana et s'avança. D'un mouvement de la main, il forma deux fouets de tonnerre. Il n'attaqua pas Wang Lin, mais deux autres personnes.
+« Allez-y! » Le cultivateur nommé Zhou ricana et s'avança. D'un mouvement de la main, il forma deux fouets de tonnerre. Il n'attaqua pas Wang Lin, mais deux autres personnes.
 
 Les trois autres attaquèrent simultanément. Ils étaient tous des cultivateurs du stade Ascendant au milieu de leur progression et avaient l'habitude de collaborer. Ils entamèrent immédiatement un massacre!
 
@@ -30,7 +30,7 @@ Des cris déchirants résonnèrent. Le cultivateur nommé Zhou était extrêmeme
 
 La chair et le sang éclaboussèrent partout, et une odeur nauséabonde se répandit!
 
-Celui qui attaqua Wang Lin était Zhang Jingyun, dont l'apparence était auparavant douce. Il semblait ne pas encore être revenu de son état de Rétribution Divine, et du mépris brillait dans ses yeux. Avec morgue, il forma un sceau et créa un tonnerre semblable à la rétribution divine.
+Celui qui attaqua Wang Lin était Zhang Jingyun, dont l'apparence était auparavant douce. Il semblait ne pas encore être revenu de son état de Dao Céleste, et du mépris brillait dans ses yeux. Avec morgue, il forma un sceau et créa un tonnerre semblable à la rétribution divine.
 
 « Fourmi du royaume inférieur, remets-moi ton Tonnerre Spirituel et meurs! » Une lueur de plaisir traversa son expression tordue alors qu'il chargeait Wang Lin!
 
@@ -42,7 +42,7 @@ L'expression de Wang Lin resta calme tandis qu'il tendait la main droite. Le vis
 
 Dans un fracas, la chair de Zhang Jingyun s'effondra en un amas sanglant. Tout comme le vieil homme, son corps fut broyé et son âme fut détruite!
 
-Ce changement soudain ébranla l'esprit des cultivateurs alentour. Ce fut particulièrement vrai pour les trois compagnons de Zhang Jingyun. Ils venaient de massacrer tous les nouveaux venus et de s'emparer de leurs marques de clan.
+Ce changement soudain ébranla l'esprit des cultivateurs alentour. Ce fut particulièrement vrai pour les trois compagnons de Zhang Jingyun. Ils venaient de massacrer tous les nouveaux venus, sauf Wang Lin, et de s'emparer de leurs marques de clan.
 
 Le cri pitoyable de Zhang Jingyun et les paroles indifférentes de Wang Lin firent naître une peur monstrueuse dans leurs yeux! Zhang Jingyun pensait avoir attiré un agneau, mais le prix de la mort lui apprit que Wang Lin n'était pas un agneau, mais un loup féroce du Royaume Intérieur!
 
@@ -54,17 +54,17 @@ Cependant, ses pas vacillèrent lorsque le regard indifférent de Wang Lin balay
 
 « Qui t'a donné la permission de fuir? » Wang Lin retira son regard, mais cette simple phrase fit trembler l'âme originelle du cultivateur Yin Illusoire, qui cracha de nouveau du sang. Il n'osa plus bouger!
 
-Simultanément, les trois cultivateurs Ascendants ainsi que le cultivateur nommé Zhou tremblèrent et reculèrent frénétiquement. Ils voulaient fuir cet endroit qui les terrifiait!
+Simultanément, les trois cultivateurs Ascendants, dont celui nommé Zhou, tremblèrent et reculèrent frénétiquement. Ils voulaient fuir cet endroit qui les terrifiait!
 
 Pourtant, ce qui les attendait était le regard écarlate de Wang Lin. Un éclair rouge jaillit de ses yeux!
 
 Le Royaume Ji!
 
-La majeure partie du Royaume Ji résidait dans le corps originel de Wang Lin, et seule une infime fraction l'avait accompagné via son Sens Divin. Néanmoins, il l'utilisa car le Royaume Ji était la Rétribution Divine elle-même!
+La majeure partie du Royaume Ji résidait dans le corps originel de Wang Lin, et il n'en restait qu'une infime fraction dans ce corps qu'il avait saisi par son âme originelle. Néanmoins, il l'utilisa car le Royaume Ji était la Rétribution Divine elle-même!
 
 « Puisque je suis la Rétribution Divine, j'utiliserai naturellement la rétribution divine pour vous anéantir tous! » L'éclair rouge jaillit directement vers un cultivateur. Ses yeux s'illuminèrent d'une lueur rouge et il poussa un cri déchirant. En un éclair, la foudre traversa son corps et détruisit tout. Il s'effondra comme le vieil homme mort sous la rétribution divine!
 
-« Se prendre pour le Dao Céleste... Quelle absurdité. Si vous êtes le Dao Céleste, alors je suis la Rétribution Divine qui exterminera les cieux! » Tandis que Wang Lin parlait, l'éclair rouge transperça le premier cultivateur et chargea vers le second. Ce dernier, les yeux emplis de terreur, visa la marque entre ses sourcils et sortit tous ses trésors. Une folie aveugle brilla dans son regard lorsqu'il choisit l'autodestruction!
+« Se prendre pour le Dao Céleste... Quelle absurdité. Si vous êtes le Dao Céleste, alors je suis la Rétribution Divine qui exterminera les cieux! » Tandis que Wang Lin parlait, l'éclair rouge transperça le premier cultivateur et chargea vers le second. Ce dernier, les yeux emplis de terreur, frappa la marque entre ses sourcils et sortit tous ses trésors. Une folie aveugle brilla dans son regard lorsqu'il choisit l'autodestruction!
 
 Cependant, même le Maître Zhou Tian n'aurait pu s'autodétruire devant Wang Lin, encore moins ce petit cultivateur Ascendant!
 
@@ -106,11 +106,11 @@ Un vieil homme au stade avancé de l'Âme Naissante fut stupéfait et demanda av
 
 « Si vous le souhaitez, je peux être n'importe qui dans les 7 Millions de Mondes. Si vous le voulez, je le suis. » Le jeune homme chauve sourit et les ignora. Sa main s'étendit vers le cadavre et il l'emporta avec lui en s'enfonçant dans le vide. Ses yeux se posèrent dans la direction où Wang Lin s'était dirigé, brillant d'une lueur étrange.
 
-« Il est différent de ceux qui se prétendent rétribution divine... Peut-être n'est-il pas un esclave du tonnerre... » Le jeune homme songea et disparut du monde. Il se situait au-delà du stade de la Formation de l'Âme, au-delà d'Ascendant; il était au stade du Purificateur du Nirvana!
+« Il est différent de ceux qui se prétendent le Dao Céleste... Peut-être n'est-il pas un esclave du tonnerre... » Le jeune homme songea et disparut du monde. Il se situait au-delà du stade de la Formation de l'Âme, au-delà d'Ascendant; il était au stade du Purificateur du Nirvana!
 
-Une telle chose devrait être impossible dans les 7 Millions de Mondes! Cela ne devrait jamais arriver! Si le Clan Tonnerre Dispersé l'apprenait, cela provoquerait une onde de choc monumentale au sein du clan. Même l'ancêtre quitterait sa culture en retraite pour vérifier la situation!
+Une telle chose devrait être impossible dans les 7 Millions de Mondes! Cela ne devrait jamais arriver! Si le Clan du Tonnerre Dispersé l'apprenait, cela provoquerait une onde de choc monumentale au sein du clan. Même l'ancêtre quitterait sa culture en retraite pour vérifier la situation!
 
-Au même moment, sur la planète où se trouvait Wang Lin, Xu Liguo rassemblait joyeusement des ressources avec des milliers de personnes. Son trône mesurait désormais près de 10 000 pieds de large et était entouré de magnifiques cultivatrices!
+Au même moment, sur la planète où se trouvait Wang Lin, Xu Liguo rassemblait joyeusement des ressources avec des milliers de personnes. Son trône mesurait désormais 5 000 pieds de large et était entouré de magnifiques cultivatrices!
 
 Parmi elles, une femme était d'une beauté stupéfiante. Elle restait assise là, glaciale, fixant Xu Liguo avec une haine profonde dans les yeux!
 

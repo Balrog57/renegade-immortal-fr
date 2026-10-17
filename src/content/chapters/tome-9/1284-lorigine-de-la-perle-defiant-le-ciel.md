@@ -30,11 +30,11 @@ Cet arbre colossal semblait avoir perdu toute force vitale; il mourait lentement
 
 Wang Lin contempla l'arbre géant et prit une profonde inspiration glacée.
 
-Le murmure émana de l'arbre et résonna à travers le monde: « Cet arbre fut formé par mon trésor du Royaume de Nirvana. C'est la seule raison pour laquelle j'ai survécu jusqu'à présent... »
+Le murmure émana de l'arbre et résonna à travers le monde: « Cet arbre fut formé par mon trésor de vie de la Tribulation du Nirvana. C'est la seule raison pour laquelle j'ai survécu jusqu'à présent... »
 
 L'esprit de Wang Lin trembla face au spectacle. L'arbre était d'une démesure telle qu'il pouvait rivaliser avec les Dieux Anciens.
 
-« Je viens du Royaume Céleste Antique. J'ai oublié mon nom depuis bien longtemps. À mon arrivée, on m'appelait le "Seigneur du Domaine Scellé" ou le "Régent du Domaine Scellé"... Avant toi, deux autres personnes sont venues ici. J'ignore leurs noms, mais le fait qu'elles aient pu pénétrer ici signifie qu'elles étaient liées à moi par le destin. À la première, j'ai offert un sortilège Dao suprême et ma propre compréhension du monde...
+« Je viens du Royaume Céleste Antique. J'ai oublié mon nom depuis bien longtemps. À mon arrivée, on m'appelait le "Maître du Royaume Scellé" ou le "Seigneur du Royaume Scellé"... Avant toi, deux autres personnes sont venues ici. J'ignore leurs noms, mais le fait qu'elles aient pu pénétrer ici signifie qu'elles étaient liées à moi par le destin. À la première, j'ai offert un sortilège Dao suprême et ma propre compréhension du monde...
 
 « À la deuxième personne qui est entrée, j'ai offert la moitié d'un corps de loi, rendant son talent absolument stupéfiant!
 
@@ -42,31 +42,31 @@ L'esprit de Wang Lin trembla face au spectacle. L'arbre était d'une démesure t
 
 Wang Lin réfléchit en silence. Après un long moment, il leva les yeux vers l'arbre et demanda lentement: « Avez-vous forcé le Shui Daozi à battre en retraite? »
 
-« Si tu n'avais pas trouvé mon jade, je n'aurais pu t'aider. Mais puisque tu l'as trouvé, je peux m'en servir pour t'épauler un peu... Cet esclave m'a trahi, mais je lui avais offert un talisman pour le protéger à trois reprises. La dernière protection a été utilisée, et c'est pourquoi j'ai attaqué... »
+« Si tu n'avais pas trouvé mon jade, je n'aurais pu t'aider. Mais puisque tu l'as trouvé, je peux m'en servir pour t'épauler un peu... Cet esclave m'a trahi, mais je lui avais accordé trois chances d'échapper à l'anéantissement. La dernière a été utilisée, et c'est pourquoi j'ai attaqué... »
 
 Wang Lin réprima le choc qui agitait son cœur et demanda calmement: « Pourquoi m'aidez-vous? »
 
 Les paroles de Wang Lin plongèrent l'arbre géant dans le silence. Après un long moment, un murmure s'éleva de la vieille essence végétale.
 
-« Il y a fort longtemps, il n'y avait ni Royaume Intérieur ni Royaume Extérieur dans le Système Stellaire Antique. Dans cet immense système, il existait un lieu sacré nommé le Royaume Céleste Antique. Ce royaume régnait sur le Système Stellaire Antique et y recueillait les êtres. Tous les êtres vivants, après avoir atteint un niveau de culture assez élevé pour ouvrir leur propre espace, pouvaient entrer dans le Royaume Céleste Antique et en devenir membres...
+« Il y a fort longtemps, il n'y avait ni Royaume Intérieur ni Royaume Extérieur dans le Système Stellaire Antique. Dans cet immense système, il existait un lieu sacré nommé le Royaume Céleste Antique. Ce royaume régnait sur le Système Stellaire Antique et y instruisait tous les peuples. Tous les êtres vivants, après avoir atteint un niveau de culture assez élevé pour ouvrir leur propre étoile, pouvaient entrer dans le Royaume Céleste Antique et en devenir membres...
 
 « Tout fonctionnait harmonieusement, jusqu'à ce qu'un trésor provenant d'un système stellaire étranger provoque un bouleversement catastrophique!
 
 « Ce chaos divisa le Royaume Céleste Antique en deux et le dispersa. Le chemin de l'ascension fut rompu et tous les passages furent condamnés...
 
-« En conséquence, le Système Stellaire Antique fut scindé en Royaumes Intérieur et Extérieur, et la formation du Domaine Scellé fut créée. La partie du Royaume Céleste Antique située à l'extérieur devint le lieu sacré du Royaume Extérieur... Et dans le Royaume Intérieur se trouvait l'autre fragment du Royaume Céleste Antique. C'est de là que je viens... »
+« En conséquence, le Système Stellaire Antique fut scindé en Royaumes Intérieur et Extérieur, et la Grande Formation du Cœur du Royaume fut créée. La partie du Royaume Céleste Antique située à l'extérieur devint le lieu sacré du Royaume Extérieur... Et dans le Royaume Intérieur se trouvait l'autre fragment du Royaume Céleste Antique. C'est de là que je viens... »
 
 Tandis que Wang Lin écoutait cette voix ancestrale, une onde de choc déferla sur son esprit. Ce secret était connu de très peu de gens. Il n'avait jamais imaginé que les Royaumes Intérieur et Extérieur entretenaient un tel lien!
 
 Le Royaume Céleste Antique s'était brisé, entraînant la division du Système Stellaire Antique en deux entités distinctes!
 
-« Le Royaume Céleste Antique subit de lourdes pertes lors de ce bouleversement, et d'innombrables vies furent fauchées. Même l'Empereur Céleste, qui existait depuis l'aube des temps, fut gravement blessé par ce trésor. Il entra en culture de porte close et ne s'intéressa plus au monde extérieur. Cependant, les habitants du Royaume Céleste Antique résidant dans le Royaume Extérieur lorgnaient toujours sur le Royaume Intérieur sous la direction de la Concubine Céleste. Ce qu'ils convoitaient, c'était ce trésor et le chemin menant au Royaume Céleste Antique!
+« Le Royaume Céleste Antique subit de lourdes pertes lors de ce bouleversement, et d'innombrables vies furent fauchées. Même l'Empereur Céleste, qui existait depuis l'aube des temps, fut gravement blessé par ce trésor. Il entra en culture de porte close et ne s'intéressa plus au monde extérieur. Cependant, les habitants du Royaume Céleste Antique résidant dans le Royaume Extérieur lorgnaient toujours sur le Royaume Intérieur sous la direction de neuf Concubines Célestes. Ce qu'ils convoitaient, c'était ce trésor et le chemin menant au Royaume Céleste Antique!
 
-« En tant qu'Ancien Dao Céleste, je suis descendu du Royaume Céleste Antique pour régner sur le Royaume Intérieur afin de repousser l'invasion du Royaume Extérieur et les combattre! Cependant, avant que je ne puisse accomplir ma mission, j'ai été trahi par mon esclave Dao. J'ai été gravement blessé par les gens et les anciens célestes du Royaume Extérieur. Finalement, une concubine céleste a porté l'estocade, détruisant mon corps. J'ai été contraint d'entrer dans la Perle Défiant le Ciel et de subsister en tant qu'esprit du trésor... »
+« En tant que Céleste du Dao, je suis descendu du Royaume Céleste Antique pour régner sur le Royaume Intérieur afin de repousser l'invasion du Royaume Extérieur et les combattre! Cependant, avant que je ne puisse accomplir ma mission, j'ai été trahi par mon esclave Dao. J'ai été gravement blessé par les gens du Royaume Extérieur et plusieurs habitants du Royaume Céleste Antique extérieur, unis contre moi. Finalement, une concubine céleste a porté l'estocade, détruisant mon corps. J'ai été contraint d'entrer dans la Perle Défiant le Ciel et de subsister en tant qu'esprit du trésor... »
 
 Le cœur de Wang Lin chancela, et il demanda promptement: « Qu'est-ce que la Perle Défiant le Ciel? »
 
-« L'objet qui provoqua le grand bouleversement dans le Royaume Céleste Antique, ce trésor venu d'un système stellaire étranger, était la Perle Défiant le Ciel. Mais le véritable trésor était une boussole. Neuf trésors célestes étaient gravés sur cette boussole. Lorsque nous l'avons obtenue, il ne restait que trois trésors, et la Perle Défiant le Ciel en occupait le centre. La partie du Royaume Céleste Antique située dans le Royaume Intérieur obtint les deux autres. Je devais régner sur les Royaumes Intérieur et Extérieur, c'est pourquoi l'Empereur Céleste m'avait confié cette perle...
+« L'objet qui provoqua le grand bouleversement dans le Royaume Céleste Antique, ce trésor venu d'un système stellaire étranger, était la Perle Défiant le Ciel. Mais le véritable trésor était une boussole. Neuf trésors célestes étaient gravés sur cette boussole. Lorsque nous l'avons obtenue, il ne restait que trois trésors, et la Perle Défiant le Ciel en occupait le centre. La partie du Royaume Céleste Antique située dans le Royaume Intérieur obtint les deux autres. Je devais mener le Royaume Intérieur dans la guerre contre le Royaume Extérieur, c'est pourquoi l'Empereur Céleste m'avait confié cette perle...
 
 « Cependant, je ne fus pas le premier maître de la Perle Défiant le Ciel. Au cours de mes innombrables années d'étude, j'ai découvert qu'il y eut deux autres possesseurs. Chacun d'eux était bien plus puissant que moi... Ils devaient être des cultivateurs d'un système stellaire étranger!
 
@@ -76,17 +76,17 @@ Le cœur de Wang Lin chancela, et il demanda promptement: « Qu'est-ce que la Pe
 
 « Le Royaume des Dieux Anciens doit exister... Je n'en sais pas grand-chose non plus... À l'heure actuelle, je devrais être mort, mais ma mission n'est pas achevée. L'Empereur Céleste est toujours en culture de porte close et le Royaume Céleste Antique demeure scellé. Nous ne devons pas laisser les gens du Royaume Extérieur entrer; sinon, les conséquences seront impensables!
 
-« Les deux autres personnes qui sont entrées ici ne sont pas devenues les maîtres de la Perle Défiant le Ciel; elles ne sont que mes pions. Mais toi, tu es différent. Tu as fait en sorte que la Perle Défiant le Ciel t'accepte comme maître, c'est pourquoi je veux t'aider. Je veux que tu deviennes le Seigneur du Domaine Scellé et que tu le protèges pour moi. Résiste à l'invasion du Royaume Extérieur jusqu'à ce que l'Empereur Céleste sorte de sa culture de porte close, jusqu'à ce que le sceau du Royaume Céleste Antique s'ouvre!
+« Les deux autres personnes qui sont entrées ici ne sont pas devenues les maîtres de la Perle Défiant le Ciel; elles ne sont que mes pions. Mais toi, tu es différent. Tu as fait fusionner la Perle Défiant le Ciel avec ton âme originelle et tu en es devenu le maître, c'est pourquoi je veux t'aider. Je veux que tu deviennes le Seigneur du Royaume Scellé et que tu le protèges pour moi. Résiste à l'invasion du Royaume Extérieur jusqu'à ce que l'Empereur Céleste sorte de sa culture de porte close, jusqu'à ce que le sceau du Royaume Céleste Antique s'ouvre!
 
-« Une fois que je t'aurai aidé, je me dissiperai totalement. Je me transformerai en un trésor du Royaume de Nirvana et fusionnerai avec le cœur de la Formation du Domaine Scellé pour la renforcer et te donner plus de temps pour croître!
+« Une fois que je t'aurai aidé, je me dissiperai totalement. Avec le jade que tu as retrouvé et le trésor de vie de la Tribulation du Nirvana en lequel je me suis changé, je fusionnerai avec la Grande Formation du Cœur du Royaume pour la renforcer et te donner plus de temps pour croître!
 
-« Si tu parviens à accomplir cette grande tâche et que tu remets la Perle Défiant le Ciel à l'Empereur Céleste lors de son réveil, tu seras grandement récompensé. Tous tes vœux seront exaucés, même si tu souhaites que la femme dans le cercueil renaisse! »
+« Si tu parviens à accomplir cette grande tâche et que tu remets la Perle Défiant le Ciel à l'Empereur Céleste lors de son réveil, tu seras grandement récompensé. Tous tes vœux seront exaucés, même si tu souhaites que la femme dans le Cercueil d'Évitement Céleste renaisse! »
 
 Wang Lin leva soudainement la tête et fixa l'arbre géant. Il resta silencieux.
 
 « Cet être m'observe depuis longtemps et connaît tout de moi. Il sait mon désir de ressusciter Wan Er. Il utilise cela pour me soumettre à ce prétendu Empereur Céleste!
 
-« Il veut que je remette la Perle Défiant le Ciel une fois l'Empereur Céleste éveillé. Si j'obéis, je serai totalement sous le contrôle de l'Empereur Céleste. Tout sera entre ses mains. S'il est de bonne humeur, il pourra ressusciter Wan Er; sinon, il pourrait nous tuer tous les deux. Comment pourrais-je accepter une telle chose? Pourtant, si je veux partir, je dois régler ma dette avec cet être. Il n'a pas d'intentions malveillantes à mon égard, il est simplement extrêmement attaché aux traditions. Même après la trahison du Shui Daozi, il a tenu sa promesse de le protéger trois fois, manquant l'occasion de tuer le traître jusqu'à aujourd'hui! »
+« Il veut que je remette la Perle Défiant le Ciel une fois l'Empereur Céleste éveillé. Si j'obéis, je serai totalement sous le contrôle de l'Empereur Céleste. Tout sera entre ses mains. S'il est de bonne humeur, il pourra ressusciter Wan Er; sinon, il pourrait nous tuer tous les deux. Comment pourrais-je accepter une telle chose? Pourtant, si je veux partir, je dois d'abord lui donner mon accord. Il n'a pas d'intentions malveillantes à mon égard, il est simplement extrêmement attaché aux traditions. Même après la trahison du Shui Daozi, il a tenu sa promesse de le protéger trois fois, manquant l'occasion de tuer le traître jusqu'à aujourd'hui! »
 
 Wang Lin réfléchit un instant et demanda lentement: « Que pouvez-vous m'offrir? »
 
@@ -94,7 +94,7 @@ Wang Lin réfléchit un instant et demanda lentement: « Que pouvez-vous m'offri
 
 « J'ai étudié la Perle Défiant le Ciel durant de nombreuses années. Elle recèle trop de secrets pour que je puisse tous les découvrir. Cependant, j'ai découvert comment extraire de la puissance provenant de l'extérieur du Système Stellaire Antique pour l'imprimer sur ton âme. Cela ne te permettra pas d'atteindre les cieux, mais cela te donnera accès au domaine du Dao. Quant à ce que tu pourras en retirer, cela dépendra de toi. » La voix ancienne résonna et ébranla le monde avant de s'évanouir progressivement.
 
-Le temps fit marche arrière et la roue du destin fut révélée. Sans que l'on s'en aperçoive, l'automne s'effaça devant le printemps. Le soleil et la lune alternèrent, et deux années supplémentaires s'écoulèrent. Sur le continent sauvage de la région de rang 2, Li Qianmei avait accompagné la statue de pierre de Wang Lin pendant près de six ans.
+Le temps s'écoula et le disque des années fut soulevé. Sans que l'on s'en aperçoive, le printemps s'effaça devant l'automne. Le soleil et la lune alternèrent, et deux années supplémentaires s'écoulèrent. Sur le continent sauvage de la région de rang 2, Li Qianmei avait accompagné la statue de pierre de Wang Lin pendant six ans.
 
 Six ans passaient vite pour les mortels, mais il est vrai que « dix ans passent en un clin d'œil ». Six ans n'étaient pas une éternité, mais ce n'était pas peu non plus.
 

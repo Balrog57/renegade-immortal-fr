@@ -42,7 +42,7 @@ C'était comme si elle pointait vers la vie de Wang Lin, sa vie entière dédié
 
 Tôt le matin, le premier rayon de soleil tomba sur la planète Qing Ling. Les mortels de la planète s'éveillèrent et poursuivirent leurs vies simples et ordinaires.
 
-Les cultivateurs, eux, puisaient l'énergie spirituelle yang du soleil! Sauf qu'aujourd'hui, cette énergie semblait particulièrement active et plusieurs fois plus riche qu'auparavant. Presque tous les cultivateurs le remarquèrent et furent agréablement surpris. Ils cherchèrent immédiatement des lieux propices à la culture.
+Les cultivateurs, eux, puisaient l'énergie spirituelle sous le soleil levant! Sauf qu'aujourd'hui, cette énergie semblait particulièrement active et plusieurs fois plus riche qu'auparavant. Presque tous les cultivateurs le remarquèrent et furent agréablement surpris. Ils cherchèrent immédiatement des lieux propices à la culture.
 
 Certains découvrirent progressivement que lorsqu'ils se tournaient vers le nord-est, l'énergie spirituelle qu'ils absorbaient était bien plus dense; ils volèrent donc tous en direction du nord-est.
 
@@ -70,7 +70,7 @@ Au-dessus d'eux, l'image circulaire du yin et du yang tournait lentement, et l'�
 
 À cet instant, si quelqu'un observait la planète depuis l'espace, il verrait que le monde entier était enveloppé de noir et de blanc. C'était un spectacle saisissant.
 
-Si un être possédant la culture de l'Ancêtre Sanguin passait par là, il en serait profondément troublé. C'était ce que les experts du deuxième niveau appelaient le Dao des Rêves!
+Si un être possédant la culture de l'Ancêtre Sanguin passait par là, il en serait profondément troublé. C'était ce que les experts de la deuxième étape appelaient le Dao des Rêves!
 
 La légende racontait qu'aux temps anciens, un mortel nommé Peng Zu avait réussi à atteindre l'illumination par ses rêves. Il avait condensé un trésor immortel antique et laissé un cœur du Dao de dix mille ans, capable de refléter le ciel, la terre, le soleil et la lune!
 

@@ -42,7 +42,7 @@ La deuxième personne venait également du Domaine Nord. C'était un garçon à 
 
 Le garçon affichait un sourire idiot. Après avoir regardé Wang Lin, il se concentra sur l'homme en robe blanche, et son sourire stupide s'intensifia.
 
-La troisième personne à avoir remarqué l'échange venait du Domaine Ouest. Il portait une chemise bleue et était très beau. Lorsqu'il ouvrit les yeux, une lumière dorée en émana. Il fixa Wang Lin tout en réfléchissant silencieusement.
+La troisième personne à avoir remarqué l'échange venait du Domaine Ouest. Il portait une chemise bleue et était très beau. Lorsqu'il ouvrit les yeux, une lueur perçante en émana. Il fixa Wang Lin tout en réfléchissant silencieusement.
 
 La dernière personne était naturellement celle qui se tenait aux côtés de Wang Lin: Nangong Han!
 
@@ -110,7 +110,7 @@ Les palais étaient légion; bien qu'ils ne fussent pas proches les uns des autr
 
 Une énergie spirituelle céleste dense emplissait la région, comme si on se trouvait dans le Royaume Céleste. Wang Lin comprit que ces palais n'avaient rien d'ordinaire: en vérité, c'était de ces édifices que sourdait cette essence spirituelle si dense.
 
-« Le Temple Céleste du Tonnerre compte un total de 1 372 salles principales. Chacune d'elles a été personnellement extraite du Royaume Céleste du Tonnerre par le Seigneur du Temple! » Les paroles du vieil homme étaient empreintes de fierté.
+« Le Temple Céleste du Tonnerre compte un total de 1 372 salles principales. Chacune d'elles a été extraite du Royaume Céleste du Tonnerre par les Seigneurs du Temple successifs! » Les paroles du vieil homme étaient empreintes de fierté.
 
 Wang Lin acquiesça et fit l'éloge: « Le Temple Céleste du Tonnerre est effectivement le temple le plus puissant du Système Stellaire Luotian! » Ce genre de compliment était sans risque, et Wang Lin maîtrisait depuis longtemps les règles de la bienséance après ses mille ans de culture.
 
@@ -128,6 +128,6 @@ Un grondement sourd émana du tonnerre de la place. Les fruits disparurent un à
 
 « Des Fruits d'Ascension Céleste! » s'exclama Wang Lin en les observant.
 
-« L'ami Xu vous sont-ils familiers? Héhé, ce qui est scellé ici est le clone de l'esprit du tonnerre qui garde le Royaume Céleste du Tonnerre. Quiconque souhaite y pénétrer doit le nourrir d'une grande quantité de Fruits d'Ascension Céleste. Autrement, cette bête refusera toute entrée!
+« Ami Xu, ces fruits vous sont-ils familiers? Héhé, ce qui est scellé ici est le clone de l'esprit du tonnerre qui garde le Royaume Céleste du Tonnerre. Quiconque souhaite y pénétrer doit le nourrir d'une grande quantité de Fruits d'Ascension Céleste. Autrement, cette bête refusera toute entrée!
 
-Le dernier Seigneur du Temple a utilisé un sort puissant et passé d'innombrables années à séparer une partie de cette créature de tonnerre pour qu'elle devienne la bête gardienne du Temple Céleste du Tonnerre! »
+Le précédent Seigneur du Temple a utilisé un sort puissant et passé d'innombrables années à séparer une parcelle de cette créature de tonnerre pour qu'elle devienne l'une des bêtes gardiennes du Temple Céleste du Tonnerre! »

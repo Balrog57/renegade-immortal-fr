@@ -52,13 +52,13 @@ Ses yeux s'ouvrirent lentement, révélant de la fatigue, mais une lueur étrang
 
 « Si l'Éclair Éternel est un cultivateur de la troisième étape, alors tout le Clan Tonnerre Dispersé n'est que ses disciples... Ces disciples portent tous une marque, ils cultivent sans cesse et offrent tout ce qu'ils possèdent... Mais selon l'ampleur de leur offrande, ils reçoivent en retour des niveaux de culture variables... »
 
-« Tout cela ressemble également énormément au Classement du Clan Tonnerre Dispersé! »
+« Tout cela ressemble également énormément au Classement du Clan Tonnerre Dispersé et à ses cristaux de tonnerre! »
 
 Wang Lin eut le sentiment d'avoir découvert un secret capable de faire trembler les fondations du monde. Il prit une profonde inspiration et murmura: « Tous les clans du Système Stellaire Antique possèdent une marque... Cette marque n'est pas toujours située entre les sourcils. Le Clan de la Soie Bleue a des cheveux bleus, mais c'est aussi une marque! Si tous les autres clans du Système Stellaire Antique sont comme le Clan Tonnerre Dispersé... alors ce Système Stellaire Antique pourrait-il être... pourrait-il être... »
 
 Les pupilles de Wang Lin se rétractèrent et il leva soudain la tête. Son regard perça les murs de la salle pour embrasser le monde, d'un air extrêmement sombre.
 
-« Se pourrait-il que le Système Stellaire Antique soit une existence mystérieuse dotée d'une culture inimaginable, et qu'il ait créé ce lieu comme une prison? Par exemple, lors de mon combat contre le Shui Daozi, il y avait un monde qu'il avait créé contenant deux milliards de disciples. Il y avait aussi des planètes de culture, et pour ces disciples, le Shui Daozi était Dieu! »
+« Se pourrait-il que le Système Stellaire Antique soit une existence mystérieuse dotée d'une culture inimaginable, et qu'il ait créé ce lieu comme un enclos d'élevage? Par exemple, lors de mon combat contre le Shui Daozi, il y avait un monde qu'il avait créé contenant deux milliards de disciples. Il y avait aussi des planètes de culture, et pour ces disciples, le Shui Daozi était Dieu! »
 
 Plus il spéculait, plus son cœur se glaçait. Mais son regard ne parvenait pas à percer les cieux ni le brouillard entourant la vérité.
 
@@ -72,15 +72,15 @@ Il prit une profonde inspiration pour se calmer. Il enfouit ses spéculations au
 
 « Qu'elles soient vraies ou fausses, je ne cultiverai pas les Flammes Joss à la légère! » Les yeux de Wang Lin s'illuminèrent d'une détermination farouche.
 
-Quelques jours plus tard, Grand Rouge revint vers Xu Liguo. Dès son retour au sein de la secte, il changea instantanément d'expression pour afficher une joie et un respect feints. Après avoir appris que Wang Lin était en retraite méditative, il se posta devant la salle et ordonna à tout le monde de s'éloigner. Il resta seul en sentinelle, d'une vigilance extrême, tel un serviteur royal protégeant son maître.
+Quelques jours plus tard, Grand Rouge revint avant Xu Liguo. Dès son retour au sein de la secte, il changea instantanément d'expression pour afficher une joie et un respect feints. Après avoir appris que Wang Lin était en retraite méditative, il se posta devant la salle et ordonna à tout le monde de s'éloigner. Il resta seul en sentinelle, d'une vigilance extrême, tel un serviteur royal protégeant son maître.
 
 C'était comme si, même un cultivateur Ascendant, devait passer sur son corps pour entrer dans la salle.
 
 Peu après avoir pris cette pose, l'appel de Wang Lin résonna dans son esprit. Il devint immédiatement alerte et se retourna. Il épousseta d'abord soigneusement ses vêtements avant de pénétrer dans la salle avec une mine flatteuse.
 
-Dès qu'il entra, avant même de voir Wang Lin, Grand Rouge s'exclama avec enthousiasme: « Le jeune Grand Rouge a rassemblé une grande quantité d'objets pouvant être échangés contre des cristaux de tonnerre pour l'Aîné! » Tout en parlant, il entra dans la salle principale et toucha sa marque. Les objets qu'il avait collectés durant le mois précédent s'envolèrent pour former une petite montagne.
+Dès qu'il entra, avant même de voir Wang Lin, Grand Rouge s'exclama avec enthousiasme: « Le jeune Grand Rouge a rassemblé une grande quantité d'objets pouvant être échangés contre des cristaux de tonnerre pour l'Aîné! » Tout en parlant, il entra dans la salle principale et toucha sa marque. Les objets qu'il avait collectés durant ces derniers mois s'envolèrent pour former une petite montagne.
 
-Tout plein d'entrain, il prit une grande inspiration et dit avec excitation: « Ce petit n'a pas vu l'Aîné depuis plusieurs semaines. Maintenant que je suis devant vous, je me sens immédiatement revigoré! Le simple fait de respirer l'air que l'Aîné cultive me donne l'impression que mon niveau de culture a augmenté! Je regrette seulement de ne pas pouvoir suivre l'Aîné en permanence. Cependant, servir les ordres de l'Aîné est un immense honneur pour Grand Rouge. J'aimerais pouvoir me diviser en de nombreux avatars pour rassembler des choses plus rapidement! »
+Tout plein d'entrain, il prit une grande inspiration et dit avec excitation: « Ce petit n'a pas vu l'Aîné depuis plusieurs mois. Maintenant que je suis devant vous, je me sens immédiatement revigoré! Le simple fait de respirer l'air que l'Aîné cultive me donne l'impression que mon niveau de culture a augmenté! Je regrette seulement de ne pas pouvoir suivre l'Aîné en permanence. Cependant, servir les ordres de l'Aîné est un immense honneur pour Grand Rouge. J'aimerais pouvoir me diviser en de nombreux avatars pour rassembler des choses plus rapidement! »
 
 L'expression de Wang Lin resta neutre tandis qu'il observait Grand Rouge. D'un geste de la main, il rangea tout ce qui servirait à l'échange des cristaux.
 

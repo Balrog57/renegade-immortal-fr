@@ -34,13 +34,13 @@ Un coup, deux coups, trois coups, quatre coups!
 
 En un bref instant, les deux doigts de Wang Lin formèrent une épée et frappèrent quatre fois!
 
-*Rumble, rumble, rumble, rumble.* Le visage du jeune homme marqué par l'éclair devint livide; la stupeur envahit ses yeux avant qu'il ne crache un flot de sang. Sa poitrine n'était plus qu'un massacre sanglant, et d'innombrables éclairs crépitaient sur son torse. La foudre se propagea rapidement comme un filet, enserrant son corps.
+*Boum, boum, boum, boum.* Le visage du jeune homme marqué par l'éclair devint livide; la stupeur envahit ses yeux avant qu'il ne crache un flot de sang. Sa poitrine n'était plus qu'un massacre sanglant, et d'innombrables éclairs crépitaient sur son torse. La foudre se propagea rapidement comme un filet, enserrant son corps.
 
 Tout s'était produit en un éclair; c'était si rapide que personne n'eut le temps de réagir. Pour les deux autres membres du Royaume Extérieur, Wang Lin venait simplement de se retourner, immobile, avec ce même regard moqueur.
 
 Pourtant, à cet instant précis, l'un de leurs compagnons cracha du sang et fut projeté en arrière. C'est aussi à ce moment que le fracas du tonnerre retentit.
 
-« Ancêtre de la Foudre, prête-moi le pouvoir de dévorer ce cultivateur du Royaume Scellé! » Des craquements sinistres émanèrent du jeune homme marqué par l'éclair; plus de la moitié de ses os étaient brisés. Projeté en arrière sur plusieurs centaines de pieds, la foudre autour de lui s'effondra, laissant un filet électrique qui semblait l'emprisonner.
+« Ancêtre de la Foudre, prête-moi le pouvoir de dévorer ce cultivateur du Royaume Scellé! » Des craquements sinistres émanèrent du jeune homme marqué par l'éclair; plus de la moitié de ses os étaient brisés. Son corps de plusieurs centaines de pieds recula en titubant, la foudre autour de lui s'effondra, laissant un filet électrique qui semblait l'emprisonner.
 
 Le visage couvert de sang, il redressa la tête et poussa un rugissement terrassant, empreint de folie! Cependant, aux yeux de Wang Lin, cette folie n'était que le masque de la peur et du désespoir.
 
@@ -68,7 +68,7 @@ Tout cela s'était produit en un instant. Les pupilles de l'individu marqué par
 
 Wang Lin se retourna et son regard se posa sur le jeune homme marqué par le feu.
 
-« Le feu? » La moquerie dans ses yeux redoubla d'intensité! Une flamme monstrueuse jaillit de son œil droit, et une mer de feu couvrant des milliers de pieds s'éleva autour de lui.
+« Le feu? » La moquerie dans ses yeux redoubla d'intensité! Une flamme monstrueuse jaillit de son œil gauche, et une mer de feu couvrant des milliers de pieds s'éleva autour de lui.
 
 Le jeune homme marqué par le feu pâlit. Il voulut fuir, mais la mer de flammes l'encerclait déjà. Il lutta et poussa un cri de rage. Les ailes de feu derrière son dos battirent, déchaînant une tempête de flammes. Une fois la tempête formée, il chargea Wang Lin.
 
@@ -94,7 +94,7 @@ Ses cris misérables résonnèrent tandis que son corps se changeait en cendres.
 
 « En tant que membre du Clan des Moineaux de Feu, j'invoque l'esprit ancestral! »
 
-Au moment où sa voix résonna, son âme originelle s'effondra. Les éclats de lumière se transformèrent en feu pour donner naissance à l'illusion d'un Oiseau Vermillon! Cet oiseau était noir et enveloppé d'une aura d'hostilité pure. Il ne ressemblait même pas à un véritable Oiseau Vermillon; il tenait davantage du grand oiseau de feu démoniaque!
+Au moment où sa voix résonna, son âme originelle s'effondra. Les éclats de lumière se transformèrent en feu pour donner naissance à l'illusion d'un Oiseau Vermillon! Cet oiseau était noir et enveloppé d'une aura d'hostilité pure. Il ne ressemblait même pas à un véritable Oiseau Vermillon; il tenait davantage d'un oiseau de feu à la taille démesurée!
 
 Rempli de haine, il poussa un rugissement et chargea Wang Lin!
 

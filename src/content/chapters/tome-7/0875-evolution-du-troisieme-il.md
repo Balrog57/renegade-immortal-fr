@@ -34,7 +34,7 @@ Cependant, à cet instant, ses yeux brillaient d'un éclat inédit. Il fit trois
 
 À cet instant, Lie Yunzi avait déjà oublié Xu Ting. Toutes ses pensées étaient désormais occupées par Wang Lin!
 
-Non seulement lui, mais tous les vieux monstres sur la natte de prière furent stupéfaits. Tout comme Lie Yunzi, ils ne portaient pas grand cas aux performances de Wang Lin lors des deux derniers essais, trouvant cela simplement divertissant. Mais à présent, ils commençaient tous à lui accorder une attention sérieuse.
+Non seulement lui, mais tous les vieux monstres sur les tapis de prière furent stupéfaits. Tout comme Lie Yunzi, ils ne portaient pas grand cas aux performances de Wang Lin lors des deux premiers essais, trouvant cela simplement divertissant. Mais à présent, ils commençaient tous à lui accorder une attention sérieuse.
 
 Les pupilles du Dieu de Sang se rétractèrent alors qu'il fixait Wang Lin. Tout en étant choqué, une intention meurtrière surgit de nouveau dans son cœur!
 
@@ -48,7 +48,7 @@ L'admiration de l'ancêtre de la famille Xiang s'intensifia. Plus il regardait W
 
 Maître Yan Leizi sourit, et en voyant le choc de Lie Yunzi, son sourire s'élargit.
 
-Zhan Konglie connaissait les affaires de la famille. Lorsqu'il vit Wang Lin entrer dans cet état en une seule seconde, il eut un haut-le-cœur, totalement stupéfait. Quant à Xu Ting, il fronça les sourcils, le cœur lourd de sentiments complexes. Il était initialement un enfant favorisé par les cieux, mais lors de l'essai humain, Xu Mu lui avait volé la vedette. Puis, lors de l'essai terrestre, il s'était révélé bien inférieur à Xu Mu. Maintenant, lors de l'essai céleste, il était loué par Lie Yunzi, mais tout cela s'était instantanément envolé. C'était comme si son rival, Xu Mu, était devenu son ennemi juré!
+Zhan Konglie connaissait les affaires de la famille. Lorsqu'il vit Wang Lin entrer dans cet état en une seule seconde, il inspira brusquement, totalement stupéfait. Quant à Xu Ting, il fronça les sourcils, le cœur lourd de sentiments complexes. Il était initialement un enfant favorisé par les cieux, mais lors de l'essai humain, Xu Mu lui avait volé la vedette. Puis, lors de l'essai terrestre, il s'était révélé bien inférieur à Xu Mu. Maintenant, lors de l'essai céleste, il était loué par Lie Yunzi, mais tout cela s'était instantanément envolé. C'était comme si son rival, Xu Mu, était devenu son ennemi juré!
 
 Le Sens Divin de Wang Lin se divisa en deux et fusionna avec le mot « bataille ». Une trace d'énergie originelle émana du mot et circula lentement à travers son corps. Juste au moment où elle allait quitter le corps de Wang Lin, elle tressaillit et cette trace d'énergie originelle chargea vers le troisième œil avec frénésie.
 

@@ -22,7 +22,7 @@ S'ils ne pouvaient entrer, Maître Pin Cendré ne les laisserait pas partir. Bie
 
 La femme en vert leva sa main droite et fit un geste. Une restriction s'abattit sur le rocher montagneux, le rendant transparent tandis que des ondulations se propageaient à sa surface.
 
-Wang Lin atteignit le rocher en quelques enjambées et s'engouffra à l'intérieur. Personne ne remarqua qu'au moment où il pénétra dans la roche, la main droite de Wang Lin libéra une restriction invisible pour l'accompagner.
+Wang Lin atteignit le rocher en quelques enjambées et s'engouffra à l'intérieur. Personne ne remarqua qu'au moment où il pénétra dans la roche, la main droite de Wang Lin libéra une restriction invisible qui se fondit dans la formation de ce lieu.
 
 Dès qu'il fut à l'intérieur, Wang Lin ressentit une pression venant de toutes parts. Cette force s'intensifiait violemment devant lui.
 

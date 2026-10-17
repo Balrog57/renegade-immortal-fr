@@ -26,7 +26,7 @@ Ce vieil homme était l'Empereur Divin du Dragon Azure! Son visage était marqu�
 
 Le rugissement de l'Empereur Divin du Dragon Azure fit vibrer les chaînes alors que son corps se convulsait dans la lutte. Dans un élan de rage, il se précipita et frappa violemment la paroi de la chambre de sa tête.
 
-Alors que les grondements tonitruants faisaient apparaître des fissures sur le mur, celui-ci finit par reprendre sa forme initiale. La lumière des Quatre Trésors Sacrés s'intensifia, et les illusions d'un Oiseau Vermillon, d'une Tortue Noire et d'un Tigre Blanc apparurent, semblant maintenir l'Empereur Divin du Dragon Azure au sol.
+Alors que les grondements tonitruants faisaient apparaître des fissures sur le mur, celui-ci finit par reprendre sa forme initiale. La lumière des Quatre Trésors Sacrés s'intensifia, et les illusions d'un Oiseau Vermillon, d'un Dragon Azure, d'un Tigre Blanc et d'une Tortue Noire apparurent, semblant maintenir l'Empereur Divin du Dragon Azure au sol.
 
 Un Dragon Azure affaibli se dessina vaguement au-dessus de lui. Ce dragon était très vieux et dégageait une aura ancestrale. Pour une raison inconnue, d'innombrables tumeurs de couleur sang apparurent sur son corps; c'était un spectacle terrifiant!
 
@@ -44,7 +44,7 @@ Tandis qu'ils parlaient, l'Empereur Divin du Dragon Azure forma un sceau et poin
 
 D'un revers de manches, il sortit de la chambre. Il regarda les quatre hommes devant lui d'un air indifférent et demanda lentement: « Y a-t-il eu des changements sur la planète Suzaku? »
 
-« L'ancien dieu à l'intérieur de la fissure spatiale liée à la planète Suzaku est sur le point de s'éveiller! Cependant, nous avons suivi les ordres du Souverain Divin et avons mis en place la grande formation primordiale en utilisant le sang des quatre clans! »
+« L'ancien dieu à l'intérieur de la fissure spatiale liée à la planète Suzaku est sur le point de s'éveiller! Cependant, nous avons suivi les ordres du Souverain Divin et avons mis en place la grande formation primordiale en utilisant le sang et les sceaux des quatre clans! »
 
 En entendant ces mots, l'Empereur Divin du Dragon Azure hocha silencieusement la tête. Il regarda au loin d'un regard complexe et, après un long moment, une froideur glaciale passa dans ses yeux. Sa voix, empreinte d'une intention meurtrière, tonna: « Le Royaume du Vide Brillant est plongé dans le chaos depuis trop longtemps, et Luotian en a profité pour envahir. Convoquez tous les membres des Quatre Sectes Divines. Je vais reprendre le contrôle du Royaume du Vide Brillant. Tous les cultivateurs devront soit se soumettre, soit mourir! »
 
@@ -56,9 +56,9 @@ Toute la Secte Divine des Quatre se mit en mouvement!
 
 Dans le Royaume aux Sept Couleurs, alors que l'Oiseau Vermillon Bleu s'élançait dans les airs, la silhouette de Wang Lin émergea lentement des flammes bleues. Il observa le monde azuré devant lui avec un regard perçant.
 
-« Si mon feu, mon tonnerre et mon intention de combat fusionnent avec mes domaines vrai et faux, mon niveau de culture augmentera une fois de plus. Personne n'atteignant le niveau de culture du Fléau Céleste ne pourra me faire face! » Wang Lin scruta les profondeurs du Royaume aux Sept Couleurs. Il aperçut une montagne imposante au loin, ainsi que la grotte nichée dans cette paroi, et la scène étrange qui s'y déroulait.
+« Si mon feu, mon tonnerre et mon intention de combat fusionnent avec mes domaines vrai et faux, mon niveau de culture augmentera une fois de plus. Personne n'atteignant le niveau de culture du Fléau Céleste ne pourra me faire face! Il ne manque plus qu'une occasion! » Wang Lin scruta les profondeurs du Royaume aux Sept Couleurs. Il aperçut une montagne imposante au loin, ainsi que la grotte nichée dans cette paroi, et la scène étrange qui s'y déroulait.
 
-« Planter le Dao pour le nourrir... Une fois le fruit mûr, qui viendra le cueillir...? » Les yeux de Wang Lin s'illuminèrent alors qu'il leva sa main droite pour pointer l'horizon!
+« Planter le Dao pour obtenir le Dao... Une fois le fruit mûr, qui viendra le cueillir...? » Les yeux de Wang Lin s'illuminèrent alors qu'il leva sa main droite pour pointer l'horizon!
 
 Sur ce geste, l'Oiseau Vermillon Bleu poussa un cri et s'élança soudainement. Emportant les flammes bleues qui l'entouraient, il chargea avec fracas. Un grondement tonitruant retentit alors que cet océan de flammes déferlait droit sur le vieil homme aux cheveux blancs!
 

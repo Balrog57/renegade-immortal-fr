@@ -7,7 +7,7 @@ en: Chapter 836 - The Moongazer Serpents Secret
 slug: le-secret-du-serpent-lunaire
 ---
 
-Alors que le rugissement résonnait, l'expression de Wang Lin devint pâle. Il sentit une douleur fulgurante dans son âme originelle, comme si elle était en train d'être déchirée. S'il portait encore l'Armure de Cuir de l'Ancien Dieu, l'impact n'aurait pas été aussi violent, mais la douleur actuelle provoquait désormais des saignements par tous ses orifices.
+Alors que le rugissement résonnait, l'expression de Wang Lin devint pâle. Il sentit une douleur fulgurante dans son âme originelle, comme si elle était en train d'être déchirée. Auparavant, protégé par l'Armure de Cuir de l'Ancien Dieu, il n'avait pas ressenti cette douleur aussi nettement, mais à présent elle lui fit couler le sang de tous les orifices.
 
 Sentant un danger imminent, Wang Lin esquissa un sourire amer et frappa son sac de contenance. L'Armure de Cuir de l'Ancien Dieu apparut et enveloppa son âme originelle. C'était comme si une barrière s'était soudainement formée autour de ses oreilles. Bien que le rugissement fût toujours aussi puissant, l'impact sur son âme originelle fut réduit à un niveau que Wang Lin pouvait supporter.
 
@@ -55,7 +55,7 @@ Ce choc ébranla profondément l'esprit de Wang Lin. Cependant, il remarqua auss
 
 Après avoir été projeté dans le vortex, Wang Lin put enfin observer clairement son environnement. Ce qu'il vit lui fit aspirer un souffle d'air glacé de stupeur.
 
-C'était un espace long et étroit. Des tentacules émergeaient du vide et ondulaient lentement. Wang Lin aperçut un immense fourneau, entravé par d'innombrables tentacules qui semblaient en absorber l'aura. Une masse imposante se déplaçait de temps à autre sous les filaments.
+C'était un espace long et étroit. Des tentacules émergeaient du vide et ondulaient lentement. Wang Lin aperçut un immense fourneau, entravé par d'innombrables tentacules qui semblaient en absorber l'aura. Des renflements ondulaient le long des tentacules et se transmettaient jusque dans le vide.
 
 Ce fourneau était celui de Cupidité!
 

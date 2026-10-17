@@ -16,11 +16,11 @@ Après un long moment, Wang Lin détourna son regard et s'élança dans les airs
 
 Li Yuanlei et son groupe se regardèrent. Après un instant de réflexion, le sentiment d'avoir échappé de justesse à une calamité imprégnait leurs esprits. Se remémorant ce qui venait de se passer, ils n'avaient aucune intention de rester. Leur respect pour Wang Lin ne fit que croître.
 
-Ils s'inclinèrent tous dans la direction prise par Wang Lin et partirent rapidement. Bien qu'ils fussent venus ici pour le butin, ils ne prirent ni la porte de pierre, ni la compréhension du Royaume Céleste du Vent. Ce qu'ils emportaient en revanche, c'était l'image de Wang Lin et cette crainte révérencieuse qu'il leur inspirait.
+Ils s'inclinèrent tous dans la direction prise par Wang Lin et partirent rapidement. Bien qu'ils fussent venus ici pour le butin, ils ne prirent ni la porte de pierre, ni la compréhension du Royaume Céleste du Vent. Ce qu'ils emportaient en revanche, c'était la silhouette de Wang Lin, vêtu de blanc et aux cheveux blancs, et cette crainte révérencieuse qu'il leur inspirait.
 
 Il y avait aussi ces deux mots: « Le Temps qui S'écoule ».
 
-« Le Temps qui S'écoule... » murmura Wang Lin pour lui-même, assis sur le dos du roi des moustiques. Dans son cœur, il y avait la mer qui avait engendré la Nuit Déchirée, et après la Nuit Déchirée, venait le Temps qui S'écoule!
+« Le Temps qui S'écoule... » murmura Wang Lin pour lui-même, assis sur le dos du roi des moustiques. Dans son esprit se trouvait la mer de la Nuit Déchirée, et s'y dressait désormais aussi une imposante porte de pierre. Après la Nuit Déchirée, venait le Temps qui S'écoule!
 
 Cependant, Wang Lin n'avait pas encore pleinement maîtrisé ce second sort. Il devait poursuivre sa compréhension et sa confirmation avant qu'il ne puisse prendre forme.
 
@@ -44,7 +44,7 @@ De plus, les bêtes moustiques étaient si denses qu'il était probable qu'avant
 
 En se concentrant, Wang Lin sentit vaguement le tremblement et le regard glacial du roi des moustiques. Sa main droite tapota doucement la tête de la créature. Le roi des moustiques poussa un rugissement et s'élança avec l'essaim.
 
-Wang Lin vit de plus en plus de bêtes moustiques. Ces groupes ne comptaient plus des milliers, mais des dizaines de milliers d'individus. Il y avait davantage de spécimens bleus, et même des centaines de bêtes blanches.
+Wang Lin vit de plus en plus de bêtes moustiques. Ces groupes ne comptaient plus des milliers, mais approchaient les dix mille individus. Il y avait davantage de spécimens bleus, et même des centaines de bêtes blanches.
 
 Devant ce spectacle, Wang Lin prit une profonde inspiration et sentit son cuir chevelu se hérisser. Heureusement, ces bêtes ne s'arrêtaient pas; elles glissaient avec le vent comme dans un jeu. Pourtant, leurs rugissements auraient pu terrasser l'esprit de n'importe qui.
 

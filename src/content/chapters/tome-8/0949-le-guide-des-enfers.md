@@ -62,7 +62,7 @@ De son point de vue, Qing Shui était un fou furieux. Il était fort probable qu
 
 « Au cours des âges, la seule personne que j'ai rencontrée capable de percevoir le domaine à l'intérieur du parchemin fut Xu Mu. S'il meurt, je ne sais pas quand je retrouverai un tel talent... Il vaut mieux entretenir de bons rapports avec lui! » En réfléchissant ainsi, Lie Yunzi eut un éclat de rire et ses yeux se remplirent d'admiration. Il hocha la tête et déclara:
 
-« Bien, tu n'es pas du tout impulsif. Tu es digne d'être le Céleste du Tonnerre de Luotian! Xu Mu, bien que ma famille Zhan ne possède pas de sort comme la famille Xiang pour aider à régénérer ton fragment d'âme, nous avons un sort qui permet de renforcer l'âme. À l'avenir, lorsque tu reviendras chercher ce vieil homme pour consulter le troisième parchemin, je ne te laisserai pas repartir les mains vides. Je t'enseignerai ce sort! Je te promets également de t'aider en une chose, en utilisant toute la puissance de la famille Zhan, tant que cela relève de nos capacités! »
+« Bien, tu n'es pas du tout impulsif. Tu es digne d'être le Céleste du Tonnerre de Luotian! Xu Mu, bien que ma famille Zhan ne possède pas de sort comme la famille Xiang pour ressusciter ton Âme Naissante mutilée, nous avons une méthode pour consolider tes fondations. À l'avenir, lorsque tu reviendras chercher ce vieil homme pour consulter le troisième parchemin, je ne te laisserai pas repartir les mains vides. Je t'enseignerai cette méthode! Je te promets également de t'aider en une chose, en utilisant toute la puissance de la famille Zhan, tant que cela relève de nos capacités! »
 
 Lie Yunzi venait de faire une immense promesse. Le visage de Wang Lin exprima sa gratitude et il dit respectueusement: « Merci, Senior. Vous pouvez être tranquille à ce sujet! »
 
@@ -90,7 +90,7 @@ Lors de son apparition, il dégageait une puissante odeur de sang. Derrière lui
 
 Wang Lin ouvrit les yeux avec un sourire amer. Le niveau de culture de Qing Shui était encore plus élevé qu'il y a dix jours. Il était évident qu'il avait dévoré de nombreux cultivateurs.
 
-« Ces gens sont tous des cultivateurs du Royaume de la Massacre qui excellaient dans l'art de se cacher. Si nous voulons pénétrer dans le Royaume de la Massacre, nous avons besoin de ces têtes! » Tandis qu'il parlait, Qing Shui agita sa main droite. Les têtes derrière lui volèrent pour former un cercle.
+« Ces gens sont tous des cultivateurs du Royaume de la Boucherie qui excellaient dans l'art de se cacher. Si nous voulons pénétrer dans le Royaume de la Boucherie, nous avons besoin de ces têtes! » Tandis qu'il parlait, Qing Shui agita sa main droite. Les têtes derrière lui volèrent pour former un cercle.
 
 « Sortilège Céleste: Le Guide des Enfers! » La main de Qing Shui traça un sceau. Son énergie d'origine céleste jaillit et il pointa du doigt. L'une des têtes explosa dans un fracas, se transformant en une brume sanglante. Le processus se répéta jusqu'à ce que les cent têtes s'effondrent toutes.
 
@@ -98,7 +98,7 @@ Une épaisse brume de sang enveloppa la zone. Qing Shui agita sa main droite et 
 
 « Guide des Enfers! » À l'instant où la voix glaciale de Qing Shui retentit, les lamentations au sein du vortex s'intensifièrent. Elles se concentrèrent au centre de la rotation, formant une sorte de trou noir!
 
-En condensant toutes les mémoires liées au Royaume de la Massacre issues des fragments d'âme en un seul point, ce sort créait un passage vers le Royaume de la Massacre en utilisant les souvenirs de plus de cent cultivateurs!
+En condensant toutes les mémoires liées au Royaume de la Boucherie issues des fragments d'âme en un seul point, ce sort créait un passage vers le Royaume de la Boucherie en utilisant les souvenirs de plus de cent cultivateurs!
 
 C'était cela, le sortilège céleste du Guide des Enfers!
 
@@ -108,20 +108,20 @@ On y voyait d'immenses édifices qui semblaient poignarder le vide comme des ép
 
 Au centre se dressait une tour d'au moins trois kilomètres de haut. Des chaînes noires pendaient de la tour, la reliant aux bâtiments environnants.
 
-C'était le Royaume de la Massacre!
+C'était le Royaume de la Boucherie!
 
 « Ce sort est très pratique, je l'apprécie beaucoup! » Une soif de sang illumina les yeux de Qing Shui alors qu'il sortait un jade pour enregistrer le sort et le lança à Wang Lin. Puis, il s'avança dans le vortex sans la moindre hésitation. Wang Lin rattrapa le jade en souriant amèrement. Il craignait que si Qing Shui aimait ce sort, ce n'était que parce qu'il lui permettait de massacrer son chemin vers les bases ennemies avec une facilité déconcertante.
 
 Wang Lin emboîta le pas et entra dans le vortex juste après Qing Shui!
 
-Un immense vortex venait soudainement d'apparaître dans le Royaume de la Massacre, attirant l'attention de tous les cultivateurs. Un instant plus tard, une voix glaciale se propagea:
+Un immense vortex venait soudainement d'apparaître dans le Royaume de la Boucherie, attirant l'attention de tous les cultivateurs. Un instant plus tard, une voix glaciale se propagea:
 
-« Je suis le Seigneur Céleste Qing Shui. Aujourd'hui, je suis venu récupérer ce qui m'appartient, et ensuite, je détruirai ce royaume! »
+« Je suis le Seigneur Céleste Qing Shui du Royaume Céleste du Tonnerre. Aujourd'hui, je suis venu récupérer ce qui m'appartient, et ensuite, je détruirai ce royaume! »
 
-Au moment où ces mots furent prononcés, ils se transformèrent en une tempête d'intention meurtrière qui balaya l'intégralité du Royaume de la Massacre!
+Au moment où ces mots furent prononcés, ils se transformèrent en une tempête d'intention meurtrière qui balaya l'intégralité du Royaume de la Boucherie!
 
 Bang, bang, bang, bang!
 
 En un instant, d'innombrables édifices en forme d'épées s'effondrèrent!
 
-« Qu'est-ce que ce Royaume de la Massacre a bien pu prendre au Frère Aîné Qing Shui pour qu'il soit si enragé après avoir fouillé la mémoire du respecté Xuan Bao? » Wang Lin sortit du vortex et fixa froidement le Royaume de la Massacre!
+« Qu'est-ce que ce Royaume de la Boucherie a bien pu prendre au Frère Aîné Qing Shui pour qu'il soit si enragé après avoir fouillé la mémoire du respecté Xuan Bao? » Wang Lin sortit du vortex et fixa froidement le Royaume de la Boucherie, l'un des huit royaumes de l'Alliance de Culture!

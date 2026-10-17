@@ -64,7 +64,7 @@ Ses yeux injectés de sang révélaient un regard de démence.
 
 « Soit je brûle jusqu'à la mort, soit je renaîtrai par le feu! » Wang Lin croyait en la persévérance et au travail acharné, porté par une volonté défiant les cieux. Plus les flammes étaient intenses, plus sa détermination devenait puissante!
 
-« Puisque je ne peux pas continuer à l'évacuer, alors je ne le ferai plus; je laisserai cette chaleur stagner en moi. Je veux voir ce que ce feu a dans le ventre! » Wang Lin laissa échapper un rire douloureux, son expression devenant encore plus démente. Il scella tous les pores de son corps, l'isolant hermétiquement du monde extérieur. Il permit à la chaleur intérieure d'augmenter de manière incontrôlable sans en laisser passer la moindre parcelle!
+« Puisque je ne peux pas continuer à l'évacuer, alors je ne le ferai plus; je laisserai cette chaleur stagner en moi. Je veux voir ce que ce feu a dans le ventre! » Wang Lin laissa échapper un rire douloureux, son expression devenant encore plus démente. Il scella tous les pores de son corps ainsi que ses sept orifices, l'isolant hermétiquement du monde extérieur. Il permit à la chaleur intérieure d'augmenter de manière incontrôlable sans en laisser passer la moindre parcelle!
 
 Cette audace insensée paraissait simple, mais combien d'individus au monde auraient réellement pu agir ainsi?
 

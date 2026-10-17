@@ -50,7 +50,7 @@ En entendant cela, tous comprirent pourquoi Li Qianmei était venue en aide à l
 
 « Lu Yanfei, cet homme est-il vraiment l'ancêtre de votre Secte de l'Origine? » La question vint de l'homme en robe blanche, le Maître de la Secte Éternelle.
 
-C'était la première fois que Lu Yanfei était interrogée ainsi, mais elle n'hésita pas et répondit doucement: « Oui, mon Oncle-Maître a erré à travers le monde pour revenir sauver la Secte de l'Origine. Il s'était installé... Mais après avoir rencontré le camarade cultivateur Lu, il est reparti. Ses traces sont aujourd'hui inconnues. »
+C'était la première fois que Lu Yanfei était interrogée ainsi, mais elle n'hésita pas et répondit doucement: « Oui, mon Oncle-Maître a erré à travers le monde pour revenir sauver la Secte de l'Origine. Il s'était installé... Mais après avoir discuté du Dao avec le camarade cultivateur Lu et les autres, il est reparti. Ses traces sont aujourd'hui inconnues. »
 
 « Un tel cultivateur doit errer dans le monde pour comprendre le Dao. Sa personnalité doit l'inciter à se détourner des affaires mondaines; c'est ainsi qu'il a pu atteindre une telle compréhension du Dao. » C'était l'homme d'âge mûr nommé Zhou qui parlait, avec un certain regret.
 
@@ -58,7 +58,7 @@ C'était la première fois que Lu Yanfei était interrogée ainsi, mais elle n'h
 
 « Lorsque l'Oncle-Maître est parti, il a dit qu'il reviendrait. » Bien que la voix de Lu Yanfei fût douce, ses paroles étaient empreintes de détermination.
 
-« Bien, alors attendons-le! Ce vieil homme veut voir quel genre d'homme est ce Lu Zihao! Reprenez vos places, et le combat entre votre Secte de l'Origine et la Secte du Dao Pourpre sera reporté. Ancien Feng, ordonnez aux sectes de rang 6 de commencer! » L'homme en blanc sourit, visiblement ravi.
+« Bien, alors attendons-le! Ce vieil homme veut voir quel genre d'homme est ce Lu Zihao! Le combat entre votre Secte de l'Origine et la Secte du Dao Pourpre sera reporté. Ancien Feng, ordonnez aux sectes de rang 6 de commencer! » L'homme en blanc sourit, visiblement ravi.
 
 La compétition des sectes de rang 6 commença officiellement dans un fracas de tonnerre. Cependant, cela ne put détourner l'attention de la foule, car tous les regards étaient encore rivés sur les gradins de la Secte Éternelle.
 
@@ -84,7 +84,7 @@ C'était comme si une âme solitaire retrouvait un être cher en terre étrangè
 
 Lu Yanfei était également plongée dans la confusion en regardant la silhouette, ressentant une amertume profonde au fond de son cœur.
 
-Lu Yuncong fut surpris. Avant qu'il ne puisse dire quoi que ce soit, un rayon de lumière jaillit soudainement de la plateforme nord. Ce trait de lumière provoqua un grondement assourdissant et charriait avec lui cent ans d'intention meurtrière. Balayant le ciel dans un fracas apocalyptique, Li Qianmei apparut devant l'estrade où siégeaient les Anciens de la Secte Éternelle. Son regard se verrouilla sur les deux Anciens qui s'étaient levés.
+Lu Yuncong fut surpris. Avant qu'il ne puisse dire quoi que ce soit, un rayon de lumière jaillit soudainement de la plateforme nord. Ce trait de lumière provoqua un grondement assourdissant et charriait avec lui cent ans d'intention meurtrière. Balayant le ciel dans un fracas apocalyptique, Li Qianmei, aux cheveux bleus, apparut devant l'estrade où siégeaient les Anciens de la Secte Éternelle. Son regard se verrouilla sur les deux Anciens qui s'étaient levés.
 
 « Vous l'avez vu? » La voix de Li Qianmei était calme, mais un léger tremblement, qu'elle ne remarqua même pas, l'agitait. En fixant la silhouette devant elle, une obsession consumait son cœur. Pour cette seule pensée, elle n'avait pas hésité à risquer les châtiments de la Secte Démon pour rejoindre la Secte Éternelle, juste pour revoir cet homme.
 

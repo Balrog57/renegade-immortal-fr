@@ -32,7 +32,7 @@ Wang Lin détourna le regard du point où la femme avait disparu. Il avait déj�
 
 Mo Zhi se leva et joignit les mains à son tour. Une pointe de mélancolie étira son sourire: « Je crains que cela ne fasse presque mille ans que nous ne nous sommes vus. »
 
-Les yeux de Wang Lin s'emplirent de nostalgie tandis qu'il soupirait: « Frère Mo, nos retrouvailles étaient prédestinées. Toi et moi devons à nouveau débattre du Dao. Je me souviens encore de cette nuit pluvieuse. »
+Les yeux de Wang Lin s'emplirent de nostalgie tandis qu'il soupirait: « Frère Mo, nos retrouvailles étaient prédestinées. Vous et moi devons à nouveau débattre du Dao. Je me souviens encore de cette nuit pluvieuse où vous m'avez éclairé. »
 
 Mo Zhi sourit et acquiesça. Les deux hommes sortirent de la salle.
 
@@ -62,15 +62,15 @@ De nombreux membres se concentrèrent sur leur culture. Quant aux anciens, tous 
 
 À cet instant, la silhouette de Wang Lin apparut à la lisière du champ d'étoiles ardent de la Secte Divine Oiseau Vermillon. Une âme originelle flottait devant lui. Cette âme avait l'apparence d'un homme d'âge mûr qui regardait Wang Lin avec des yeux empreints de bienveillance et de satisfaction.
 
-« Tu es très doué. Durant mes dernières années, tu n'as pas été la personne la plus talentueuse que j'aie rencontrée, mais tu es celle dont je suis le plus satisfait. Je me sens serein en te laissant la Secte Divine Oiseau Vermillon. »
+« Tu es très doué. Durant mes dernières années, tu n'as pas été le membre du clan le plus talentueux que j'aie vu, mais tu es celui dont je suis le plus satisfait. Je me sens serein en te laissant la Secte Divine Oiseau Vermillon. »
 
 Wang Lin réfléchit silencieusement.
 
 « Malheureusement, mon temps est compté. Si j'avais eu davantage de temps, je serais certain d'avoir pu te transmettre l'héritage complet. Quel dommage... » L'homme secoua la tête dans un soupir. Il regarda Wang Lin et dit doucement: « Je crains de ne pas pouvoir revenir de ce voyage au siège de l'Alliance. Cependant, quel qu'en soit le prix, j'obtiendrai ce Cristal du Royaume Céleste de la Pluie! »
 
-« Pour l'instant, 90 % de mon origine est ici. Je vais aller absorber tous les avatars que j'ai dispersés. J'ai laissé 10 % de mon âme originelle dans mon corps physique. Une fois le cristal obtenu, j'utiliserai une méthode secrète de transfert d'âme pour l'envoyer vers mon corps. Après avoir reçu le cristal, si tu peux sauver l'Empereur Divin Dragon Azure, fais-le. Sinon, assure d'abord ta propre sécurité. » L'homme parlait comme s'il organisait ses derniers préparatifs pour sa mort.
+« Pour l'instant, 90 % de mon âme originelle est séparée de moi. Je vais aller absorber tous les avatars que j'ai dispersés. J'ai laissé 10 % de mon âme originelle dans mon corps physique. Une fois le cristal obtenu, j'utiliserai une méthode secrète de transfert d'âme pour l'envoyer vers mon corps. Après avoir reçu le cristal, si tu peux sauver l'Empereur Divin Dragon Azure, fais-le. Sinon, assure d'abord ta propre sécurité. » L'homme parlait comme s'il organisait ses derniers préparatifs pour sa mort.
 
-« Grâce à cette flamme blanche, mon corps ne se décomposera pas pendant 3 000 ans. Tous les cent ans, tu devras cultiver près de moi pour absorber l'énergie d'origine du feu stockée en mon sein. Cela sera d'un grand secours pour ta culture. Souviens-t'en bien! Cependant, en cas de situation de vie ou de mort, ne te soucie pas de mon corps. Utilise les Neuf Transformations Mystérieuses pour le faire exploser. Peut-être cela permettra-t-il à toi ou à la Secte Divine Oiseau Vermillon de surmonter une crise. »
+« Grâce à la pierre de feu blanc qui se trouve sur mon corps, celui-ci ne se décomposera pas pendant 3 000 ans. Tous les cent ans, tu devras cultiver près de moi pour absorber l'énergie d'origine du feu stockée en mon sein. Cela sera d'un grand secours pour ta culture. Souviens-t'en bien! Cependant, en cas de situation de vie ou de mort, ne te soucie pas de mon corps. Utilise les Neuf Transformations Mystérieuses pour le faire exploser. Peut-être cela permettra-t-il à toi ou à la Secte Divine Oiseau Vermillon de surmonter une crise. »
 
 L'homme regarda avec regret le champ d'étoiles ardent et les planètes lointaines de la Secte Divine Oiseau Vermillon. La mélancolie et la réticence marquaient son visage.
 
@@ -78,14 +78,14 @@ L'homme regarda avec regret le champ d'étoiles ardent et les planètes lointain
 
 Il lança un dernier regard profond à Wang Lin avant de se détourner. Il marchait avec élégance, comme s'il venait d'être libéré de millénaires de pression.
 
-« Mon nom est Lu Yun, et je suis né dans l'ancien monde des raffineurs de Qi. Je fus le disciple alchimiste de la quatrième génération de l'Empereur Divin Oiseau Vermillon. Je suis reconnaissant envers lui de ne pas m'avoir abandonné et de m'avoir enseigné la culture du Qi. À l'âge de 1 327 ans, j'ai accompli mes premiers succès en tant que raffineur de Qi. J'ai suivi l'Empereur Divin et été témoin de la gloire de ma Secte...
+« Mon nom est Lu Yun, et je suis né dans l'ancien monde des raffineurs de Qi. Dès mon enfance, je fus apprenti apothicaire auprès d'un Empereur Divin. Je suis reconnaissant envers l'Empereur Divin de la quatrième génération de ne pas m'avoir abandonné et de m'avoir enseigné la culture du Qi. À l'âge de 1 372 ans, j'ai accompli mes premiers succès en tant que raffineur de Qi. J'ai suivi l'Empereur Divin et été témoin de la gloire de ma Secte...
 
 À l'âge de 2 945 ans, je devins un ancien de la Secte Divine Oiseau Vermillon.
-À l'âge de 4 760 ans, je devins l'un des anciens principaux et franchis ma premier Fléau Céleste.
+À l'âge de 4 760 ans, je devins l'un des anciens principaux et franchis mon premier Fléau Céleste.
 À l'âge de 6 215 ans, on me remit la Marque de l'Oiseau Vermillon et j'atteignis mon premier éveil. Je surpassai tous les autres éveillés pour devenir le premier d'entre eux.
 À l'âge de 7 912 ans, avec l'aide du quatrième Empereur Divin, je terminai mon second éveil. Dès lors, je fus choisi pour être le prochain Empereur Divin, le jeune seigneur de la Secte!
 
-À l'âge de 11 463 ans, le Clan du Tatouage envahit le monde extérieur et sema le chaos. Notre Secte aida le Royaume Céleste à combattre ce clan! Par la suite, le quatrième Empereur Divin partit avec les trois autres vers le monde extérieur. Avant leur départ, je fus désigné cinquième Empereur Divin! À cette époque, je venais de franchir ma deuxième Fléau Céleste grâce à son aide.
+À l'âge de 11 463 ans, le Clan du Tatouage envahit le monde extérieur et sema le chaos. Notre Secte aida le Royaume Céleste à combattre ce clan! Par la suite, le quatrième Empereur Divin partit avec les trois autres vers le monde extérieur. Avant leur départ, je fus désigné cinquième Empereur Divin! À cette époque, je venais de franchir mon deuxième Fléau Céleste grâce à son aide.
 
 C'est alors que j'appris un secret qui fait trembler les cieux sur nos Quatre Sectes Divines! Les Quatre Sectes ne sont pas originaires de ce Royaume Scellé. Ils sont venus de l'extérieur il y a fort longtemps...
 

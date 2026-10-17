@@ -20,13 +20,13 @@ Cent ans de raffinement, soutenus par assez de cristaux d'origine pour faire sai
 
 À mesure que l'énergie d'origine continuait de l'alimenter, l'état de la créature s'améliorait de plus en plus, jusqu'à ce qu'elle commence à se débattre et à rugir. Finalement, lorsqu'environ 70 % des cristaux du sac furent consommés, la bête moustique poussa un rugissement et jaillit de son cocon. Dès qu'elle s'élança, sa gueule acérée perça l'enveloppe pour en aspirer jusqu'à la dernière goutte.
 
-Le rugissement puissant résonna hors de la grotte. La bête moustique, d'un blanc doré et pâle, tournait joyeusement autour de Wang Lin. Sa grande gueule ne cessait de le lécher dans un état d'excitation manifeste.
+Le rugissement puissant résonna hors de la grotte. La bête moustique, d'un doré pâle, tournait joyeusement autour de Wang Lin. Sa grande gueule ne cessait de le lécher dans un état d'excitation manifeste.
 
 La taille de la créature avait changé; elle ne mesurait plus que trente pieds de long, mais elle dégageait désormais une aura rivalisant avec celle des cultivateurs du Purificateur du Nirvana.
 
 Wang Lin sourit et agita sa main droite pour ranger la bête. Elle était son atout maître et, tant qu'il n'aurait pas sa propre horde, il ne permettrait à personne de l'apercevoir.
 
-Après avoir quitté la grotte, Wang Lin réfléchit un instant, puis emporta tout ce qui s'y trouvait, y compris le fourneau à pilules géant. Quant aux grottes abritant les Perdus et les Éclairés, elles étaient désormais vides. Tous étaient morts lors de son combat contre le vieil homme aux cheveux blancs, au moment où celui-ci avait invoqué toutes leurs intentions Dao.
+Après avoir quitté la grotte, Wang Lin réfléchit un instant, puis emporta tout ce qui s'y trouvait, y compris le fourneau à pilules géant. Quant aux grottes abritant les Perdus et les Éveillés, elles étaient désormais vides. Tous étaient morts lors de son combat contre le vieil homme aux cheveux blancs, au moment où celui-ci avait invoqué toutes leurs intentions Dao.
 
 Même le vieillard de la huitième grotte s'était volatilisé sans laisser de trace; il ne restait sur le sol que des os et des cendres.
 
@@ -72,7 +72,7 @@ Après un long moment, l'expression de Wang Lin changea lorsqu'il perçut des in
 
 « Intéressant... » Les yeux de Wang Lin brillèrent et il tendit la main pour plonger dans le brouillard, mais son expression changea soudainement et sa main s'immobilisa. À cet instant précis, il sentit clairement l'âme originelle de l'Omniscient lutter pour s'échapper du Sceau Céleste des 18 Enfers.
 
-C'était la première fois qu'une âme scellée et extraite du cycle des réincarnations manifestait une telle volonté de s'échapper sans avoir été invoquée.
+C'était la première fois qu'une âme scellée et extraite du cycle des réincarnations manifestait des signes de lutte sans même s'être libérée du sceau.
 
 L'esprit de Wang Lin pénétra immédiatement dans le Sceau Céleste des 18 Enfers. Il parcourut les dix-huit couches infernales jusqu'à l'âme de l'Omniscient et fusionna avec elle sans la moindre hésitation.
 
@@ -80,7 +80,7 @@ L'aura de Wang Lin subit une métamorphose radicale. Il ne ressemblait plus à W
 
 En ressentant l'âme de l'Omniscient, Wang Lin perçut clairement son désir pour la brume aux sept couleurs. Cette convoitise était si intense qu'elle expliquait sa tentative de forcer le Sceau Céleste.
 
-« Désir... Je veux voir quelle utilité cette brume peut avoir pour toi! » Les yeux de Wang Lin révélèrent un éclat multicolore alors que sa main droite plongeait dans la brume.
+« Désir... Je veux voir quelle utilité cette brume peut avoir pour toi! » Les yeux de Wang Lin révélèrent un éclat étrange alors que sa main droite plongeait dans la brume.
 
 À cet instant précis, la brume tourbillonna et fut aspirée par la main de Wang Lin. Rapidement, tout le brouillard disparut, mais une nouvelle quantité émana des os de la bête, laquelle fut aussitôt absorbée à son tour.
 

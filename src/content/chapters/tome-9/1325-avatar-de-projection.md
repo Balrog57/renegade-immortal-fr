@@ -48,7 +48,7 @@ Des grondements tonitruants résonnèrent et la femme en blanc recula rapidement
 
 Des grondements tonitruants secouèrent le monde. Les âmes de combat furent contraintes de reculer devant la lumière noire, mais aucune ne fut endommagée. Tous les assauts furent neutralisés par le Monde du Vent et de la Pluie qui les enveloppait.
 
-La femme en blanc continua sa retraite et, en un clin d'œil, elle s'était éloignée de milliers de pieds. Wang Lin fit un pas en avant pour la rattraper. Grâce au jade qui la protégeait, elle ne craignait point d'être blessée. Elle leva à nouveau sa main droite et rassembla encore plus de lumière noire pour former une longue épée sombre!
+La femme en blanc continua sa retraite et, en un clin d'œil, elle s'était éloignée de dizaines de milliers de pieds. Wang Lin fit un pas en avant pour la rattraper. Grâce au jade qui la protégeait, elle ne craignait point d'être blessée. Elle leva à nouveau sa main droite et rassembla encore plus de lumière noire pour former une longue épée sombre!
 
 Dès l'apparition de cette lame, les couleurs du monde basculèrent et un fracas de tonnerre retentit. Elle fixa Wang Lin et projeta sa main droite: la longue épée noire vola droit sur lui!
 

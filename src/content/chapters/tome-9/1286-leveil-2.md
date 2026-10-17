@@ -72,7 +72,7 @@ La vieille femme ricana. Après un long silence, elle reprit: « Tu veux savoir?
 
 « Je ne sais pas comment vous vous êtes rencontrés, mais savais-tu qu'il y a dix ans, Li Qianmei a renoncé à l'immense opportunité de devenir disciple de la Secte Démon pour abandonner ce dernier? Elle fut la première à quitter le champ de bataille, tout cela pour rencontrer quelqu'un à la Secte Éternelle!
 
-« La Secte Démon ne voulait évidemment pas de cela, et même sa propre Secte Brise-Ciel n'était pas satisfait. Une fois un tel précédent établi, d'autres ne respecteraient plus les règles, naturellement! Ce qu'elle a perdu n'a rien à voir avec toi, et même si tu l'ignorais, cela ne te ferait aucun mal! »
+« La Secte Démon ne voulait évidemment pas de cela, et même sa propre Secte Brise-Ciel n'était pas satisfaite. Une fois un tel précédent établi, d'autres ne respecteraient plus les règles, naturellement! Ce qu'elle a perdu n'a rien à voir avec toi, et même si tu l'ignorais, cela ne te ferait aucun mal! »
 
 Wang Lin était bouleversé. Il ignorait tout de cela. Lorsqu'il avait rencontré Li Qianmei à la Secte Éternelle, elle n'avait jamais mentionné ces faits.
 
@@ -130,7 +130,7 @@ Une fois libéré, il leva les yeux vers les étoiles et fit un pas en avant. Sa
 
 « Guidez-moi! Je veux aller sur le champ de bataille de la Secte Démon! »
 
-La voix de Wang Lin était calme, mais elle dégageait une majesté irrésistible. Même des cultivateurs au sommet du stade Briseur du Nirvana ne pourraient l'opposer aucune résistance! Ils n'oseraient même pas tenter de lui désobéir!
+La voix de Wang Lin était calme, mais elle dégageait une majesté irrésistible. Même des cultivateurs au sommet du stade Briseur du Nirvana ne pourraient lui opposer aucune résistance! Ils n'oseraient même pas tenter de lui désobéir!
 
 « Tu... » L'âme originelle de la vieille femme trembla. Elle fut incapable d'utiliser le moindre sort face à l'aura de Wang Lin. Incapable d'esquiver, elle fut instantanément capturée par lui.
 

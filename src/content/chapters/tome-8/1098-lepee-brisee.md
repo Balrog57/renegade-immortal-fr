@@ -6,7 +6,7 @@ bookTitle: "Alliance's Secret"
 en: Chapter 1098 - Broken Sword
 slug: lepee-brisee
 ---
-La Secte des Cadavres était située dans la région sud de l'Alliance. Au centre de cette région se trouvait un cercueil. Li Yingzhi était agenouillée devant lui, les mains jointes sur sa poitrine comme pour une prière. Un jade émettant une lumière blanche flottait devant elle.
+La Secte des Cadavres était située dans la région sud de l'Alliance. Au centre de cette région se trouvait un vaste ensemble de cercueils enchaînés. Li Yingzhi était agenouillée devant lui, les mains jointes sur sa poitrine comme pour une prière. Un jade émettant une lumière blanche flottait devant elle.
 
 Ce n'était qu'un jade tout à fait ordinaire. Il avait l'apparence d'un objet très commun, mais il allait provoquer une catastrophe au sein de l'Alliance. Il était de nature à rendre tout le monde fou... surtout la Secte des Cadavres!
 
@@ -48,7 +48,7 @@ Un long rire retentit. Cette voix lugubre semblait transportée par l'excitation
 
 « Un dieu ancien royal... » Li Yingzhi fut stupéfaite, mais n'osa poser de question.
 
-« Convoquez tous les disciples de la Secte des Cadavres. Utilisez le sang des cieux pour ouvrir le neuvième niveau du Fossé des Cadavres et en extraire huit corps. Cette fois, huit des neuf rois de la Secte des Cadavres sortiront! »
+« Convoquez tous les disciples de la Secte des Cadavres. Sacrifiez du sang au ciel pour réalimenter le Fossé des Cadavres, puis ouvrez son neuvième niveau et extrayez-en huit corps. Cette fois, huit des neuf rois de la Secte des Cadavres sortiront! »
 
 « Rappelez tous les anciens de la Secte des Cadavres. Ma Secte des Cadavres doit obtenir le cadavre de ce dieu ancien royal! »
 
@@ -78,7 +78,7 @@ Alors que la grande guerre approchait, Wang Lin savait qu'il ne lui restait plus
 
 Dans le même temps, il attendait que la Secte des Cadavres et Luotian envoient de nouveau des émissaires. Wang Lin était certain que les deux jades distincts qu'il avait envoyés forceraient ces deux puissances à venir à lui!
 
-L'esprit de Wang Lin était extraordinaire, bien qu'il utilisât rarement la ruse. S'il n'avait pas agi par la manipulation auparavant, ce n'était pas par incapacité, mais en raison de son statut passé. Alors, tout ce qu'il entreprenait ne restait que de petits tours de passe-passe. Mais avec les Quatre Sectes Divines pour lui, il pouvait désormais orchestrer des stratagèmes de grande envergure!
+L'esprit de Wang Lin était extraordinaire, bien qu'il utilisât rarement la ruse. S'il n'avait pas agi par la manipulation auparavant, ce n'était pas par incapacité, mais en raison de son statut passé. Alors, tout ce qu'il entreprenait ne restait que de petits tours de passe-passe. Mais avec les Quatre Sectes Divines pour lui, ce qu'il employait désormais était un stratagème à découvert, à la lumière du jour (yang)!
 
 Il avait ouvertement diffusé la nouvelle concernant le dieu ancien, et tout le monde savait que Wang Lin devait comploter quelque chose. Quiconque possédait un minimum d'intelligence pouvait le voir clairement.
 
@@ -98,7 +98,7 @@ C'est pour cette raison que sa diffusion de la nouvelle concernant Tuo Sen étai
 
 « Luotian, la Secte des Cadavres, l'Alliance des Cultivateurs... Je me demande si ces trois forces seront capables de faire face à Tuo Sen... » Wang Lin réfléchit un instant, puis cessa d'y penser.
 
-En réalité, attirer ces trois forces vers la planète Suzaku n'était que la première phase de son plan. Il avait en réserve un autre plan infaillible!
+En réalité, attirer ces trois forces vers la planète Suzaku n'était que la première phase de son plan. Il avait en réserve un plan dans le plan!
 
 Prenant une profonde inspiration, Wang Lin leva les yeux vers le crapaud tonnerre à ses côtés. L'animal semblait dormir, mais des filaments d'énergie originelle du feu pénétraient son corps.
 

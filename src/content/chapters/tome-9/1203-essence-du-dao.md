@@ -34,7 +34,7 @@ Wang Lin n'avait pas découvert comment le Maître Pin Cendré avait obtenu ces 
 
 « La clé de cette essence du Dao réside dans l'identité de ce demi-squelette! Il y a deux tablettes de pierre et, d'après ce que j'ai vu, chacune devrait avoir un demi-squelette cloué en dessous; il ne s'agissait donc que d'une seule personne! »
 
-« Cette personne devait être très célèbre. J'ignore s'il a été tué ou si quelqu'un a déterré son squelette, mais ils ont utilisé sa méthode de brisure céleste pour forcer l'extraction de son essence du Dao! Si je consomme son essence du Dao, je peux obtenir son propre Dao! »
+« Cette personne devait être très célèbre. J'ignore s'il a été tué ou si quelqu'un a déterré son squelette, mais son Dao a été extrait de force d'une manière qui ébranle le ciel et la terre, pour devenir l'essence du Dao! Si je consomme son essence du Dao, je peux obtenir son propre Dao! »
 
 « La scripture sur les os a été gravée par la suite. On ignore quel puissant cultivateur a transformé son sort en une scripture et a conçu une idée aussi terrifiante! »
 

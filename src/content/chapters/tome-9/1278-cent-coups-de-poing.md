@@ -94,9 +94,9 @@ Après cet assaut, du sang noir s'échappa du coin de sa bouche et il se mit à 
 
 « J'ai tué d'innombrables personnes depuis lors. Il m'a fallu plus de 2 000 ans de culture pour atteindre ce niveau! » Le 31e coup... le 39e coup!
 
-« J'ai combattu les cieux, j'ai combattu la terre et aujourd'hui, je combats un cultivateur du troisième pas! Et alors si je meurs?! » Les 40e, 41e, 42e... jusqu'au 53e coup!
+« J'ai combattu les cieux, j'ai combattu la terre et aujourd'hui, je combats un cultivateur du troisième niveau! Et alors si je meurs?! » Les 40e, 41e, 42e... jusqu'au 53e coup!
 
-« Mon seul regret est de ne pouvoir ressusciter mon amour, car je mourrai avec elle. Mais peu importe! » Les 54e, 55e, 56e, 64e coups! La brume qui avait été repoussée se dissipa dans le vide.
+« Mon seul regret est de ne pouvoir ressusciter mon amour, car je mourrai avec elle. Mais peu importe! » Les 54e, 55e, 56e... jusqu'au 64e coup! La brume qui avait été repoussée se dissipa dans le vide.
 
 « Même si je sacrifie toute ma vitalité, qu'importe?! » Les 65e, 66e, 67e... jusqu'au 75e coup!
 

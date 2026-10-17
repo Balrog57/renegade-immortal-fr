@@ -6,7 +6,7 @@ bookTitle: "Alliance's Secret"
 en: Chapter 1121 - No Worries About Consequences
 slug: pas-de-soucis-quant-aux-consequences
 ---
-Qing Lin regarda Wang Lin et dit lentement: « Le Maître a été gravement blessé à l'époque et a dû affronter Ta Jia et Bei Lou par la suite. Finalement, Ta Jia a envahi mon corps... »
+Qing Lin regarda Wang Lin et dit lentement: « Le Maître a été gravement blessé à l'époque et a dû affronter Bei Luo et Ta Jia par la suite. Finalement, Ta Jia a envahi mon corps... »
 
 « Bien que je ne sois pas totalement impuissant, j'ai besoin de me retirer en culture pour guérir. J'ai également appris l'état du Système Stellaire du Vide Brillant par ton frère aîné Wang Wei. Il est plongé dans un chaos total... »
 
@@ -28,7 +28,7 @@ Wang Lin ne fut pas surpris. Après tout, Qing Lin était l'Empereur Céleste, e
 
 « Même lui serait contraint de battre en retraite après avoir encaissé mon unique assaut! »
 
-« La force d'une seule attaque... » Wang Lin esquissa un sourire amer en comprenant le sens des paroles de Qing Lin. Ce dernier était trop blessé et n'avait plus la puissance nécessaire que pour lancer une seule attaque. Bien que cet assaut puisse dissuader Tuo Sen, il ne pouvait pas être utilisé. Même si l'ennemi était forcé de reculer, l'avenir en deviendrait périlleux.
+« La force d'une seule attaque... » Wang Lin esquissa un sourire amer en comprenant le sens des paroles de Qing Lin. Ce dernier était trop blessé et n'avait plus la puissance nécessaire que pour lancer une seule attaque. Bien que cet assaut puisse servir de menace, il ne pouvait pas être utilisé. Même si l'ennemi était forcé de reculer, l'avenir en deviendrait périlleux.
 
 Qing Lin réfléchit un instant et reprit lentement: « J'ai été entravé par l'Ancien Démon Ta Jia pendant bien trop longtemps. Le passage vers l'extérieur s'ouvrira bientôt. Je dois rapidement retrouver ma culture de pointe. Sinon, mon royaume scellé sera anéanti... Cependant, si tu en as besoin, je peux utiliser cette unique attaque pour toi! »
 
@@ -40,7 +40,7 @@ Une pointe de froideur passa dans les yeux de Qing Lin, aussitôt remplacée par
 
 « Tout cela est dû à la porte du ciel... » Qing Lin ne voulut pas en dire davantage, et son expression devint plus complexe encore.
 
-Wang Lin baissa la tête et dit doucement: « Dans la grotte du Maître, j'ai rencontré l'Ancêtre Saint du Clan Tatou... »
+Wang Lin baissa la tête et dit doucement: « Dans la grotte du Maître, j'ai rencontré l'Ancêtre Saint du Clan du Tatouage... »
 
 Qing Lin réfléchit un instant et demanda doucement: « Crois-tu ses paroles? »
 
@@ -94,7 +94,7 @@ Il ne lui restait plus de véritables parents dans ce monde. Au maximum, il n'y 
 
 Wang Lin se souvenait clairement que lorsque son esprit s'était étendu sur le système stellaire grâce à la Perle Défiant le Ciel, il avait aperçu Zhou Ru dans le Royaume du Vide Brillant.
 
-Les yeux de Wang Lin s'illuminèrent et il fit un pas en avant. Des ondulations apparurent sous ses pieds et il disparut. Lorsqu'il réapparut, il se trouvait devant une planète abandonnée, au loin.
+Les yeux de Wang Lin s'illuminèrent et il fit un pas en avant. Des ondulations apparurent sous ses pieds et il disparut. Lorsqu'il réapparut, il se trouvait à l'extérieur d'une planète sauvage tout à fait ordinaire.
 
 De loin, cette planète ne présentait rien d'anormal, mais Wang Lin savait que le réseau de transfert vers le Royaume du Vide Brillant se trouvait ici.
 
@@ -142,6 +142,6 @@ Wang Lin eut un sourire amer de colère. Il n'aurait jamais cru que les quatre g
 
 « Très bien, très bien! » Une froideur glaciale apparut dans les yeux de Wang Lin alors qu'il fit un pas en avant et agita sa main droite. Une mer de flammes surgit dans le ciel, le teintant d'un rouge vif, et une pluie de feu s'abattit des hauteurs.
 
-Son corps vacilla et il réapparut à mille pieds de là, pointant l'avant du doigt. Les flammes s'écrasèrent avec violence. L'endroit que Wang Lin désignait se tordit, et un vieillard aux cheveux blancs dut esquiver avec une expression sombre.
+Son corps vacilla et il réapparut à mille pieds de là, pointant l'avant du doigt. Les flammes s'écrasèrent avec violence. L'endroit que Wang Lin désignait se tordit, et un vieillard vêtu de blanc surgit en urgence, le visage sombre.
 
 Au même moment, l'espace environnant se distordit et les trois autres individus apparurent également.

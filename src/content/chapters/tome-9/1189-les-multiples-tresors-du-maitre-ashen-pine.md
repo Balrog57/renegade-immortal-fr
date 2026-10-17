@@ -6,17 +6,17 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1189 - The Many Treasures of Master Ashen Pine
 slug: les-multiples-tresors-du-maitre-ashen-pine
 ---
-Les yeux du Maître Pin Cendré brillèrent d'une lueur étrange lorsqu'il déclara lentement: « C'est le texte sacré du Dao! Je ne crains pas que le Confrère Cultivateur Zhao ne découvre mon véritable dessein. Les âmes de bêtes ne sont qu'un objectif secondaire; mon véritable but est de contempler le texte sacré du Dao! »
+Les yeux du Maître Pin Cendré brillèrent d'une lueur étrange lorsqu'il déclara lentement: « C'est l'écriture du Dao! Je ne crains pas que le Confrère Cultivateur Zhao ne découvre mon véritable dessein. Les âmes de bêtes ne sont qu'un objectif secondaire; mon véritable but est de contempler l'écriture du Dao! »
 
-« De nombreux Éveillés sont présents ici, l'accès au texte sacré du Dao ne sera donc pas aisé. Maître Pin Cendré, vous... » La vieille femme en vert fixa le Maître Pin Cendré.
+« De nombreux Éveillés sont présents ici, l'écriture du Dao n'est de toute évidence pas simple. Maître Pin Cendré, vous... » La vieille femme en vert fixa le Maître Pin Cendré.
 
-« Confrère Cultivateur Zhao, vous souvenez-vous de ce qui se murmurait parmi ma génération lorsque l'on ne possédait point de pilule d'Ascension? » Le Maître Pin Cendré leva les yeux vers la statue.
+« Confrère Cultivateur Zhao, vous souvenez-vous de ce qui se murmurait parmi ma génération lorsque l'on ne possédait point de pilule d'Ascendant? » Le Maître Pin Cendré leva les yeux vers la statue.
 
 La vieille femme répondit d'une voix douce: « Ceux qui cherchent le Dao naissent à l'aube et meurent au crépuscule. Cela suffit! »
 
 « Allons-y. » Le Maître Pin Cendré détourna son regard et s'élança en avant. La vieille femme en vert marqua une pause pour réfléchir, puis le suivit.
 
-À mesure qu'ils progressaient, les voix erratiques se firent plus assourdissantes. Ce son, étrange et imprévisible, provoquait un vagabondage involontaire de l'esprit. Il fallait déployer des efforts considérables pour le réprimer par la force. En s'enfonçant dans la brume, ils sentirent qu'ils ne pourraient bientôt plus contenir cette intrusion mentale. Chaque pas pesait comme si une armée entière s'abattait sur eux, faisant trembler leur conscience.
+À mesure qu'ils progressaient, les voix erratiques se firent plus nombreuses. Ce son, étrange et imprévisible, provoquait un vagabondage involontaire de l'esprit. Il fallait déployer des efforts considérables pour le réprimer par la force. En s'enfonçant dans la brume, ils sentirent qu'ils ne pourraient bientôt plus contenir cette intrusion mentale. Chaque pas pesait comme dix mille jun sur leurs corps, faisant trembler leur conscience.
 
 Le visage du Maître Pin Cendré était pâle, mais son regard débordait d'excitation. Ils cheminèrent lentement à travers la brume tandis que le temps s'écoulait. En un clin d'œil, trois jours s'étaient écoulés depuis qu'ils avaient pénétré dans ce brouillard.
 
@@ -46,13 +46,13 @@ Les yeux de la vieille femme se rétrécirent. Elle fixa le bois noir et laissa 
 
 Le Maître Pin Cendré ne s'expliqua pas et demanda simplement: « Quelle est votre confiance avec ceci? »
 
-La vieille femme détourna le regard pour calculer, puis répondit: « 40 %. S'il y avait l'Empreinte de l'Esprit de Guerre, ce serait 50 %, mais malheureusement... »
+La vieille femme détourna le regard pour calculer, puis répondit: « 40 %. S'il y avait l'Empreinte de l'Esprit Guerrier, ce serait 50 %, mais malheureusement... »
 
 Le Maître Pin Cendré hésita un instant avant d'extraire un dernier objet de son espace de stockage. C'était un cristal éclatant qui semblait abriter du sang frais en son sein. À son apparition, une aura destructrice capable de déchirer les cieux se propagea.
 
 « Cela devrait suffire! » lança le Maître Pin Cendré à la vieille femme.
 
-Celle-ci resta silencieuse un instant avant de dire d'une voix rauque: « Le Maître Pin Cendré prend des risques démesurés en sortant deux trésors du Pseudo-Vide du Nirvana. Ce cristal est manifestement bien plus puissant que le précédent... Avec ces trois objets, ma confiance atteint 70 %! »
+Celle-ci resta silencieuse un instant avant de dire d'une voix rauque: « Le Maître Pin Cendré est bien prodigue: il sort deux trésors du Pseudo-Vide du Nirvana. Ce cristal est manifestement bien plus puissant que le précédent... Avec ces trois objets, ma confiance atteint 70 %! »
 
 « 70 %, c'est amplement suffisant! » Le Maître Pin Cendré agita ses manches et les quatre Aiguilles Brise-Restriction s'envolèrent vers la vieille femme. Il était parfaitement préparé; si sa maîtrise des restrictions n'avait pas été véritablement inférieure à celle de cette femme, il l'aurait déjà brisée lui-même.
 
@@ -60,7 +60,7 @@ Celle-ci resta silencieuse un instant avant de dire d'une voix rauque: « Le Ma�
 
 La vieille femme ne perdit plus une seconde. Ses mains formèrent des sceaux et des restrictions s'envolèrent. Simultanément, le gaz noir qui l'entourait s'anima au rythme des runes. D'un geste sec du doigt, elle projeta les restrictions vers la première Aiguille Brise-Restriction!
 
-Des craquements retentirent lorsque les restrictions frappèrent l'aiguille, laquelle fut aussitôt imprégnée de gaz noir. L'objet émit une lueur sombre, puis une aura capable de fendre le firmament se déchaîna. Les yeux de la femme brillèrent; elle mordit le bout de sa langue et une flèche de sang jaillit vers l'aiguille. Le projectile percuta l'objet, le propulsant directement contre la restriction temporelle.
+Des craquements retentirent lorsque les restrictions frappèrent l'aiguille, laquelle fut aussitôt imprégnée de gaz noir. L'objet émit une lueur sombre, puis une aura capable de briser toutes les restrictions du ciel et de la terre se déchaîna. Les yeux de la femme brillèrent; elle mordit le bout de sa langue et une flèche de sang jaillit vers l'aiguille. Le projectile percuta l'objet, le propulsant directement contre la restriction temporelle.
 
 À mesure qu'elle s'approchait, la barrière de lumière noire commença à se distordre sous la violence du pouvoir temporel. L'aiguille trembla immédiatement, semblant sur le point de se dissiper.
 
@@ -84,12 +84,12 @@ L'expression de la femme changea. Sans qu'un ordre ne soit donné, le Maître Pi
 
 Le gaz noir sous son contrôle se mua en une multitude de restrictions qui fusionnèrent avec la force destructrice du cristal. Elle dirigea cette puissance dévastatrice contre la restriction de lumière noire! Un nouveau fracas retentit, accompagné de craquements: une fissure apparut sur la barrière. Cependant, elle se referma rapidement, semblant vouloir restaurer son intégrité.
 
-Le Maître Pin Cendré serra les dents, le cœur serré, et sortit un dernier objet de son espace de stockage. C'était un simple jeton de jade, mais il dégageait l'aura d'un véritable trésor du Pseudo-Vide du Nirvana! Il était extrêmement réticent à s'en séparer. Les deux trésors précédents n'étaient que des simulacres possédant une once de cette aura; leur destruction aurait été douloureuse mais acceptable. Mais cet objet était un authentique trésor du Pseudo-Vide du Nirvana. S'il venait à être détruit, il aurait l'impression que son propre cœur était broyé!
+Le Maître Pin Cendré serra les dents, le cœur serré, et sortit un dernier objet de son espace de stockage. C'était un simple pendentif de jade, mais il dégageait l'aura d'un véritable trésor du Pseudo-Vide du Nirvana! Il était extrêmement réticent à s'en séparer. Les deux trésors précédents n'étaient que des simulacres possédant une once de cette aura; leur destruction aurait été douloureuse mais acceptable. Mais cet objet était un authentique trésor du Pseudo-Vide du Nirvana. S'il venait à être détruit, il aurait l'impression que son propre cœur était broyé!
 
 En voyant cela, la belle femme écarquilla les yeux et prit une grande inspiration. Elle ne pouvait imaginer combien de tels trésors le Maître Pin Cendré possédait! Ces objets étaient d'une rareté extrême, et pourtant, pour briser cette restriction, il était prêt à en sacrifier trois! S'ils avaient été vendus, leur valeur aurait été inestimable; un simple échange contre des âmes de bêtes aurait permis d'obtenir tout ce que l'on désirait.
 
 « Brise! » rugit le Maître Pin Cendré, tentant de donner tout ce qu'il avait.
 
-Le jade fonça dans la fissure et s'effondra brusquement. Un impact bien plus violent que les précédents surgit, créant une tempête qui affecta la brume sur des dizaines de milliers de kilomètres. Malgré les craquements, l'écran de lumière noire ne céda pas totalement, mais la fissure atteignit désormais cent pieds de large. Bien qu'elle se régénérât, le processus était ralenti.
+Le pendentif de jade fonça dans la fissure et s'effondra brusquement. Un impact bien plus violent que les précédents surgit, créant une tempête qui affecta la brume sur des dizaines de milliers de kilomètres. Malgré les craquements, l'écran de lumière noire ne céda pas totalement, mais la fissure atteignit désormais cent pieds de large. Bien qu'elle se régénérât, le processus était ralenti.
 
 Le Maître Pin Cendré s'élança et se précipita dans la brèche, ignorant la femme. La jeune femme, les yeux brillants, suivit immédiatement son mouvement. Peu après, un rayon de lumière perça la brume: c'était Wang Lin. Il observa la fissure sans s'y engouffrer aussitôt; après avoir disposé d'une grande quantité de restrictions à l'extérieur, il se précipita lui aussi dans l'ouverture!

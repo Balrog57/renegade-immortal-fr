@@ -6,13 +6,13 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1321 - The Barrier to the Third Step
 slug: la-barriere-du-troisieme-etape
 ---
-La majorité des planètes de culture du Clan Soie Bleue connaissaient une saison des pluies où les précipitations tombaient sans relâche. Parfois, elles s'abattaient du ciel en trombes, abreuvant la terre.
+La majorité des planètes de culture du Clan de la Soie Bleue connaissaient une saison des pluies où les précipitations tombaient sans relâche. Parfois, elles s'abattaient du ciel en trombes, abreuvant la terre.
 
 Ces saisons pluvieuses duraient souvent six mois avant que d'autres saisons ne s'enchaînent, selon la planète de culture concernée. La planète sur laquelle Wang Lin méditait bascula dans l'hiver après sept mois de pluie.
 
 Cet hiver, succédant à la saison des pluies, était saisissant. La terre, saturée d'humidité, fut instantanément figée par la neige. Marcher sur ce sol gelé permettait de ressentir la morsure du froid jusqu'au bout des pieds. Même le sang semblait ralentir et se glacer dans les veines.
 
-Pour des mortels, une telle saison aurait été terrible, mais ceux du Clan Soie Bleue s'y étaient habitués. Grâce à l'aide des cultivateurs du clan, après tant d'années, ce n'était plus une épreuve insurmontable.
+Pour des mortels, une telle saison aurait été terrible, mais ceux du Clan de la Soie Bleue s'y étaient habitués. Grâce à l'aide des cultivateurs du clan, après tant d'années, ce n'était plus une épreuve insurmontable.
 
 Certaines récoltes étaient même effectuées dans ce froid. Plus la température chutait, plus la récolte était abondante.
 
@@ -24,11 +24,11 @@ La neige au sommet était très dense et parfaitement lisse, sans la moindre tra
 
 L'épée de glace et la sphère tourbillonnante flottaient toujours dans les airs. La neige ne pouvait s'en approcher et contournait leur aura.
 
-Après avoir compris le Sceau du Renversement Céleste, Wang Lin resta au sommet de la montagne pendant quatre mois supplémentaires. Le second sort, le Bouclier de Lumière et d'Ombre, contenait le pouvoir de la lumière et était éthéré. Wang Lin continuait de tenter de le déduire, mais ne trouvait aucune piste.
+Après avoir compris le Sceau d'Inversion Céleste, Wang Lin resta au sommet de la montagne pendant quatre mois supplémentaires. Le second sort, le Bouclier de Lumière et d'Ombre, contenait le pouvoir de la lumière et était éthéré. Wang Lin continuait de tenter de le déduire, mais ne trouvait aucune piste.
 
 La scène du Maître du Dao Rêve Bleu utilisant ce sort se rejouait sans cesse dans son esprit.
 
-Ce jour-là, Wang Lin ouvrit ses yeux fatigués et fixa la neige accumulée devant lui. Il murmura: « Il y a aussi de la lumière dans ma Nuit Brisée et dans la loi d'origine. Sauf que cette lumière provient du soleil levant, tandis que la lumière du Maître du Dao Rêve Bleu n'a rien à voir avec la loi d'origine. Sa lumière est puisée dans toutes les créatures vivantes... Qu'est-ce que cette lumière, au juste... »
+Ce jour-là, Wang Lin ouvrit ses yeux fatigués et fixa la neige accumulée devant lui. Il murmura: « Il y a aussi de la lumière dans ma Nuit Brisée et dans la loi d'origine. Sauf que cette lumière provient du soleil ardent, tandis que la lumière du Maître du Dao Rêve Bleu n'a rien à voir avec la loi d'origine. Sa lumière est puisée dans toutes les créatures vivantes... Qu'est-ce que cette lumière, au juste... »
 
 Wang Lin déploya son sens divin tout en réfléchissant. Son sens divin s'étendit à partir de la montagne comme point central. Grâce à sa puissance, il semblait se scinder en des millions de directions différentes.
 
@@ -36,9 +36,9 @@ Il vit des montagnes blanches, la neige couvrant le sol, les rivières gelées e
 
 Il vit des cités mortelles et des mortels à l'intérieur de leurs demeures. Ils se regroupaient autour d'un feu, et il percevait la chaleur de leur vie quotidienne.
 
-Il vit les festins somptueux des riches familles royales. Il vit les cultivateurs du Clan Soie Bleue et entendit la beauté de leur musique.
+Il vit les festins somptueux des riches familles royales. Il vit les cultivateurs du Clan de la Soie Bleue et entendit la beauté de leur musique.
 
-Il vit la neige tomber du ciel, les poissons rares sous la rivière gelée et la végétation rare poussant sur la terre gelée.
+Il vit la neige tomber du ciel, les poissons amateurs de froid sous la rivière gelée et la végétation qui poussait en hiver sur la terre gelée.
 
 Il vit l'infini ciel étoilé à travers la brume, le vent glacial et la neige scintillante.
 
@@ -78,7 +78,7 @@ En contemplant ces deux objets, Wang Lin prit une grande inspiration. Parmi les 
 
 Sa main droite s'avança et la sphère tourbillonnante vola dans sa paume. Ses yeux s'illuminèrent alors qu'il commençait à l'observer.
 
-Cette sphère avait été formée par le Maître du Dao Rêve Bleu grâce au sort de Dao. Elle combinait « Invoquer le Vent » et « Appeler la Pluie » en un sort plus puissant qui contenait son propre monde!
+Cette sphère avait été formée par le Maître du Dao Rêve Bleu grâce au sort de Dao. Elle combinait « Appel du Vent » et « Invocation de la Pluie » en un sort plus puissant qui contenait son propre monde!
 
 Cette fusion était précisément le pouvoir du sort de Dao que le Maître du Dao Rêve Bleu souhaitait transmettre à Wang Lin!
 
@@ -88,7 +88,7 @@ Wang Lin ferma les yeux et commença sa compréhension.
 
 Les sorts de Dao étaient très différents des sorts ordinaires. Qu'il s'agisse de sorts classiques ou d'aptitudes, ils pouvaient être clairement expliqués, qu'ils soient offensifs ou défensifs, et leurs effets pouvaient être observés.
 
-Comme le Sceau du Renversement Céleste et le Bouclier de Lumière et d'Ombre, tout était visible!
+Comme le Sceau d'Inversion Céleste et le Bouclier de Lumière et d'Ombre, tout était visible!
 
 Les sorts de Dao étaient invisibles et impossibles à expliquer. Wang Lin avait été confronté à un sort de Dao pour la première fois dans le Royaume aux Sept Couleurs face au vieil homme, et il n'avait pu y résister du tout. Sans le Royaume Ji et la Perle Défiant le Ciel, il n'aurait eu aucune chance.
 
@@ -96,19 +96,19 @@ La deuxième fois qu'il entra en contact avec un sort de Dao fut lorsqu'il pén�
 
 À présent, c'était la troisième fois qu'il entrait en contact avec un sort de Dao. Son esprit était immergé dans un état étrange où il sentait qu'il pouvait transformer n'importe quel sort en n'importe quelle forme ou apparence.
 
-Comparé aux deux précédents, ce sort de Dao ne prit pas longtemps à Wang Lin pour être compris. Les sorts de Dao étaient tous ainsi: soit on les comprend, soit on ne les comprendra jamais, même après mille ans!
+Comparé aux deux précédents, ce sort de Dao ne prit pas longtemps à Wang Lin pour être compris. Les sorts de Dao étaient tous ainsi: soit on les comprend, soit on ne les comprendra jamais, même après mille ou dix mille ans!
 
 Les yeux clos, la main droite de Wang Lin s'étira et l'épée de glace vint se loger dans sa paume. Bien qu'il eût les yeux fermés, il sentait que ce qu'il tenait n'était pas une épée, mais des nuages...
 
 Tandis qu'il le comprenait, des craquements résonnèrent et de multiples fissures apparurent à sa surface. Un instant plus tard, elle se brisa en cristaux de glace.
 
-Les cristaux de glace tournoyer autour de la main droite de Wang Lin avant de fondre en gouttes de pluie. Puis la pluie forma un vortex qui tourna rapidement avant de se transformer en brouillard.
+Les cristaux de glace tournoyèrent autour de la main droite de Wang Lin avant de fondre en gouttes de pluie. Puis la pluie forma un vortex qui tourna rapidement avant de se transformer en brouillard.
 
 Le brouillard était comme une petite tempête dans la paume de Wang Lin, puis il disparut progressivement. À sa place se trouvait un nuage blanc... Wang Lin tint le nuage blanc dans sa main et l'agita. Le nuage s'éleva lentement vers les cieux.
 
 Wang Lin ouvrit les yeux et regarda avec un sourire le nuage blanc qui s'éloignait au loin.
 
-« Ce sort peut fusionner d'autres sorts. Le premier que je dois fusionner est la Déformation Spatiale! Bien que ce sort soit puissant et me permette de me déplacer instantanément à travers l'espace infini, il possède un défaut fatal. Une fois que l'énergie d'origine du monde est perturbée, il devient inutilisable... La femme en blanc attend aux abords du Clan Soie Bleue. Ce n'est qu'en me défaisant totalement de son suivi que je pourrai agir à ma guise dans l'Ancien Système Stellaire! »
+« Ce sort peut fusionner d'autres sorts. Le premier que je dois fusionner est la Déformation Spatiale! Bien que ce sort soit puissant et me permette de me déplacer instantanément à travers l'espace infini, il possède un défaut fatal. Une fois que l'énergie d'origine du monde est perturbée, il devient inutilisable... La femme en blanc attend aux abords du Clan de la Soie Bleue. Ce n'est qu'en me défaisant totalement de son suivi que je pourrai agir à ma guise dans l'Ancien Système Stellaire! »
 
 « Ensuite, j'absorberai suffisamment de Flammes Joss pour compléter mes cinq essences! Le feu du Clan des Moineaux de Feu et le tonnerre du Clan du Tonnerre Dispersé seront d'excellentes sources de nutriments pour moi! »
 

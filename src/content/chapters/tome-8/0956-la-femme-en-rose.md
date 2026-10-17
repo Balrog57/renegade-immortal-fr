@@ -36,7 +36,7 @@ Wang Lin fronça les sourcils. Il sentait que lorsque la puissance du papillon a
 
 Un instant plus tard, il n'y avait plus de lumière verte sur le corps de Lei Ji. Ce dernier poussa un soupir de soulagement et regarda Wang Lin avec respect.
 
-Le corps gigantesque de Lei Ji se mua en une montagne et vola à travers les étoiles. Wang Lin était assis sur son dos, tandis qu'à ses côtés, le garçon à la grosse tête se soignait.
+Le corps gigantesque de Lei Ji se mua en monture et vola à travers les étoiles. Wang Lin était assis sur son dos, tandis qu'à ses côtés, le garçon à la grosse tête se soignait.
 
 Ils se rapprochaient de plus en plus de la planète Tian Yun.
 
@@ -54,9 +54,9 @@ En marchant, Wang Lin pénétra à nouveau dans la sphère d'influence de la pla
 
 Wang Lin progressait lentement, plongé dans ses pensées.
 
-« Ils veulent tous ce jeton de la grotte céleste. Le jeton, l'affaire avec le Dieu du Sang, le complot de l'Omniscient et diverses autres causes m'ont contraint à partir. À l'époque, ma culture était trop faible et je n'avais aucun pouvoir pour résister; je n'avais aucune chance contre l'Omniscient... Même si je ne peux toujours pas me mesurer à lui, il ne lui sera pas aussi facile de me tuer! » Wang Lin toucha l'espace entre ses sourcils. Son véritable atout n'était ni son trésor magique, ni ses sorts, mais le troisième œil situé entre ses sourcils!
+« Ils veulent tous ce jeton de la grotte céleste. Le jeton, l'affaire de l'Ancêtre Sanguin, le complot de l'Omniscient et diverses autres causes m'ont contraint à partir. À l'époque, ma culture était trop faible et je n'avais aucun pouvoir pour résister; je n'avais aucune chance contre l'Omniscient... Même si je ne peux toujours pas me mesurer à lui, il ne lui sera pas aussi facile de me tuer! » Wang Lin toucha l'espace entre ses sourcils. Son véritable atout n'était ni son trésor magique, ni ses sorts, mais le troisième œil situé entre ses sourcils!
 
-« Après avoir examiné le second Parchemin de Bataille, j'ai acquis une nouvelle parcelle d'énergie originelle... C'est là mon véritable sort de sauvetage! Après tout, l'Omniscient et moi ne nous sommes pas encore ouvertement affrontés. Je reste un disciple de l'Omniscient. De plus, ce qui est plus important, c'est que Huanglong a dit que j'appartenais à la planète Suzaku. Un disciple de la branche de l'Oiseau Vermillon des Quatre Sectes Divines... C'est là une chose qui mérite réflexion... » Wang Lin esquissa un sourire narquois et pressa la zone entre ses sourcils.
+« Après avoir examiné le second Parchemin de Bataille, j'ai acquis une nouvelle parcelle d'énergie originelle... C'est là mon véritable sort de sauvetage! Après tout, l'Omniscient et moi ne nous sommes pas encore ouvertement affrontés. Je reste un disciple de l'Omniscient. De plus, ce qui est plus important, c'est que celui qui ressemblait à Huanglong a dit que j'appartenais à la planète Suzaku. Un disciple de la branche de l'Oiseau Vermillon des Quatre Sectes Divines... C'est là une chose qui mérite réflexion... » Wang Lin esquissa un sourire narquois et pressa la zone entre ses sourcils.
 
 Le troisième œil apparut instantanément, avant d'être remplacé par les cinq étoiles du Dieu Ancien. Bientôt, une perle surgit, puis tout disparut, ne laissant qu'une marque rouge dégageant une légère chaleur.
 
@@ -76,9 +76,9 @@ Il vit des éclats de lumière dorée survoler la planète. C'étaient des rayon
 
 Après une courte réflexion, Wang Lin ne s'interrompit pas et continua sa course vers l'avant.
 
-À l'extérieur de la Secte du Destin Céleste, d'innombrables rayons d'énergie d'épée emplissaient le ciel, comme dans une tempête de lames. Un cultivateur trônait sur chaque épée; ils étaient tous des disciples de la Secte de l'Épée Da Lou.
+À l'extérieur de la Secte du Destin Céleste, d'innombrables rayons d'énergie d'épée emplissaient le ciel, comme dans une tempête de lames. Un cultivateur trônait sur chaque épée; ils étaient tous des disciples de la Secte de l'Épée Da Luo.
 
-Devant lui se dressait un Qilin rouge flamboyant. Ce Qilin était d'une férocité extrême et ses yeux brillaient comme la foudre. Des flammes incessantes émanaient de son corps et deux courants d'air brûlant s'échappaient de ses narines. Sur son dos siégeait un vieil homme chétif au visage sombre.
+Devant lui se dressait un Qilin rouge flamboyant. Ce Qilin était d'une férocité extrême et ses yeux brillaient comme la foudre. Des flammes incessantes émanaient de son corps et deux souffles blancs s'échappaient de ses narines. Sur son dos siégeait un vieil homme chétif au visage sombre.
 
 Ce vieil homme était escorté par quatre épées illusoires qui dégageaient une aura puissante en scintillant. C'était Ling Tianhou!
 
@@ -86,11 +86,11 @@ Outre ce vieil homme, quatre autres cultivateurs semblaient d'une puissance redo
 
 L'un d'eux portait une robe noire et blanche ornée d'un motif yin et yang. Son visage restait impénétrable tandis qu'il siégeait calmement sur une immense gourde. Derrière lui se tenaient neuf personnes, qui étaient manifestement ses disciples, flottant avec respect à sa suite.
 
-L'autre vieil homme était massif, tel une montagne de chair. Il était assis sur un siège de bambou violet porté par quatre colosses étincelants.
+L'autre vieil homme était massif, tel une montagne de chair. Il était assis sur un siège de bambou violet porté par quatre hommes robustes aux yeux étincelants.
 
 Le troisième vieil homme, vêtu d'une robe jaune, était aussi maigre qu'un cadavre, mais son corps exhalait une vitalité puissante. Sans aucun disciple, il se tenait seul dans le ciel, l'expression indifférente.
 
-La dernière personne était une femme, d'âge mûr. Elle ne portait pas de parures; ses vêtements étaient très ordinaires, comme ceux d'une simple villageoise parmi les mortels. Cependant, elle dégageait une aura transcendante. Derrière elle se trouvaient quatre femmes dont la beauté était sans égale! C'était particulièrement frappant pour la femme à gauche, vêtue d'une robe rose, qui était absolument éblouissante. Elles attiraient les regards de la majorité des disciples de la Secte de l'Épée Da Lou, mais les quatre femmes n'y prêtaient aucune attention et regardaient calmement devant elles.
+La dernière personne était une femme, d'âge mûr. Elle ne portait pas de parures; ses vêtements étaient très ordinaires, comme ceux d'une simple villageoise parmi les mortels. Cependant, elle dégageait une aura transcendante. Derrière elle se trouvaient quatre femmes dont la beauté était sans égale! C'était particulièrement frappant pour la femme à gauche, vêtue d'une robe rose, qui était absolument éblouissante. Elles attiraient les regards de la majorité des disciples de la Secte de l'Épée Da Luo, mais les quatre femmes n'y prêtaient aucune attention et regardaient calmement devant elles.
 
 Ling Tianhou déclara: « Omniscient, autrefois votre disciple Wang Lin a pris le jeton, et vous avez alors annoncé qu'un mystère des cieux serait révélé aujourd'hui. Ce vieil homme veut voir ce que vous appelez votre mystère des cieux! »
 

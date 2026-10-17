@@ -44,7 +44,7 @@ Ces petits spécimens étaient infiniment plus menus que le grand original, qui 
 
 À l'apparition de ces petits Serpents aux yeux de lune, le carnage atteignit son paroxysme. Les innombrables créatures se dispersèrent et commencèrent à dévorer les cultivateurs alentour.
 
-Quant aux membres de la famille Yao, seuls ceux au stade du Scruteur du Nirvana purent s'échapper; tous les autres avaient péri! Quant aux familles de culture venues en renfort, la majorité succomba à la fureur du Serpent aux yeux de lune.
+Quant aux membres de la famille Yao, seuls quelques-uns, au stade du Scruteur du Nirvana, purent s'échapper de justesse; tous les autres avaient péri! Quant aux familles de culture venues en renfort, la majorité succomba à la fureur du Serpent aux yeux de lune.
 
 L'espace entier fut imprégné d'une épaisse odeur de sang.
 

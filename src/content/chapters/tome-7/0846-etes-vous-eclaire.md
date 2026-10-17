@@ -60,7 +60,7 @@ Une brise légère souffla, et l'homme terrifié fut soudain saisi par la confus
 
 « Une autre cause et un autre effet karmique... » Une voix ancienne résonna avec un soupir qui s'éloigna lentement.
 
-Lorsque la brise disparut, la femme retrouva ses sens. Son épée trancha la tête de l'homme. Les larmes aux yeux, elle s'agenouilla en pleurant: « Père, mère, votre enfant a accompli votre vengeance! »
+Lorsque la brise disparut, la femme retrouva ses sens. Son épée trancha la tête de l'homme. Elle jeta son arme et, les larmes aux yeux, s'agenouilla face au nord en pleurant: « Père, mère, votre enfant a accompli votre vengeance! »
 
 La pluie tombait sur une cité mortelle. Des ombrelles fleuries parsemaient les rues où les passants se hâtaient. Leurs pas créaient des ondulations à la surface de l'eau au sol.
 
@@ -78,19 +78,19 @@ Parmi les pleurs, certains étaient sincères, d'autres feints; certains emplis 
 
 Une brise légère souffla, apportant avec elle un soupir antique qui enveloppa la zone.
 
-« La mort est la fin du karma... Tout karma est anéanti par la mort... » Une voix illusoire résonna, comme si elle se posait la question à elle-même.
+« La mort est-elle la fin du karma... Tout karma disparaît-il avec la mort?... » Une voix illusoire résonna, comme si elle se posait la question à elle-même.
 
-Les émotions contenues dans les lamentations s'apaisèrent. Après avoir répondu à sa propre interrogation, cette voix antique disparut progressivement.
+Les joies et les peines, les larmes sincères comme les feintes, répondirent en silence à cette question, et la voix antique se dissipa peu à peu.
 
-Dans un palais impérial, une armée de soldats se tenait au garde-à-vous. Un homme d'âge moyen vêtu d'une robe jaune se dressait devant eux. Il fixait l'horizon, son corps dégageant une puissante mélancolie.
+Dans la cité impériale, des milliers de soldats et de chevaux fonçaient sur le palais principal. Encerclé par les armures, un homme d'âge moyen vêtu d'une robe jaune se tenait sur la grande estrade du palais. Il fixait l'ennemi avec colère, son corps dégageant une profonde tristesse.
 
-Un homme sortit des rangs sous ses ordres. Entièrement revêtu d'une armure, il paraissait très puissant. En y regardant de plus près, il ressemblait étrangement à l'homme en robe jaune.
+Des rangs des soldats en contrebas sortit un homme. Entièrement revêtu d'une armure, il paraissait très puissant. En y regardant de plus près, il ressemblait étrangement à l'homme en robe jaune.
 
-« Père, vous êtes déjà vieux, ne soyez pas si réticent à nous quitter! »
+« Père, vous êtes déjà vieux, ne vous accrochez pas ainsi au trône! »
 
 La tristesse dans les yeux de l'homme en robe jaune s'intensifia. Une brise silencieuse traversa le palais impérial, plongeant tous les soldats dans la confusion.
 
-« Quel genre de karma est-ce là... » Une voix légère vint avec le vent et quitta le palais impérial, se diffusant à travers le monde pour ressentir les mutations de la vie.
+« Quel genre de karma est-ce là... » Une voix légère vint avec le vent et quitta le palais impérial, se diffusant à travers le monde et passant sur chaque vie mortelle pour saisir les changements du Dao céleste.
 
 Wang Lin voyageait, cherchant sans relâche à confirmer son Dao. Parfois il était confus, parfois il doutait, parfois il était perplexe. Le Dao des cieux étant infini, tenter de s'en saisir était une tâche ardue.
 
@@ -140,7 +140,7 @@ Le garçon secoua la tête. Une fois assis, son corps trembla et il retrouva sa 
 
 La brise se répandit sur toute la planète Qing Ling. Presque chaque érudit de la planète fut interrogé par divers moyens sur cette même question. À la fin, ils eurent tous des réponses différentes, mais nul ne put donner de réponse claire.
 
-Confus, Wang Lin demeurait plongé dans son rêve, cherchant sans fin. C'était comme s'il pouvait poursuivre la quête du véritable sens du Dao pour l'éternité.
+Confus, Wang Lin demeurait plongé dans son rêve, cherchant sans fin. Il semblait pouvoir se diviser en d'innombrables incarnations pour chercher le véritable sens du Dao.
 
 Ce jour-là, le vieil homme nommé Xie, qui avait été interrogé par Wang Lin, errait dans sa maison, incapable de trouver le repos. C'était comme si la voix antique résonnait dans son esprit dès qu'il tentait de se calmer.
 

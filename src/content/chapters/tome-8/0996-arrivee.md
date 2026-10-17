@@ -6,7 +6,7 @@ bookTitle: "Alliance's Secret"
 en: Chapter 996 - Arrived
 slug: arrivee
 ---
-D'innombrables cultivateurs s'étaient rassemblés aux abords de la Mer des Esprits Démoniaques Orientaux, dans l'attente de son ouverture.
+D'innombrables cultivateurs s'étaient rassemblés aux abords de la Mer des Esprits Démoniaques de l'Est, dans l'attente de son ouverture.
 
 Lorsque Ling Tianhou entendit l'homme en pourpre, un éclair d'extase brilla dans ses yeux. Cependant, il n'en demanda pas davantage. Dès qu'il fut à proximité, il prit place et fixa le vortex qui s'agitait sous lui.
 
@@ -40,7 +40,7 @@ Un géant d'environ 330 mètres de haut fonçait vers eux!
 
 L'apparition de cette monture provoqua une immense agitation parmi les cultivateurs environnants, qui se mirent à palabrer. À mesure que la créature approchait, on put enfin distinguer qui la montait. Un seul coup d'œil suffit pour provoquer un nouveau choc général.
 
-On pouvait voir quatre personnes sur le dos du démon géant! Tous les quatre étaient célèbres sur la planète Tian Yun.
+On pouvait voir quatre personnes sur le dos du démon géant! Trois d'entre eux étaient célèbres sur la planète Tian Yun.
 
 « Les trois frères Chen! »
 
@@ -56,11 +56,11 @@ Alors que de plus en plus de personnes identifiaient les cavaliers, les discussi
 
 À mesure que Lei Ji se rapprochait, ils aperçurent un Ancien vêtu de rouge derrière les trois frères Chen et le colosse à la grosse tête. Son corps était immense, telle une montagne de chair, une vision terrifiante. Sa culture au stade initial du Purificateur du Nirvana se propageait, ébranlant l'esprit de tous ceux dont le niveau était inférieur.
 
-« Maître Vent Creux! »
+« Maître Fu Fengzi! »
 
-Le Maître Vent Creux était une figure légendaire sur la planète Tian Yun. Dès son apparition, beaucoup le reconnurent.
+Le Maître Fu Fengzi était une figure légendaire sur la planète Tian Yun. Dès son apparition, beaucoup le reconnurent.
 
-« Le Maître Vent Creux est devenu un allié de Wang Lin! » Les yeux du vieil homme sur la gourde s'illuminèrent légèrement. Si seuls les trois frères Chen et l'homme à la grosse tête avaient été présents, ils n'auraient représenté aucune menace. Mais le Maître Vent Creux était une tout autre affaire!
+« Le Maître Fu Fengzi est devenu un allié de Wang Lin! » Les yeux du vieil homme sur la gourde s'illuminèrent légèrement. Si seuls les trois frères Chen et l'homme à la grosse tête avaient été présents, ils n'auraient représenté aucune menace. Mais le Maître Fu Fengzi était une tout autre affaire!
 
 À ses côtés se tenait une belle femme au regard empreint d'intelligence. Son aura était féroce, semblable à une paire de ciseaux capable de trancher tout sens divin qui tenterait de s'étendre vers eux!
 
@@ -72,7 +72,7 @@ Cependant, non loin derrière la femme d'argent, la silhouette insolente de Situ
 
 « Je connais cet homme. Il est devenu célèbre récemment sur la planète Tian Yun. C'est le Seigneur du Palais Rose, Situ Nan! »
 
-La belle femme fronça les sourcils avec dégoût. Bien qu'elle ne vécût pas sur la planète Tian Yun, elle avait entendu parler de sa notoriété. Elle ne comprenait pas pourquoi un puissant Purificateur du Nirvana puisse agir ainsi.
+La belle femme fronça les sourcils avec dégoût. Bien qu'elle ne vécût pas sur la planète Tian Yun, elle avait entendu parler de sa mauvaise réputation. Elle ne comprenait pas pourquoi un puissant Purificateur du Nirvana puisse agir ainsi.
 
 L'Omniscient restait calme en observant les cavaliers; il était impossible de deviner ses pensées. Le choc provoqué par ces trois Purificateurs du Nirvana était bien plus immense que celui causé par les quatre Scruteurs du Nirvana!
 
@@ -104,6 +104,6 @@ Ce n'était pas une ouverture ordinaire de la Mer des Esprits Démoniaques de l'
 
 Ce vortex s'étendit rapidement, ouvrant un trou noir. L'aura de la Terre des Esprits Démoniaques, si familière à Wang Lin, en émana.
 
-« En ouvrant les quatre grottes célestes, pourra-t-on ouvrir la cinquième? Ce vieil homme y va le premier et attendra les bonnes nouvelles de vous tous! » Enveloppé d'une lueur aux sept couleurs, l'Omniscient s'élança dans le trou noir, debout sur son trident.
+« Ce n'est qu'une fois les quatre grottes célestes ouvertes que la cinquième pourra s'ouvrir! Ce vieil homme y va le premier et attendra les bonnes nouvelles de vous tous! » Enveloppé d'une lueur aux sept couleurs, l'Omniscient s'élança dans le trou noir, debout sur son trident.
 
 Le regard de Wang Lin parcourut l'arme. Il avait déjà remarqué le trident; l'aura familière qui s'en dégageait lui confirmait qu'il s'agissait d'un trésor raffiné par Tu Si!

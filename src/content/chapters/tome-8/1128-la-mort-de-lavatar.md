@@ -6,11 +6,11 @@ bookTitle: "Alliance's Secret"
 en: Chapter 1128 - Avatar Dies
 slug: la-mort-de-lavatar
 ---
-Après avoir réussi à trancher une tête, même Wang Lin fut stupéfait. À moins d'y être contraint, il n'aurait jamais agi ainsi. Après tout, le Ji Qiong était une bête antique qui osait défier un dieu ancestral!
+Après avoir réussi à trancher une tête, même Wang Lin fut stupéfait. À moins d'y être contraint, il n'aurait jamais agi ainsi. Après tout, le Ji Qiong était une bête antique qui osait défier un Ancien Dieu!
 
 Son intention était de blesser le Ji Qiong afin de donner une chance à la seconde vague d'épées de l'attaquer. Cependant, il ne pensait pas qu'un seul coup suffirait à lui trancher une tête.
 
-N'ayant pas le temps de réfléchir, il ne put que saisir la tête de l'homme d'âge moyen qui lui semblait étrange et s'enfuir. Mais à cet instant, le ciel éclata en flammes verdâtres, et un fragment vert émergea de ces flammes!
+N'ayant pas le temps de réfléchir, il ne put que saisir la tête de l'homme d'âge moyen qui lui semblait étrange et s'enfuir. Mais à cet instant, la tête féroce explosa dans un bang et se changea en un brasier, au sein duquel se trouvait un fragment vert!
 
 Ce fragment ressemblait à un éclat de porcelaine brisée, mais il dégageait une puissance céleste.
 
@@ -20,7 +20,7 @@ Les yeux de Wang Lin se rétrécirent, mais il ne s'arrêta pas. Il saisit le fr
 
 Puis, elle laissa échapper un rugissement qui fit trembler les cieux. Ce cri étouffa le tonnerre et se propagea dans toutes les directions. Le royaume entier sembla basculer, et toutes les épées en approche furent secouées.
 
-Alors que le Ji Qiong rugissait, il chargea. Sa vitesse était telle qu'il rejoignit instantanément Wang Lin. Les dix-sept têtes entonnèrent divers incantations et tentèrent toutes de dévorer Wang Lin!
+Alors que le Ji Qiong rugissait, il chargea. Sa vitesse était telle qu'il rejoignit instantanément Wang Lin. Les dix-sept têtes entonnèrent diverses incantations et tentèrent toutes de dévorer Wang Lin!
 
 Une tempête surgit immédiatement et une brume verte se matérialisa de toutes pièces. Une tête géante et verdâtre apparut devant le Ji Qiong. Elle possédait un visage humain, mais était couverte d'écailles et arborait un regard impitoyable. De loin, on pouvait voir qu'elle était immense, haute de pas moins de 10 000 pieds! Ce qui était étrange, c'est qu'une empreinte de main se trouvait entre les sourcils de cette tête. Cette empreinte ressemblait à un sceau et dégageait une infinie brume violette!
 
@@ -48,15 +48,15 @@ En pleine crise, Wang Lin lutta pour lever sa main droite vers ses sourcils. Des
 
 En un instant, la main gauche de Wang Lin plongea dans le vide et l'espace de stockage s'ouvrit. Il y jeta rapidement le fragment et l'épée de fer, puis une peau de bête vola et atterrit près du talisman jaune sur sa poitrine.
 
-Ce talisman jaune était un tatouage de flétrissement de vitesse et la peau de bête en était un autre. La peau de bête avait été créée par Ta Shan en utilisant l'héritage de l'Ancêtre Saint du Clan du Tatouage. Avec deux tatouages de vitesse, la célérité de Wang Lin augmenta à un degré inimaginable.
+Ce talisman jaune était un talisman de vitesse et la peau de bête en était un autre. La peau de bête avait été confectionnée en personne par Ta Shan, qui avait reçu l'héritage de l'Ancêtre Saint du Clan du Tatouage, et son pouvoir était immense. Avec deux talismans de vitesse, la célérité de Wang Lin augmenta à un degré inimaginable.
 
 S'appuyant sur cette vitesse, Wang Lin serra les dents et lutta pour échapper à l'aspiration. Il avait l'impression de percuter d'immenses montagnes. Des bruits de craquement résonnèrent alors qu'il s'élançait sur cent pieds!
 
 Mais à cet instant précis, sa jambe gauche se changea en pierre et s'effondra en gravillons qui furent aussitôt aspirés.
 
-Le Ji Qiong rugissait sans relâche. Les dix-sept têtes faisaient face avec férocité à l'empreinte de main qui approchait, et les veines sur chacune d'elles étaient gonflées. La main géante libéra un éclat vert éblouissant et la force d'aspiration s'intensifia!
+Le Ji Qiong rugissait sans relâche. Les dix-sept têtes faisaient face avec férocité à l'empreinte de main qui approchait, et les veines sur chacune d'elles étaient gonflées. La grande gueule formée devant le Ji Qiong brilla d'une dense lumière verte et la force d'aspiration redoubla!
 
-Le pied droit de Wang Lin s'effondra soudainement alors qu'il tentait de fuir l'aspiration. Son corps ne pouvait plus faire le moindre pas face à l'augmentation de cette force, et il fut entraîné vers la grande gueule. Wang Lin esquissa un sourire amer tout en bougeant sa main gauche qui se transformait en pierre. Il n'hésita pas à retirer les deux objets de sa poitrine et utilisa le reste de sa culture pour les remettre dans l'espace de stockage.
+La jambe droite de Wang Lin s'effondra soudainement alors qu'il tentait de fuir l'aspiration. Son corps ne pouvait plus faire le moindre pas face à l'augmentation de cette force, et il fut entraîné vers la grande gueule. Wang Lin esquissa un sourire amer tout en bougeant sa main gauche qui se transformait en pierre. Il n'hésita pas à retirer les deux objets de sa poitrine et utilisa le reste de sa culture pour les remettre dans l'espace de stockage.
 
 Après avoir fait tout cela, sa vision se troubla et il fut dévoré par la tête géante, comme les innombrables épées volantes.
 
@@ -68,7 +68,7 @@ Si Wang Lin n'avait pas été dévoré, il aurait clairement vu que neuf des dix
 
 La lumière violette disparut lentement avec l'empreinte de main, comme si elle n'avait jamais existé.
 
-La prudence dans les yeux des dix-sept têtes s'estompa progressivement. À cet instant, une masse de chair commença à bouger près de son cou, et bientôt, une branche de trois mètres se déploya. Il y avait une tête au bout de la branche!
+La prudence dans les yeux des dix-sept têtes s'estompa progressivement. À cet instant, une masse de chair commença à bouger près de son cou, et bientôt, une branche d'environ trois cents mètres de long se déploya. Il y avait une tête au bout de la branche!
 
 Cette tête ressemblait à Wang Lin!
 
@@ -78,11 +78,11 @@ Cette tête ressemblait à Wang Lin!
 
 « Bien que la bête fût très puissante, je pouvais encore l'affronter et même lui trancher une tête... Cependant, avec le recul, il semble que la bête n'ait pas utilisé toute sa puissance. On peut supposer qu'elle craignait quelque chose... » pensa Wang Lin en repensant à l'empreinte violette apparue sur la tête invoquée par le Ji Qiong et à celle qui s'était manifestée dans le ciel après l'invocation.
 
-« Se pourrait-il qu'elle soit scellée? Si elle utilise son véritable pouvoir, cela activera le sceau... Cette tête qui est apparue... était trop terrifiante! Avec ces deux tatouages de flétrissement, ma vitesse était comparable à celle d'un cultivateur au stade avancé du Briseur du Nirvana, mais je n'avais aucune chance face à cette force d'aspiration! »
+« Se pourrait-il qu'elle soit scellée? Si elle utilise son véritable pouvoir, cela activera le sceau... Cette tête qui est apparue... était trop terrifiante! Avec ces deux talismans de vitesse, ma vitesse était comparable à celle d'un cultivateur au stade avancé du Briseur du Nirvana, mais je n'avais aucune chance face à cette force d'aspiration! »
 
 Wang Lin regarda silencieusement devant lui et réfléchit longuement. Puis il poussa un soupir et murmura avec un sourire amer: « Wang Lin, ton niveau de culture actuel ne représente rien dans ce monde. Je dois encore rester prudent en toute chose! »
 
-Une amertume envahit Wang Lin. Dans la Terre des Esprits Démoniaques, il avait combattu le Maître du Vide, il avait combattu l'Omniscient avec la Nuit Déchirée, il avait combattu l'ancien démon avec le Rêve des Temps Anciens, puis il était devenu l'Empereur Divin de l'Oiseau Vermillon. Après cela, il avait réussi à sauver l'Empereur Divin du Dragon Azure et avait réveillé l'Empereur Céleste Qing Lin. Tout au long de ce parcours, le niveau de culture de Wang Lin avait progressé, et après être devenu l'Empereur Divin de l'Oiseau Vermillon, il avait mobilisé diverses forces pour combattre Tuo Sen.
+Une amertume envahit Wang Lin. Dans la Terre des Esprits Démoniaques, il avait combattu le Maître du Vide, il avait combattu l'Omniscient avec la Nuit Déchirée, il avait combattu l'ancien diable avec le Rêve des Temps Anciens, puis il était devenu l'Empereur Divin de l'Oiseau Vermillon. Après cela, il avait réussi à sauver l'Empereur Divin du Dragon Azure et avait réveillé l'Empereur Céleste Qing Lin. Tout au long de ce parcours, le niveau de culture de Wang Lin avait progressé, et après être devenu l'Empereur Divin de l'Oiseau Vermillon, il avait mobilisé diverses forces pour combattre Tuo Sen.
 
 Tout cela lui avait donné l'impression que tout était sous son contrôle, et affronter des cultivateurs au stade du Briseur du Nirvana lui avait inconsciemment insufflé un sentiment de complaisance.
 
@@ -94,8 +94,8 @@ Le sentiment de mort ressenti à cet instant était si réel qu'il permit à Wan
 
 Comme auparavant, il créa un nouvel avatar avec les roches environnantes et y injecta son âme originelle. Puis, en un éclair, l'avatar disparut de la montagne.
 
-« Le sort céleste de Qing Lin nécessite trop d'énergie originelle céleste; si je crée trop d'avatars, cela affectera mon âme originelle. Ce second avatar est déjà ma limite... » Wang Lin ferma les yeux et concentra toute son attention sur lui.
+« Le sort céleste de Qing Lin nécessite trop de force immortelle; si je crée trop d'avatars, cela affectera mon âme originelle. Ce second avatar est déjà ma limite... » Wang Lin ferma les yeux et concentra toute son attention sur lui.
 
-En utilisant la Distorsion Spatiale, Wang Lin arriva de nouveau sur la planète Suzaku. Il ne tarda pas à se diriger vers la Terre de l'Ancien Dieu. Il prit une profonde inspiration à l'entrée et s'avança.
+En utilisant la Courbure Spatiale, Wang Lin arriva de nouveau sur la planète Suzaku. Il ne tarda pas à se diriger vers la Terre de l'Ancien Dieu. Il prit une profonde inspiration à l'entrée et s'avança.
 
 Wang Lin progressa dans l'abîme avec la prudence qu'il affichait lorsqu'il était au stade de la Formation du Noyau, et il atteignit bientôt le vortex menant à la première épreuve. Sa main droite s'étira pour sortir une épée volante. Il y injecta une trace de son sens divin et l'épée plongea dans le vortex. Dès que l'arme entra, il détecta une tempête de sable.

@@ -30,7 +30,7 @@ Le doigt créé par le Serpent aux yeux de lune fit trembler l'esprit du vieil h
 
 Alors que le Serpent aux yeux de lune rugissait une fois de plus, le doigt du dieu antique pressa lentement vers le bas sur le sceau octogonal!
 
-Lorsque le doigt percuta le sceau, celui-ci se brisa en d'innombrables fragments sans la moindre résistance et fut projeté en arrière. Le visage du vieil homme empourpra de pâleur; il fut repoussé avec les débris vers Maître Yan Leizi et l'homme d'âge moyen.
+Lorsque le doigt percuta le sceau, celui-ci se brisa en d'innombrables fragments sans la moindre résistance et fut projeté en arrière. Le visage du vieil homme pâlit aussitôt; il fut repoussé avec les débris vers Maître Yan Leizi et l'homme d'âge moyen.
 
 À présent, ces deux derniers avaient déjà évacué tous les cultivateurs environnants.
 
@@ -40,7 +40,7 @@ Alors que le Serpent aux yeux de lune rugissait, le doigt devant lui s'abattit r
 
 On aurait dit qu'un véritable dieu antique était apparu, levant son doigt pour pointer le bas!
 
-« Compagnons cultivateurs, nous ne pouvons résister à l'attaque la plus puissante de cette bête. Si nos corps réels étaient ici, nous pourrions peut-être en encaisser un coup ou en porter un. Maintenant que notre objectif est atteint, pourquoi ne pas expérimenter personnellement la puissance de cette créature? » Maître Yan Leizi rit en se précipitant vers le doigt du dieu antique.
+« Compagnons cultivateurs, nous ne pouvons résister à l'attaque la plus puissante de cette bête. Si nos corps réels étaient ici, nous pourrions peut-être encore lui tenir tête un moment. Maintenant que notre objectif est atteint, pourquoi ne pas expérimenter personnellement la puissance de cette créature? » Maître Yan Leizi rit en se précipitant vers le doigt du dieu antique.
 
 Au moment où il chargea, des flammes enveloppèrent son corps. Une flamme monstrueuse jaillit et l'encercla totalement.
 
@@ -52,7 +52,7 @@ Un fracas assourdissant résonna dans la majeure partie du Domaine Nord. Le drag
 
 Les yeux de l'homme en robe rouge révélèrent une lueur mystérieuse; il rit et fit un pas en avant. Sa main droite traça un sceau qu'il pressa entre ses sourcils. Il se transforma intégralement en une épée rouge et s'élança au moment où le doigt du dieu antique fut encerclé par les flammes.
 
-L'homme d'âge moyen en robe noire afficha un regard déterminé. Il pensait que ce clone n'était pas nécessaire, mais il devait expérimenter l'attaque ultime de cette bête. Peut-être obtiendrait-il une récolte inattendue de cette expérience!
+L'homme d'âge moyen en robe noire afficha un regard déterminé. Il se disait que ce clone pouvait être sacrifié, mais il devait expérimenter l'attaque ultime de cette bête. Peut-être obtiendrait-il une récolte inattendue de cette expérience!
 
 Une fois son niveau de culture atteint, progresser devenait extrêmement difficile. À ses yeux, c'était peut-être sa chance!
 
@@ -104,7 +104,7 @@ Wang Lin fronça les sourcils tout en avançant. Il avait déjà senti que quelq
 
 Cette scène fit réfléchir Wang Lin.
 
-« Ce doit être à cause de l'Armure de Cuir du Dieu Antique! » Les yeux de Wang Lin s'illuminèrent et, d'une simple pensée, il rangea l'armure dans son sac.
+« Ce doit être à cause de l'Armure de Cuir de l'Ancien Dieu! » Les yeux de Wang Lin s'illuminèrent et, d'une simple pensée, il rangea l'armure dans son sac.
 
 Après cela, son corps vacilla et il changea rapidement de direction.
 

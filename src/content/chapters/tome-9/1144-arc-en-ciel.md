@@ -24,7 +24,7 @@ Au sommet de la montagne orientale de la Secte de l'Origine, l'homme d'âge mûr
 
 « Maître vient à peine de quitter ce monde et la Secte du Dao Pourpre fait déjà preuve d'une telle arrogance. J'ai tout enduré jusqu'ici, mais pourquoi ne pas laisser moi, Li Xiangdong, être arrogant pour une fois? Même si je meurs, je mourrai l'esprit indomptable! »
 
-Un soupir s'éleva des sommets du nord et de l'ouest. Deux vieillards s'envolèrent et se regardèrent avant de foncer vers l'ouest. C'était le moment fatidique pour la Secte de l'Origine, et ils ne pouvaient plus supporter davantage!
+Un soupir s'éleva du sommet du nord-ouest. Deux vieillards s'envolèrent et se regardèrent avant de foncer vers l'ouest. C'était le moment fatidique pour la Secte de l'Origine, et ils ne pouvaient plus supporter davantage!
 
 Pourtant, même s'ils ne pouvaient plus le tolérer, que pouvaient-ils faire? Osaient-ils tuer le jeune maître de la Secte du Dao Pourpre? De plus, la puissance contenue dans les paroles de ce vieil homme suffisait à ébranler leurs cœurs.
 
@@ -36,7 +36,7 @@ Derrière les quatre grands anciens de la Secte de l'Origine, leurs disciples di
 
 Xu Yun comptait parmi eux. Son visage témoignait de sa volonté de mourir. Cependant, pour une raison inconnue, alors qu'elle volait, deux silhouettes apparurent dans son esprit.
 
-L'une avait les cheveux noirs et était très svelte, mais demeurait toujours aussi calme que l'eau. L'autre avait les cheveux blancs, et d'un simple mouvement de doigt, il pouvait faire s'effondrer le monde!
+L'une avait les cheveux noirs, était très svelte et d'allure ordinaire, mais demeurait toujours aussi calme que l'eau. L'autre, vêtu de blanc, avait les cheveux blancs, et d'un simple mouvement de doigt, il pouvait faire s'effondrer le monde!
 
 Ces deux figures envahirent son esprit jusqu'à ce qu'elles finissent par se superposer.
 
@@ -44,17 +44,17 @@ Wang Lin se tenait à l'intérieur du temple taoïste et regarda les rayons de l
 
 Finalement, il fronça les sourcils et marmonna: « C'est vraiment encombrant... » Il agita ses manches et fit un pas en avant. Des ondulations apparurent sous ses pieds et il disparut du temple taoïste.
 
-Le python pourpre qui s'était tenu à l'écart depuis l'apparition de Wang Lin, toujours empreint de crainte, chargea soudainement. Il laissa échapper un rugissement vers la direction prise par Wang Lin. C'était comme s'il savait que Wang Lin était parti et ne reviendrait pas avant longtemps, ce qui lui permettait d'oser hurler ainsi.
+Le python pourpre, presque entièrement rentré dans la faille, qui n'avait cessé de gronder sourdement depuis l'apparition de Wang Lin tout en tremblant de peur, en jaillit soudain. Il laissa échapper un rugissement vers la direction prise par Wang Lin. C'était comme s'il savait que Wang Lin était parti et ne reviendrait pas avant longtemps, ce qui lui permettait d'oser hurler ainsi.
 
 La nuit sur le continent de Mo Luo touchait à sa fin et le soleil commençait à poindre. À cet instant, la bourrasque pourpre traversa le ciel, suivie par la bête spirituelle noire. Le vieil homme paraissait extrêmement arrogant et serein; il était convaincu de pouvoir traiter avec la Secte de l'Origine sans difficulté.
 
-Le jeune homme en pourpre à ses côtés affichait un regard exalté et se mit à hurler de manière obscène.
+Le jeune homme en pourpre à ses côtés affichait une exaltation intense, d'où se dégageait une lubricité répugnante.
 
 « Oncle Song, blessez gravement Lu Yanfei, mais ne la tuez pas. Laissez-moi m'amuser avec elle quelques jours et aspirer toute son énergie originelle; alors, il ne sera pas trop tard pour l'achever! » Le jeune homme se lécha les lèvres.
 
 Le vieil homme à ses côtés hocha la tête. Juste au moment où il s'apprêtait à parler, il fut soudainement saisi d'un sursaut et fixa l'espace devant lui.
 
-Il vit des ondulations apparaître dans le vide et de puissantes fluctuations d'énergie originelle commencer à se propager. Un homme aux cheveux blancs sortit de ces ondulations!
+Il vit des ondulations apparaître dans le vide et une puissante force du ciel et de la terre se répandre. Un homme aux cheveux blancs sortit de ces ondulations!
 
 L'homme aux cheveux blancs arborait une expression glaciale, et dès son apparition, une intention meurtrière monstrueuse envahit le monde. La bête spirituelle noire s'arrêta net et l'expression du vieil homme changea. Le jeune homme en pourpre fronça les sourcils et allait hurler quand le vieil homme se posta devant lui. Ce dernier fixa Wang Lin d'un regard sérieux et dit: « Je suis Song Wude, de la Secte du Dao Pourpre. Ce Compagnon Cultivateur pourrait-il me faire l'honneur de me laisser passer? »
 
@@ -84,7 +84,7 @@ Wang Lin agita sa main droite et toute l'énergie de massacre autour de lui devi
 
 Les pupilles du vieil homme se rétractèrent brusquement. Ses mains formèrent des sceaux, un vent pourpre apparut et entra en collision avec l'énergie de massacre. Un grondement de tonnerre retentit au loin et par ici.
 
-« Invoquez la Pluie! » Wang Lin leva la main gauche et pointa le ciel. À cet instant, toute la pluie dans un rayon de mille, dix mille, cent mille pieds trembla. Sous le geste de Wang Lin, chaque goutte d'eau vibra, enveloppée d'énergie originelle, avant de s'élancer vers le vieil homme comme des projectiles.
+« Invoquez la Pluie! » Wang Lin leva la main gauche et pointa le ciel. À cet instant, toute la pluie dans un rayon de mille, dix mille, cent mille pieds trembla. Sous le geste de Wang Lin, chaque goutte d'eau vibra, enveloppée par une force du ciel et de la terre, avant de s'élancer vers le vieil homme comme des projectiles.
 
 Le choc fut tel que le cœur du vieil homme en resta indescriptiblement bouleversé. Il n'avait jamais vu les deux sorts utilisés par l'homme aux cheveux blancs, mais la puissance de ces techniques le fit suffoquer. Il s'apprêtait à esquiver quand le regard froid de Wang Lin se verrouilla sur lui, et ce dernier prononça calmement un seul mot:
 
@@ -96,13 +96,13 @@ Wang Lin ne marqua aucun temps d'arrêt. Sa main droite s'étira et une faille v
 
 Il avança, leva l'épée et frappa avec une férocité impitoyable!
 
-Le monde était encore clair à cet instant, mais au moment où l'épée descendit, l'univers entier fut enveloppé par un éclat d'une luminosité extrême.
+Le monde était encore dans la pénombre de l'aube à cet instant, mais au moment où l'épée descendit, l'univers entier fut enveloppé par un éclat d'une luminosité extrême.
 
 Un fracas assourdissant retentit et le cristal de glace vola en éclats sanglants. Les yeux du vieil homme étaient encore empreints de choc et d'incrédulité alors que son corps se fragmentait. Même son âme originelle se brisa sous l'impact, explosant en une onde de choc d'énergie originelle.
 
 Tout cela se produisit en quelques respirations! Une exécution instantanée!
 
-Jusque dans la mort, le vieil homme ne put croire qu'il avait été tué si rapidement! Pourtant, sa fin n'avait rien d'illogique. Que ce soit l'énergie de massacre ou l'invocation de la pluie, ces sorts étaient assez puissants pour terrifier n'importe quel cultivateur. De plus, l'attaque provenant du trésor de Pseudo-Vide du Nirvana était suffisante pour arracher une couche de peau à un cultivateur au sommet de la Purification du Nirvana s'il ne mourait pas sur le coup!
+Jusque dans la mort, le vieil homme ne put croire qu'il avait été tué si rapidement! Pourtant, sa fin n'avait rien d'illogique. Que ce soit l'énergie de massacre ou l'invocation de la pluie, ces sorts étaient assez puissants pour qu'un cultivateur domine le monde de la cultivation. De plus, l'attaque provenant du trésor de Pseudo-Vide du Nirvana était suffisante pour arracher une couche de peau à un cultivateur de la fin de la Purification du Nirvana s'il ne mourait pas sur le coup!
 
 Sans même mentionner l'expérience de combat de Wang Lin, Song Wude n'était pas mort des mains d'un inconnu quelconque!
 
@@ -112,4 +112,4 @@ Wang Lin lança un regard glacial au jeune homme et fit un pas en avant!
 
 Des rayons de lumière arrivèrent derrière Wang Lin. Le cri empreint d'une peur extrême atteignit clairement les oreilles des quatre anciens de la Secte de l'Origine et résonna dans l'esprit de Lu Yanfei.
 
-À cet instant, le ciel s'éclaircit et la pluie cessa. Un vague arc-en-ciel apparut à travers la voûte céleste. La silhouette poursuivait la bête spirituelle noire. Ses cheveux blancs étaient si éblouissants que l'image de cet homme resta profondément gravée dans les yeux de Lu Yanfei...
+À cet instant, le ciel s'éclaircit et la pluie cessa. Un vague arc-en-ciel apparut, suspendu à la voûte céleste sous le soleil levant. La silhouette poursuivait la bête spirituelle noire. Ses cheveux blancs étaient si éblouissants que l'image de cet homme resta profondément gravée dans les yeux de Lu Yanfei...

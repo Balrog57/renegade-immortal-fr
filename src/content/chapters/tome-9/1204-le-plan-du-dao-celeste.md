@@ -24,7 +24,7 @@ Pourtant, cet espace n'était pas noir, mais de sept couleurs!
 
 Ce monde était devenu un royaume aux sept couleurs!
 
-Le vieillard en blanc redressa brusquement la tête et agita sa main droite. Le mot « Bataille » apparut! Le monde enveloppa son corps et dégagea une lueur dorée infinie qui repoussa la lumière arc-en-ciel.
+Le vieillard en blanc redressa brusquement la tête et agita sa main droite. Le mot « Bataille » apparut! Il entoura son corps et dégagea une lueur dorée infinie qui repoussa la lumière arc-en-ciel.
 
 À cet instant précis, une voix puissante résonna à travers l'univers.
 
@@ -36,7 +36,7 @@ C'était comme si le monde s'était inversé, toute la lumière se rassemblant p
 
 La lumière aux sept couleurs fulgura une dernière fois, comme si le monde allait s'effondrer. Des rugissements éclatèrent de l'intérieur de ce royaume chromatique, mais ils s'étouffèrent peu à peu jusqu'à se dissiper.
 
-« Zhan Xingye, si ce vieillard ne t'avait pas offert le Parchemin de la Bataille, comment aurais-tu pu atteindre le stade du Vide Spirituel? Si je m'empare de l'âme de ta lignée Zhan, je pourrai m'en servir de guide pour découvrir où ce Vieux Fantôme Zhan a caché ses restes pour sa Tribulant du Vide. Ensuite, je prendrai son squelette et j'extirperai l'essence du Dao de vous deux! Je détruirai son nirvana et accomplirai le plan céleste! » La voix ancienne du Souverain semblait épuisée et s'évanouit progressivement.
+« Zhan Xingye, si ce vieillard ne t'avait pas offert le Parchemin de la Bataille, comment aurais-tu pu atteindre le stade du Vide Spirituel? Avec ton âme de combat pour guide, je pourrai découvrir où ce Vieux Fantôme Zhan a enterré ses restes lors de sa Tribulation du Vide. Ensuite, je prendrai son squelette et j'extirperai l'essence du Dao de vous deux! Je détruirai son nirvana et accomplirai le plan céleste! » La voix ancienne du Souverain semblait épuisée et s'évanouit progressivement.
 
 Simultanément, le monde dans lequel Wang Lin se trouvait commença à se briser. Il eut l'impression que son âme originelle allait s'effondrer et se désintégrer avec lui.
 
@@ -64,7 +64,7 @@ La gorge de Wang Lin devint sèche. Tout en réfléchissant, il fronça les sour
 
 « D'après ses paroles, ce Souverain semble craindre ce Vieux Fantôme Zhan. Afin de découvrir où ce dernier avait caché ses os, le Souverain a offert le Parchemin de la Bataille à Zhan Xingye. Il l'a laissé maîtriser le domaine de la bataille avant de le tuer pour s'emparer de son âme. Tout cela n'était qu'un rouage du plan céleste. Mais quel est donc ce plan? » L'esprit de Wang Lin s'éclaircit. Bien que certaines zones d'ombre subsistent, ses pensées étaient désormais limpides.
 
-« Les quatre tablettes de pierre et les deux squelettes intacts. Ce premier squelette appartient à Zhan Xingye; le second pourrait-il être celui de son ancêtre, le Vieux Fantôme Zhan? » Wang Lin prit une profonde inspiration glacée.
+« Les quatre tablettes de pierre et les deux squelettes intacts. Ce premier squelette appartient à Zhan Xingye; le second pourrait-il être celui du maître transgénérationnel de Zhan Xingye, le Vieux Fantôme Zhan? » Wang Lin prit une profonde inspiration glacée.
 
 « Le Parchemin de la Bataille est le Dao laissé par le Vieux Fantôme Zhan! » Il regarda le squelette avec un sentiment complexe. En voyant la faible lueur dorée, il se mit à réfléchir: il possédait au total trois Parchemins de la Bataille dans son espace de stockage!
 
@@ -78,13 +78,13 @@ Cette scène étrange n'était pas inconnue de Wang Lin. Il observait avec gravi
 
 Le mot libéra une aura terrifiante et une lueur dorée qui fonça directement vers Wang Lin pour être rangée dans son espace de stockage.
 
-« Tu as obtenu le Parchemin de la Bataille et es devenu, malgré toi, l'héritier transgénérationnel du Vieux Fantôme Zhan. À cause de toi, le Souverain a découvert où il avait enterré ses os... Des millénaires plus tard, j'ai récupéré les Parchemins de la Bataille auprès de ton descendant... Aujourd'hui, je contemple tes restes... » Wang Lin afficha un regard tourmenté avant de laisser échapper un lourd soupir. Il quitta ensuite la grotte et la scella.
+« Tu as obtenu le Parchemin de la Bataille et es devenu, malgré toi, l'héritier transgénérationnel du Vieux Fantôme Zhan. À cause de toi, le Souverain a découvert où il avait enterré ses os... Après d'innombrables années, j'ai récupéré les Parchemins de la Bataille auprès de ton descendant... Aujourd'hui, je contemple tes restes... » Wang Lin afficha un regard tourmenté avant de laisser échapper un lourd soupir. Il quitta ensuite la grotte et la scella.
 
 Wang Lin ne tenta pas d'ouvrir la neuvième grotte, car il n'arrivait pas à briser sa restriction. Il vit qu'elle était remplie de gaz aux sept couleurs, mais le contenu restait invisible.
 
 Dans la vallée, Wang Lin observa les restes de Sima Mo et resta pensif un long moment avant de repartir. Avant de quitter les lieux, il se rendit dans la première grotte, celle de la bête moustique, pour y déposer de nombreux cristaux d'origine.
 
-En sortant de la vallée, le regard de Wang Lin s'anima. Il devait trouver la tablette qu'il avait aperçue par l'esprit; il devait découvrir l'autre moitié des restes de Zhan Xingye.
+En sortant de la vallée, le regard de Wang Lin s'anima. Il devait trouver la tablette qu'il avait aperçue par l'esprit; il devait voir la moitié supérieure des restes de Zhan Xingye.
 
 Après avoir fouillé les souvenirs de Pang Decai et du Maître Pin Cendré, Wang Lin n'était plus un étranger dans ce Royaume aux Sept Couleurs. Tous les sentiers étaient désormais gravés dans sa mémoire. Il se déplaçait comme un rayon de lumière, sans voler, mais en glissant avec rapidité sur le sol.
 
@@ -100,7 +100,7 @@ Un soupir monta dans son cœur, mais il ne ralentit pas et continua de foncer. I
 
 Ses yeux brillèrent alors qu'il bondissait pour atteindre la tête de la statue.
 
-Dans les souvenirs du Maître Pin Cendré, sa méthode de culture s'intitulait: *La Centaine de Formes d'Origine Sanguine formant l'Âme Naissante*. Le septième esprit du Royaume Scellé qu'il invoquait avait été compris grâce à cette statue.
+Dans les souvenirs du Maître Pin Cendré, sa méthode de culture s'intitulait: *La Technique de l'Origine Sanguine des Cent Vies formant l'Âme Naissante*. Le septième esprit du Royaume Scellé qu'il invoquait avait été compris grâce à cette statue.
 
 Cette technique permettait de cultiver un total de neuf entités semblables à des Âmes Naissantes, mais bien plus puissantes que de véritables Âmes Naissantes. Plus important encore, elles permettaient au Maître Pin Cendré d'augmenter neuf fois la vitesse de culture de ses sortilèges.
 

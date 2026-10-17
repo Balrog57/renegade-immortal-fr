@@ -10,7 +10,7 @@ Le sceau s'effondra soudainement après que Wang Lin l'eut déchiré. Une fois b
 
 Cette aura était si intense qu'elle forma un vortex. Ce vortex devint de plus en plus puissant, au point de semer la terreur dans les yeux des bêtes environnantes!
 
-Ce sceau avait réprimé la culture de Wang Lin après qu'il eut absorbé le fruit du Dao dans le Royaume aux Sept Couleurs [1]. Il l'avait séparé du stade Briseur du Nirvana!
+Ce sceau avait réprimé la culture de Wang Lin après qu'il eut absorbé le fruit du Dao et il avait été posé dans le Royaume aux Sept Couleurs. Sa culture était restée figée entre le sommet du stade Purificateur du Nirvana et le stade Briseur du Nirvana, sans pouvoir franchir ce pas!
 
 À présent, pour Li Qianmei, afin de compenser ses dix années d'efforts et par devoir d'homme, il brisa le sceau sans la moindre hésitation!
 
@@ -34,11 +34,11 @@ Il était véritablement entré dans le stade Briseur du Nirvana!
 
 Au moment où il atteignit le stade Briseur du Nirvana, le monde devant ses yeux changea. L'énergie originelle s'engouffra en lui comme une folie, et il poussa un cri!
 
-« ROAR!! »
+« GRAAAH!! »
 
 Ce rugissement fit trembler les cieux et surpassait tous les tonnerres. Il se mua en une onde sonore qui se propagea avec fureur. En résonnant, ce cri forma une aura destructrice!
 
-Les bêtes féroces autour de Wang Lin saignèrent par toutes leurs orifices et leurs corps s'effondrèrent dans des hurlements misérables. Au rythme des craquements, elles formèrent un anneau de brume sanglante.
+Les bêtes féroces autour de Wang Lin saignèrent par tous leurs orifices et leurs corps s'effondrèrent dans des hurlements misérables. Au rythme des craquements, elles formèrent un anneau de brume sanglante.
 
 Plus choquant encore, la brume de sang s'effondra à nouveau sous l'effet de l'onde sonore. Toutes les bêtes féroces aux alentours de Wang Lin explosèrent en une nuée de sang!
 
@@ -58,11 +58,11 @@ Ce serait là la plus terrible rétribution divine qu'il ait jamais eu à affron
 
 Au moment où sa culture atteignit le stade intermédiaire du Briseur du Nirvana, une lueur de froideur passa dans les yeux de Wang Lin. Il fit un pas en avant et, à cet instant, le vortex d'énergie originelle autour de lui balaya ses environs avec un impact indescriptible.
 
-*Rumble, rumble, rumble, rumble!*
+*Boum, boum, boum, boum!*
 
 Sous cet impact, les bêtes féroces ne purent rien esquiver et s'effondrèrent toutes. L'odeur du sang imprégna le monde. Elle était écrasante, absolument étouffante!
 
-Wang Lin était tel un dieu de la mort. Tandis qu'il avançait, sa main gauche agrippa le fouet et tira. Il ouvrit la bouche et cracha une épée de sang de la taille d'une paume. L'épée de sang suivit le fouet et chargea dans le vide!
+Wang Lin était tel un dieu du massacre. Tandis qu'il avançait, sa main gauche agrippa le fouet et tira. Il ouvrit la bouche et cracha une épée de sang de la taille d'une paume. L'épée de sang suivit le fouet et chargea dans le vide!
 
 Un bang tonnerre retentit, si puissant que le monde lui-même sembla trembler violemment.
 
@@ -72,7 +72,7 @@ Un éclair de lumière sanglante jaillit du vide et l'épée de sang revint vers
 
 À mesure qu'il progressait, de grands groupes de bêtes féroces commençaient à périr. L'épée de sang, imprégnée d'une parcelle du sens divin de Wang Lin, traversait le vide en fauchant la vie de ces créatures.
 
-L'endroit était saturé de sang, et l'épée semblait s'en trouver exaltée. Elle entonnait des hymnes de sabre tout en massacrant. Elle s'abreuvait de sang en transperçant les bêtes féroces; leurs corps tremblaient et, en un clin d'œil, ils n'étaient plus que squelettes.
+L'endroit était saturé de sang, et l'épée semblait s'en trouver exaltée. Elle émettait d'elle-même des chants d'épée stridents tout en massacrant. Elle s'abreuvait de sang en transperçant les bêtes féroces; leurs corps tremblaient et, en un clin d'œil, ils n'étaient plus que squelettes.
 
 La lueur rouge de l'épée devint de plus en plus intense. Une sorte de jubilation émanait de son hurlement à travers le vide. Elle semblait ivre de ce carnage, comme si elle n'avait pas connu un tel festin depuis longtemps.
 
@@ -110,16 +110,12 @@ En particulier, le roi des moustiques poussa un rugissement monstrueux de sa gue
 
 L'épée de sang fendait la mer de sang, dégageant une lueur démoniaque. Elle hurlait, exhalant une aura féroce! C'était comme si une âme dévorait le sang et s'éveillait lentement.
 
-Dans un rayon de dix mille pieds, il n'y avait plus qu'une mer de sang. Aucune autre bête féroce n'osait faire un pas de plus; elles ne pouvaient que contempler Wang Lin avec effroi.
+Dans un rayon de plusieurs dizaines de milliers de pieds, il n'y avait plus qu'une mer de sang. Aucune autre bête féroce n'osait faire un pas de plus; elles ne pouvaient que contempler Wang Lin avec effroi.
 
 Pourtant, à cet instant précis, un sifflement aigu retentit dans le vide. Neuf ombres semblables à des fouets s'élancèrent vers Wang Lin.
 
-À ce moment-là, une silhouette gigantesque apparut dans le vide. C'était un scorpion colossal doté de neuf queues! Le monstre mesurait des dizaines de milliers de pieds de haut et dégageait une pression terrifiante.
+À ce moment-là, une silhouette gigantesque apparut dans le vide. C'était un scorpion colossal doté de neuf queues! Le monstre mesurait environ cent mille pieds de haut et dégageait une pression terrifiante.
 
 Ce n'était pas une entité solide, mais une illusion. Devant cette ombre se tenait une femme vêtue de noir, arborant un tatouage de scorpion sur le visage. Elle avançait d'un regard sombre, du sang coulant du coin de sa bouche. Elle fixait Wang Lin.
 
 « Je suis Sang Pourpre, sous les ordres de l'ancienne Concubine Impériale. Qui es-tu? »
-
-***
-
-[1] Cela ne s'est pas produit dans le Royaume aux Sept Couleurs. L'auteur utilise probablement ce terme pour désigner l'époque de ces événements.

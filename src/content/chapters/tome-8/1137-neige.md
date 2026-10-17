@@ -34,11 +34,11 @@ C'était une plaine.
 
 « Nous y sommes. » Wang Lin leva la tête et regarda calmement le ciel. Les flocons de neige tombaient devant lui, drapant le sol.
 
-Il secoua la tête pour en chasser la neige. Wang Lin laissa échapper un long soupir et se transforma en une brume blanche qui disparut progressivement. Il fit un pas délicat, et soudain, les environs tremblèrent. À cet instant, une tempête silencieuse souleva toute la neige de la zone pour la projeter vers le ciel. Le vent emporta la neige au loin.
+Il secoua la tête pour en chasser la neige. Wang Lin laissa échapper un long soupir qui se transforma en une brume blanche, dissipée progressivement devant lui. Son pied droit frappa légèrement le sol, et soudain, les environs tremblèrent. À cet instant, une tempête silencieuse souleva toute la neige de la zone pour la projeter vers le ciel. Le vent emporta la neige au loin.
 
 Une fois la neige dissipée, une formation gigantesque apparut sur cette étendue de 10 000 pieds. Cette formation était extrêmement complexe et comportait divers blocs de pierre disposés en son sein.
 
-Après une courte réflexion silencieuse, Wang Lin poussa un soupir et se dirigea vers le centre de la formation. Sa main droite plongea dans le vide, ouvrant une faille vers son espace de stockage. D'une simple pensée, les pierres qu'il avait rassemblées en chemin sortirent l'une après l'autre. Elles lévitaient dans l'air; il y en avait au moins une centaine.
+Après une courte réflexion silencieuse, Wang Lin poussa un soupir et se dirigea vers le centre de la formation. Sa main droite plongea dans le vide, ouvrant une faille vers son espace de stockage. D'une simple pensée, les pierres qu'il avait rassemblées en chemin sortirent l'une après l'autre. Elles lévitaient dans l'air; il y en avait plusieurs centaines, serrées les unes contre les autres.
 
 D'un geste de la main droite, Wang Lin dispersa ces pierres pour qu'elles se posent à des emplacements précis.
 
@@ -64,7 +64,7 @@ Le vortex avait quitté les plaines de cette planète abandonnée, mais son rire
 
 La zone dévastée de 10 000 pieds sur la plaine fut peu à peu comblée par la neige. Tout comme les empreintes de Wang Lin, tout disparut...
 
-Les quatre grands Royaumes Célestes possédaient chacun un système stellaire sous leur autorité. Le Royaume Céleste de la Pluie possédait l'Alliance, qui ne comptait qu'un seul pays de culture de rang 9. Le Royaume Céleste du Tonnerre possédait Luotian, qui abritait des lignées détenant des héritages de l'Antiquité. Ces environnements disparates faisaient que les méthodes de culture et les orientations des cultivateurs de chaque système étaient radicalement différentes. Bien qu'ils fussent tous des cultivateurs, le fossé entre eux était immense.
+Les quatre grands Royaumes Célestes possédaient chacun un système stellaire sous leur autorité. Le Royaume Céleste de la Pluie possédait l'Alliance, qui se distinguait par ses pays de culture de rang 1 à 9. Le Royaume Céleste du Tonnerre possédait Luotian, qui abritait des lignées détenant des héritages de l'Antiquité. Ces environnements disparates faisaient que les méthodes de culture et les orientations des cultivateurs de chaque système étaient radicalement différentes. Même le caractère des cultivateurs de part et d'autre était très différent.
 
 Contrairement aux règles strictes de l'Alliance, Luotian offrait plus de liberté. Cependant, toute cette liberté pouvait être sacrifiée pour l'honneur de la famille!
 
@@ -94,7 +94,7 @@ Il n'était pas vrai que le Système Stellaire de la Mer des Nuages manquait de 
 
 En dessous du rang 7, on trouvait principalement ces continents flottants. Chaque continent représentait une secte différente.
 
-La pluie tombait sur la partie nord du continent de Mo Luo. Elle recouvrait le monde dans un déluge qui semblait durer depuis une éternité. Le sol était déjà saturé de boue et toutes les feuilles étaient courbées, comme si elles étaient écrasées par le poids des eaux. La pluie coulait le long des nervures des feuilles avant de s'écraser au sol.
+La pluie tombait sur la partie nord du continent de Mo Luo. Elle recouvrait le monde dans un déluge qui semblait durer depuis une éternité. Le sol était déjà saturé de boue et toutes les feuilles étaient courbées, comme si elles étaient écrasées par le poids des eaux. La pluie coulait le long du bord des feuilles avant de s'écraser au sol.
 
 De petites bêtes se cachaient dans les recoins, tremblant sous l'averse. Au sol, quelques petits serpents colorés glissaient joyeusement dans la boue et l'eau. Pour eux, une nuit aussi pluvieuse était le moment idéal pour la chasse.
 

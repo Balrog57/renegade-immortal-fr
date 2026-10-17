@@ -24,7 +24,7 @@ Derrière lui se dressait un arbre colossal, si immense qu'il semblait que même
 
 Chaque membre de la Secte Démon savait que cet homme d'âge moyen était le premier, et le dernier, Maître de la Secte Démon! Et cet arbre géant était le trésor vital du Maître de la Secte!
 
-La rumeur prétendait que le Maître de la Secte Démon était un être d'une puissance capable de faire trembler les cieux. On disait que la faille spatiale était bien plus vaste autrefois et que des bêtes féroces bien plus nombreuses en surgissaient: des bêtes royales, des bêtes impériales, et même des créatures légendaires capables de prendre forme humaine. Cependant, elles avaient toutes été annihilées par le Maître de la Secte Démon, et la faille spatiale avait été presque totalement scellée.
+La rumeur prétendait que le Maître de la Secte Démon était un être d'une puissance capable de faire trembler les cieux. On disait que la faille spatiale était plus de cent fois plus vaste autrefois et que des bêtes féroces bien plus nombreuses en surgissaient: des bêtes royales, des bêtes impériales, et même des créatures légendaires capables de prendre forme humaine. Cependant, elles avaient toutes été annihilées par le Maître de la Secte Démon, et la faille spatiale avait été presque totalement scellée.
 
 Pourtant, au moment où il achevait le sceau, un accident survint. Il semblait que quelqu'un, à l'intérieur, ait utilisé un sortilège inimaginable pour empêcher le Maître de la Secte Démon de parachever son œuvre.
 
@@ -32,17 +32,17 @@ Malgré cela, le sceau avait porté ses fruits. La faille spatiale s'était cons
 
 Quant aux neuf yeux dans le ciel, les simples disciples de la Secte Démon en connaissaient l'existence, mais seuls les Anciens savaient que ces neuf yeux représentaient le Royaume Céleste Ancien!
 
-Parmi les Anciens, des rumeurs circulaient selon lesquelles la séparation de la Secte Démon et de la Secte Dieu était due à un ordre du premier Maître de la lignée. Ce dernier avait ordonné qu'un groupe de la Secte Dieu soit stationné ici pour des générations afin de garder ce lieu, interdisant à la moindre bête de sortir vivante de la faille spatiale!
+Parmi les Anciens, des rumeurs circulaient selon lesquelles la séparation de la Secte Démon et de la Secte Divine était due à un ordre du premier Maître de la lignée. Ce dernier avait ordonné qu'un groupe de la Secte Divine soit stationné ici pour des générations afin de garder ce lieu, interdisant à la moindre bête de sortir vivante de la faille spatiale!
 
-Certains prétendaient même que le Maître de la Secte Dieu était la même personne que le Maître de la Secte Démon... On disait qu'il venait du Royaume Céleste Ancien... On racontait qu'il avait disparu depuis longtemps, et que nul ne savait s'il était mort ou vivant. La Secte Dieu serait actuellement dirigée par l'un de ses esclaves agissant en son nom.
+Certains prétendaient même que le Maître de la Secte Divine était la même personne que le Maître de la Secte Démon... On disait qu'il venait du Royaume Céleste Ancien... On racontait qu'il avait disparu depuis longtemps, et que nul ne savait s'il était mort ou vivant. La Secte Divine serait actuellement dirigée par l'un de ses esclaves agissant en son nom.
 
-C'était pour cette raison que la Secte Démon n'obéissait pas aux ordres de la Secte Dieu et possédait les moyens nécessaires pour lui faire face!
+C'était pour cette raison que la Secte Démon n'obéissait pas aux ordres de la Secte Divine et possédait les moyens nécessaires pour lui faire face!
 
 Bien sûr, tout cela n'était que des rumeurs. La véritable histoire s'était perdue dans le fleuve du temps, et très peu en connaissaient la réalité.
 
 À cet instant, une lueur rouge monstrueuse brillait à l'extérieur de la faille spatiale. Après avoir foncé sans relâche, Wang Lin et la vieille femme en blanc étaient enfin arrivés!
 
-En chemin, Wang Lin avait déployé une vitesse presque insensée, traversant la région de rang 2 en seulement quelques jours!
+En chemin, Wang Lin avait déployé une vitesse presque insensée, il n'avait mis que quelques jours depuis la région de rang 2!
 
 « Vieille Dame Blanche! C'est elle! »
 
@@ -50,7 +50,7 @@ En chemin, Wang Lin avait déployé une vitesse presque insensée, traversant la
 
 « Je ne parviens pas à percevoir le niveau de culture de cet individu, mais je tremble devant lui. Il est trop puissant! J'ignore de quelle secte il est l'Ancien, mais pourquoi est-il ici? »
 
-« Cet homme est trop puissant et trop étrange; même les bêtes féroces se sont retirées de terreur. Même ces crânes noirs ont commencé à paniquer en le sentant approcher! » L'homme parmi les six génies regardait Wang Lin avec effroi.
+« Cet homme est trop puissant et trop étrange; même les bêtes féroces se sont retirées de terreur. Même ces crânes noirs ont commencé à paniquer en le sentant approcher! » Le vieil homme parmi les six génies regardait Wang Lin avec effroi.
 
 « Serait-il la raison pour laquelle Li Qianmei est punie par la Secte Démon et envoyée dans les profondeurs de la Faille Spatiale? » La femme indifférente observait Wang Lin, mais son esprit vacillait. Son regard et son Sens Divin se dissipèrent silencieusement dès qu'ils approchèrent de lui.
 
@@ -82,15 +82,15 @@ Parmi les milliers de cultivateurs, les six génies furent frappés de stupeur, 
 
 Les trois membres de la Secte Démon, également ébranlés, commencèrent à discuter de la force de Wang Lin.
 
-« Il est au moins au premier niveau du Fléau Céleste, mais pourquoi ne porte-t-il pas d'aura? »
+« Il est au moins au premier niveau du Fléau Céleste, mais pourquoi n'a-t-il pas le halo des Hommes Célestes? »
 
-« Peut-être utilise-t-il un sort pour dissimuler sa présence. »
+« Peut-être utilise-t-il un sort pour cacher son halo céleste. »
 
-« Cet homme ne peut pas être un inconnu, mais pourquoi accompagne-t-il la Vieille Dame Blanche? Je me souviens qu'elle était partie chercher l'âme de vie de Li Qianmei quelque part... Se pourrait-il que... »
+« Cet homme ne peut pas être un inconnu, mais pourquoi accompagne-t-il la Vieille Dame Blanche? Je me souviens qu'elle était partie remettre le jade de l'âme de vie de Li Qianmei... Se pourrait-il que... »
 
-« Se pourrait-il que cet homme ait un lien avec l'âme de vie de Li Qianmei? »
+« Se pourrait-il que cet homme ait un lien avec le jade de l'âme de vie de Li Qianmei? »
 
-Les trois hommes échangeaient des messages silencieux tout en restant sur leurs gardes.
+Les trois membres de la Secte Démon échangeaient des messages silencieux tout en restant sur leurs gardes.
 
 Seule la vieille femme en blanc restait de marbre. Elle avait observé chaque geste de Wang Lin et savait que même six Grands Anciens de la Secte Éternelle auraient eu trop peur pour l'arrêter; deux d'entre eux avaient même perdu leur corps physique. Pour elle, le fait qu'il ne tue que quelques bêtes féroces n'était rien de notable.
 
@@ -106,7 +106,7 @@ Il allait arracher de force cette ouverture qui ne demandait qu'à s'élargir le
 
 « Cher cultivateur, arrêtez! Un Dragon des Neuf Abîmes se trouve à l'intérieur, et il est extrêmement puissant. S'il sort ainsi, le carnage sera immense. J'espère que vous attendrez que nous ayons déployé une formation avant de l'ouvrir! » s'exclama l'un des membres de la Secte Démon depuis le brouillard bleu.
 
-Les trois hommes se précipitèrent vers la faille!
+Les trois se précipitèrent vers la faille!
 
 Wang Lin fit fi de leurs avertissements et, dans un rugissement, acheva son œuvre. Des grondements tonnerre et des craquements déchirants résonnèrent: il venait de fracturer la faille spatiale!
 
@@ -116,13 +116,13 @@ Wang Lin se trouvait à une proximité extrême du dragon. Les yeux de la créat
 
 « Espèce de bête maudite, tu oses vouloir me dévorer? » Les yeux de Wang Lin devinrent glacials; il ne chercha même pas à esquiver. Tandis que le Dragon des Neuf Abîmes chargeait, il leva la paume et frappa violemment vers l'avant!
 
-Un fracas tonnerre retentit lors de l'impact. À cet instant, une énergie d'origine infinie convergea frénétiquement dans la main de Wang Lin, créant une empreinte de paume gigantesque qui percuta de plein fouet le visage du Dragon des Neuf Abîmes!
+Un fracas tonnerre retentit lors de l'impact. À cet instant, une énergie infinie du ciel et de la terre convergea frénétiquement dans la main de Wang Lin, créant une empreinte de paume gigantesque qui percuta de plein fouet le visage du Dragon des Neuf Abîmes!
 
 Le dragon poussa un cri déchirant alors que son corps tremblait violemment. Des bruits de déchirement résonnèrent tandis que d'innombrables écailles explosaient et que le sang jaillissait dans sa retraite précipitée. La folie dans ses yeux s'éteignit, remplacée par une peur pure!
 
 « Pas mort? » Une lueur étrange passa dans les yeux de Wang Lin, puis il pénétra dans la faille spatiale. Il leva sa main droite et frappa à nouveau, visant les deux cornes du Dragon des Neuf Abîmes.
 
-Un choc tonnerre retentit et le dragon poussa un nouveau cri de douleur. Ses yeux étaient désormais pétris de panique.
+Un choc tonnerre retentit: les deux cornes se brisèrent et le dragon poussa un nouveau cri de douleur. Ses yeux étaient désormais pétris de panique.
 
 Le dragon n'était toujours pas mort après ces deux attaques. Le corps de Wang Lin vacilla et il atterrit avec agilité sur la tête de la créature.
 

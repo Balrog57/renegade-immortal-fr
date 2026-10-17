@@ -26,13 +26,13 @@ Ses yeux étaient empreints de folie. C'était là le tempérament de Wang Lin: 
 
 Le calme et la folie n'étaient pas contradictoires. Un jugement serein, mais des actions insensées!
 
-La boussole devait être détruite, sans quoi elle continuerait de traquer Wang Lin et de le mettre en danger. De plus, avec un tel objet à ses trousses, il resterait à la merci des deux ennemis présents dans ce lieu!
+La boussole devait être détruite, sans quoi elle continuerait de traquer Wang Lin et de le mettre en danger. De plus, tant que cet objet existerait, quiconque voudrait retrouver Wang Lin y parviendrait sans la moindre peine!
 
 Alors que sa main gauche agrippait le trident, la folie dans son regard s'intensifia. Il savait qu'il ne lui restait plus beaucoup de temps avant de perdre connaissance. Ses blessures s'aggravant, il risquait de sombrer à tout instant. Il devait briser cette boussole et trouver un endroit pour se soigner.
 
 Le temps pressait. Wang Lin prit une profonde inspiration, l'intention de combat embrasant son regard. Le feu envahit son œil gauche et l'armure du Vermillon apparut autour de lui. Simultanément, la foudre éclata dans son œil droit, transformant la zone de dix mille pieds autour de lui en un lac de tonnerre.
 
-Le tonnerre grondait tandis que les éclairs serpentaient sur le sol. La terre craquait sous la progression fulgurante de la foudre. Les vestiges de son pouvoir d'Ancien Dieu quittèrent sa main droite pour se rassembler dans le trident qu'il tenait du bras gauche.
+Le tonnerre grondait tandis que les éclairs serpentaient sur le sol. La terre craquait sous la progression fulgurante de la foudre. Les vestiges de son pouvoir d'Ancien Dieu contournèrent son bras droit pour se rassembler frénétiquement dans sa main gauche et couler dans le trident.
 
 À cet instant, un rugissement qui défiait les cieux retentit et Wang Lin s'élança! Une mer de flammes surgit soudainement et une silhouette d'oiseau vermillon enveloppa Wang Lin. C'était comme si l'homme avait pris le contrôle de tous les feux du monde pour charger la boussole!
 

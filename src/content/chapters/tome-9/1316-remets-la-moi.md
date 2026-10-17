@@ -26,7 +26,7 @@ Son bras droit enlaçait tendrement Li Qianmei. Wang Lin ignora ses propres bles
 
 Le ciel étoilé était d'un calme absolu, sans la moindre perturbation. Le monde lui-même semblait s'assombrir. Seuls un homme et une femme volaient silencieusement à travers l'immensité stellaire.
 
-La moitié de l'os de doigt du Dieu Ancien reposait dans l'espace de stockage de Wang Lin. Il n'avait nul esprit à l'étudier. Même l'âme originelle du vieil homme aux cheveux blancs du Clan de la Lune, enveloppée par le Fouet de l'Âme, était scellée pour l'empêcher de bouger et avait été rangée dans son espace de stockage.
+La moitié de l'os de doigt de l'Ancien Dieu reposait dans l'espace de stockage de Wang Lin. Il n'avait nul esprit à l'étudier. Même l'âme originelle du vieil homme aux cheveux blancs du Clan de la Lune, enveloppée par le Fouet de l'Âme, était scellée pour l'empêcher de bouger et avait été rangée dans son espace de stockage.
 
 Wang Lin ne voulait rien qui puisse troubler ce voyage. Il voulait accompagner silencieusement Li Qianmei vers le Maître du Dao Rêve Bleu ou, pour être plus exact, lui faire ses derniers adieux...
 
@@ -42,7 +42,7 @@ La lumière des étoiles drapait leurs corps, semblant les accompagner silencieu
 
 En utilisant continuellement la Distorsion Spatiale, ils traversèrent l'immensité de l'espace pour approcher le Clan de la Soie Bleue. Le domaine stellaire de ce clan se situait dans une région reculée, et Wang Lin avançait en silence.
 
-Le Clan de la Soie Bleue était l'un des rares clans qu'il ne fallait pas s'avancer à combattre. Comme leur nom l'indiquait, les cheveux de leurs membres étaient tous d'un bleu profond.
+Le Clan de la Soie Bleue était l'un des rares clans du Système Stellaire Antique qui n'aimaient pas tuer. Comme leur nom l'indiquait, les cheveux de leurs membres étaient tous d'un bleu profond.
 
 Ce bleu, symbole de douleur et de mélancolie, imprégnait l'âme de chaque membre du clan. Le Clan de la Soie Bleue ne possédait guère de talent pour la culture ou le Dao. À travers les âges, peu de cultivateurs puissants étaient apparus au sein de ce clan, à l'exception du Maître du Dao Rêve Bleu, dont le nom résonnait dans tout le Système Stellaire Antique.
 

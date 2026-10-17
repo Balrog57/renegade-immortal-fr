@@ -40,7 +40,7 @@ Tout en méditant, Wang Lin leva sa main droite et l'agita doucement. Une trace 
 
 Le vent se souleva dans le ciel couvert de nuages sombres. Les nuages chargés de pluie se transformèrent en une fine averse, puis se dissipèrent, laissant la lumière éclatante de la lune tomber sur la terre sans aucun obstacle.
 
-Sous la clarté lunaire, une ombre apparut au pied du Mont Pourpre.
+Sous la clarté lunaire, une zone d'ombre apparut derrière le Mont Pourpre.
 
 Le vent soufflait, faisant osciller la végétation de la montagne dans un bruissement continu.
 
@@ -82,11 +82,11 @@ C'étaient des éléments minuscules. Ces éléments se déplaçaient les uns pa
 
 « Pourrait-on... aller plus loin? » À l'instant même où Wang Lin eut cette pensée, les innombrables éléments s'agrandirent soudainement. Tout comme la flamme elle-même, ils prirent une ampleur gigantesque à une vitesse fulgurante!
 
-Alors que les éléments continuaient de croître, des traces de lignes illusoires apparurent autour d'eux. Cependant, à ce moment précis, l'énergie originelle dans son corps entra en ébullition. Il ressentit une douleur aiguë entre ses sourcils et fut brusquement tiré de sa transe.
+Alors que les éléments continuaient de croître, des filaments floconneux se mirent à flotter autour d'eux. Mais à cet instant, l'énergie originelle dans son corps se mit à gronder. Il ressentit une douleur aiguë entre ses sourcils et fut brusquement tiré de sa transe.
 
 Une sueur froide perla sur son front, trempant entièrement ses vêtements. Wang Lin était livide et prit une profonde inspiration. Il regarda la bougie et murmura: « Qu'était-ce que c'était... cela pourrait-il être l'Origine Source...? »
 
-« J'ai pu saisir cette loi, mais je n'ai entrevu l'Origine Source qu'un instant; mon corps ne peut le supporter. » Wang Lin réfléchit un long moment avant de fermer les yeux pour se mettre en culture.
+« Cette loi, je peux l'explorer à tâtons, mais l'Origine Source, je ne l'ai vue qu'un instant et mon corps n'a pu le supporter. » Wang Lin réfléchit un long moment avant de fermer les yeux pour se mettre en culture.
 
 Le temps passa lentement. L'obscurité devant la fenêtre disparut pour laisser place à la lumière. À l'aube, Wang Lin ouvrit les yeux après sa culture. Un regard capable de percer n'importe quoi se posa alors sur la porte.
 

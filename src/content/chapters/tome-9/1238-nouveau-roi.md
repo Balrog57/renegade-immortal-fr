@@ -26,7 +26,7 @@ La bête de Wang Lin répondit par un cri, mais accéléra soudainement pour fra
 
 Les deux moustiques blancs lancèrent des regards belliqueux et s'apprêtèrent à charger. Même l'aura du roi moustique violet devint instantanément glaciale.
 
-Cependant, à ce moment précis, l'étoile de la loi contenant l'âme originelle de Wang Lin tourna rapidement et s'élança. Elle projeta un éclat fulgurant avant de se transformer en l'âme originelle de Wang Lin!
+Cependant, à ce moment précis, l'Étoile de la Loi contenant l'Âme Originelle de Wang Lin tourna rapidement et s'élança. Elle projeta un éclat fulgurant avant de se transformer en l'Âme Originelle de Wang Lin!
 
 Son apparition provoqua immédiatement un tollé parmi les bêtes moustiques environnantes, qui se précipitèrent toutes en sifflant comme des possédées.
 
@@ -36,27 +36,27 @@ Tout devait se jouer sur la vitesse!
 
 Vitesse!
 
-Dès que l'âme originelle de Wang Lin prit forme, il fit un pas en avant et balaya l'air de sa main droite. Une masse colossale d'énergie originelle se rassembla et s'abattit comme une bourrasque, repoussant les deux moustiques blancs qui flanquaient le roi violet.
+Dès que l'Âme Originelle de Wang Lin prit forme, il fit un pas en avant et balaya l'air de sa main droite. Une immense force du ciel et de la terre se rassembla et s'abattit comme une bourrasque, repoussant les deux moustiques blancs qui flanquaient le roi violet.
 
-Sans s'arrêter, Wang Lin atteignit le roi moustique violet en pleine retraite. Ses yeux brillèrent alors qu'il leva la main gauche et projeta sa paume vers le vide. L'énergie originelle commença à converger frénétiquement; simultanément, la main droite de Wang Lin pointa avec célérité l'arrière de sa main gauche.
+Sans s'arrêter, Wang Lin atteignit le roi moustique violet en pleine retraite. Ses yeux brillèrent alors qu'il leva la main gauche et projeta sa paume vers le vide. La force du ciel et de la terre commença à converger frénétiquement; simultanément, la main droite de Wang Lin pointa avec célérité l'arrière de sa main gauche.
 
-Dès que son doigt eut touché la peau, les cieux et la terre tremblèrent et une énergie originelle infinie s'accumula sur son doigt! Le marquage de l'étoile de la loi scintilla au dos de sa main gauche, se déplaça vers son index et commença à pulser.
+Dès que son doigt eut touché la peau, les cieux et la terre tremblèrent et une énergie originelle infinie, mêlée même d'énergie spirituelle céleste, se précipita et s'accumula sur son doigt! Le marquage de l'Étoile de la Loi scintilla au dos de sa main gauche, se déplaça vers son index et commença à pulser.
 
 Le roi moustique violet ressentit immédiatement une crise de vie ou de mort d'une intensité inédite. Ce sentiment était si puissant qu'il poussa la créature à rugir violemment tout en battant en retraite frénétiquement.
 
-Wang Lin ne cessa pas sa progression. Sa main droite traça un arc et pointa une seconde fois. Lorsque le deuxième doigt toucha sa cible, ce fut comme si d'innombrables éclairs explosaient dans le firmament; on aurait dit que la terre elle-même en tremblait. Une autre étoile de la loi apparut au dos de sa main gauche, glissa vers son majeur et se mit à briller intensément.
+Wang Lin ne cessa pas sa progression. Sa main droite traça un arc et pointa une seconde fois. Lorsque le deuxième doigt toucha sa cible, ce fut comme si d'innombrables éclairs explosaient dans le firmament; on aurait dit que la terre elle-même en tremblait. Une autre Étoile de la Loi apparut au dos de sa main gauche, glissa vers son majeur et se mit à briller intensément.
 
 Alors qu'il avançait, la main droite de Wang Lin bougea encore une fois pour un troisième contact! Cette fois, le sol sembla se fissurer sous l'effet d'un grondement tonitruant qui résonna à travers les cieux et la terre. Un immense vortex apparut dans le ciel, rassemblant des quantités phénoménales d'énergie originelle qui semblèrent être aspirées vers le dos de sa main gauche au gré du mouvement de sa main droite.
 
-Une troisième étoile de la loi apparut et se fixa sur l'annulaire de sa main gauche.
+Une troisième Étoile de la Loi apparut et se fixa sur l'annulaire de sa main gauche.
 
-Tout cela se produisit en un éclair. Wang Lin fit trois pas dans les airs tandis que le roi moustique violet reculait de centaines de pieds, son corps virant au violet alors qu'il plongeait vers le bas.
+Tout cela se produisit en un éclair. Wang Lin fit trois pas dans les airs tandis que le roi moustique violet reculait de centaines de pieds, son corps lançant des éclats violets tandis que ses poils pendants se recourbaient, sur le point de se dresser.
 
 Les bêtes moustiques environnantes accouraient avec acharnement pour tenter d'interrompre ce processus, comme si elles voulaient mettre Wang Lin en pièces! Plus loin encore, les rugissements des moustiques faisaient distordre le ciel alors qu'une marée de créatures se précipitait sur lui.
 
 Le visage de Wang Lin demeura de marbre tandis qu'il faisait un quatrième pas. Sa main droite s'élança vers la voûte céleste, provoquant un tumulte violent dans les cieux. Le vortex qui venait de se former sembla être saisi par Wang Lin avant de se rétracter brusquement. Ce faisant, il concentra la puissance du quatrième doigt, laquelle fut absorbée par le dos de sa main gauche.
 
-La quatrième étoile de la loi était formée!
+La quatrième Étoile de la Loi était formée!
 
 À cet instant, les quatre doigts de Wang Lin contenaient la puissance de la loi; sa main semblait être devenue une Main de la Loi. Dès que le quatrième doigt eut touché sa cible, une empreinte de main s'abattit sur le roi moustique violet dans un fracas de tonnerre!
 
@@ -90,11 +90,11 @@ Aucune autre bête ne pouvait s'immiscer dans un tel duel. Elles n'osaient pas, 
 
 C'était l'élément crucial du plan de Wang Lin! Le roi moustique de Wang Lin projeta sa lumière dorée, poussa un rugissement et chargea telle une foudre d'or, visant directement le roi violet gravement affaibli!
 
-Simultanément, l'âme originelle de Wang Lin se dissipa rapidement pour redevenir l'étoile de la loi et se fondit dans le corps de sa bête moustique. Mais au moment même où elle s'y intégra, Wang Lin exécuta la dernière phase de son plan!
+Simultanément, l'Âme Originelle de Wang Lin se dissipa rapidement pour redevenir l'Étoile de la Loi et se fondit dans le corps de sa bête moustique. Mais au moment même où elle s'y intégra, Wang Lin exécuta la dernière phase de son plan!
 
 Le sort d'Arrêt!
 
-La main droite de son âme originelle se leva pour pointer le roi moustique violet! Dès que son doigt fut tendu, les cieux et la terre tremblèrent. Aucune énergie originelle ne fut sollicitée; seule une énergie spirituelle céleste infinie déferla.
+La main droite de son Âme Originelle se leva pour pointer le roi moustique violet! Dès que son doigt fut tendu, les cieux et la terre tremblèrent. Aucune énergie originelle ne fut sollicitée; seule une énergie spirituelle céleste infinie déferla.
 
 Il utilisait l'énergie spirituelle du Royaume Céleste pour atteindre la puissance absolue du sort d'Arrêt!
 
@@ -106,6 +106,6 @@ Le corps du roi moustique trembla et se flétrit à une vitesse prodigieuse avan
 
 Un rugissement de triomphe jaillit de la créature de Wang Lin. Accompagné de ce cri assourdissant, une pression colossale enveloppa toute la région!
 
-« La naissance d'un nouveau roi moustique! » L'esprit de Song Luohai, caché dans la montagne, trembla. Tout ce qu'il venait de voir avait bouleversé ses certitudes. Il reconnut immédiatement que l'âme originelle qui s'était manifestée n'était pas le sort d'un roi moustique, mais une véritable âme originelle!
+« La naissance d'un nouveau roi moustique! » L'esprit de Song Luohai, caché dans la montagne, trembla. Tout ce qu'il venait de voir avait bouleversé ses certitudes. Il reconnut immédiatement que l'Âme Originelle qui s'était manifestée n'était pas le sort d'un roi moustique, mais une véritable Âme Originelle!
 
-« Il y a l'âme originelle d'un cultivateur dans ce roi moustique! » Les yeux de Song Luohai s'illuminèrent alors qu'il fixait la créature, son cœur manquant un battement.
+« Il y a l'Âme Originelle d'un cultivateur dans ce roi moustique! » Les yeux de Song Luohai s'illuminèrent alors qu'il fixait la créature, son cœur manquant un battement.

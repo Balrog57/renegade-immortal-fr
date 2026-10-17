@@ -8,6 +8,8 @@ slug: quitter-le-clan-de-la-soie-bleue
 ---
 Le clan d'esclaves des dieux anciens, le Clan de la Lune!
 
+Après avoir trahi les dieux anciens, ce clan s'était nommé lui-même « Yueshi » (Lune Dévorante). Le caractère « dévorer » soulignait le cœur dévoreur de dieux du Clan de la Lune. Dès lors, il n'y eut plus de simple Clan de la Lune, mais le clan Yueshi!
+
 Lorsque le Clan de la Lune trahit les dieux anciens, il reçoit l'aide d'un groupe mystérieux. Les sorts de ces individus étaient extrêmement impressionnants et totalement différents de ceux des habitants du Système Stellaire Antique. Ils étaient également très habiles dans l'utilisation des sceaux.
 
 Ce n'est que grâce à leur aide que le Clan de la Lune trouva la confiance et la volonté nécessaires pour trahir les dieux anciens!
@@ -16,7 +18,7 @@ Cependant, même aujourd'hui, le Clan de la Lune n'a pas été en mesure de devi
 
 La rumeur disait que les cultivateurs mystérieux apparus soudainement semblaient avoir conclu des accords avec de nombreux clans, tout en n'ayant que peu de liens avec les concubines impériales antiques...
 
-Ces personnes avaient donné au Clan de la Lune un sort étrange qui leur permettait d'absorber le pouvoir des dieux anciens!
+Le caractère « dévorer » du nom du clan avait été inspiré par ces gens, qui avaient aussi transmis au Clan de la Lune un sort étrange et insondable qui leur permettait d'absorber le pouvoir des dieux anciens!
 
 Wang Lin commença à réfléchir. Il avait fouillé la mémoire du vieil homme et avait obtenu ce sort, mais il n'était pas complet. Ce sort s'appelait le « Sort de l'Esprit Noble ». Tout le monde ne pouvait pas le cultiver, car il nécessitait ce qu'on appelait des « graines d'esprit »!
 
@@ -64,7 +66,7 @@ La femme ne répondit pas. Elle leva la main droite et pointa Wang Lin du doigt!
 
 Sous ce geste, le vortex dans le vide tourna plus rapidement encore, atteignant un paroxysme, avant de foncer vers lui.
 
-Wang Lin eut l'impression d'être pris dans un bourbier, incapable de s'extirper du vortex. Il agita la main droite et deux phantoms de cerfs apparurent entre ses doigts. Dix millions d'ombres d'épées se libérèrent soudainement, créant une force puissante qui balaya le vortex environnant.
+Wang Lin eut l'impression d'être pris dans un bourbier, incapable de s'extirper du vortex. Il agita la main droite et deux fantômes de cerfs apparurent entre ses doigts. Dix millions d'ombres d'épées se libérèrent soudainement, créant une force puissante qui balaya le vortex environnant.
 
 Des grondements tonitruants résonnèrent et le vortex vacilla sous l'impact des ombres d'épées. Wang Lin recula rapidement, s'apprêtant à quitter la zone de turbulence.
 
@@ -82,7 +84,7 @@ La femme en blanc regarda Wang Lin et parla pour la première fois: « La Concub
 
 La femme en blanc hocha la tête et s'avança jusqu'à n'être plus qu'à quelques centimètres de lui. Un léger parfum semblait émaner de son corps et atteindre les narines de Wang Lin, pourtant il ne sentait rien...
 
-« Je n'avais pas l'intention d'absorber votre divinité, mais puisque vous pouvez me voir... je ne peux plus attendre... » La femme en blanc ouvrit la bouche à une distance infime de lui. Ils étaient presque face à face; elle n'était plus floue et son apparence se dessinait clairement sous les yeux de Wang Lin.
+« Je n'avais pas l'intention d'absorber votre divinité, mais puisque vous pouvez me voir... je ne peux plus attendre... » La femme en blanc ouvrit la bouche à moins de sept pouces de lui. Ils étaient presque face à face; elle n'était plus floue et son apparence se dessinait clairement sous les yeux de Wang Lin.
 
 Dès qu'il put distinguer ses traits, les pupilles de Wang Lin se contractèrent. Un tonnerre gronda dans son esprit et il fut momentanément hébété.
 
@@ -94,17 +96,17 @@ Alors qu'elle inspirait, les étoiles du dieu ancien apparurent entre les sourci
 
 Cependant, à cet instant précis, l'hébétude dans les yeux de Wang Lin disparut, remplacée par une clarté limpide!
 
-« Monde! » Un monde surgit tel un vent glacial, et une onde jaillit du corps de Wang Lin. Une lumière noire se propagea depuis lui! Le Monde des Vents et des Pluies, contenant les Flammes Joss de Wang Lin, explosa!
+« Monde! » Un monde surgit tel un vent glacial, et une onde jaillit du corps de Wang Lin. Une lumière noire se propagea depuis lui! Le Monde du Vent et de la Pluie, contenant les Flammes Joss de Wang Lin, explosa!
 
-La femme en blanc était trop proche. Tandis que la lueur fantomatique scintillait, le Monde des Vents et des Pluies s'étendit soudainement sur 10 000 pieds. La femme ne put que reculer sous la force de cette expansion! Son expression changea brusquement!
+La femme en blanc était trop proche. Tandis que la lueur fantomatique scintillait, le Monde du Vent et de la Pluie s'étendit soudainement sur 10 000 pieds. La femme ne put que reculer sous la force de cette expansion! Son expression changea brusquement!
 
-Simultanément, la fumée dorée se contracta dès l'expansion du Monde des Vents et des Pluies. La femme n'en absorba aucune particule; tout retourna dans les étoiles du dieu ancien de Wang Lin!
+Simultanément, la fumée dorée se contracta dès l'expansion du Monde du Vent et de la Pluie. La femme n'en absorba aucune particule; tout retourna dans les étoiles du dieu ancien de Wang Lin!
 
 Une lueur sanguine monstrueuse jaillit alors que l'épée de sang tournait autour de Wang Lin. Elle perça la main de jade qui le retenait. La main se brisa et Wang Lin se libéra.
 
 Tout ce qui venait de se produire faisait partie du plan de Wang Lin. Il voulait connaître l'identité de cette femme et ses intentions! Ce n'est qu'en sachant tout cela qu'il pourrait l'affronter avec calme! Plus important encore, il avait pris ce risque pour confirmer la conjecture qu'il avait formulée dès le premier regard!
 
-Bien que la femme en blanc ait été repoussée de 10 000 pieds par le Monde des Vents et des Pluies, une lueur de froideur traversa ses yeux. Elle agita la main droite et une gigantesque fissure spatiale se déchira dans le vide. Cette faille semblait prête à dévorer tout ce qui se trouvait sur son passage et fonça vers Wang Lin.
+Bien que la femme en blanc ait été repoussée de 10 000 pieds par le Monde du Vent et de la Pluie, une lueur de froideur traversa ses yeux. Elle agita la main droite et une gigantesque fissure spatiale se déchira dans le vide. Cette faille semblait prête à dévorer tout ce qui se trouvait sur son passage et fonça vers Wang Lin.
 
 Elle avança également!
 
@@ -114,4 +116,4 @@ Wang Lin ricana alors que le monde autour de lui se contractait pour former une 
 
 La femme en blanc se rapprocha en disant: « C'est le Maître du Dao Rêve Bleu qui vous a dit cela! »
 
-« Sceau de la Révocation Céleste! » La main droite de Wang Lin s'abattit immédiatement! Le monde dans les pupilles de Wang Lin tourna, et l'univers extérieur changea instantanément avec lui!
+« Sceau d'Inversion Céleste! » La main droite de Wang Lin s'abattit immédiatement! Le monde dans les pupilles de Wang Lin tourna, et l'univers extérieur changea instantanément avec lui!

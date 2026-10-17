@@ -12,7 +12,7 @@ Il n'aura fallu que deux jours, une quantité massive de pierres spirituelles et
 
 Les enchères de Peng Lai étaient d'une importance capitale, et les objets mis en vente étaient tous extrêmement précieux. C'était précisément cette vente qui attirait autant de vieux monstres à Peng Lai.
 
-L'événement se déroulait sur la place centrale de la ville principale de Peng Lai. Il ne s'agissait pas d'enchères ouvertes à tous; seuls ceux possédant une invitation étaient autorisés à y pénétrer. Un grand nombre de cultivateurs de la Secte du Jade Précieux patrouillaient dans un périmètre de 100 000 pieds pour empêcher toute intrusion.
+L'événement se déroulait sur la place centrale de la ville principale de Peng Lai. Il ne s'agissait pas d'enchères ouvertes à tous; seuls ceux possédant une invitation étaient autorisés à y pénétrer. Un grand nombre de cultivateurs de la Secte du Jade Précieux patrouillaient dans un périmètre de 10 000 pieds pour empêcher toute intrusion.
 
 Alors que les enchères approchaient, les vieux monstres des diverses sectes arrivèrent, entrant grâce à leurs jades d'invitation. Wang Lin, également intrigué par cet événement, vola calmement vers le centre de la ville principale.
 
@@ -26,7 +26,7 @@ L'arrivée de Wang Lin attira immédiatement l'attention de l'assemblée. Tous l
 
 Li Qianmei remarqua le regard de Wang Lin et eut un léger rire. Ses yeux brillaient comme des étoiles.
 
-Peu après l'entrée de Wang Lin sur la place, un Ancien vêtu de rouge entra, accompagné d'un homme d'âge moyen. En voyant Wang Lin, il laissa échapper un rire sonore: « C'est un honneur pour mon humble Secte du Jade Précieux que le Compagnon Cultivateur Lu vienne assister à mes enchères. »
+Peu après l'entrée de Wang Lin sur la place, un Ancien vêtu de rouge entra, accompagné de quatre hommes d'âge moyen. En voyant Wang Lin, il laissa échapper un rire sonore: « C'est un honneur pour mon humble Secte du Jade Précieux que le Compagnon Cultivateur Lu vienne assister à mes enchères. »
 
 Wang Lin connaissait cet Ancien; il faisait partie des personnes qui l'avaient rendu visite ces deux derniers jours au nom de la Secte du Jade Précieux.
 
@@ -54,7 +54,7 @@ Ces seize tablettes surgirent de la terre et s'immobilisèrent à mille pieds d'
 
 Comme la plupart de ces cultivateurs avaient déjà participé à ces enchères, ils n'en furent pas surpris. Ils se dispersèrent et s'installèrent sur les différentes tablettes selon leur niveau de culture et leur statut.
 
-Wang Lin, d'un air calme, fit un pas en avant et vint s'asseoir au-dessus de l'une des seize tablettes de première ligne. Personne ne fut étonné par sa position; cela semblait évident pour tous. En observant les alentours, il nota que tous les cultivateurs assis sur ces seize grandes tablettes étaient des vieux monstres de niveau Briseur du Nirvana, et il en connaissait la plupart. Une fois l'installation terminée, une silhouette gracieuse rejoignit Wang Lin sur sa tablette. Li Qianmei lui adressa un regard et s'assit tranquillement à ses côtés.
+Wang Lin, d'un air calme, fit un pas en avant et vint s'asseoir au-dessus de l'une des seize tablettes de première ligne. Personne ne fut étonné par sa position; cela semblait évident pour tous. En observant les alentours, il nota que tous les cultivateurs assis sur ces seize grandes tablettes étaient des vieux monstres de niveau Briseur du Nirvana, et il en connaissait la plupart. Une fois l'installation terminée, une silhouette gracieuse rejoignit Wang Lin sur sa tablette. Li Qianmei lui adressa un clin d'œil et s'assit tranquillement à ses côtés.
 
 Une fois installée, elle murmura comme pour elle-même: « Je vais bientôt partir. »
 
@@ -100,11 +100,11 @@ Wang Lin ne répondit pas, préférant fixer la peinture dans les mains de l'Anc
 
 À ses mots, toutes les offres cessèrent instantanément. Les regards se tournèrent vers lui, mais plus personne n'osa enchérir. Nul ne voulait défier Wang Lin. L'affaire de Wu Qing était connue de tous; si ce dernier était mort, outre sa cupidité, c'était parce qu'il avait tenté de rivaliser avec ce démon pour un trésor.
 
-La main droite de Wang Lin s'étira dans le vide et saisit le parchemin des mains de l'Ancien. Il l'ouvrit, remit une large somme, puis se retourna. C'était la première fois qu'il regardait vraiment le visage sublime de Li Qianmei, capable de faire bondir les cœurs, et ses yeux si paisibles.
+La main droite de Wang Lin s'étira dans le vide et saisit le parchemin des mains de l'Ancien. Il l'ouvrit, y jeta un coup d'œil et le rangea, puis se retourna. C'était la première fois qu'il regardait vraiment le visage sublime de Li Qianmei, capable de faire bondir les cœurs, et ses yeux si paisibles.
 
 « Un cadeau pour toi! », dit Wang Lin en lui tendant la peinture.
 
-Li Qianmei resta pensive. Après un long moment, elle sourit et accepta le présent. Elle se leva, mordillant sa lèvre inférieure, et murmura: « Si jamais tu trouves l'homme qui a découvert le jade de la Secte Brise-Ciel, transmets-lui ce message: la Secte Brise-Ciel l'accueille. »
+Li Qianmei resta pensive. Après un long moment, elle sourit et accepta le présent. Elle se leva, mordillant sa lèvre inférieure, et murmura: « Si jamais tu trouves l'homme que ma Secte Brise-Ciel cherche, transmets-lui ce message: la Secte Brise-Ciel l'accueille. »
 
 Une fois ses paroles prononcées, elle ne regarda plus Wang Lin et s'élança telle un papillon dansant. Ses cheveux noirs se transformèrent soudainement en une magnifique teinte bleue et elle disparut progressivement sous les yeux des cultivateurs. Elle tenait toujours la peinture contre elle.
 

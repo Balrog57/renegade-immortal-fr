@@ -20,7 +20,7 @@ Seule la profondeur de son regard trahissait une lutte cachée et frénétique. 
 
 Une lumière rouge s'accumula devant Yao Yun. Bientôt, une silhouette émergea de cette lueur aveuglante.
 
-L'individu portait une robe ample rouge sang, et ses cheveux roux flottaient sans qu'aucun vent ne les agite. Il dégageait une aura antique qui contenait un soupçon presque imperceptible d'aura démoniaque. C'était l'ancêtre de la famille Yao: le Dieu de Sang!
+L'individu portait une robe ample rouge sang, et ses cheveux rouges flottaient sans qu'aucun vent ne les agite. Il dégageait une aura antique qui contenait un soupçon presque imperceptible d'aura démoniaque. C'était l'ancêtre de la famille Yao: le Dieu de Sang!
 
 À son apparition, il agita nonchalamment sa main droite, et le sceau démoniaque sur Yao Yun devint plus puissant. La lutte dans les yeux de Yao Yun finit par disparaître totalement.
 
@@ -38,59 +38,59 @@ Alors que le tumulte se propageait, l'espace se modifia et même les nuages de l
 
 C'était comme si, dans ce périmètre, le Dieu de Sang était un véritable être céleste!
 
-« Des paroles qui contiennent la Loi! » haleta Wang Lin. Cultiver des mots contenant la Loi à un tel degré était absolument stupéfiant. Bien qu'il ne comprît pas comment le Dieu de Sang parvenait à altérer les lois par la parole, il pouvait ressentir une force aussi terrifiante que si des dizaines de milliers de Coupures Célestes frappaient simultanément.
+« Des paroles qui contiennent la Loi! » haleta Wang Lin. Cultiver des mots contenant la Loi à un tel degré était absolument stupéfiant. Bien qu'il ne comprît pas comment le Dieu de Sang parvenait à altérer les lois par la parole, il pouvait ressentir une force aussi terrifiante que si des dizaines de milliers de Tranchants Célestes frappaient simultanément.
 
 C'était comme si tout ce qui se trouvait dans la zone s'effondrait sous le poids de ces mots. Le corps de Wang Lin fut lui aussi affecté!
 
 Sans aucun avertissement, dès l'instant où ces paroles furent prononcées, le grand fourneau apparut immédiatement devant lui. Malgré cela, il cracha une importante quantité de sang et son visage devint d'une pâleur mortelle.
 
-« Ce Dieu de Sang doit être blessé. Il est impossible qu'il se soit rétabli de l'étoile brisée d'un dieu ancien en si peu de temps! »
+« Ce Dieu de Sang doit être blessé. Il est impossible qu'il se soit rétabli de la frappe brise-étoiles du jeune enfant de l'ancien dieu en si peu de temps! »
 
 Après avoir recraché du sang, Wang Lin recula plus vite encore tout en criant:
 
 « N'est-ce pas un peu excessif pour un aîné d'attaquer un junior? Si cela s'ébruite, le nom de la famille Yao sera ruiné! »
 
-L'expression du Dieu de Sang était glaciale alors qu'il levait sa main droite. Il dit doucement: « Si tu échappes à mon sort céleste, considère cela comme ta chance! » Tandis qu'il parlait, une lumière rouge se concentra au bout de son doigt. Un avaleur de sang apparut instantanément et fondit sur Wang Lin.
+L'expression du Dieu de Sang était glaciale alors qu'il levait sa main droite. Il dit doucement: « Si tu échappes à mon sort céleste, considère cela comme ta chance! » Tandis qu'il parlait, une lumière rouge se concentra au bout de son doigt. Une hirondelle ensanglantée apparut instantanément et fondit sur Wang Lin.
 
 Le visage de Wang Lin était livide. Tout en reculant, il sortit la montagne céleste. N'ayant pas le temps de regretter sa perte, il la lança en criant: « Âme, explose! »
 
-Il avait obtenu cette montagne céleste de la part d'Avarice et, après en avoir extrait l'âme, elle était devenue extrêmement puissante. Même si l'âme n'avait pas été extraite, l'explosion de l'âme était d'une puissance décuplée!
+Il avait obtenu cette montagne céleste de la part d'Avarice. Elle renfermait une âme de montagne et, une fois celle-ci extraite, sa puissance était sans limite. Cette fois, l'âme n'était pas sortie, mais la faire exploser de l'intérieur était d'une puissance plus violente encore!
 
-Au moment où l'avaleur de sang approchait, la montagne céleste explosa, créant une tempête violente. Cette tempête était redoutable et, grâce à l'âme qu'elle renfermait, elle forma un immense vortex. Des rafales d'aura destructrice s'échappaient de ce tourbillon.
+Au moment où l'hirondelle ensanglantée approchait, la montagne céleste explosa, créant une tempête violente. Cette tempête était redoutable et, grâce à l'âme qu'elle renfermait, elle forma un immense vortex. Des rafales d'aura destructrice s'échappaient de ce tourbillon.
 
 Wang Lin recula rapidement et libéra le Sceau Céleste de Scellement. Sa main traçant un sceau, l'artéfact s'élança vers l'avant.
 
 Cependant, à cet instant précis, une scène fit se rétracter les pupilles de Wang Lin.
 
-Au moment où l'avaleur de sang et la tempête de la montagne effondrée étaient sur le point de percuter, l'oiseau ouvrit la gueule et aspira négligemment. Soudain, la tempête terrifiante fut attirée par une succion inimaginable et fut intégralement engloutie par l'avaleur de sang.
+Au moment où l'hirondelle ensanglantée et la tempête de la montagne effondrée se percutèrent, l'oiseau ouvrit le bec et aspira négligemment. Soudain, la tempête terrifiante fut attirée par une succion inimaginable et fut intégralement engloutie par l'hirondelle ensanglantée.
 
 Tout s'était produit avec une rapidité fulgurante. Dès que la montagne céleste s'effondra, elle disparut subitement.
 
-L'avaleur de sang brilla intensément et chargea vers Wang Lin. Le Sceau Céleste de Scellement s'élança pour faire obstruction. Tandis que les mains de Wang Lin formaient un nouveau sceau, des centaines de milliers de sceaux dorés convergèrent vers l'avaleur de sang.
+L'hirondelle ensanglantée brilla intensément et chargea vers Wang Lin. Le Sceau Céleste de Scellement s'élança pour faire obstruction. Tandis que les mains de Wang Lin formaient un nouveau sceau, des centaines de milliers de sceaux dorés convergèrent vers l'hirondelle ensanglantée.
 
-Pourtant, l'avaleur de sang ouvrit la gueule et recracha le vortex. Mais celui-ci était désormais sous son contrôle. La force destructrice à l'intérieur rugissait en entrant constamment en collision avec les sceaux dorés qui arrivaient.
+Pourtant, l'hirondelle ensanglantée ouvrit le bec et recracha le vortex. Mais celui-ci était désormais sous son contrôle. La force destructrice à l'intérieur rugissait en entrant constamment en collision avec les sceaux dorés qui arrivaient.
 
 « Quel genre de sort céleste est-ce là?! Dévorer mon sens divin est une chose, mais après l'avoir dévoré, il peut même l'utiliser! »
 
-L'expression de Wang Lin devint sombre alors qu'il fixait l'avaleur de sang. Il serra les dents et frappa son sac de stockage pour faire apparaître le troisième Chariot de Guerre de l'Extermination des Dieux. Celui-ci s'envola et se transforma en papillon.
+L'expression de Wang Lin devint sombre alors qu'il fixait l'hirondelle ensanglantée. Il serra les dents et frappa son sac de stockage pour faire apparaître le troisième Char de Guerre Divin. Celui-ci s'envola et se transforma en papillon.
 
 À l'instant où le papillon apparut, les yeux du Dieu de Sang se plissèrent et il fronça légèrement les sourcils.
 
-L'avaleur de sang jaillit à travers les sceaux dorés et fonça sur Wang Lin. À cet instant, le papillon battit doucement des ailes.
+L'hirondelle ensanglantée jaillit à travers les sceaux dorés et fonça sur Wang Lin. À cet instant, le papillon battit doucement des ailes.
 
-Les yeux de l'avaleur de sang brillèrent d'un rouge vif et son corps s'immobilisa. Il ouvrit la gueule pour aspirer l'air.
+Les yeux de l'hirondelle ensanglantée brillèrent d'un rouge vif et son corps s'immobilisa. Elle ouvrit le bec pour aspirer le vide.
 
-Les ailes du papillon battirent à nouveau, libérant cette fois une poudre colorée. L'avaleur de sang poussa un cri et chargea le papillon.
+Les ailes du papillon battirent à nouveau, libérant cette fois une poudre colorée. L'hirondelle ensanglantée poussa un cri strident et chargea le papillon.
 
-Le papillon formé par le Chariot de Guerre de l'Extermination des Dieux continua de battre des ailes. Chaque fois que l'avaleur de sang parvenait à parcourir une certaine distance, il devait s'arrêter pour dévorer. Par conséquent, sa progression était considérablement ralentie.
+Le papillon formé par le Char de Guerre Divin continua de battre des ailes. Chaque fois que l'hirondelle ensanglantée parvenait à parcourir une certaine distance, elle devait s'arrêter pour absorber. Par conséquent, sa progression était considérablement ralentie.
 
-L'expression du Dieu de Sang resta froide alors qu'il levait la main droite et pointait le doigt. L'avaleur de sang brilla plusieurs fois plus fort qu'auparavant. Il semblait avoir franchi une sorte de limite et se rapprochait rapidement.
+L'expression du Dieu de Sang resta froide alors qu'il levait la main droite et pointait le doigt. L'hirondelle ensanglantée brilla plusieurs fois plus fort qu'auparavant. Elle semblait avoir franchi une sorte de limite et se rapprochait rapidement.
 
-Le papillon vola vers l'avant. Alors que l'avaleur de sang approchait, le papillon commença à tournoyer autour de lui, battant des ailes et libérant sa poudre colorée. La lumière sanguine entourant l'oiseau s'estompa jusqu'à ce qu'il soit enveloppé d'une aura aux cinq couleurs. Il ne chargeait plus, mais se déplaçait au rythme du papillon.
+Le papillon vola vers l'avant. Alors que l'hirondelle ensanglantée approchait, le papillon commença à tournoyer autour d'elle, battant des ailes et libérant sa poudre colorée. La lumière sanguine entourant l'oiseau s'estompa jusqu'à ce qu'il soit enveloppé d'une aura aux cinq couleurs. Il ne chargeait plus, mais se déplaçait au rythme du papillon.
 
 La scène était bien étrange, mais Wang Lin pouvait clairement voir que le papillon s'affaiblissait considérablement. Il était évident que même pour lui, lutter contre un tel sort était une épreuve difficile.
 
-L'avaleur de sang accompagna le papillon et revint vers Wang Lin. Il n'attaqua pas ce dernier, mais vola à ses côtés, tout comme le papillon.
+L'hirondelle ensanglantée accompagna le papillon et revint vers Wang Lin. Elle n'attaqua pas ce dernier, mais vola à ses côtés, tout comme le papillon.
 
 Wang Lin recula sans hésiter, suivi de près par le Sceau Céleste de Scellement.
 
@@ -110,10 +110,10 @@ Le Dieu de Sang ne daigna même pas regarder la foudre de la tribulation et fit 
 
 Cette tentative de saisie était d'une simplicité absolue, dénuée de toute puissance apparente. Pourtant, quand Wang Lin la vit, son esprit vacilla comme s'il n'existait aucun moyen de l'esquiver!
 
-La tribulation divine se rapprochait, tout comme la main du Dieu de Sang. Dans ce moment de crise extrême, les yeux de Wang Lin devinrent glacials et il hurla: « Connaissez-vous le Démon Ancien Bei Lou?! »
+La tribulation divine se rapprochait, tout comme la main du Dieu de Sang. Dans ce moment de crise extrême, les yeux de Wang Lin devinrent glacials et il hurla: « Connaissez-vous l'ancien démon Bei Luo?! »
 
 Le corps du Dieu de Sang s'immobilisa soudainement et ses yeux projetèrent une lueur démoniaque. Une lueur maléfique apparut entre ses sourcils tandis qu'un gaz noir se rassemblait rapidement. Une silhouette démoniaque dotée de deux cornes surgit!
 
 Dès son apparition, son rugissement résonna dans l'âme originelle de Wang Lin.
 
-« Bei Lou! Où ça?! »
+« Bei Luo! Où ça?! »

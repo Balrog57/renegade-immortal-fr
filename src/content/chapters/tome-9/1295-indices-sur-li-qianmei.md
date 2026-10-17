@@ -42,7 +42,7 @@ Sans cette lumière sanguine, l'âme de Wang Lin serait restée prisonnière de 
 
 C'est grâce à cette lumière sanguine qu'il avait pu trouver le Seigneur du Royaume Scellé et entrer dans le domaine du Dao pour comprendre son premier sort de Dao.
 
-« Sort Dao... C'est le sort que j'ai compris dans le domaine du Dao. C'est mon troisième sort, après Nuit Brisée et Temps Fluide. C'est un véritable sort de Dao... »
+« Dao des Rêves... C'est ce que j'ai compris dans le domaine du Dao. C'est mon troisième sort, après Nuit Brisée et Temps Fluide. C'est un véritable sort de Dao... »
 
 Wang Lin laissa échapper un soupir. Plus il repensait aux paroles de la vieille femme, plus il songeait à cette lumière sanguine au sein de la Perle Défiant le Ciel. Il avait le sentiment d'être encore plus redevable envers Li Qianmei, et se sentait incapable de l'en remercier.
 

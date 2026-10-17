@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1146 - The Hope of the Heaven Defying Bead Reaching Completion a Second Time
 slug: lespoir-de-la-perle-defiant-le-ciel-atteignant-sa-completion-une-seconde-fois
 ---
-« Il m'en manque encore neuf. Cependant, tous les Tigres Stellaires de la zone ont disparu, je dois donc aller plus loin… » L'homme d'âge moyen afficha un sourire amer, mais avant qu'il ne puisse continuer, son expression changea soudainement. Il leva sa main droite vers le vide, créant une fissure dans l'espace pour atteindre son espace de stockage. Un jade en sortit et se brisa instantanément, révélant un fragment d'âme.
+« Il m'en manque encore neuf. Cependant, tous les Tigres Stellaires de la zone ont disparu, je dois donc aller plus loin… » L'homme d'âge moyen afficha un sourire sombre, mais avant qu'il ne puisse continuer, son expression changea soudainement. Il leva sa main droite vers le vide, créant une fissure dans l'espace pour atteindre son espace de stockage. Un jade en sortit et se brisa instantanément, révélant un fragment d'âme.
 
 Le fragment d'âme avait la forme de Lu Di. Ses yeux étaient empreints de la terreur précédant sa mort, avant de se dissiper devant l'homme d'âge moyen.
 
@@ -38,7 +38,7 @@ L'homme d'âge moyen leva la tête et regarda la brume stellaire devant lui. Apr
 
 « Il n'était pas comme ça auparavant… » Cette silhouette semblait plus sombre encore.
 
-L'expression du vieil homme devint de plus en plus pâle. Après avoir hésité un instant, il serra les dents et dit: « Maître de Secte, avant que le Jeune Maître ne parte, ce vieil homme a entendu Song Wude dire… dire que le Jeune Maître se rendait à la Mer des Nuages Violets pour s'emparer de l'Étendard Yin Céleste que la Secte du Dao Pourpre y avait laissé. Après avoir pris l'âme originelle de Lu Yanfei, il comptait utiliser toutes les âmes originelles féminines qu'il avait collectées pour nourrir un Céleste Yin. »
+L'expression du vieil homme devint de plus en plus pâle. Après avoir hésité un instant, il serra les dents et dit: « Maître de Secte, avant que le Jeune Maître ne parte, ce vieil homme a entendu Song Wude dire… dire que le Jeune Maître se rendait à la Mer des Nuages Violets pour s'emparer de l'Étendard Yin Céleste que la Secte du Dao Pourpre y avait laissé. Après avoir pris l'âme de Lu Yanfei, il comptait utiliser toutes les âmes de femmes qu'il avait collectées pour nourrir un Céleste Yin. »
 
 La silhouette de l'homme d'âge moyen s'arrêta net et le calme dans ses yeux vola en éclats. Une rage monstrueuse se manifesta, mais un sentiment de peur et de panique envahit également son corps.
 
@@ -72,9 +72,9 @@ Le corps de Lu Yanfei trembla, mais elle ne s'arrêta pas. Elle maintint son cal
 
 Xu Yun ne comprenait pas ses paroles, mais avec l'esprit sagace de Wang Lin, il comprit parfaitement. Lu Yanfei était certaine qu'il était l'homme aux cheveux blancs. Dans son esprit, pour quelqu'un de son niveau de culture, se cacher dans la Secte de l'Origine signifiait soit chercher quelque chose ici, soit fuir des ennemis.
 
-Cependant, Lu Yanfei ne voyait rien que Wang Lin puisse convoiter, elle fut donc convaincue qu'il fuyait ses ennemis. Par conséquent, si Wang Lin voulait rester à la Secte de l'Origine, il lui fallait une identité pour ne éveiller aucun soupçon. Ce que Lu Yanfei venait de faire, c'était de lui offrir cette identité. Quant aux ennemis de Wang Lin, elle choisissait évidemment d'ignorer leur existence.
+Cependant, Lu Yanfei ne voyait rien que Wang Lin puisse convoiter, elle fut donc convaincue qu'il fuyait ses ennemis. Par conséquent, si Wang Lin voulait rester à la Secte de l'Origine, il lui fallait une identité pour n'éveiller aucun soupçon. Ce que Lu Yanfei venait de faire, c'était de lui offrir cette identité. Quant aux ennemis de Wang Lin, elle choisissait évidemment d'ignorer leur existence.
 
-Wang Lin avait rencontré d'innombrables personnes au cours de sa vie, mais peu de femmes étaient aussi intelligentes. Différente de l'humeur changeante de Liu Mei, différente de l'arrogance de Papillon Rouge, différente de la douceur de Li Muwan. C'était là de la sagesse, une sagesse inégalée!
+Wang Lin avait rencontré d'innombrables personnes au cours de sa vie, mais peu de femmes étaient aussi intelligentes. Différente de l'humeur changeante de Liu Mei, différente de l'arrogance de Papillon Rouge, différente de la douceur de Li Muwan. C'était là de la perspicacité, une perspicacité qui ne se dévoile pas à la légère!
 
 Après réflexion, Wang Lin esquissa un sourire et murmura: « Lu Zihao… Cette identité me permettra de prendre racine dans le Système Stellaire de la Mer des Nuages! »
 
@@ -82,15 +82,15 @@ La raison pour laquelle Wang Lin accordait tant d'importance à son identité r�
 
 Avec son niveau de culture, gérer la question de son identité était complexe. Bien que cela ne résolve pas tout parfaitement, cela lui offrait une voie pour y parvenir.
 
-Ne pensant plus à cela, Wang Lin posa sa main droite sur le lotus noir; son Sens Divin se déploya alors pour l'étudier. Si ce lotus n'était qu'un simple trésor, il ne lui accorderait pas tant d'attention. Cependant, en l'examinant avec son Sens Divin, il fut surpris de découvrir que ce lotus était une véritable plante. Quelques simples formations de lois servaient de sceau.
+Ne pensant plus à cela, Wang Lin posa sa main droite sur le lotus noir; son Sens Divin se déploya alors pour l'étudier. Si ce lotus n'était qu'un simple trésor, il ne lui accorderait pas tant d'attention. Cependant, en l'examinant avec son Sens Divin, il fut surpris de découvrir que ce lotus était une véritable plante. Seules quelques formations simples avaient été ajoutées par la suite pour le sceller légèrement.
 
 « Il est étrange qu'un système stellaire comme celui-ci abrite un trésor naturellement formé. Si le sceau sur le lotus est brisé, il peut engendrer une protection puissante. C'est en effet fascinant. » Wang Lin reposa le lotus et prit le sac de rangement du jeune homme vêtu de violet.
 
-Le sac contenait de nombreux objets divers. Outre les armes et pilules éparpillées, trois choses attirèrent l'attention de Wang Lin: une bouteille entièrement violette, un petit drapeau doré et un bâton d'encens de la taille d'un bras de nourrisson. Quant aux jades célestes, il y en avait très peu, moins de cent pièces.
+Le sac contenait de nombreux objets divers. Outre des objets obscènes et quelques trésors magiques épars, trois choses attirèrent l'attention de Wang Lin: une bouteille entièrement violette, un petit drapeau doré et un bâton d'encens de la taille d'un bras de nourrisson. Quant aux jades célestes, il y en avait très peu, moins de cent pièces.
 
 « Malheureusement, après avoir atteint le stade du Purificateur du Nirvana, on n'utilise plus de sac de rangement. Un espace de stockage personnel est impossible à trouver pour un étranger, même après la mort. Sinon, ce cultivateur du Purificateur du Nirvana m'aurait peut-être laissé de meilleurs trésors et pilules. » Wang Lin secoua la tête en saisissant le drapeau doré. Après l'avoir scanné avec son Sens Divin, son expression devint sombre.
 
-Ce petit drapeau était saturé d'énergie Yin. En déployant son Sens Divin à travers lui, il découvrit immédiatement les âmes Yin de plus de cent femmes. Toutes étaient belles, certaines même d'une beauté incomparable. Cependant, elles semblaient toutes misérables, enfermées dans le sceau sans pouvoir s'échapper. Une âme de serpent résidait à l'intérieur et semblait dévorer ces femmes. Au moment où le Sens Divin de Wang Lin l'effleura, la créature sembla être réveillée de son sommeil et libéra une aura terrifiante. Même les yeux de Wang Lin se contractèrent face à cette aura.
+Ce petit drapeau était saturé d'énergie Yin. En déployant son Sens Divin à travers lui, il découvrit immédiatement les âmes Yin de pas moins de plusieurs centaines de femmes. Toutes étaient belles, certaines même d'une beauté incomparable. Cependant, elles semblaient toutes misérables, enfermées dans le sceau sans pouvoir s'échapper. Une âme de serpent résidait à l'intérieur et semblait dévorer ces femmes. Au moment où le Sens Divin de Wang Lin l'effleura, la créature sembla être réveillée de son sommeil et libéra une aura terrifiante. Même les yeux de Wang Lin se contractèrent face à cette aura.
 
 « C'est… » L'esprit de Wang Lin fut secoué et son Sens Divin recula devant l'attaque de l'âme de la bête. Il fixa le drapeau doré, les pupilles rétractées.
 

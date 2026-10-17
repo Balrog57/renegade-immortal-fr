@@ -16,13 +16,13 @@ Maître Yan Leizi avait emprunté des fragments du Royaume Céleste du Tonnerre 
 
 Si Maître Yan Leizi devait combattre Wang Lin à cet instant, il perdrait sans aucun doute!
 
-Ces cent continents sauvages dégageaient une pression colossale, mais Wang Lin continuait de la réprimer jusqu'à ce qu'elle soit dissimulée. Il n'était pas assez arrogant pour croire pouvoir tromper un cultivateur du troisième niveau, mais il voulait que sa puissance se condense en un point précis avant l'éruption!
+Ces cent continents sauvages dégageaient une pression colossale, mais Wang Lin continuait de la réprimer jusqu'à ce qu'elle soit dissimulée. Il n'était pas assez arrogant pour croire pouvoir tromper un cultivateur de la troisième étape, mais il voulait que sa puissance se condense en un point précis avant l'éruption!
 
 Au cours de tous ses combats de vie ou de mort jusqu'à présent, Wang Lin avait rarement consenti à une préparation aussi effrénée en si peu de temps. Chaque mesure supplémentaire représentait une ligne de survie de plus dans cette lutte acharnée.
 
-Cette fois, Wang Lin savait qu'un cultivateur du troisième niveau cherchait sa mort, et ses chances de survie étaient quasi nulles. Si n'importe qui d'autre que lui avait été à sa place, il aurait probablement déjà sombré dans le désespoir, sans aucune volonté de résister. Après tout, face à un cultivateur du troisième niveau, toutes les préparations semblaient vaines.
+Cette fois, Wang Lin savait qu'un cultivateur de la troisième étape cherchait sa mort, et ses chances de survie étaient quasi nulles. Si n'importe qui d'autre que lui avait été à sa place, il aurait probablement déjà sombré dans le désespoir, sans aucune volonté de résister. Après tout, face à un cultivateur de la troisième étape, toutes les préparations semblaient vaines.
 
-Pourtant, Wang Lin était un cultivateur défiant le ciel et un Dieu Ancien Royal. Sa fierté, sa dignité et sa nature rebelle ne lui permettraient pas de céder. Même un cultivateur du troisième niveau ne pourrait l'incliner!
+Pourtant, Wang Lin était un cultivateur défiant le ciel et un Dieu Ancien Royal. Sa fierté, sa dignité et sa nature rebelle ne lui permettraient pas de céder. Même un cultivateur de la troisième étape ne pourrait l'incliner!
 
 « Je peux mourir, mais je mourrai en combattant, et non par une mort humiliante. Si tu veux me tuer, tu devras en payer le prix! » Les yeux de Wang Lin étaient injectés de sang après cinq jours consécutifs de préparation. Il prit une profonde inspiration, ses mains formèrent un sceau, puis il ouvrit soudainement les bras.
 
@@ -38,9 +38,9 @@ Les bêtes féroces des continents sauvages tremblèrent toutes et poussèrent d
 
 Les innombrables bêtes féroces poussèrent des rugissements fracassants qui résonnèrent à travers toute la région de rang 5. Tous les cultivateurs de cette région ressentirent ce choc; ceux dont le niveau de culture était faible commencèrent même à avoir des hallucinations, incapables de contrôler leur esprit.
 
-Alors que les bêtes s'effondraient, ces tatouages flottèrent au-dessus des continents, créant une pression stupéfiante. Cette pression suffisait à détruire un cultivateur du stade tardif de la Destruction du Nirvana. Son corps s'effondrerait instantanément et il serait difficile pour son âme originelle d'échapper à la mort!
+Alors que les bêtes s'effondraient, ces tatouages flottèrent au-dessus des continents, créant une pression stupéfiante. Cette pression suffisait à détruire un cultivateur Briseur du Nirvana au stade tardif. Son corps s'effondrerait instantanément et il serait difficile pour son âme originelle d'échapper à la mort!
 
-« Dix millions d'épées condensées en une seule est la première contre-attaque que j'ai préparée contre ce cultivateur du troisième niveau qui veut me tuer! Cent continents sauvages fusionnés avec les trois grandes restrictions constituent la deuxième! »
+« Dix millions d'épées condensées en un seul doigt est la première contre-attaque que j'ai préparée contre ce cultivateur de la troisième étape qui veut me tuer! Cent continents sauvages fusionnés avec les trois grandes restrictions constituent la deuxième! »
 
 « Les innombrables tatouages du Clan du Tatouage, formés par d'innombrables bêtes féroces capables de détruire le monde, seront la troisième contre-attaque! » Les innombrables cristaux originels qui s'entassaient autour de Wang Lin s'effondrèrent et se dissipèrent, l'énergie originelle qu'ils contenaient ayant été drainée.
 

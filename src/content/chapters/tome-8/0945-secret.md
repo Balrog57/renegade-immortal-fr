@@ -6,7 +6,7 @@ bookTitle: Alliance's Secret
 en: Chapter 945 - Secret
 slug: secret
 ---
-Le désespoir envahit les yeux du vieil homme qui, fixant Wang Lin, s'écria d'une voix lugubre: « Suprême de la Sphère Scellée, je vous en prie, épargnez ma vie! »
+Le désespoir envahit les yeux du vieil homme qui, fixant Wang Lin, s'écria d'une voix lugubre: « Seigneur du Royaume Scellé, je vous en prie, épargnez ma vie! »
 
 Cependant, Wang Lin était encore sous le choc et n'avait aucun contrôle sur la situation, et encore moins sur la Perle Défiant le Ciel.
 
@@ -54,9 +54,9 @@ Qing Shui poussa un soupir en contemplant le vide. C'était comme s'il regardait
 
 Tandis que Wang Lin méditait, son corps commença à rétrécir progressivement. Des bruits de craquements résonnèrent alors que son corps de plus de 1 000 mètres retrouvait peu à peu sa taille normale.
 
-Cinq étoiles de Dieu Antique tournaient entre ses sourcils, dégageant une aura divine antique et féroce! À cet instant, le corps originel de Wang Lin possédait la puissance d'un Dieu Antique à cinq étoiles; il était désormais considéré comme l'un des grands puissants!
+Cinq étoiles d'Ancien Dieu tournaient entre ses sourcils, dégageant une aura d'Ancien Dieu féroce! À cet instant, le corps originel de Wang Lin possédait la puissance d'un Ancien Dieu à cinq étoiles; il était désormais considéré comme l'un des grands puissants!
 
-Si un Dieu Royal Antique à cinq étoiles utilisait un sortilège, il pouvait combattre des cultivateurs du stade précoce de Purificateur du Nirvana! Une fois revenu dans l'espace normal et son énergie d'origine déliée, presque aucun cultivateur de ce stade ne serait son égal!
+Si un Ancien Dieu royal à cinq étoiles utilisait un sortilège, il pouvait combattre des cultivateurs du stade précoce de Purificateur du Nirvana! Une fois revenu dans l'espace normal et son énergie d'origine déliée, presque aucun cultivateur de ce stade ne serait son égal!
 
 Pour la première fois, Wang Lin ressentit le poids de sa propre puissance. Son expression restait calme tandis qu'il observait silencieusement Qing Shui.
 
@@ -90,7 +90,7 @@ En pensant au vieil homme et au jeune homme, une idée jaillit soudainement dans
 
 « Ce vide n'entoure pas seulement l'Alliance, il entoure les quatre systèmes situés sous les quatre Royaumes Célestes! » Qing Shui soupira et marmonna: « Après la guerre contre le clan du Tatouage, je commençai à montrer des signes de folie, mais à l'époque, je n'y prêtai aucune attention... Par la suite, vous avez dû apprendre ce qui s'est passé par Maître Yan Leizi. »
 
-Wang Lin réfléchit un instant en observant Qing Shui. Après un long moment, il dit lentement: « Frère aîné, ce vieil homme a affirmé qu'il était du clan antique de la Lune Dévorante, issu du Clan Céleste Immémorial... »
+Wang Lin réfléchit un instant en observant Qing Shui. Après un long moment, il dit lentement: « Frère aîné, ce vieil homme a affirmé qu'il était du clan ancestral des Dévoreurs de Lune du Clan Céleste Immémorial... »
 
 Les yeux de Qing Shui se remplirent de confusion alors qu'il disait doucement: « C'est aussi ce qui me trouble. Je n'ai jamais entendu parler de ce Clan Céleste Immémorial. Le clan du Tatouage d'autrefois pouvait-il venir du même endroit? Étaient-ils aussi membres du Clan Céleste Immémorial... » La confusion dans le regard de Qing Shui s'intensifia.
 
@@ -104,7 +104,7 @@ L'énergie d'origine céleste dans le corps de Qing Shui fut finalement totaleme
 
 Wang Lin soutint Qing Shui tout en continuant de progresser dans le vide. Le fragment céleste que Maître Yan Leizi leur avait confié flottait devant eux, émettant une lueur douce. C'était comme s'il avait établi un lien avec le monde extérieur pour guider leur chemin.
 
-Soutenant Qing Shui, Wang Lin suivit le fragment céleste. Au neuvième jour, Qing Shui était extrêmement faible. Il observa le vide et le fragment dérivant avant de dire: « Une fois que j'aurai extrait les souvenirs de l'âme originelle de l'estimé Xuan Bao, tu devras conserver cette âme. Elle contient une immense quantité d'énergie d'origine céleste, elle te sera d'une grande utilité! »
+Soutenant Qing Shui, Wang Lin suivit le fragment céleste. Au neuvième jour, Qing Shui était extrêmement faible. Il observa le vide et le fragment dérivant avant de dire: « Une fois que j'aurai extrait les souvenirs de l'âme originelle de Xuan Bao, tu devras conserver cette âme. Elle contient une immense quantité d'énergie d'origine céleste, elle te sera d'une grande utilité! »
 
 « Ton attitude est très semblable à la mienne autrefois... J'espère que tu en prendras plus soin que moi, car je n'ai plus ni les capacités, ni les proches pour le faire... » Qing Shui regarda Wang Lin comme s'il contemplait son propre passé.
 

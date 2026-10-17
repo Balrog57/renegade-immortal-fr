@@ -60,9 +60,9 @@ La main droite de Wang Lin s'étendit et des craquements résonnèrent dans la l
 
 Les ondulations de la restriction résonnèrent alors que Wang Lin apparut hors de la vallée. Il repéra la direction de la fuite du Maître Pin Cendré et chargea tel un éclair.
 
-« Le Maître Pin Cendré s'est rétabli et m'a trouvé par surprise. Il me hait viscéralement, je ne peux pas le laisser s'échapper. De plus, je dois découvrir la nature de ce liquide noir et apprendre comment quitter cet endroit grâce à lui. » Une lueur glaciale brilla dans les yeux de Wang Lin tandis qu'il poursuivait sa proie.
+« Le Maître Pin Cendré s'est rétabli et m'a trouvé par surprise. Il me hait viscéralement, je ne peux pas le laisser s'échapper. De plus, je dois découvrir la nature du liquide contenu dans la bouteille de jade et apprendre comment quitter cet endroit grâce à lui. » Une lueur glaciale brilla dans les yeux de Wang Lin tandis qu'il poursuivait sa proie.
 
-Maître Pin Cendré s'enfuit à toute allure, le visage livide. Son cœur était bouillonnant de rage. Il pensait que ses blessures étaient guéries et qu'il pourrait facilement tuer ce dénommé Lu; au pire, il devrait simplement fournir un effort pour briser la restriction. Cependant, lorsqu'il se retrouva à moins de 10 000 pieds de Wang Lin, son cœur du Dao fut saisi et son esprit faillit s'effondrer.
+Maître Pin Cendré s'enfuit à toute allure, le visage livide. Son cœur était bouillonnant de rage. Il pensait que ses blessures étaient guéries et qu'il pourrait facilement tuer ce dénommé Lu; au pire, il devrait simplement fournir un effort pour briser la restriction. Cependant, sans même avoir aperçu sa silhouette, dès qu'il se retrouva à moins de 10 000 pieds de Wang Lin, son cœur du Dao fut saisi et son esprit faillit s'effondrer.
 
 En particulier, lorsqu'il se trouva au milieu des intentions du Dao chaotique infinies, il se sentit comme une barque solitaire sur une mer déchaînée. Lorsque l'esprit de Wang Lin passa à sa portée, son âme trembla. Il eut la vague intuition que Wang Lin avait atteint l'illumination et amélioré son domaine, et que peut-être, son niveau de culture était sur le point d'augmenter!
 

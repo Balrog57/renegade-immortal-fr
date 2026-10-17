@@ -8,7 +8,7 @@ slug: recolte
 ---
 Wang Lin fronça les sourcils et s'apprêta à parler.
 
-« Quoi? Le camarade cultivateur n'est pas satisfait? » L'expression du Maître Pin Cendré se durcit alors qu'il fixait Wang Lin.
+« Quoi? Le camarade cultivateur Lu n'est pas satisfait? » L'expression du Maître Pin Cendré se durcit alors qu'il fixait Wang Lin.
 
 Wang Lin resta silencieux.
 
@@ -34,7 +34,7 @@ L'expression de Wang Lin resta imperturbable alors qu'il répondait lentement: �
 
 L'homme se mit à rire comme un fou, les cicatrices sur son visage lui donnant un air extrêmement féroce. Il fixa Wang Lin d'un regard glacial et lança: « Si vous n'étiez pas blessé, je vous aurais peut-être craint un peu. Cependant, maintenant, je veux voir lequel de nous deux a attiré le désastre! » Il fixa Wang Lin et abattit violemment sa main droite sur lui!
 
-S'il avait attendu jusque-là pour attaquer, c'était pour permettre au Maître Pin Cendré et à la vieille femme en vert de prendre suffisamment de distance. Il craignait que la femme ne remarque rien.
+S'il avait attendu jusque-là pour attaquer, c'était pour permettre au Maître Pin Cendré et à la vieille femme en vert de prendre suffisamment de distance. Il craignait que la femme ne remarque quelque chose.
 
 Les yeux de Wang Lin restèrent aussi calmes qu'une eau dormante. Au moment où la main droite de l'homme s'approcha, un éclair de froideur traversa le regard de Wang Lin. Sa main gauche bougea avec la rapidité de l'éclair et saisit la main de l'agresseur, avant de serrer impitoyablement!
 
@@ -66,7 +66,7 @@ L'âme de Pang hurla immédiatement: « Tu avais promis de ne pas me tuer! »
 
 Wang Lin laissa échapper un froid reniflement. Sa main droite saisit l'âme et força la lecture de ses souvenirs alors qu'il était affaibli. Un instant plus tard, il rangea l'âme agonisante dans son espace de stockage.
 
-En réalité, il n'avait pas décidé de le tuer. Si la mort de cet homme avait alerté le Maître Pin Cendré, cela n'aurait pas valu la peine, car cela aurait compromis ses plans.
+En réalité, il n'avait pas l'intention de le tuer à ce moment-là. Si la mort de cet homme avait alerté le Maître Pin Cendré, cela n'aurait pas valu la peine, car cela aurait compromis ses plans.
 
 « Cette personne entretient un lien très étroit avec le Maître Pin Cendré; ce dernier possède peut-être sa marque de vie. S'il meurt, le Maître Pin Cendré pourrait le savoir instantanément. » Wang Lin n'en était pas certain, et cela ne figurait pas dans les souvenirs de l'homme, mais il préférait toujours agir avec prudence.
 
@@ -74,7 +74,7 @@ Après quelques calculs, Wang Lin ouvrit calmement son espace de stockage pour i
 
 Outre cela, il y avait une grande quantité de recettes d'herbes et de pilules. Cet homme s'était pleinement préparé pour ce voyage.
 
-Tout cela restait secondaire. Wang Lin se concentra sur les jades. Parmi eux, il trouva deux cartes et un incantatoire pour quitter les lieux.
+Tout cela restait secondaire. Wang Lin se concentra sur les jades. Parmi eux, il trouva deux cartes et une formule incantatoire pour quitter les lieux.
 
 Les deux cartes concernaient le Royaume aux Sept Couleurs. Divers itinéraires étaient tracés, incluant des endroits où l'on pouvait nourrir des bêtes de brume avec des jades célestes pour obtenir des cristaux d'origine. C'était extrêmement détaillé.
 

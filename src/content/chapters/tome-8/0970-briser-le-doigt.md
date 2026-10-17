@@ -38,9 +38,9 @@ En avançant, Maître Yi Chen perçut le jeune homme en noir. Choqué, il pensa:
 
 Wang Lin ouvrit les bras et se tint au centre de la vallée. Le corps de Bai Wei, enveloppé dans le cristal de glace, n'était pas loin. Bien qu'il fût déjà mort, son corps n'avait subi aucun dommage du sort de l'Omniscient.
 
-Le cristal d'Appel de la Pluie flottait devant Wang Lin, émettant une lueur douce. Un vortex de vapeur d'eau semblait graviter autour du cristal.
+Le cristal d'Invocation de la Pluie flottait devant Wang Lin, émettant une lueur douce. Un vortex de vapeur d'eau semblait graviter autour du cristal.
 
-Wang Lin leva les yeux vers le doigt qui grandissait et se rapprochait, jusqu'à ce qu'il puisse distinguer nettement les empreintes digitales. Alors que le doigt s'abattait du ciel comme pour écraser une fourmi, un froid glacial s'empara du regard de Wang Lin et il hurla: « Appel de la Pluie! »
+Wang Lin leva les yeux vers le doigt qui grandissait et se rapprochait, jusqu'à ce qu'il puisse distinguer nettement les empreintes digitales. Alors que le doigt s'abattait du ciel comme pour écraser une fourmi, un froid glacial s'empara du regard de Wang Lin et il hurla: « Invocation de la Pluie! »
 
 À l'instant où Wang Lin prononça ces mots, une illusion apparut derrière lui. Bien qu'il fût impossible d'en percevoir les traits précis, sa froideur permettait de l'identifier sans peine comme étant Qing Shui. C'était un fantôme de Qing Shui laissé à l'intérieur du cristal!
 
@@ -58,7 +58,7 @@ Mais son Sens Divin continuait de se déployer pour observer attentivement ce co
 
 Au moment où le cristal brilla intensément, il commença à rétrécir rapidement. En un instant, plus de 30 % de sa substance disparut. Ces 30 % de cristal se transformèrent en une goutte de pluie et chutèrent.
 
-Dès qu'elle toucha le sol, la goutte de pluie se propagea. En un éclair, d'innombrables gouttes de pluie apparurent devant Wang Lin!
+Dès qu'elle tomba, la goutte de pluie trembla et se divisa sans cesse. En un éclair, d'innombrables gouttes de pluie apparurent devant Wang Lin!
 
 Le fantôme de Qing Shui agita ses manches, et les innombrables gouttes sifflèrent dans l'air avant de charger le doigt géant. Des quantités massives d'énergie originelle s'assemblèrent frénétiquement pour pénétrer chaque goutte.
 
@@ -70,31 +70,31 @@ Les grondements incessants déchirèrent le firmament. Le doigt géant marqua un
 
 Cependant, la lumière aux sept couleurs brilla intensément alors que les gouttes de pluie frappaient le doigt avant de se désintégrer. L'attaque ne fit que suspendre le mouvement du doigt un court instant avant qu'il ne s'abatte avec encore plus de force. C'était comme si tout ce qui se trouvait sur son chemin devait être impitoyablement anéanti!
 
-Les innombrables gouttes de pluie s'effondrèrent toutes, et le doigt toucha soudainement le cristal d'Appel de la Pluie!
+Les innombrables gouttes de pluie s'effondrèrent toutes, et le doigt toucha soudainement le cristal d'Invocation de la Pluie!
 
-À cet instant précis, Wang Lin forma un sceau de sa main et pointa le cristal en criant: « Appel de la Pluie! »
+À cet instant précis, Wang Lin forma un sceau de sa main et pointa le cristal en criant: « Invocation de la Pluie! »
 
-Le cristal explosa. Au moment où il se brisa, le fantôme de Qing Shui derrière Wang Lin s'élança. Sa vitesse était telle qu'il laissait une traînée derrière lui. Il pénétra dans les débris du cristal et se transforma en une multitude de gouttes de pluie qui convergèrent vers le doigt!
+Le cristal explosa. Au moment où il se brisa, le fantôme de Qing Shui derrière Wang Lin s'élança. Sa vitesse était telle qu'il laissait une traînée derrière lui. Il pénétra dans les débris du cristal et se transforma en une multitude de gouttes de pluie qui se répandirent sur cinq mille kilomètres à la ronde et convergèrent vers le doigt!
 
 Cette fois, ce ne furent pas des gouttes éparses qui percutèrent la cible, mais toutes se condensèrent en une seule goutte unique! Cette gouttelette libéra une lueur rouge. Elle entra en collision directe avec le sort de l'Omniscient!
 
 Lors du choc, la gouttelette rouge dégagea une aura féroce et forma inopinément un vortex. Ce tourbillon entra en lutte contre les ondulations aux sept couleurs qui entouraient le doigt.
 
-Les ondulations aux sept couleurs s'effondrèrent aussitôt, avant de se transformer en sept dragons de couleurs différentes qui encerclèrent le doigt en rugissant comme des démons.
+Les ondulations aux sept couleurs s'effondrèrent aussitôt, avant de se transformer en sept dragons de couleurs différentes qui encerclèrent le doigt en rugissant avec fureur.
 
 Après avoir brisé les ondes chromatiques, la gouttelette rouge toucha directement le doigt envoyé par l'Omniscient!
 
-Rumble, rumble, rumble, rumble!
+Boum, boum, boum, boum!
 
-Le doigt géant ne ralentit pas et continua sa chute vers Wang Lin, tel un dieu voulant écraser une fourmi!
+Le doigt géant ne ralentit pas et continua sa chute vers Wang Lin, avec l'élan de qui veut écraser une fourmi!
 
-Pourtant, un petit point rouge apparut au centre du doigt colossal. Il s'enfonça plus profondément, détruisant tout sur son passage. Puis, il provoqua soudainement un effondrement, déclenchant une tempête à l'intérieur même de la structure du doigt.
+Pourtant, un petit point rouge apparut au centre du doigt colossal. Il transperça le doigt et s'enfonça à l'intérieur, détruisant tout sur son passage. Puis, il s'effondra soudainement, se changeant en une force titanesque qui souleva d'immenses vagues à l'intérieur du doigt.
 
 Alors que le doigt pressait vers lui, l'expression de Wang Lin devint sombre. Il avait l'impression que le ciel lui tombait sur la tête, mais un éclair de froideur brilla dans ses yeux.
 
-« L'Omniscient ne m'a même pas demandé le Yang Extrême. Il y a quelque chose derrière tout cela! » Wang Lin poussa un soupir, mais son intention de combat ne faiblit pas. Ses yeux s'illuminèrent alors qu'il frappait son sac de stockage, faisant apparaître un fragment de la taille d'une main dans sa paume.
+« L'Omniscient ne m'a même pas demandé le Yang extrême. Il y a quelque chose derrière tout cela! » Wang Lin poussa un soupir, mais son intention de combat ne faiblit pas. Ses yeux s'illuminèrent alors qu'il frappait son sac de stockage, faisant apparaître un fragment de la taille d'une main dans sa paume.
 
-Ce fragment lui avait été offert par Maître Yan Leizi après que Wang Lin eut accompli de grands exploits pour Luotian!
+Ce fragment lui avait été offert par Maître Yan Leizi après que Wang Lin eut accompli de grands exploits pour Luotian, en lui disant qu'il pourrait lui sauver la vie!
 
 Alors que le doigt géant descendait, une bourrasque puissante se leva, comme pour éteindre la vie de Wang Lin. La terre autour de lui s'effondra à nouveau. La zone était déjà dévastée, et maintenant elle s'enfonçait davantage!
 
@@ -106,7 +106,7 @@ Le doigt percuta instantanément le fragment du Royaume Céleste. Un grondement 
 
 De nombreuses fissures apparurent sur le fragment du Royaume Céleste, mais celui-ci ne s'effondra pas!
 
-Le doigt se retira pour mieux frapper, et juste au moment où il allait s'abattre de nouveau, la puissance contenue dans les restes du cristal d'Appel de la Pluie explosa soudainement. Des faisceaux de lumière jaillirent avec une violence inouïe!
+Le doigt se retira pour mieux frapper, et juste au moment où il allait s'abattre de nouveau, la force titanesque formée à l'intérieur du doigt par le cristal d'Invocation de la Pluie explosa soudainement. Des faisceaux de lumière jaillirent avec une violence inouïe!
 
 Le doigt géant fut transpercé par ces lueurs rouges. Il fut criblé de trous, provoquant la dissipation rapide de la vaste énergie originelle qu'il renfermait.
 

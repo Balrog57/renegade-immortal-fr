@@ -54,7 +54,7 @@ La main droite de Wang Lin ne s'arrêta pas; il continua de former des sceaux qu
 
 Tout en plaçant ces restrictions, la main gauche de Wang Lin pointa vers le ciel et le Fouet d'Âme apparut. Il fonça dans le corps de Yao Bingyun pour verrouiller son âme originelle.
 
-Wang Lin ressentant encore une certaine inquiétude, il frappa son sac de stockage, faisant apparaître le Drapeau des Âmes. Ce drapeau de 33 mètres s'enroula étroitement autour de Yao Bingyun.
+Wang Lin n'étant pas encore tranquille, il frappa son sac de stockage, faisant apparaître le Drapeau des Âmes. Ce drapeau de 33 mètres s'enroula étroitement autour de Yao Bingyun.
 
 Enfin, Wang Lin cracha le Sceau de Scellement Céleste. Dès qu'il apparut, la main de Wang Lin traça un sceau et il hurla: « Scelle! »
 
@@ -62,7 +62,7 @@ Des centaines de milliers de runes dorées apparurent et coulèrent comme un fle
 
 Alors que les innombrables runes dorées achevaient le scellement de Yao Bingyun, Wang Lin se détendit. Il recula vers le fourneau et, de sa main droite, forma un nouveau sceau. Puis, pointant Yao Bingyun, il murmura doucement: « Change de position! »
 
-Le fourneau trembla, comme si une force capable de fendre les cieux était apparue à l'intérieur du corps du Serpent aux yeux de lune. Tandis que cette puissance emplissait la zone, le corps de Yao Bingyun disparut sans laisser de trace.
+Le fourneau trembla, comme si une force du ciel et de la terre fendait le corps du Serpent aux yeux de lune et ravageait cet endroit étrange. Tandis que cette puissance se répandait, le corps de Yao Bingyun disparut sans laisser de trace.
 
 Lorsqu'elle réapparut, Wang Lin la saisit et la rangea dans son sac comme un trésor.
 

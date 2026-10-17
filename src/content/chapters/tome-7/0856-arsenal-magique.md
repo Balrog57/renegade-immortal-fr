@@ -50,11 +50,11 @@ Les yeux de Qing Shui étaient baignés de nostalgie. À mesure qu'il parlait, u
 
 En particulier, les âmes des célestes étaient toutes empreintes d'une intention meurtrière et d'un ressentiment accablant. C'était comme si elles avaient toutes péri en étant habitées par une immense injustice, refusant de pénétrer dans le cycle de la réincarnation. Dès leur apparition, l'endroit sembla se transformer en purgatoire!
 
-« Roi Céleste de Rang 9, Yao Haiqing. Je l'ai tué avec le sort céleste Éparpillement! »
+« Roi Céleste de Rang 9, Yao Haiqing. Je l'ai tué lors de la bataille de la dispersion des sorts célestes! »
 
 Une âme céleste semblable à celle du Dieu de Sang apparut, son corps saturé d'une aura de mort. À sa vue, l'expression du Dieu de Sang changea radicalement!
 
-« Seigneur Céleste de Rang 1, Liu Yun. Je l'ai tué lors de la bataille contre le Seigneur Céleste du Vent! »
+« Seigneur Céleste de Rang 1, Liu Yun. Je l'ai tué lors de la bataille de l'investiture des Seigneurs Célestes! »
 
 « Seigneur Céleste de Rang 3 du Royaume Céleste de la Pluie, Cao De. Je l'ai tué lors de l'invasion du Royaume Céleste! »
 
@@ -62,7 +62,7 @@ Une âme céleste semblable à celle du Dieu de Sang apparut, son corps saturé 
 
 « Seigneur Céleste de Rang 7 du Royaume Céleste du Vent, Maître Huo Han. Je l'ai tué dans la bataille du Passage Ancien! »
 
-« Premier clone de la Seigneur Céleste de Rang 9 du Royaume Céleste de la Pluie et du Tonnerre, Qing Shuang. J'ai tué son clone lors de la Guerre Céleste de la Foudre et de la Pluie! »
+« Premier clone de la Seigneur Céleste de Rang 9 du Royaume Céleste de la Pluie, Qing Shuang. J'ai tué son clone lors de la Guerre Céleste de la Foudre et de la Pluie! »
 
 Une à une, les lumières cristallines s'éteignirent pour laisser place aux silhouettes. Toutes étaient d'un réalisme saisissant et portaient une intention meurtrière ainsi qu'un grief inimaginables qui emplissaient le monde. En un instant, d'innombrables âmes célestes encerclèrent Qing Shui!
 
@@ -82,7 +82,7 @@ Tout en reculant, les yeux du Dieu de Sang devinrent rouge sang et un éclat dé
 
 Les armes formées par les innombrables plumes chargèrent immédiatement les âmes célestes. À ce moment-là, des grondements retentirent dans un rayon de 500 kilomètres, créant une tempête inimaginable qui balaya l'horizon.
 
-L'ampleur de ce combat affectait tout le Domaine du Sud. L'effondrement des étoiles était devenu incontrôlable et les rugissements incessants résonnaient à travers toute la région.
+L'ampleur de ce combat affectait tout le Domaine Sud. L'effondrement des étoiles était devenu incontrôlable et les rugissements incessants résonnaient à travers toute la région.
 
 Si cela perdurait, une catastrophe inévitable se produirait!
 

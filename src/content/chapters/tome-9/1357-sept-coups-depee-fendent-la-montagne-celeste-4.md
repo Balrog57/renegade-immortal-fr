@@ -12,7 +12,7 @@ L'Ancien en chef fut totalement ébranlé par la puissance de cette épée. Il �
 
 L'armure de tonnerre éternel était l'un des trois trésors majeurs du Clan du Tonnerre Dispersé, bien plus puissante que le Miroir de Massacre de la Foudre. Raffinée par l'ancêtre du troisième pas du Clan du Tonnerre Dispersé, elle avait été transmise de génération en génération pour protéger le clan!
 
-Seules les personnes ayant atteint le cinquième Fléau Céleste pouvaient porter cette armure. Même face à des cultivateurs du troisième pas, elle permettait de survivre un instant de plus!
+Seules les personnes ayant atteint le cinquième Fléau Céleste pouvaient porter cette armure. Même face à un cultivateur de la troisième étape, elle permettait de lui résister un moment!
 
 Cependant, l'armure avait été détruite en un seul coup, ce qui fit frémir l'Ancien de terreur! Alors qu'il s'apprêtait à battre en retraite, une lueur froide jaillit des yeux de Wang Lin. Il leva lentement son épée de sept pieds!
 
@@ -34,7 +34,7 @@ Wang Lin ignorait les tumultes extérieurs, les yeux fixés sur l'Ancien, tandis
 
 Le rayon d'énergie tranchante jaillit, chargé des âmes de vies innombrables et imprégné d'une intention meurtrière monstrueuse. Cette énergie d'épée indescriptible fonça sur l'Ancien!
 
-L'Ancien rugit: « Éclair éternel, descends! Descends! Descends! » La marque de clan entre ses sourcils se fendit en deux et une force fulgurante l'enveloppa.
+L'Ancien rugit: « Éclair éternel, descends! Descends! Descends! » La marque de clan entre ses sourcils éclata à moitié et une force fulgurante l'enveloppa.
 
 Simultanément, son cri sembla atteindre l'éclair éternel hors de la tempête. Par un procédé inconnu, l'éclair s'étendit instantanément pour devenir un tonnerre de 10 000 pieds d'épaisseur qui s'abattit sur la tempête!
 
@@ -58,7 +58,7 @@ Sombrant dans la démence, il cessa de fuir. Ses mains formèrent un sceau et il
 
 Après ce cri, son visage devint livide alors que 3 000 ans de vie s'évaporaient. Une force prodigieuse se rassembla devant lui.
 
-Cette force le fit pivoter brusquement avant de former un symbole Yin et Yang! Le symbole tourna jusqu'à devenir un vortex d'où jaillirent des grondements tonitruants. Une pression dépassant celle des cultivateurs du deuxième pas surgit soudainement du symbole!
+Cette force se mit à tournoyer devant lui, formant un symbole Yin et Yang! Le symbole tourna jusqu'à devenir un vortex d'où jaillirent des grondements tonitruants. Une pression dépassant celle des cultivateurs de la deuxième étape surgit soudainement du symbole!
 
 « Éternel Tonnerre Yin et Yang, tue cet homme! » rugit l'Ancien, tandis que le symbole se scindait en deux. Le tonnerre Yin, destructeur d'âme, et le tonnerre Yang, destructeur de corps, fusionnèrent pour former l'Éternel Tonnerre Yin et Yang!
 
@@ -78,7 +78,7 @@ Cependant, au moment où il s'élançait, le quatrième coup de Wang Lin s'abatt
 
 Les deux rayons d'énergie d'épée volèrent l'un après l'autre, formant presque une vague, portée par les hurlements des âmes. L'Ancien, déjà rendu fou par la douleur, ne se souciait plus de sa longévité et agita la main:
 
-« Je sacrifie 10 000 ans de vie et je brise mon héritage de l'essence de tonnerre du troisième pas pour utiliser les membres du Clan Dispersé comme flammes sacrificielles afin d'activer le Sort de la Grande Ourse! » Son rugissement fit trembler le ciel, sacrifiant instantanément 10 000 ans de vie!
+« Je sacrifie 10 000 ans de vie et je brise mon héritage de l'essence de tonnerre du troisième pas pour utiliser les membres du Clan du Tonnerre Dispersé comme flammes sacrificielles afin d'activer le Sort de la Grande Ourse! » Son rugissement fit trembler le ciel, sacrifiant instantanément 10 000 ans de vie!
 
 Le Sort de la Grande Ourse était l'art le plus puissant du Clan du Tonnerre Dispersé. Empruntant le pouvoir des astres, il se manifestait sous la forme de neuf étoiles meurtrières. L'espace devant l'Ancien se déforma et brilla intensément alors que neuf étoiles apparurent en formation. Un seul regard suffisait à donner l'impression que l'esprit était aspiré.
 
@@ -90,7 +90,7 @@ Le grondement fut si intense qu'on aurait dit que l'espace lui-même s'effondrai
 
 Dans ce vacarme, la carte de la Grande Ourse trembla et se déchira. Les neuf étoiles mortelles se brisèrent et se dissipèrent. Le corps de l'Ancien n'était plus qu'un amas sanglant; ses jambes avaient explosé, ne laissant que son buste. Une peur indescriptible le submergea, le tirant de sa folie. Il recula avec anxiété en formant des sceaux de toutes urgence. La chair de son bas du corps s'agita et il se régénéra rapidement!
 
-« Cet homme possède le Fouet de Scellement des Âmes des Millions de Mondes, je ne peux pas m'échapper avec mon âme originelle! »
+« Cet homme possède le Fouet de Scellement des Âmes des Dix Mille Mondes, je ne peux pas m'échapper avec mon âme originelle! »
 
 Le corps de Wang Lin trembla lorsque les cinquième et quatrième rayons d'énergie se dissipèrent. D'innombrables vies s'étaient éteintes dans les 7 Millions de Mondes, et il cracha du sang, ses forces et son corps luttant contre l'épuisement.
 

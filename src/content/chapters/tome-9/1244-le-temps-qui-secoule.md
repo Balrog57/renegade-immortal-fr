@@ -56,7 +56,7 @@ Une mer infinie apparut sous la porte de pierre. De loin, on aurait dit que la p
 
 Le fracas des vagues devint l'unique son au monde. Plus loin encore, le soleil commença à poindre, émettant une lueur orangée qui baignait le père et le fils, étirant leurs ombres sur le sol.
 
-« La nuit déchirée née du sceau, le temps s'écoule comme les souvenirs... Ce n'est pas que l'éternité n'existe pas, mais c'est que ce moment d'éternité vous enivrera. Il fera éclater votre cœur. Il vous rendra réticent à l'éveil, afin que vous puissiez continuer à le poursuivre avec un sourire pour toujours, jusqu'à ce que vous vous évanouissiez dans l'éternité d'un rêve.
+« Le soleil de la mer naît de la Nuit Déchirée, les années s'écoulent comme les souvenirs... Ce n'est pas que l'éternité n'existe pas, mais c'est que ce moment d'éternité vous enivrera. Il fera éclater votre cœur. Il vous rendra réticent à l'éveil, afin que vous puissiez continuer à le poursuivre avec un sourire pour toujours, jusqu'à ce que vous vous évanouissiez dans l'éternité d'un rêve.
 
 « Ping Er, le second sort de ton père s'appellera "Le Temps qui S'écoule". Est-ce que cela te plaît? »
 
@@ -98,7 +98,7 @@ Cette scène insolite les empêcha de battre en retraite. Tous étaient sur le q
 
 « Ces moustiques encerclent... » haleta l'un d'eux en apercevant que la porte de pierre était entourée par le nuage rouge.
 
-Un jeune homme vêtu de noir murmura: « Les anciens de notre secte qui sont arrivés jusque-là ont dû voir cette porte. À en juger par son apparence, elle devait être un autel important du Royaume Céleste avant son effondrement. »
+Un jeune homme vêtu de noir murmura: « Même les anciens de notre secte ne sont presque jamais venus aussi loin ; ils n'ont sans doute jamais vu une telle porte de pierre. À en juger par son apparence, elle devait être un autel très important du temps où le Royaume Céleste ne s'était pas encore effondré. »
 
 « Il y a quelqu'un sur la porte! » Li Yuanlei, qui possédait le niveau de culture le plus élevé, distinguait vaguement une silhouette assise sur la pierre à travers les milliers de moustiques.
 
@@ -110,7 +110,7 @@ Ses paroles firent trembler l'esprit de l'assemblée, et tous se tournèrent ver
 
 « Le plus étrange, c'est que les bêtes ne l'attaquent pas. Elles semblent plutôt le protéger! »
 
-« C'est impossible. On ne peut pas domestiquer des bêtes moustiques. Chaque fois qu'elles rencontrent des cultivateurs, c'est une lutte à mort. Comment pourraient-elles garder quelqu'un? » À cet instant, leurs cœurs et leurs esprits étaient en proie au choc. Leurs yeux exprimaient l'horreur et l'incrédulité face à ce spectacle.
+« C'est impossible. On ne peut pas domestiquer des bêtes moustiques. Chaque fois qu'elles rencontrent des cultivateurs, c'est une lutte à mort. Comment pourraient-elles protéger quelqu'un? » À cet instant, leurs cœurs et leurs esprits étaient en proie au choc. Leurs yeux exprimaient l'horreur et l'incrédulité face à ce spectacle.
 
 Li Yuanlei réprima sa stupeur et chuchota: « N'oubliez pas le cultivateur en blanc que nous avons vu à l'extérieur du Royaume Céleste du Vent. Si vous regardez de plus près, bien qu'on ne puisse pas distinguer ses traits, on voit clairement que ses vêtements sont blancs. »
 

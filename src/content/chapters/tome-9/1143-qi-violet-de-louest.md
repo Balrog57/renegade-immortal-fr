@@ -20,7 +20,7 @@ La silhouette aux cheveux blancs ne s'était pas dissipée avec le temps, elle �
 
 Cet après-midi-là, Xu Yun poussa la porte et quelques gouttes de pluie s'écrasèrent sur son visage. Elle fronça les sourcils en levant sa main semblable au jade pour essuyer l'humidité. Son apparence était rafraîchissante, empreinte d'un certain charme, alors qu'elle sortait.
 
-Les gouttes de pluie semblaient heurter une protection invisible lorsqu'elles s'approchaient à moins d'un demi-pied d'elle, avant de s'écouler sur les côtés. En traversant la cour, Xu Yun observa les diverses herbes avant de porter son regard vers la demeure de Wang Lin.
+Les gouttes de pluie semblaient heurter une protection invisible lorsqu'elles s'approchaient à moins de cinq pieds d'elle, avant de s'écouler sur les côtés. En traversant la cour, Xu Yun observa les diverses herbes avant de porter son regard vers la demeure de Wang Lin.
 
 La première personne qu'elle soupçonnait était Wang Lin! Pourtant, durant ces derniers jours, ce jeune homme nommé Ceng Niu s'était comporté comme un véritable mortel, si l'on excepte son grand sang-froid et son calme.
 
@@ -64,15 +64,15 @@ Tard dans la nuit, la lampe à huile sur la table était allumée. Dehors, l'obs
 
 Le vent de la montagne s'engouffrait dans le bassin, formant des vortex qui hurlaient dans la nuit. Wang Lin posa son rouleau avant de fermer les yeux pour méditer un instant.
 
-Il avait pu tirer beaucoup d'enseignements du rouleau et avait acquis une compréhension vague de la Mer des Nuages. Plus important encore, au cours des quatre derniers jours, il avait pu obtenir une illumination sur l'alchimie grâce à un jade qu'il avait acquis. Il ouvrit les yeux et leva la tête. Son regard semblait capable de percer les murs de la maison, de traverser la pluie et de contempler directement le ciel au-dessus du bassin.
+Il avait pu tirer beaucoup d'enseignements du rouleau et avait acquis une compréhension vague de la Mer des Nuages. Plus important encore, au cours des quatre derniers jours, il avait pu obtenir une illumination sur l'alchimie grâce à un jade qu'il avait consulté quatre jours plus tôt. Il ouvrit les yeux et leva la tête. Son regard semblait capable de percer les murs de la maison, de traverser la pluie et de contempler directement le ciel au-dessus du bassin.
 
-Un temple taoïste, soutenu par huit piliers gigantesques, s'y dressait!
+Un temple daoïste suspendu dans les airs, soutenu par huit piliers de pierre gigantesques, s'y dressait!
 
 Wang Lin pouvait clairement ressentir une aura puissante émanant de ce temple.
 
 Son corps vacilla et il disparut de la pièce.
 
-Lorsqu'il réapparut, il se trouvait au sommet de l'un des piliers, juste à l'extérieur du temple taoïste! Le vent et la pluie étaient d'une violence extrême ici, entrecoupés d'éclairs et de tonnerre.
+Lorsqu'il réapparut, il se trouvait au sommet de l'un des piliers, juste à l'extérieur du temple daoïste! Le vent et la pluie étaient d'une violence extrême ici, entrecoupés d'éclairs et de tonnerre.
 
 L'expression de Wang Lin resta sereine alors qu'il poussait la porte du temple pour entrer.
 

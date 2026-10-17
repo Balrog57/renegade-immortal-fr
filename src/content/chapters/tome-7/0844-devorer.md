@@ -70,6 +70,6 @@ L'expression de Wang Lin changea, frappé par sa propre intuition. Il prit une p
 
 « J'ai vu le Maître Omniscient prendre Sun Yun et... le dévorer... Le Maître a complètement dévoré Sun Yun... »
 
-Wang Lin ferma les yeux. Après un court instant, il les rouvrit brusquement, affichant un regard résolu alors qu'il fixait Yao Bingyun. Il murmura: « Le dao du karma est trop illusoire. Selon la troisième étape que j'ai observée, tous les daos des cieux doivent retourner à leur origine véritable. J'ignore quelle est l'origine du dao du karma, mais pour rendre mon domaine corporel, je dois... dévorer! »
+Wang Lin ferma les yeux. Après un court instant, il les rouvrit brusquement, affichant un regard résolu alors qu'il fixait Yao Bingyun. Il murmura: « Le dao du karma est trop illusoire. Selon la troisième étape que j'ai observée, tous les daos des cieux doivent retourner à leur origine véritable. J'ignore quelle est l'origine du dao du karma, mais pour que mon domaine existe réellement, je dois... dévorer! »
 
 « Dévorer le domaine d'autrui pour comprendre le karma de son domaine. Comprendre son domaine... puis le convertir en mon propre domaine de karma! » Les yeux de Wang Lin devinrent froids alors qu'il pressait son doigt entre les sourcils de Yao Bingyun.

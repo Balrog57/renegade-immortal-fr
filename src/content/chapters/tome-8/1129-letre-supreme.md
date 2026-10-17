@@ -56,13 +56,15 @@ Tous les anciens que Wang Lin avait croisés n'étaient que les plus faibles de 
 
 Une lueur rouge sang apparut brusquement dans le vide, au loin. Un grondement de tonnerre accompagna la propagation de cette lumière écarlate. Celle-ci parcourut une distance indéfinie avant de surgir sous les yeux de Wang Lin.
 
+L'onde de lumière sanglante approcha rapidement et traversa le corps de Wang Lin. Il frissonna et fit circuler son énergie originelle à toute vitesse pour dissiper la force étrange qu'elle contenait, mais l'onde le repoussa tout de même de quelques centaines de pieds avant qu'il ne parvienne à s'arrêter.
+
 En regardant en arrière, la vague de lumière rouge s'était déjà éloignée davantage. Les yeux de Wang Lin s'illuminèrent; il s'élança et se téléporta là où l'onde s'était propagée.
 
-Cette onde de sang avait provoqué une puissante fluctuation d'énergie originelle. Seul un cultivateur d'une force exceptionnelle pouvait engendrer un tel choc.
+Cette onde de sang renfermait un puissant résidu de pouvoir divin, manifestement laissé par un combat de sorts. Seul un cultivateur de premier rang pouvait déclencher un tel pouvoir.
 
 Le visage de Maître Yan Leizi était livide alors qu'il fixait un vieil homme vêtu de rouge. L'homme était entièrement cramoisi, jusqu'au fond de ses yeux. Pourtant, aucune trace de folie ne se lisait sur son visage, seulement un calme glacial.
 
-Les fluctuations de sorts déferlaient autour d'eux. Les deux combattants reculèrent sans échanger un mot. Le vieil homme en rouge agita ses manches et une mer de sang apparut. Cette mer se mua en dragon et chargea Maître Yan Leizi dans un rugissement.
+Les fluctuations de sorts déferlaient autour d'eux. Les deux combattants reculèrent d'un millier de pieds et se firent face de loin, sans échanger un mot. Le vieil homme en rouge agita ses manches et une mer de sang apparut. Cette mer se mua en dragon et chargea Maître Yan Leizi dans un rugissement.
 
 Dès son apparition, le dragon développa huit autres têtes, devenant un dragon de sang à neuf têtes. Il poussa un cri qui ébranla les cieux et fondit sur Maître Yan Leizi.
 
@@ -98,7 +100,7 @@ Maître Yan Leizi afficha un visage empreint de respect et dit: « Salutations, 
 
 Le vieil homme en noir fronça les sourcils et murmura pour lui-même: « Un tel tumulte ne suffit même pas à le faire apparaître. Quel est donc son but véritable...? »
 
-« Ô Être Suprême... Autrefois, sur la planète Suzaku, ce trésor... ces paroles... » Maître Yan Leizi n'avait pas souhaité venir ici, mais il s'agissait d'un ordre de cet homme, et il n'avait aucun moyen de s'y opposer. À cet instant, il évoqua vaguement cette existence terrifiante.
+« Ô Être Suprême... Autrefois, à l'extérieur de la planète Suzaku, cet artéfact... ces paroles... » Maître Yan Leizi n'avait pas souhaité venir ici, mais il s'agissait d'un ordre de cet homme, et il n'avait aucun moyen de s'y opposer. À cet instant, il évoqua vaguement cette existence terrifiante.
 
 Le vieil homme resta silencieux, plongé dans ses pensées. Après un long moment, il secoua la tête et poussa un soupir.
 

@@ -12,7 +12,7 @@ Il ne pouvait oublier que c’était à cause de cette entité que la moitié de
 
 À l'exception de Wang Lin, qui en raison de sa position pouvait observer clairement la scène, personne d'autre ne voyait rien.
 
-« N'oubliez pas de ne pas déployer votre sens divin! » Maître Pin Cendré envoya ce dernier message par sens divin, puis s'interrompit. Son corps était immobile et ses yeux étaient clos.
+« N'oubliez pas de ne pas déployer votre sens divin! » Maître Pin Cendré, le visage pâle, envoya ce dernier message par sens divin, puis s'interrompit. Son corps était immobile et ses yeux étaient clos.
 
 Aux yeux de Wang Lin, une silhouette apparut derrière tout le monde.
 
@@ -60,7 +60,7 @@ La peur ne quittait pas les yeux de Maître Pin Cendré lorsqu'il répondit d'un
 
 « Je ne sais pas ce que c'est. J'appelle cet endroit le Royaume aux Sept Couleurs! Et cet homme en robe grise s'appelle le Perdu, j'en suis certain.
 
-« Dans le monde aux sept couleurs, les Perdus ne sont pas nombreux. S'ils apparaissent, tant que vous ne déployez pas votre sens divin et que vous ne bougez pas, il n'y a aucun danger. Mais si vous bougez, vous finirez comme le compagnon cultivateur Duanmu! » déclara Maître Pin Cendré d'un ton solennel.
+« Dans le Royaume aux Sept Couleurs, les Perdus ne sont pas nombreux. S'ils apparaissent, tant que vous ne déployez pas votre sens divin et que vous ne bougez pas, il n'y a aucun danger. Mais si vous bougez, vous finirez comme le compagnon cultivateur Duanmu! » déclara Maître Pin Cendré d'un ton solennel.
 
 Wang Lin se leva. Il regarda Maître Pin Cendré et dit calmement: « Il n'y avait pas tant de Perdus ici auparavant, mais depuis votre venue, leur nombre a augmenté. »
 
@@ -70,7 +70,7 @@ L'expression de Chen Tianjun était sombre alors qu'il fixait Maître Pin Cendr�
 
 Le visage de Maître Pin Cendré s'assombrit et il resta silencieux un long moment. Puis, il hocha la tête et dit amèrement: « Cet homme en gris était un ami qui m'accompagnait lors de ma première venue. Il a été emporté par un Perdu. »
 
-Chen Tianjun laissa échapper un froid renâcllement: « Venir ici était une erreur. Je renonce! » Sur ces mots, il fit demi-tour et repartit d'où ils venaient, disparaissant sans laisser de trace.
+Chen Tianjun laissa échapper un froid renâclement: « Venir ici était une erreur. Je renonce! » Sur ces mots, il fit demi-tour et repartit d'où ils venaient, disparaissant sans laisser de trace.
 
 Maître Pin Cendré ne chercha pas à l'arrêter. Après le départ de Chen Tianjun, il reprit lentement: « Sans moi pour guider la voie, il sera incapable de rentrer. Je ne pensais pas que nous rencontrerions un Perdu si tôt. Compagnons cultivateurs Lu et Zhao, je connais une grotte de culture située entre les régions intérieure et extérieure de ce Royaume aux Sept Couleurs.
 
@@ -82,7 +82,7 @@ Wang Lin réfléchit silencieusement. Il observa Maître Pin Cendré, attendant 
 
 « Peu importe la puissance de Sima Mo, il excellait également en alchimie. Il s'est enfui après avoir dérobé la recette d'une pilule qui avait causé une grande calamité. Bien que j'ignore comment cette recette a pu apparaître dans la région de rang 5, je suis certain que la grotte de Sima Mo existe bel et bien.
 
-« Quant à savoir s'il a réussi à raffiner cette pilule, j'en ignore rien, mais même sans elle, de nombreux trésors doivent s'y trouver. » Lorsqu'il eut fini de parler, il sortit un jade et le lança vers Wang Lin.
+« Quant à savoir s'il a réussi à raffiner cette pilule, je n'en sais rien, mais même sans elle, de nombreux trésors doivent s'y trouver. » Lorsqu'il eut fini de parler, il sortit un jade et le lança vers Wang Lin.
 
 Wang Lin l'attrapa et l'examina avec son sens divin avant de le passer à la vieille femme en vert.
 
@@ -96,15 +96,15 @@ Maître Pin Cendré réfléchit un instant et répondit: « Avec l'aide de vous 
 
 « D'accord! » La vieille femme en vert ferma les yeux un instant puis hocha la tête.
 
-Maître Pin Cendré regarda Wang Lin et dit: « L'endroit dont je parlais avec le compagnon Zhao se trouve dans la partie intérieure de ce Monde aux Sept Couleurs. Bien que périlleux, la récolte y sera plus abondante. D'après les indices que j'ai recueillis, de nombreuses âmes de bêtes de rang 8 à 13 y sont scellées. J'ai préparé suffisamment d'herbes pour produire une grande quantité de pilules, si le temps nous le permet. Si le compagnon cultivateur Lu accepte, vous pourrez également choisir dix objets en priorité. »
+Maître Pin Cendré regarda Wang Lin et dit: « L'endroit dont je parlais avec le compagnon Zhao se trouve dans la partie intérieure de ce Royaume aux Sept Couleurs. Bien que périlleux, la récolte y sera plus abondante. D'après les indices que j'ai recueillis, de nombreuses âmes de bêtes de rang 8 à 13 y sont scellées. J'ai préparé suffisamment d'herbes pour produire une grande quantité de pilules, si le temps nous le permet. Si le compagnon cultivateur Lu accepte, vous pourrez également choisir dix objets en priorité. »
 
 Wang Lin songeait en silence. Il savait qu'il était impossible que l'objectif de Maître Pin Cendré soit aussi simple; compte tenu de sa ruse, cet homme ne révélerait jamais ses véritables intentions.
 
-Maître Ashen reprit: « Compagnon cultivateur Lu, je peux vous emmener dans quelques lieux sûrs peuplés de bêtes de brume pour récolter tous les cristaux d'origine qui s'y trouvent. De plus, je ne prendrai pas la moindre chose dans la grotte de Sima Mo. »
+Maître Pin Cendré reprit: « Compagnon cultivateur Lu, je peux vous emmener dans quelques lieux sûrs peuplés de bêtes de brume pour récolter tous les cristaux d'origine qui s'y trouvent. De plus, je ne prendrai pas la moindre chose dans la grotte de Sima Mo. »
 
 « Récoltons d'abord les cristaux d'origine », dit Wang Lin en regardant Maître Pin Cendré.
 
-« Très bien! » Maître Ashen ne discuta pas et observa les environs. Au lieu de poursuivre dans le passage étroit, il changea de direction. Tous trois s'élancèrent au loin.
+« Très bien! » Maître Pin Cendré ne discuta pas et observa les environs. Au lieu de poursuivre dans le passage étroit, il changea de direction. Tous trois s'élancèrent au loin.
 
 Maître Pin Cendré connaissait parfaitement les lieux. Après une heure, ils arrivèrent dans un autre endroit saturé de brouillard: un abîme enveloppé de brume.
 
@@ -132,4 +132,4 @@ En utilisant la même méthode, ils trompèrent davantage de bêtes féroces et 
 
 « Sur le chemin du retour, je récolterai plus de cristaux d'origine pour le compagnon Lu en empruntant un autre sentier. D'après mes expériences passées, nous devrions atteindre un total de 60 000 à 70 000 cristaux. »
 
-« Éclairez, prisonnier de la Voie du Ciel, tous les êtres sensibles doivent endurer d'innombrables calamités. Une seule pensée suffit pour quitter la profonde prison. Attendez la Voie de la Culture... » Les informations gravées sur le jade près du squelette résonnèrent dans l'esprit de Wang Lin. Il observa le monde aux sept couleurs et hocha silencieusement la tête.
+« Éclairez, prisonnier de la Voie du Ciel, tous les êtres sensibles doivent endurer d'innombrables calamités. Une seule pensée suffit pour quitter la profonde prison. Attendez la Voie de la Culture... » Les informations gravées sur le jade près du squelette résonnèrent dans l'esprit de Wang Lin. Il observa le Royaume aux Sept Couleurs et hocha silencieusement la tête.

@@ -8,7 +8,7 @@ slug: lepreuve-celeste
 ---
 Le corps de Wang Lin était parcouru de foudres, et des craquements stridents résonnaient dans le silence. Wang Lin réfléchit un instant avant d'avancer. Des bruits de débris se firent entendre alors qu'il traversait la place de pierre effondrée.
 
-Dès qu'il franchit les limites de l'esplanade, tous les autres participants reculèrent d'un pas. Ils regardaient Wang Lin avec crainte dans les yeux.
+Dès qu'il franchit les limites de l'esplanade, plusieurs participants devant lui reculèrent d'un pas, instinctivement. Ils regardaient Wang Lin avec crainte dans les yeux.
 
 Après un moment de silence, les cultivateurs environnants commencèrent à chuchoter entre eux. Cela dépassait largement les attentes de chacun. Ce Xu Mu avait laissé une impression inoubliable dans l'esprit de tous les spectateurs.
 
@@ -78,7 +78,7 @@ Peu de cultivateurs parmi l'assistance, surtout ceux engagés dans la compétiti
 
 Ensuite, une autre personne s'avança sur la place et fixa le parchemin. Cependant, parmi les dizaines de personnes qui suivirent, huit furent immédiatement renvoyées par Lie Yunzi vers le réseau de transfert. En conséquence, les cultivateurs environnants devinrent encore plus nerveux; ils ne comprenaient absolument pas comment Lie Yunzi jugeait cette troisième épreuve!
 
-Plus Wang Lin observait, plus il devenait sérieux. Tous les cultivateurs éliminés avaient réussi à diviser leur sens divin pour le projeter dans le parchemin. Il semblait que le parchemin possédait sa propre âme et sa propre manière de décider s'il acceptait ou non le sens divin d'un individu.
+Plus Wang Lin observait, plus il devenait sérieux. Tous les cultivateurs éliminés n'avaient pas réussi à fusionner leur sens divin avec le parchemin. Il semblait que le parchemin possédait sa propre âme et sa propre manière de décider s'il acceptait ou non le sens divin d'un individu.
 
 Lie Yunzi utilisait ce phénomène pour déterminer la réussite. Tous ceux qui étaient qualifiés avaient agi comme Zhan Konglie: ils avaient divisé leur sens divin, laissant une partie pénétrer le parchemin, ce qui provoquait l'apparition de cette infime trace d'énergie originelle source. Cependant, personne ne parvenait à maintenir cette énergie à l'intérieur de son corps.
 
@@ -104,7 +104,7 @@ Après dix secondes, Xu Ting s'éveilla soudainement. À cet instant, les yeux d
 
 Cette découverte fit trembler l'esprit de Wang Lin. Il savait trop bien quel rôle jouait cette infime trace d'énergie originelle source. Xu Ting ne s'en rendrait pas compte pour l'instant, mais une fois qu'il aurait atteint le sommet de la deuxième étape, cela aurait un impact inimaginable sur lui!
 
-« Ce Xu Ting de la planète Dong Lin m'a ouvertement manifesté son hostilité. Il ne peut pas être laissé en vie! » L'expression de Wang Lin était calme, mais une intention de tuer s'était emparée de son cœur.
+« Ce Xu Ting de la planète Dong Lin nourrit à mon égard une hostilité inexplicable. Il ne peut pas être laissé en vie! » L'expression de Wang Lin était calme, mais une intention de tuer s'était emparée de son cœur.
 
 Xu Ting avait montré une intention meurtrière envers lui à plusieurs reprises. Avec la personnalité de Wang Lin, il n'accepterait jamais que Xu Ting conserve cette trace d'énergie originelle source.
 
@@ -114,11 +114,11 @@ Xu Ting avait montré une intention meurtrière envers lui à plusieurs reprises
 
 Même Zhan Konglie en éprouva une pointe d'amertume. Il savait que même au sein de la famille, seuls environ dix membres étaient qualifiés pour voir le second parchemin. Quant au troisième, seuls le chef de famille et les deux anciens l'avaient vu; il n'y avait pas de quatrième personne.
 
-Xu Ting hocha la tête et se retira respectueusement, jetant un regard sombre à Wang Lin. Ce dernier lui rendit son regard avec une expression glaciale. Il fit ensuite quelques pas vers la place. Initialement, un cultivateur nommé Zhao Tongdao devait passer le test, mais lorsqu'il vit Wang Lin s'avancer, il recula immédiatement, affichant un air embarrassé. Cet homme était celui-là même que Luo Su avait convoqué et que Wang Lin avait chassé d'un simple revers de manche après leur premier combat. En cet instant, il maudit sa malchance et se retira prestement.
+Xu Ting hocha la tête et se retira respectueusement, jetant un regard sombre à Wang Lin. Ce dernier lui rendit son regard avec une expression glaciale. Il fit ensuite quelques pas vers la place. Initialement, un cultivateur nommé Zhao Tongdao devait passer le test, mais lorsqu'il vit Wang Lin s'avancer, il recula immédiatement, affichant un air embarrassé. Cet homme était celui-là même que Luo Su avait convoqué et que Wang Lin avait chassé d'un simple revers de manche lors du combat entre Wang Lin et Luo Su. En cet instant, il maudit sa malchance et se retira prestement.
 
 L'apparition de Wang Lin attira immédiatement l'attention générale. Après tout, lors de cette compétition pour le titre céleste, son nom avait ébranlé les esprits. Il avait combattu Luo Su à l'épreuve humaine et dévoré l'esprit du tonnerre à l'épreuve terrestre. Tous les cultivateurs attendaient avec impatience la performance de Xu Mu lors de la troisième épreuve!
 
-Cette anticipation était palpable; même certains ancêtres de grandes familles de culture observaient attentivement. Non seulement ils se souvenaient du nom « Xu Mu », mais ils avaient aussi mémorisé son apparence. Hormis eux et les vieux monstres sur les tapis de prière représentant l'élite du Système Stellaire Luotian, tous les autres regardaient avec un sourire.
+Cette anticipation était palpable; même certains ancêtres de grandes familles de culture observaient attentivement. Non seulement ils se souvenaient du nom « Xu Mu », mais ils avaient aussi mémorisé son apparence. Outre eux, la dizaine de vieux monstres sur les tapis de prière, au sommet du Système Stellaire Luotian, regardaient eux aussi avec un sourire.
 
 Seul le Dieu de Sang laissa échapper un reniflement froid. Après réflexion, il posa également son regard sur Wang Lin.
 

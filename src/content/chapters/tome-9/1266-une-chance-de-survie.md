@@ -48,13 +48,13 @@ Il oublia qu'il cultivait et qu'il se trouvait à la Secte de l'Origine, dans la
 
 Le brouillard qui couvrait le monde commença à tourner rapidement, et un grondement tonnerre résonna dans son esprit. C'était comme si une paire de mains gigantesques et invisibles agitait ce brouillard, créant un vortex!
 
-Au moment où le vortex apparut, un fracas tonnerre que lui seul pouvait entendre s'abattit sur lui. À cet instant, le vortex s'effondra et se dispersa brusquement.
+Au moment où le vortex apparut, un fracas tonnerre que lui seul pouvait entendre descendit des cieux et s'abattit sur le brouillard. À cet instant, le vortex s'effondra et se dispersa brusquement.
 
 Dès la dispersion du vortex, Wang Lin vit la scène cachée par le brouillard!
 
 Dans l'image, il y avait une paire d'yeux qui dégageaient un regard glacial et impitoyable. Ces yeux observaient avec indifférence une personne qui levait les yeux vers le ciel!
 
-À la vue de cette image, son esprit trembla comme si des centaines de milliers de coups de tonnerre avaient explosé en lui. Son esprit faillit s'effondrer; le vortex brisé par le tonnerre se reforma rapidement et dissimula à nouveau l'image.
+À la vue de cette image, son esprit trembla comme si un million de foudres célestes avaient explosé en lui. Son esprit faillit s'effondrer; le vortex brisé par le tonnerre se reforma rapidement et dissimula à nouveau l'image.
 
 Wang Lin ouvrit soudainement les yeux, le visage instantanément livide.
 
@@ -92,7 +92,7 @@ Cette image n'était pas statique, elle était animée!
 
 Dans l'image, Wang Lin crachait du sang sur le continent de Mo Luo. Son corps s'effondrait instantanément et, au moment où son âme originelle s'envolait, elle se dissipait!
 
-L'image changea encore. Cette fois, le visage de Wang Lin était livide alors qu'il fuyait à travers l'espace. Il n'avait pas fait long feu lorsqu'un miroir apparut devant lui, et cette paire d'yeux impitoyables s'y reflétait!
+L'image changea encore. Cette fois, le visage de Wang Lin était livide alors qu'il fuyait à travers l'espace. Il n'avait pas fait long feu lorsqu'un miroir immense, haut comme le ciel, apparut devant lui, et cette paire d'yeux impitoyables s'y reflétait!
 
 D'un seul regard, le corps de Wang Lin s'effondra et son âme originelle mourut!
 
@@ -100,11 +100,11 @@ L'image changea à nouveau. Cette fois, la vision était plus complète. On y vo
 
 L'image ne montrait pas le passage du temps. Une durée indéterminée s'écoula, et alors que Wang Lin s'échappait, une paire d'yeux sembla percer le brouillard stellaire pour se poser sur lui.
 
-L'image bougea encore. Cette fois, Wang Lin s'était transformé en un Dieu Antique et rugissait vers les cieux. Dans le ciel, un vieil homme vêtu d'une robe de Daoïste était apparu. Le vieil homme leva la main et pointa le bas.
+L'image bougea encore. Cette fois, Wang Lin s'était transformé en un Dieu Ancien et rugissait vers les cieux. Dans le ciel, un vieil homme vêtu d'une robe de Daoïste était apparu. Le vieil homme leva la main et pointa le bas.
 
 Dans l'image, le corps de Wang Lin perdit toute capacité de mouvement. Le vieil homme s'approcha et pressa le point entre les sourcils de Wang Lin. Il mourut une fois de plus!
 
-Les images se succédèrent, toutes différentes. On y voyait Wang Lin tentant désespérément toutes sortes de moyens pour lutter et s'échapper. Mais à la fin, il mourait! Mourrait! Mourrait!
+Les images se succédèrent, toutes différentes. On y voyait Wang Lin tentant désespérément toutes sortes de moyens pour lutter et s'échapper. Mais à la fin, il mourait! Il mourait! Il mourait!
 
 Wang Lin ouvrit soudainement les yeux et fixa l'horizon. Une sueur froide coulait sur son front et sur son corps; en un court instant, il était trempé.
 
@@ -112,7 +112,7 @@ Wang Lin ouvrit soudainement les yeux et fixa l'horizon. Une sueur froide coulai
 
 Il était certain que le départ de Li Qianmei était lié à lui. Le départ de Mu Bingmei était lié à lui! L'annulation de la compétition de rang 8 était liée à lui!!
 
-Un cultivateur du troisième stade extrêmement puissant voulait sa mort! Ce n'était pas comme dans le Royaume aux Sept Couleurs, où le cultivateur du troisième stade avait utilisé sa puissance à travers l'espace pour projeter une paume. C'était un cultivateur du troisième stade venant en son corps originel pour lui arracher la vie!
+Un cultivateur de la troisième étape extrêmement puissant voulait sa mort! Ce n'était pas comme dans le Royaume aux Sept Couleurs, où le cultivateur de la troisième étape avait utilisé sa puissance à travers l'espace pour projeter une paume. C'était un cultivateur de la troisième étape venant en son corps originel pour lui arracher la vie!
 
 « Moi, Wang Lin, j'ai été un cultivateur défiant les cieux toute ma vie et j'ai affronté d'innombrables crises de vie ou de mort. Quelle que soit l'ampleur de la menace, je devrai y faire face! Je ne crois pas être incapable de trouver un moyen de briser ce piège mortel. S'il n'y a aucune issue, et alors? Qu'importe si je meurs! » Une lueur glaciale passa dans les yeux de Wang Lin tandis qu'il tendait la main. Son espace de stockage s'ouvrit et plusieurs fausses Perles Défiant le Ciel en sortirent.
 

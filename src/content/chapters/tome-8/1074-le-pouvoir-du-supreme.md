@@ -42,9 +42,9 @@ L'Omniscient à la robe grise poussa un autre rugissement, puis son œil gauche 
 
 Sous l'attaque désespérée de l'Omniscient à la robe grise, la nuit qui avait été déchirée sembla, contre toute attente, se condenser une fois de plus. On aurait dit qu'elle voulait dévorer le soleil.
 
-L'épée de sang traversa l'astre et perça directement la poitrine de Wang Lin. Cependant, alors qu'elle atteignait la moitié de son torse, Wang Lin saisit l'épée de sa main droite. Repoussé de plusieurs pas, il cracha une bouchée de sang. Puis, il redressa brusquement la tête, affichant une expression féroce.
+L'épée de sang traversa l'astre et perça directement la poitrine de Wang Lin. Cependant, alors qu'elle atteignait la moitié de son torse, Wang Lin saisit l'épée de ses deux mains. Repoussé de plusieurs pas, il cracha une bouchée de sang. Puis, il redressa brusquement la tête, affichant une expression féroce.
 
-« Vieux renard, tu as failli me tuer en m'obligeant à cultiver l'Art du Massacre Céleste. Aujourd'hui, meurs! » Alors que Wang Lin rugissait, le soleil autour de son corps explosa de manière inattendue, se propageant rapidement avec lui pour centre.
+« Vieux renard, tu as failli me tuer en me faisant cultiver l'énergie de massacre. Aujourd'hui, meurs! » Alors que Wang Lin rugissait, le soleil autour de son corps explosa de manière inattendue, se propageant rapidement avec lui pour centre.
 
 C'était l'auto-destruction du soleil, et la puissance contenue en était inimaginable. C'était comme si le ciel lui-même s'était déchiré!
 
@@ -86,17 +86,17 @@ Il n'était pas le seul. Situ Nan, Da Tou, Maître Fu Fengzi et tous les autres 
 
 Même Wang Wei et Hu Juan étaient essoufflés. Ils se regardèrent, voyant la terreur reflétée dans les yeux de l'autre. À l'instant même, ils avaient été entraînés dans cette illusion, comme s'ils avaient été placés dans un espace distinct. Ils ne pouvaient que regarder, impuissants.
 
-Pourtant, ils n'étaient pas les plus choqués. C'étaient le Démon Ancien Ta Jia, qui chargeait vers le ciel avec sa lame, et la Concubine Impériale des Fleurs!
+Pourtant, ils n'étaient pas les plus choqués. C'étaient l'Ancien Démon Ta Jia, qui chargeait vers le ciel avec sa lame, et la Concubine Impériale des Fleurs!
 
 La Concubine Impériale des Fleurs regardait Wang Lin avec des yeux empreints de nostalgie et de crainte. Ce qui la faisait songer au passé était la parole de son mari, affirmant qu'il serait sauvé par quelqu'un nommé « Wang ». Ce qui l'effrayait, c'était la loi d'origine que Wang Lin venait de manifester!
 
-Personne ne comprenait mieux la loi d'origine qu'elle. À l'époque, l'Empereur Céleste Qing Lin avait failli périr face à elle. Dans le royaume scellé, on l'appelait la loi d'origine, mais au-delà, elle était connue sous le nom de Loi du Commencement Absolu!
+Personne ne comprenait mieux la loi d'origine qu'elle. À l'époque, l'Empereur Céleste Qing Lin avait failli périr face à elle. Dans le royaume scellé, on l'appelait la loi d'origine, mais au-delà, elle était connue sous le nom de Force du Commencement Absolu!
 
-Le calme olympien du Démon Ancien Ta Jia fut ébranlé pour la première fois. Il sentit une puissance terrifiante dans ce sortilège. Bien qu'elle fût encore faible, une fois parvenue à maturité, ce serait une force devant laquelle même lui devrait battre en retraite de peur!
+Le calme olympien de l'Ancien Démon Ta Jia fut ébranlé pour la première fois. Il sentit une puissance terrifiante dans ce sortilège. Bien qu'elle fût encore faible, une fois parvenue à maturité, ce serait une force devant laquelle même lui devrait battre en retraite de peur!
 
 « Ceci... ceci est le pouvoir du Suprême! »
 
-Le regard de Ta Jia se verrouilla sur Wang Lin, ses pupilles se contractant. Il avait le sentiment que cet homme était le dernier atout que Qing Lin avait préparé pour son éveil!
+Le regard de Ta Jia se verrouilla sur Wang Lin, ses pupilles se contractant. Il avait le sentiment que cet homme était le dernier atout que Qing Lin avait préparé pour son éveil avant que son corps ne soit pris!
 
 Au siège de l'Alliance de Culture, là où étaient conservés les jetons de vie des personnalités importantes, l'un des trois jetons de jade violet sur l'étagère supérieure vola en éclats au moment précis où la Nuit Brisée de Wang Lin disparut.
 

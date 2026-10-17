@@ -76,7 +76,7 @@ Le jeune homme fut totalement stupéfait. Avec son expérience, comment aurait-i
 
 « Désormais, les anciens dieux ne protégeront plus le Clan Dévorant la Lune, ils le détruiront! » Ce furent les derniers mots que le jeune homme entendit. Wang Lin avança et envoya un coup de pied. Un fracas résonna dans le corps du jeune homme alors que tous ses os se brisaient, sans que sa chair ne se désintègre pour autant. Au lieu de cela, il fut projeté vers le squelette situé sous la tablette de pierre par la force du coup.
 
-Dans un choc brutal, son corps percuta le squelette et son épaule fut transpercée par les deux ongles aux sept couleurs! Un cri déchirant s'échappa du jeune homme alors que son corps se retrouvait cloué par ces deux ongles. La douleur de voir son Dao aspiré et son âme constamment broyée était une épreuve qu'aucun être ordinaire ne pouvait endurer.
+Dans un choc brutal, son corps percuta le squelette et ses épaules furent transpercées par les deux clous aux sept couleurs! Un cri déchirant s'échappa du jeune homme alors que son corps se retrouvait cloué par ces deux clous. La douleur de voir son Dao aspiré et son âme constamment broyée était une épreuve qu'aucun être ordinaire ne pouvait endurer.
 
 Wang Lin ne le tua pas immédiatement; il lui fit subir la même souffrance que Zhan Xingye. Attendre la mort après une torture sans fin!
 
@@ -92,11 +92,11 @@ Wang Lin retira sa main et poussa un soupir.
 
 Dans l'immensité du Système Stellaire Antique, il existait un lieu empli d'éclairs. C'était là que résidait le célèbre Clan du Tonnerre Dispersé.
 
-Un lac de tonnerre existait depuis l'éternité au sein du Clan du Tonnerre Dispersé. Ce tonnerre émanait du vide et grondait sans cesse. Le clan avait édifié un temple autour de lui pour lui offrir des sacrifices.
+Une foudre éternelle, qui ne s'était pas dissipée depuis d'innombrables dizaines de milliers d'années, existait au sein du Clan du Tonnerre Dispersé. Cette foudre émanait du vide et grondait sans cesse. Le clan avait édifié un temple autour d'elle pour lui offrir des sacrifices.
 
-Cependant, au moment où le membre portant la marque d'éclair mourut et que Wang Lin déclara qu'il leur retirait le droit de contrôler le tonnerre, ce lac éternel émit un hymne tonnerre capable de faire trembler les cieux! Cela choqua tout le Clan du Tonnerre Dispersé et fit sursauter tous leurs cœurs!
+Cependant, au moment où le membre portant la marque d'éclair mourut et que Wang Lin déclara qu'il leur retirait le droit de contrôler le tonnerre, cette foudre éternelle fit retentir un grondement de tonnerre capable de faire trembler les cieux! Cela choqua tout le Clan du Tonnerre Dispersé et fit sursauter tous leurs cœurs!
 
-Les visages de chacun changèrent et ils se précipitèrent. Au moment où ils déployèrent leur Sens Divin, le lac de tonnerre éternel disparut soudainement sans laisser de trace, comme s'il avait été arraché... Après dix respirations, il réapparut, mais cette scène provoqua une panique et une terreur infinies au sein du clan.
+Les visages de chacun changèrent et ils se précipitèrent. Au moment où ils déployèrent leur Sens Divin, la foudre éternelle disparut soudainement sans laisser de trace, comme si elle avait été arrachée... Après dix respirations, elle réapparut, mais cette scène provoqua une panique et une terreur infinies au sein du clan.
 
 Dans le Système Stellaire Antique, il y avait aussi la zone du Clan des Moineaux de Feu... Cet endroit ressemblait beaucoup à la Secte Divine de l'Oiseau Vermillon, où toute la région était en flammes.
 

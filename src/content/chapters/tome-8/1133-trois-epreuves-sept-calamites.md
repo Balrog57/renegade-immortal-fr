@@ -26,13 +26,13 @@ Cette cloche, faite d'os et enveloppée d'une couche métallique, émit des sons
 
 Le regard du dragon de sang devint assoiffé de sang. À l'origine, il n'avait qu'une seule paire de pupilles, mais après avoir invoqué un sort inconnu, celles-ci se divisèrent en deux, puis encore une fois. En un instant, huit paires de pupilles apparurent dans ses yeux.
 
-Un sentiment de crise envahit immédiatement le cœur de Maître Yan Leizi et des huit rois de la Secte des Cadavres. Cependant, ils étaient des cultivateurs puissants ayant franchi le sommet du stade de la Rupture du Nirvana et survécu à leurs cinq Fléaux Célestes. Forts d'une longue existence et d'une expérience de combat extrêmement riche, dès qu'ils détectèrent ce danger, ils ne cherchèrent pas à esquiver, mais... attaquèrent!
+Un sentiment de crise envahit immédiatement le cœur de Maître Yan Leizi et des huit rois de la Secte des Cadavres. Cependant, ils étaient des cultivateurs puissants dont le niveau de culture dépassait la perfection du stade de la Rupture du Nirvana et qui se trouvaient déjà au cœur de leurs cinq Fléaux Célestes. Forts d'une longue existence et d'une expérience de combat extrêmement riche, dès qu'ils détectèrent ce danger, ils ne cherchèrent pas à esquiver, mais... attaquèrent!
 
 Lorsqu'un sort puissant est en cours d'incantation, au moment même où sa puissance atteint son apogée, c'est aussi son instant le plus vulnérable! C'était une leçon que les neuf avaient apprise au fil d'innombrables années. La main droite de Maître Yan Leizi toucha l'espace entre ses sourcils et quarante-cinq fragments s'envolèrent instantanément. Ces derniers grossirent rapidement pour se transformer en quarante-cinq Fragments du Royaume Céleste du Tonnerre qui recouvrirent le ciel!
 
-« Pouvoir du Royaume Céleste du Tonnerre! » D'un geste de la main, Maître Yan Leizi déclencha un grondement assourdissant tandis que les quarante-cinq fragments s'abattaient sur le dragon de sang!
+« Pouvoir du Royaume du Tonnerre, deviens le sort divin qui déchire le ciel! » Maître Yan Leizi tendit les deux mains, et les quarante-cinq fragments continentaux se mirent à tourner dans un grondement assourdissant avant de s'abattre sur le dragon de sang!
 
-La pression de la descente des fragments semblait égaler la puissance des cieux. Un fracas tonitruant retentit et d'innombrables pans du corps du dragon de sang s'effondrèrent.
+La pression de la descente des fragments semblait égaler la puissance des cieux. Elle fit trembler le vide de toutes parts et creusa d'innombrables petites dépressions dans le corps de sang du dragon.
 
 Les esprits des huit rois de la Secte des Cadavres étaient liés. Leurs mains formèrent promptement des sceaux et huit rayons de lumière convergèrent. Tandis que l'énergie glaciale s'accumulait, la Troisième Formation de Cadavres qui avait gelé le dragon plus tôt réapparut!
 
@@ -44,7 +44,7 @@ Les pupilles du dragon de sang se rétractèrent, puis l'une des huit paires com
 
 L'obscurité ne dura qu'un instant avant de se dissiper.
 
-Cependant, après ce regain, quatre des quarante-cinq fragments de Maître Yan Leizi furent réduits en poussière et les quarante et un restants furent repoussés.
+Cependant, une fois la lumière revenue, quatre des quarante-cinq fragments de Maître Yan Leizi furent réduits en poussière et les quarante et un restants furent repoussés.
 
 Les yeux de Maître Yan Leizi se remplirent de stupeur!
 
@@ -52,7 +52,7 @@ La sphère de glace formée par les huit rois de la Secte des Cadavres fut égal
 
 L'homme âgé qui méditait leva les yeux et fronça les sourcils, avant de poursuivre sa réflexion. Une chose restait incomprise: quel était le but de Maître Wuji...
 
-« Serait-ce pour dérober le pouvoir de l'ancien dieu royal à 8 étoiles... Pourtant, à l'époque, même l'Empereur Céleste Qin Ling avait renoncé. Maître Wuji, quelle méthode possédez-vous? »
+« Serait-ce pour dérober le pouvoir de l'ancien dieu royal à 8 étoiles... Pourtant, à l'époque, même l'Empereur Céleste Qing Lin avait renoncé. Maître Wuji, quelle méthode possédez-vous? »
 
 Wang Lin observait la bataille depuis le lointain sans s'approcher. Cette obscurité soudaine lui avait inspiré un puissant sentiment de danger, le rendant d'autant plus réticent à s'avancer. Cependant, en revoyant le dragon de sang une seconde fois, Wang Lin eut une impression de familiarité. Ce sentiment se propagea dans son cœur et ses yeux s'illuminèrent soudainement.
 
@@ -60,9 +60,9 @@ Il percevait naturellement Maître Yan Leizi et l'homme en noir. En voyant ce de
 
 Pourtant, l'homme âgé fronçait les sourcils comme absorbé par ses pensées; il ne daignait même pas regarder le dragon.
 
-« Il a pu forcer le Senior Frère Qing Shui à reculer, il a ouvert la barrière spatiale d'un seul sort, son corps est imprégné d'énergie d'origine et il peut toucher à toutes les lois. Cet homme doit être un cultivateur de troisième étape; il n'y a pas d'autre possibilité! »
+« Il a pu forcer le Senior Frère Qing Shui à reculer, il a ouvert la barrière spatiale d'un seul sort, son corps est imprégné d'énergie d'origine et il a percé à jour toutes les lois. Cet homme doit être un cultivateur de troisième étape; il n'y a pas d'autre possibilité! »
 
-Les yeux du dragon de sang étaient redevenus normaux, mais sa férocité n'en était que plus intense. Les sept pupilles restantes s'agrandirent à nouveau pour envahir son regard!
+Les yeux du dragon de sang étaient redevenus normaux, mais sa férocité n'en était que plus intense. Les sept paires de pupilles restantes s'agrandirent à nouveau pour envahir son regard!
 
 Le vide entier fut enveloppé par les ténèbres. Dans cette obscurité, Wang Lin sentit immédiatement une étrange loi l'envelopper, comme si elle cherchait à extraire son âme originelle pour la fusionner avec le néant.
 
@@ -78,13 +78,13 @@ En un éclair, les deux cercueils éclatèrent et deux vieillards en sortirent.
 
 Alors qu'ils se repliaient, leurs mains formèrent des sceaux. L'un des vieillards hurla: « Deuxième Formation de Cadavres! » À cet instant, leurs mouvements s'accélérèrent pour s'aligner verticalement. Une énergie glaciale les entoura et, en un clin d'œil, une glace noire apparut. Cette glace était si sombre qu'elle rendait leur présence invisible.
 
-Pourtant, en un instant, la glace se mua en une épée de plus de mille pieds de long!
+Pourtant, en un instant, la glace se mua en une grande épée de mille pieds de long!
 
 Dès l'apparition de l'épée, une pression écrasante et une sensation de tranchant absolu se firent sentir. Elle chargea le dragon de sang avec une énergie d'épée dévastatrice!
 
 Les yeux de Maître Yan Leizi s'écarquillèrent; il mordit le bout de son doigt pour tracer rapidement une rune. Il frappa celle-ci, qui s'envola en brillant d'un rouge sanglant. Les fragments restants se dispersèrent pour charger le dragon de sang de toutes les directions, semblant vouloir l'encercler.
 
-Le dragon de sang devint sérieux et ses six pupilles restantes brillèrent à nouveau. Cette fois, ce n'était pas une seule paire qui prenait le dessus; les pupilles se dispersèrent pour occuper tout l'œil!
+Le dragon de sang devint sérieux et ses six paires de pupilles restantes brillèrent à nouveau. Cette fois, ce n'était pas une seule paire qui prenait le dessus; les pupilles se dispersèrent pour occuper tout l'œil!
 
 Instantanément, le monde fut plongé dans le noir, et après trois respirations, l'obscurité disparut!
 

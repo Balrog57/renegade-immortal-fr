@@ -26,7 +26,7 @@ Mais lorsqu'il devenait violent, il frappait tel un marteau ou une massue. Sous 
 
 Ce Royaume Céleste du Vent était véritablement digne de son nom, tant il était imprégné de vent! C'était comme si une brèche s'était ouverte, libérant des vents accumulés depuis des éons!
 
-Solitude et mélancolie furent les premières émotions qui saisirent Wang Lin lorsqu'il entra dans le Royaume Céleste du Vent et ferma les yeux, laissant le vent fouetter son visage.
+Solitude et mélancolie furent les premières émotions qui saisirent Wang Lin lorsqu'il entra dans le Royaume Céleste du Vent et ferma les yeux, laissant le vent fouetter son visage. Il y avait aussi ce vent plaintif, né avec le vent et qui ne cessait de l'entourer, comme une succession de murmures et de chants solitaires qui résonnaient lentement entre le ciel et la terre, comme si de nombreuses personnes émettaient sans cesse des sons indistincts, ce qui donnait une impression étrange et troublante.
 
 Alors qu'il avançait, une centaine de moustiques encerclèrent Wang Lin. Tandis que leurs rugissements résonnaient, le roi moustique sous ses ordres manifesta une expression d'excitation. Il laissa échapper un sifflement assourdissant qui fit vibrer toute la contrée.
 
@@ -44,11 +44,11 @@ Cette découverte excita Wang Lin! Bien que seule une minorité atteignît ce ni
 
 Les moustiques rouges représentaient les existences les plus infimes parmi leur espèce! Wang Lin comprit que les cultivateurs situés à l'extérieur de la faille n'avaient pas de raison de craindre ces créatures s'ils restaient loin de l'ouverture, car elles n'étaient pas si puissantes. Toutefois, en raison de leur proximité avec la faille, ils devaient reculer: si une seule bête s'échappait, ce qui les attendrait à l'intérieur du Royaume Céleste serait une traque sans fin par d'innombrables moustiques.
 
-Un simple sifflement d'une seule bête pouvait attirer des dizaines de milliers de moustiques surgissant du Royaume Céleste.
+Un simple sifflement d'une seule bête pouvait attirer des milliers de moustiques surgissant du Royaume Céleste.
 
 En vérité, les bêtes moustiques étaient une espèce très singulière. À certains stades, le roi moustique n'était pas l'entité la plus puissante; il y avait souvent des gardiens bien plus redoutables que lui.
 
-Cependant, un roi moustique possédait une capacité unique: la métamorphose! Presque toutes les bêtes moustiques naissaient avec une limite intrinsèque qu'elles ne pouvaient franchir. Si elles naissaient rouges, elles ne pourraient atteindre, au mieux, qu'un rouge foncé avant de mourir.
+Cependant, un roi moustique possédait une capacité unique: la métamorphose! Presque toutes les bêtes moustiques naissaient avec une limite intrinsèque qu'elles ne pouvaient franchir. Si elles naissaient rouges, elles ne pourraient atteindre, au mieux, qu'un brun rougeâtre avant de mourir.
 
 Une fois la métamorphose accomplie, ce moustique acquérait le droit de devenir le roi de sa tribu. Bien qu'il puisse ne pas être le plus fort au début, il finirait par devenir le plus puissant!
 
@@ -76,9 +76,9 @@ Le regard de Wang Lin balaya l'assemblée. Il y trouva six bêtes rouge foncé p
 
 Il disposait désormais de près de 300 moustiques de niveau Scruteur du Nirvana et de 16 moustiques au stade avancé du Scruteur du Nirvana. Avec une telle force, Wang Lin pourrait anéantir instantanément un cultivateur du stade Purificateur du Nirvana sans même avoir à bouger.
 
-« 300, c'est encore bien trop peu. Il m'en faut davantage! Si j'avais 1 000 de ces bêtes rouges de niveau Scruteur du Nirvana, même les cultivateurs du stade Briseur du Nirvana fuiraient devant moi! Et si je pouvais en obtenir 10 000... même les puissants du stade avancé du Briseur du Nirvana resteraient à distance! »
+« 300, c'est encore bien trop peu. Il m'en faut davantage! Si j'avais 10 000 de ces bêtes rouges de niveau Scruteur du Nirvana, même les cultivateurs du stade Briseur du Nirvana fuiraient devant moi! Et si je pouvais en obtenir 100 000... même les puissants du Briseur du Nirvana à la grande perfection resteraient à distance! »
 
-« Si j'en avais 100 000, peu importe qu'ils soient au stade Fléau Céleste! Si j'en avais un million, dix millions... » Wang Lin attendait ce moment depuis très longtemps.
+« Si j'en avais plus de 100 000, peu importe qu'ils soient au stade Fléau Céleste! Si j'en avais un million, dix millions... » Wang Lin attendait ce moment depuis très longtemps.
 
 Il prit une profonde inspiration et s'élança dans les lointains avec ses 300 moustiques. Le battement de leurs ailes provoquait un grondement tonitruant qui résonnait à travers le monde, dégageant une pression colossale.
 
@@ -88,8 +88,8 @@ Les yeux de Wang Lin brillèrent et son roi moustique s'élança vers ces deux b
 
 Sous cette pression écrasante, les deux moustiques brun rougeâtre tremblèrent et commencèrent à siffler. Un instant plus tard, leur résistance s'évanouit; elles se soumirent et rejoignirent le roi moustique.
 
-Le sens divin de Wang Lin scruta ces deux bêtes, et son visage s'illumina. Ces deux spécimens rouge foncé étaient presque l'équivalent de cultivateurs au sommet du stade Scruteur du Nirvana, et leur aura féroce les rendait encore plus terrifiants.
+Le sens divin de Wang Lin scruta ces deux bêtes, et son visage s'illumina. Ces deux spécimens brun rougeâtre étaient presque l'équivalent de cultivateurs au sommet du stade Scruteur du Nirvana, et leur aura féroce les rendait encore plus terrifiants.
 
-« 400 maintenant! » Wang Lin contempla la dense horde qui l'entourait. Son humeur s'améliorait à mesure qu'il ajoutait ces deux bêtes brun rougeâtre et les vingt autres de couleur rouge foncé.
+« 400 maintenant! » Wang Lin contempla la dense horde qui l'entourait. Son humeur s'améliorait à mesure qu'il ajoutait ces deux bêtes brun rougeâtre et la vingtaine d'autres de couleur rouge foncé.
 
-Ne brûlant pas de l'envie d'entrer immédiatement dans les profondeurs du Royaume Céleste, il continua de parcourir la périphérie. En chemin, il rencontra de nombreux nuages de brouillard rouge renfermant de vastes essaims. Dès qu'ils apercevaient le roi moustique de Wang Lin, ils tremblaient et se regroupaient autour de lui. Après deux jours, Wang Lin disposait de près de 1 000 bêtes moustiques. L'essaim formait désormais un nuage rouge qui recouvrait le ciel.
+Ne brûlant pas de l'envie d'entrer immédiatement dans les profondeurs du Royaume Céleste, il continua de parcourir la périphérie. En chemin, il rencontra de nombreux nuages de brouillard rouge renfermant de vastes essaims. Dès qu'ils apercevaient le roi moustique de Wang Lin, ils tremblaient et se regroupaient autour de lui. Après deux jours, Wang Lin disposait de plus de 1 000 bêtes moustiques. L'essaim formait désormais un nuage rouge qui recouvrait le ciel.

@@ -38,7 +38,7 @@ Wang Lin bondit dans les airs et chargea l'Omniscient.
 
 L'apparition soudaine de l'Alliance des Cultivateurs et le sortilège de Wang Lin captèrent l'attention de l'Omniscient. Son expression devint extrêmement sombre; utilisant son trident, il repoussa Mu Bingmei en criant: « Puisque tu cherches la mort, je vais exaucer ton vœu! »
 
-Mu Bingmei hésita un instant, mais la voix glaciale de Wang Lin retentit aussitôt: « Je n'ai pas besoin de ton aide!!! Quant à la pilule d'autrefois, je trouverai le moyen de te rendre la pareille au centuple! Quant au fait de m'avoir sauvé la vie, je te le rembourserai également mille fois! »
+Mu Bingmei hésita un instant, mais la voix glaciale de Wang Lin retentit aussitôt: « Je n'ai pas besoin de ton aide!!! Quant à la pilule d'autrefois, je trouverai le moyen de te le rendre plusieurs fois! Quant au fait de m'avoir sauvé la vie, j'aurai sûrement l'occasion de te le rembourser plusieurs fois également! »
 
 Le visage de Mu Bingmei pâlit instantanément alors qu'elle se retirait en silence. Elle se mordit la lèvre inférieure jusqu'au sang. Fixant Wang Lin, elle hurla d'une voix empreinte de tristesse: « Je veux le voir!!! » C'était son désir le plus profond, une aspiration qui résonnait dans son esprit depuis d'innombrables années et qui la laissait toujours tourmentée.
 
@@ -66,7 +66,7 @@ Il parvint à entrouvrir le second sceau situé entre ses sourcils!
 
 Mais avant qu'il n'ait pu achever son geste, une paume gigantesque descendit du ciel. Sa vitesse dépassait l'entendement. Elle se mua en un poing massif qui s'écrasa sur le corps de l'Omniscient.
 
-Les grondements de tonnerre continuèrent de résonner tandis que la terre tremblait violemment. Après l'impact du premier poing, une paire de poings colossaux s'abattit au sol dans un bruit sourd.
+Les grondements de tonnerre continuèrent de résonner tandis que la terre tremblait violemment. Après l'impact du premier poing, une paire de pieds colossaux s'abattit au sol dans un bruit sourd.
 
 Simultanément, un changement inimaginable se produisit dans l'espace surplombant la Terre des Esprits Démoniaques. Le ciel gronda et un vortex immense apparut, tournant à une vitesse prodigieuse.
 
@@ -100,7 +100,7 @@ Tout ce qu'ils connaissaient s'était évanoui; ils avaient été projetés au c
 
 Pourtant, certains refusèrent d'y croire, pensant qu'il ne s'agissait que d'une illusion. Bien que choqué, un être céleste de l'Alliance observa la scène avec dédain. Soudain, une ombre plana au-dessus de lui et le pied d'un dieu ancien s'abattit impitoyablement.
 
-Il n'eut même pas le temps d'esquiver. En un clin d'œil, le pied droit percuta la terre dans un tremblement de fougue. Lorsque le pied se releva, l'être céleste avait disparu, ne laissant derrière lui qu'une traînée de sang et de chair. Son âme originelle s'était également effondrée!
+Il n'eut même pas le temps d'esquiver. En un clin d'œil, le pied droit percuta la terre, qui trembla plus violemment encore. Lorsque le pied se releva, l'être céleste avait disparu, ne laissant derrière lui qu'une traînée de sang et de chair. Son âme originelle s'était également effondrée!
 
 Cette scène fit reprendre haleine à l'assistance. À cet instant, un oiseau géant de 10 000 pieds de long laissa échapper un cri féroce et survola les lieux.
 

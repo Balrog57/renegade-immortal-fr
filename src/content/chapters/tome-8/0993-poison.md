@@ -38,7 +38,7 @@ Situ Nan afficha une expression entre le sourire et la moue, puis posa sa coupe 
 
 Le visage de Wang Lin resta impassible et il sourit simplement: « J'ai juste eu de la chance. »
 
-« Pourtant, ta culture est un peu étrange. Tu n'es qu'au pic du stade intermédiaire du Scruteur du Nirvana, et pourtant même moi, j'ai été saisi par la puissance de ce coup de poing. » Bien que Situ Nan ne fût qu'au début du stade Purificateur du Nirvana, son talent était prodigieux. Il avait également étudié avec acharnement durant sa culture en porte fermée, atteignant ainsi le sommet de son niveau. S'il était acculé, il pourrait même combattre des cultivateurs au milieu du stade Purificateur du Nirvana, bien que le prix à payer fût lourd.
+« Pourtant, ta culture est un peu étrange. Tu n'es qu'au stade intermédiaire du Scruteur du Nirvana, et pourtant même moi, j'ai été saisi par la puissance de ce coup de poing. » Bien que Situ Nan ne fût qu'au début du stade Purificateur du Nirvana, son talent était prodigieux. Il avait également étudié avec acharnement durant sa culture en porte fermée, atteignant ainsi le sommet de son niveau. S'il était acculé, il pourrait même combattre des cultivateurs au milieu du stade Purificateur du Nirvana, bien que le prix à payer fût lourd.
 
 Le combat entre Wang Lin et Situ Nan n'avait été qu'un simple échange amical. Cependant, Situ Nan pouvait évidemment ressentir une puissance terrifiante dissimulée en Wang Lin. Malgré son arrogance habituelle, il en était secoué.
 
@@ -48,7 +48,7 @@ Pendant que Situ Nan était plongé dans ses pensées, il crut voir l'enfant sim
 
 Le jeune homme qui avait perdu ses parents et son corps avant d'être sauvé par Situ Nan. Puis ce même jeune homme qui s'était engagé sur un chemin de massacre, frôlant la monstruosité...
 
-Le jeune homme qui s'était retrouvé après avoir découvert son domaine. Celui qui avait progressivement gagné en renommée sur la planète Suzaku pour finalement atteindre les sommets et réveiller Situ Nan.
+Le jeune homme qui, après être redevenu mortel, s'était retrouvé et avait saisi l'essence de la réincarnation. Celui qui avait progressivement gagné en renommée sur la planète Suzaku pour finalement atteindre les sommets et réveiller Situ Nan.
 
 Situ Nan poussa un soupir en regardant Wang Lin. Il ne put s'empêcher de repenser au jour de leur départ: l'un partait vers la planète Tian Yun pour devenir disciple, l'autre vers la planète Feng Luan pour profiter de la vie.
 
@@ -66,7 +66,7 @@ Sans Situ, il aurait été presque impossible pour Wang Lin de franchir les prem
 
 Sans les Doigts de la Mort, les Doigts Démoniaques et les Doigts de l'Inframonde de Situ, ainsi que ses enseignements sur les sorts et les trésors, Wang Lin n'aurait jamais pu s'imposer sur la planète Tian Yun.
 
-Sans Situ, lorsque Wang Lin fut attaqué par le Démon Éparpillé dans la Terre des Esprits Démons, il serait mort sans le Doigt de la Mort...
+Sans Situ, lorsque Wang Lin fut attaqué par le Démon Éparpillé dans la Terre des Esprits Démoniaques, il serait mort sans le Doigt de la Mort...
 
 Et il y avait aussi la perle défiant les cieux! Si Situ Nan avait eu la moindre trace de cupidité, il n'aurait jamais laissé Wang Lin conserver un trésor aussi mystérieux. Si Situ l'avait pris, Wang Lin serait mort. C'est pour cela que Situ s'était contenté de sourire et de dire:
 
@@ -80,13 +80,13 @@ Sous la brise montagnarde, ils burent verre après verre. Après un moment de si
 
 Un homme peut se passer d'une amante, mais il ne peut se passer d'un véritable ami.
 
-Situ Nan ne posa aucune question supplémentaire sur l'étrangeté de la culture de Wang Lin. Il interrompit ses pensées en prenant une coupe et en souriant: « Que dire de plus entre nous, mon frère? Quand j'étais en difficulté sur la planète Feng Luan, j'ai d'abord pensé à toi. Plus tard, toi et moi, nous retournerons sur la planète Feng Luan en faisant notre chemin dans le sang! »
+Situ Nan ne posa aucune question supplémentaire sur l'étrangeté de la culture de Wang Lin. Il coupa la parole à Wang Lin en prenant une coupe et en souriant: « Que dire de plus entre nous, mon frère? Quand j'étais en difficulté sur la planète Feng Luan, j'ai d'abord pensé à toi. Plus tard, toi et moi, nous retournerons sur la planète Feng Luan en faisant notre chemin dans le sang! »
 
 Wang Lin sourit et acquiesça sans chercher à en savoir plus. Il discuta avec Situ Nan au fil des coupes de vin jusqu'au cœur de la nuit. La lune brillait intensément dans le ciel. Malgré la fraîcheur, un calme profond régnait. Parler de la vie avec un ami apportait une paix infinie à l'esprit de Wang Lin.
 
 Il n'avait pas ressenti cette chaleur depuis très longtemps. Ce genre de chaleur surgit naturellement auprès des vieux amis. C'était comme s'il était revenu sur la planète Suzaku, là où ses destins et ceux de Situ Nan étaient liés.
 
-« Tu étais aussi célèbre dans le Système Stellaire du Tout-Ciel, et on peut dire que tu t'y es bien amusé. Mais pauvre de moi, je m'amusais pourtant très bien sur la planète Feng Luan, jusqu'à ce que je croise le regard de ces maudites femmes. Ce n'était pas grand-chose dans le monde de la culture... Je ne m'en suis pas soucié; je me suis contenté de les regarder et d'enregistrer leurs images sur un jade », dit Situ Nan, l'air déprimé, en prenant une grande gorgée de vin.
+« Tu étais aussi célèbre dans le Système Stellaire du Tout-Ciel, et on peut dire que tu t'y es bien amusé. Mais pauvre de moi, je m'amusais pourtant très bien sur la planète Feng Luan, jusqu'à ce que je surprenne par hasard ces maudites femmes de la planète Feng Luan dans leurs amours entre femmes. Ce n'était pas grand-chose dans le monde de la culture... Je ne m'en suis pas soucié; je me suis contenté de les regarder et d'enregistrer leurs images sur un jade », dit Situ Nan, l'air déprimé, en prenant une grande gorgée de vin.
 
 « C'est tout ce que j'ai fait, et pourtant, ils ont lancé un ordre de mise à mort pour me traquer jour et nuit! Cela m'a forcé à me cacher, et je ne pouvais même plus agir comme un roi en paix... Finalement, j'ai dû changer de lieu de culture sans cesse. Ces dernières centaines d'années, j'ai été comme une souris fuyant d'une planète à l'autre. Des planètes riches en énergie spirituelle ou des mondes déserts, je les ai toutes parcourues. »
 

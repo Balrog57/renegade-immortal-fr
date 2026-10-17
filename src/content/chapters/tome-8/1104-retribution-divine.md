@@ -30,7 +30,7 @@ Tout en réfléchissant, Wang Lin agita la main droite et une fissure d'environ 
 
 La main droite de Wang Lin plongea dans la fissure pour en extraire un talisman jaune. D'une simple pensée, la faille disparut instantanément.
 
-Il projeta le talisman jaune sur la bête-moustique. L'animal trembla, puis un tourbillon l'enveloppa avant qu'il ne s'élance dans l'espace supérieur. Ce tourbillon teintait la terre de jaune et, en tournant, il produisait un hurlement de vent violent. Simultanément, un oiseau géant apparut au-dessus du vortex et déploya ses ailes. La bête-moustique poussa soudain un cri assourdissant et fonça en avant tel un éclair, multipliant plusieurs fois sa vitesse.
+Il projeta le talisman jaune sur la bête-moustique. L'animal trembla, puis un tourbillon l'enveloppa avant qu'il ne s'élance dans l'espace supérieur. Ce tourbillon était d'un jaune terreux et, en tournant, il produisait un hurlement de vent violent. Simultanément, un oiseau géant apparut au-dessus du vortex et déploya ses ailes. La bête-moustique poussa soudain un cri assourdissant et fonça en avant tel un éclair, multipliant plusieurs fois sa vitesse.
 
 La bête atteignit alors une limite de célérité telle que Wang Lin se retrouva chevauchant la créature; elle allait si vite que les étoiles au loin ne lui apparaissaient plus que comme de longues traînées lumineuses.
 
@@ -62,7 +62,7 @@ Le visage des deux anciens s'assombrit et ils s'élancèrent en avant. Avant mê
 
 « Il est donc arrivé. Avec les anciens ici, nous pourrions avoir une chance de capturer le Roi! » Les trois compères se regardèrent et foncèrent vers l'écran vert.
 
-De l'autre côté de la barrière, la bête-moustique volait à une vitesse inimaginable et percuta l'écran avec fureur. Un fracas tonitruant résonna lors de l'impact. Cependant, l'écran de lumière verte était si robuste qu'il ne bougea pas d'un iota; la bête subit le contrecoup et fut repoussée sur près de mille pieds. Si Wang Lin n'avait pas été là pour atténuer la force du rebond, elle aurait été gravement blessée une fois de plus.
+De l'autre côté de la barrière, la bête-moustique volait à une vitesse inimaginable et percuta l'écran avec fureur. Un fracas tonitruant résonna lors de l'impact. Cependant, l'écran de lumière verte était si robuste qu'il ne bougea pas d'un iota; la bête subit le contrecoup et fut repoussée sur plusieurs milliers de pieds. Si Wang Lin n'avait pas été là pour atténuer la force du rebond, elle aurait été gravement blessée une fois de plus.
 
 Remplie d'amertume, les yeux injectés d'une intention meurtrière, la bête poussa un nouveau hurlement.
 

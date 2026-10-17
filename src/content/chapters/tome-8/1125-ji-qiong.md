@@ -20,9 +20,9 @@ Wang Lin partit avec l'ancien Empereur Divin, dont le corps s'était transformé
 
 Les Quatre Sectes Divines n'auraient plus aucun lien avec lui, mais l'expression de l'ancien de la Secte Divine Oiseau Vermillon avait intrigué Wang Lin. Il sentait vaguement qu'il y avait quelque chose qu'il ignorait.
 
-C'était parce que l'ancien Empereur Divin Oiseau Vermillon lui avait également légué le Manteau Oiseau Vermillon et le jeton formé par l'Esprit Oiseau Vermillon.
+C'était parce que l'ancien Empereur Divin Oiseau Vermillon lui avait également légué le manteau des Empereurs Divins de toutes les générations et le jeton formé par l'Esprit Oiseau Vermillon.
 
-L'Empereur Divin Dragon Azure n'en avait absolument pas fait mention. Si l'on disait qu'il les avait oubliés... Wang Lin ne l'aurait pas cru. De plus, concernant le secret que seul l'Empereur Divin Oiseau Vermillon pouvait connaître — le secret qui avait causé la guerre entre les Quatre Sectes Divines et le Royaume du Vide Brillant — l'Empereur Divin Dragon Azure n'avait rien demandé.
+L'Empereur Divin Dragon Azure n'en avait absolument pas fait mention. Si l'on disait qu'il les avait oubliés... Wang Lin ne l'aurait pas cru. De plus, concernant le secret que seul l'Empereur Divin Oiseau Vermillon pouvait connaître — le secret qui avait causé la grande guerre entre l'Alliance de Culture, le Royaume du Vide Brillant et les Quatre Sectes Divines — l'Empereur Divin Dragon Azure n'avait rien demandé.
 
 Après avoir éloigné tout le monde, l'Empereur Divin Dragon Azure s'assit dans la salle principale de la Secte Divine Dragon Azure. Il paraissait épuisé, et les Quatre Trésors Sacrés flottaient devant lui.
 
@@ -30,7 +30,7 @@ Cependant, son regard ne se portait pas sur les Trésors Sacrés, mais vers l'ex
 
 Après avoir envoyé Da Tou et sa compagnie dans le nouveau Royaume Céleste de la Pluie, il n'avait plus aucune inquiétude. Il flotta calmement parmi les étoiles, ses yeux brillant comme des astres. Une aura puissante enveloppa Wang Lin, qui fut totalement imprégné d'une intention de combat.
 
-« Tuo Sen, cela fait plus de 1 000 ans. Nous devrons, en fin de compte, nous affronter! » L'aura de Wang Lin était monstrueuse alors qu'il fendait les étoiles. Utilisant la Déviation Spatiale, il se dirigea rapidement vers la planète familière Suzaku!
+« Tuo Sen, cela fait plus de 1 000 ans. Nous devrons, en fin de compte, nous affronter! » L'aura de Wang Lin était monstrueuse alors qu'il fendait les étoiles. Utilisant la Courbure Spatiale, il se dirigea rapidement vers la planète familière Suzaku!
 
 Sur la planète Suzaku, peu de cultivateurs rôdaient encore aux alentours. La majorité d'entre eux étaient entrés dans la Terre de l'Ancien Dieu. Une fois à l'intérieur, ils étaient coupés du monde extérieur; nul ne savait si ces cultivateurs étaient encore en sécurité.
 
@@ -40,15 +40,15 @@ L'espace autour de la planète Suzaku se tordit et Wang Lin en émergea. En obse
 
 Lorsqu'il apparut, il se trouvait sur la lune de la planète Suzaku.
 
-Il y avait naturellement des cultivateurs ici, mais grâce au niveau de culture de Wang Lin, personne ne le remarqua. Il trouva une montagne et s'y cacha. Il ouvrit ensuite son propre espace intérieur et grava une formation sur le sol.
+Il y avait naturellement des cultivateurs ici, mais grâce au niveau de culture de Wang Lin, personne ne le remarqua. Il trouva une montagne et s'y cacha. Il ouvrit ensuite un espace, puis, la main droite en forme d'épée, grava une formation complexe sur le sol.
 
-C'était la Formation Céleste Qing Lin qu'il avait apprise lors de sa fusion avec Qing Lin. Elle pouvait masquer toutes ses traces et empêcher quiconque de le trouver. Une fois la formation établie, il sortit quelques jades célestes et les disposa sur les tracés.
+C'était la Formation Céleste Qing Lin qu'il avait apprise lors de sa fusion avec Qing Lin. Elle pouvait masquer toutes ses traces et empêcher quiconque de le trouver. Une fois la formation établie, il sortit quelques jades célestes et les disposa autour de la formation, puis s'assit en tailleur en son centre.
 
 Il pointa son doigt entre ses sourcils et une partie de son âme originelle s'en échappa.
 
 « Âme, prends forme! » Les mains de Wang Lin formèrent rapidement plusieurs sceaux. L'âme originelle se transforma en une fumée verte qui tourbillonna autour de lui avant de se condenser en une forme humaine.
 
-« Forme le corps! » Wang Lin mordit le bout de sa langue et cracha du sang. Une partie de son énergie d'origine céleste fut infusée dans cette portion de son âme originelle.
+« Forme le corps! » Wang Lin mordit le bout de sa langue et cracha du sang. Une partie de la maigre force immortelle de son corps fut infusée dans le sang, qui retomba directement sur l'âme originelle.
 
 L'âme originelle brilla instantanément d'un éclat rouge, et les rochers au sol tremblèrent comme s'ils étaient attirés par une force invisible. Rapidement, la pierre vola vers l'âme originelle.
 
@@ -68,15 +68,15 @@ La formation servait à le cacher, et le cadavre féminin était là pour le gar
 
 Au même instant, alors que le souffle et les battements de cœur de Wang Lin cessèrent, l'avatar de pierre ouvrit lentement les yeux.
 
-Après avoir légèrement déplacé son corps, Wang Lin observa son enveloppe dans la formation ainsi que le cadavre féminin argenté. Puis, son corps vacilla et il quitta directement la montagne. Utilisant la Déviation Spatiale pour contourner tous les cultivateurs gravitant autour de la planète Suzaku, il réapparut sur la planète elle-même.
+Après avoir légèrement déplacé son corps, Wang Lin observa son enveloppe dans la formation ainsi que le cadavre féminin argenté. Puis, son corps vacilla et il quitta directement la montagne. Utilisant la Courbure Spatiale pour contourner tous les cultivateurs gravitant autour de la planète Suzaku, il réapparut sur la planète elle-même.
 
 Lorsqu'il passa près des cultivateurs environnants, quatre personnes ouvrirent les yeux comme si elles avaient perçu quelque chose, mais elles n'arrêtèrent pas Wang Lin. Après tout, au cours des derniers jours, de nombreux vieux monstres errants s'étaient précipités ici.
 
-Aucun des cultivateurs ayant pénétré dans la Terre de l'Ancien Dieu ne connaissait mieux cet endroit que Wang Lin. Une fois sur la planète Suzaku, il se dirigea directement vers la Mer des Diables.
+Rares étaient les cultivateurs ayant pénétré dans la Terre de l'Ancien Dieu qui connaissaient la planète Suzaku mieux que Wang Lin. Une fois sur la planète Suzaku, il se dirigea directement vers la Mer des Diables.
 
 En chemin, il n'utilisa pas la téléportation pour arriver rapidement, mais prit le temps d'adapter son corps. Ce n'est qu'après s'être pleinement familiarisé avec sa condition qu'il accéléra sa progression.
 
-Il passa devant l'ancienne Secte de la Lutte contre le Mal et la formation de dragon sculptée dans la montagne. Il aperçut vaguement une femme qui étudiait attentivement chaque écaille pour en produire un jade protecteur.
+Il passa devant l'ancienne Secte de la Lutte contre le Mal et la formation de dragon sculptée dans la montagne. Il aperçut vaguement une femme qui inscrivait une formation sur chaque écaille, uniquement pour fabriquer un jade protecteur.
 
 Il fixa le dragon d'il y a mille ans, bien que plus de la moitié fût endommagée et qu'il ne ressemblât qu'à peine à un dragon. La secte n'existait plus; l'endroit était totalement désolé.
 
@@ -88,7 +88,7 @@ Wang Lin s'engouffra sans hésitation par l'entrée et apparut dans le vide.
 
 Dès son entrée, une puissante odeur de sang l'assaillit. D'innombrables pierres flottaient dans le vide, toutes teintées de rouge.
 
-De nombreux corps dérivaient dans l'espace. Des cultivateurs, des bêtes féroces... On pouvait voir le cadavre d'une araignée bleue de mille pieds, un python géant de dix mille pieds et une multitude de créatures de tailles diverses. Il y avait même un dragon sans ailes, ainsi qu'un groupe d'insectes de la taille d'un bras.
+De nombreux corps dérivaient dans l'espace. Des cultivateurs, des bêtes féroces... On pouvait voir le cadavre d'une araignée bleue de mille pieds, un python géant de dix mille pieds et une multitude de créatures de tailles diverses. Il y avait même une créature ressemblant à un dragon mais dotée de deux ailes, ainsi que des groupes d'insectes volants de la taille d'un bras.
 
 Des fluctuations d'énergie originelle subsistaient encore; il était clair qu'une bataille titanesque s'était déroulée ici! La plupart des cadavres étaient brûlés, certains gelés, et d'autres suintaient du pus, signe évident d'empoisonnement.
 
@@ -96,13 +96,13 @@ Plus il avançait, plus la densité de cadavres augmentait, tout comme la divers
 
 Finalement, il devint impossible de distinguer un corps entier, car il ne restait que des membres brisés et des fragments de chair...
 
-Même Wang Lin, habitué aux cycles de la vie et de la mort, sentit ses pupilles se contracter devant ce spectacle. Cependant, il ne s'arrêta pas et continua de voler vers l'entrée du niveau suivant.
+Même Wang Lin, habitué aux cycles de la vie et de la mort, sentit ses pupilles se contracter devant ce spectacle. Cependant, il ne s'arrêta pas et continua de voler vers une autre entrée de ce vide, dont il se souvenait.
 
-Alors qu'il progressait, une aura glaciale l'enveloppa. Wang Lin s'interrompit et regarda à sa droite. À dix mille pieds de là, sur un immense rocher, gisaient de nombreux corps mutilés, humains et bestiaux.
+Alors qu'il progressait, une aura glaciale l'enveloppa. Wang Lin s'interrompit et regarda à sa droite. À dix mille pieds de là, sur un immense rocher conique, gisaient de nombreux corps mutilés, humains et bestiaux.
 
 Une lumière noire entourait le bord du rocher. À moins d'observer avec une extrême attention, cette lueur était invisible dans l'obscurité du vide.
 
-Un homme corpulent était accroupi dans cette lumière noire. Son torse nu était recouvert de poils noirs, tel un sauvage. Pourtant, en regardant sa tête, aucun cultivateur n'aurait pu croire qu'il s'agissait d'un être humain!
+Un homme corpulent était accroupi dans cette lumière noire. Entièrement nu, son corps était couvert de poils noirs, tel un sauvage. Pourtant, en regardant sa tête, aucun cultivateur n'aurait pu croire qu'il s'agissait d'un être humain!
 
 Plus de dix branches surgissaient de son cou, et une tête trônait à l'extrémité de chaque branche. Elles étaient toutes au sol, en train de mâcher.
 

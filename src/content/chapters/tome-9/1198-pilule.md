@@ -26,7 +26,7 @@ Après avoir longuement réfléchi, Wang Lin agita ses manches et collecta les d
 
 Son regard parcourut la première grotte. N'ayant rien trouvé d'autre, il en sortit.
 
-Le fait de pénétrer et de quitter cette grotte fit peser sur Wang Lin une pression semblable à une montagne, et son expression devint extrêmement sombre. En particulier, il pensa à sa bataille précédente contre Maître Pin Cendré. Le sort qu'il avait utilisé pour invoquer le septième esprit du royaume était très similaire au sort que les étrangers utilisaient.
+Le fait de pénétrer et de quitter cette grotte fit peser sur Wang Lin une pression semblable à une montagne, et son expression devint extrêmement sombre. En particulier, il pensa à sa bataille précédente contre Maître Pin Cendré. Le sort qu'il avait utilisé pour invoquer l'esprit de la septième formation du Royaume Scellé était très similaire au sort que les étrangers utilisaient.
 
 « Quelle est l'identité de ce Maître Pin Cendré? » Wang Lin s'éloigna de la grotte et leva les yeux vers le ciel aux sept couleurs. Il se souvenait qu'au sein du vide, là où il avait rencontré pour la première fois les gens du royaume extérieur, il y avait également une lumière aux sept couleurs provenant de ce dernier...
 
@@ -52,7 +52,7 @@ Après avoir observé les trois bouteilles, Wang Lin s'avança vers la formation
 
 Plus important encore, Wang Lin en perçut l'essence: l'effet de cette formation était de figer les pilules à l'instant précis de leur achèvement afin qu'elles ne soient pas affectées par le passage du temps et pour les protéger. Si elles étaient ouvertes par la force, les pilules à l'intérieur seraient immédiatement détruites.
 
-Fronçant les sourcils, Wang Lin s'assit. Il n'avait même pas encore examiné le reste de la grotte quand une lueur de déduction brilla dans ses yeux. Son regard devint intense et il leva la main vers le vide. Un cristal d'origine jaillit de son espace de stockage.
+Fronçant les sourcils, Wang Lin s'assit. Sans examiner les autres grottes, il fixa la formation et une lueur de déduction brilla dans ses yeux. Son regard devint intense et il leva la main vers le vide. Un cristal d'origine jaillit de son espace de stockage.
 
 Tenant le cristal, Wang Lin le pressa jusqu'à ce qu'il s'effondre. Tandis que l'énergie d'origine jaillissait, ses mains formèrent un sceau pour en prendre le contrôle total. Il pointa ensuite le bord de la formation, et l'énergie d'origine se déversa dans le sol.
 
@@ -90,7 +90,7 @@ Ce rugissement était bien plus puissant que celui d'une bête de rang 12; il é
 
 Il fallait atteindre le stade intermédiaire du Briseur du Nirvana pour pouvoir consommer une pilule de rang 11, sans quoi l'âme originelle ne pourrait pas contrer la violente âme de bête. Le résultat ne serait que la dévoration de l'âme originelle par celle de la bête. C'était un fait connu de tous les cultivateurs de la Mer des Nuages. Bien que les pilules puissent aider à augmenter le niveau de culture, il fallait faire preuve d'une prudence extrême!
 
-Le véritable niveau de culture de Wang Lin, en faisant abstraction de son corps de Dieu Ancien, n'était que le début du stade Purificateur du Nirvana. Il ne pouvait pas consommer directement une pilule de rang 11; il devait donc la raffiner à nouveau!
+Le véritable niveau de culture de Wang Lin, en faisant abstraction de son corps d'Ancien Dieu, n'était que le début du stade Purificateur du Nirvana. Il ne pouvait pas consommer directement une pilule de rang 11; il devait donc la raffiner à nouveau!
 
 Dans la grotte au fourneau, Wang Lin réfléchit et une étincelle brilla dans son œil gauche. Le feu apparut instantanément et se précipita dans le fourneau. Celui-ci trembla et ses marquages s'activèrent lentement.
 
@@ -102,8 +102,8 @@ Pendant que Wang Lin raffinait la pilule, au plus profond du Royaume aux Sept Co
 
 Un autel y était niché, drapé de brume. À cet instant, une lumière vive jaillit de l'autel, perçant le brouillard environnant et le repoussant pour révéler une zone vide.
 
-Une immense fissure apparut silencieusement au-dessus de l'autel. D'innombrables éclairs jaillirent le long des bords de la faille, l'élargissant davantage, avant que trois personnes n'en sortent!
+Une fissure de plus de dix pieds de long apparut silencieusement au-dessus de l'autel. D'innombrables éclairs jaillirent le long des bords de la faille, l'élargissant davantage, avant que trois personnes n'en sortent!
 
 Les vêtements de ces individus étaient manifestement différents de ceux portés par les habitants de la Mer des Nuages. Plus étrange encore, ils portaient tous une marque entre les sourcils. L'homme en tête présentait un éclair entre les sourcils. Quant aux deux qui le suivaient, l'un était un jeune homme marqué d'un croissant de lune, et le dernier portait une marque de flamme.
 
-« C'est donc la fissure spatiale que vous avez trouvée! » Le jeune homme au croissant de lune entre les sourcils regarda autour de lui, l'excitation brillant dans ses yeux.
+« Est-ce ici la fissure spatiale que vous avez découverte? » Le jeune homme au croissant de lune entre les sourcils regarda autour de lui, l'excitation brillant dans ses yeux.

@@ -58,13 +58,13 @@ Alors que le monde s'inversait, le ciel et la terre se superposèrent dans un fr
 
 Elle poussa un cri déchirant, ses vêtements blancs étant désormais maculés d'un rouge cramoisi. De multiples distorsions apparurent autour d'elle et d'innombrables images défilèrent!
 
-Au sein de ces visions, on voyait une femme agenouillée au sol, tandis qu'une main de jade surgissait du vide pour presser un jade blanc entre ses sourcils.
+Au sein de ces visions, on voyait une femme agenouillée au sol, tandis qu'une main de jade surgissait du vide pour s'appuyer entre ses sourcils.
 
 Il ne fallut qu'un instant pour que ces images tourmentées s'effondrent, laissant émaner de sa tête une riche aura laiteuse. Cette aura était presque solide et révélait une ténue ligne dorée!
 
 Wang Lin connaissait bien cette lueur blanche laiteuse: c'était la Flamme Joss!
 
-Cependant, la Flamme Joss de cette femme était d'une richesse extrême, ce qui surprit Wang Lin. Sa seule flamme suffisait à égaler 30 % des Flammes Joss présentes dans le Monde du Vent et de la Pluie!
+Cependant, la Flamme Joss de cette femme était d'une richesse extrême, ce qui surprit Wang Lin. Sa seule flamme suffisait à égaler près de 30 % des Flammes Joss présentes dans le Monde du Vent et de la Pluie!
 
 Alors que l'aura laiteuse enveloppait son corps, le sang cessa de couler de sa blessure. Une fois l'hémorragie stoppée, elle recula avec anxiété. Protégée par cette aura, elle ignora l'énergie originelle déformée et fusionna à nouveau avec le monde!
 
@@ -80,7 +80,7 @@ Pourtant, alors qu'elle s'apprêtait à se fondre dans l'environnement, une lueu
 
 Au moment critique, l'aura laiteuse se déploya pour intercepter l'attaque. L'épée de sang perça cette protection, mais sa trajectoire fut déviée, lui transperçant finalement l'épaule droite!
 
-Elle poussa un cri misérable et recula précipitamment tout en lançant un regard venimeux vers l'avant. C'est alors que Wang Lin surgit du vide, sa main droite tendue vers elle!
+Elle poussa un cri misérable, son bras droit entier désormais incapable de se lever, et recula précipitamment tout en lançant un regard venimeux vers l'avant. C'est alors que Wang Lin surgit du vide, sa main droite tendue vers elle!
 
 « Où comptes-tu fuir?! »
 
@@ -90,17 +90,17 @@ Simultanément, elle poussa un cri lugubre:
 
 « Où est le Clan des Scorpions Démoniaques? Je suis l'un des avatars de la Concubine Bleue! Vite, arrêtez cet homme! »
 
-Dès que sa voix se propagea, des cultivateurs surgirent instantanément. En un éclair, près de mille d'entre eux s'élancèrent depuis la planète!
+Dès que sa voix se propagea, des cultivateurs surgirent instantanément. En un éclair, plusieurs milliers d'entre eux s'élancèrent depuis la planète!
 
 Sans hésiter, ces cultivateurs chargèrent Wang Lin. La femme en blanc avala rapidement quelques pilules, lui lança un regard noir, puis tenta une nouvelle fois de fusionner avec le monde pour s'enfuir.
 
-Mais comment Wang Lin pouvait-il la laisser filer? Il agita la main droite et son corps grandit brusquement pour revêtir sa forme d'Ancien Dieu de 10 000 pieds. Il chargea en avant, balayant l'assemblée d'un coup de poing féroce!
+Mais comment Wang Lin pouvait-il la laisser filer? Il agita la main droite et son corps grandit brusquement pour revêtir sa forme d'Ancien Dieu de 10 000 pieds. Il chargea en avant et, levant le poing par-dessus la foule, frappa férocement le vide devant lui!
 
 D'un seul impact, le monde trembla et le champ stellaire entier sembla sur le point de s'effondrer. Une immense fissure spatiale apparut soudainement, s'étendant à l'infini comme si la voûte céleste allait être fendue en deux!
 
 La femme en blanc, qui avait fusionné avec le monde, fut expulsée par cette fracture spatiale dès son apparition. Le visage mortifère, elle recula promptement.
 
-Alors que Wang Lin avançait, les sorts et trésors magiques des mille cultivateurs convergèrent vers lui. Sans même les regarder, il poursuivit sa course. La lumière se rassembla de toutes parts pour former une ombre lumineuse autour de lui!
+Alors que Wang Lin avançait, les sorts et trésors magiques des milliers de cultivateurs convergèrent vers lui. Sans même les regarder, il poursuivit sa course. La lumière se rassembla de toutes parts pour former une ombre lumineuse autour de lui!
 
 Tous les sorts et trésors furent renvoyés lorsqu'ils frappèrent cette ombre!
 

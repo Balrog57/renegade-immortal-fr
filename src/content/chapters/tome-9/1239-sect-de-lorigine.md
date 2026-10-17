@@ -100,12 +100,12 @@ Le corps de Lu Yanfei trembla et son regard devint glacial lorsqu'elle se tourna
 
 Lu Yingjie sourit et dit d'un ton suave: « Compagnon cultivateur Lu, ne m'en voulez pas. Je n'ai fait que répéter ce que j'ai entendu concernant les fours de culture, je ne faisais que taquiner. Cependant, mes intentions sont bonnes. Si la Secte de l'Origine devait disparaître, Lady Lu aurait au moins un endroit convenable où se réfugier. »
 
-« Oublie la dissolution de la Secte de l'Origine! Même s'il venait à disparaître, ma Secte du Dao Violet les accueillerait tous! » Ces paroles glaciales vinrent d'une autre direction alors qu'un homme vêtu de violet s'avançait. Il lança un regard froid à Lu Yingjie avant de se tourner vers Lu Yanfei et de joindre poliment les mains. « Salutations, Compagnon cultivateur Lu. »
+« Oublie la dissolution de la Secte de l'Origine! Même s'il venait à disparaître, ma Secte du Dao Pourpre les accueillerait tous! » Ces paroles glaciales vinrent d'une autre direction alors qu'un homme vêtu de violet s'avançait. Il lança un regard froid à Lu Yingjie avant de se tourner vers Lu Yanfei et de joindre poliment les mains. « Salutations, Compagnon cultivateur Lu. »
 
 Lu Yanfei fut surprise.
 
-« Compagnon cultivateur Lu, ne vous en préoccupez guère. Bien que le Frère Liu et moi ne nous soyons rencontrés qu'une seule fois, cette nuit de débat sur le Dao est un souvenir que je n'oublierai jamais. S'il revient, non seulement la Secte de l'Origine ne sera pas dissous, mais il est possible qu'il devienne la première branche de secte. » Lu Yuncong afficha un air de mélancolie nostalgique.
+« Compagnon cultivateur Lu, ne vous en préoccupez guère. Bien que le Frère Lu et moi ne nous soyons rencontrés qu'une seule fois, cette nuit de débat sur le Dao est un souvenir que je n'oublierai jamais. S'il revient, non seulement la Secte de l'Origine ne sera pas dissous, mais il est possible qu'il devienne la première branche de secte. » Lu Yuncong afficha un air de mélancolie nostalgique.
 
-« Ainsi, le Compagnon cultivateur Lu affectionne également la Secte de l'Origine et souhaite rivaliser avec moi. Je me demande simplement qui est ce "Frère Liu" dont vous parlez. Serait-ce moi? » Lu Yingjie esquissa un sourire indéchiffrable. On ne pouvait dire s'il était joyeux ou irrité; ses paroles étaient aussi légères que des nuages.
+« Ainsi, le Compagnon cultivateur Lu affectionne également la Secte de l'Origine et souhaite rivaliser avec moi. Je me demande simplement qui est ce "Frère Lu" dont vous parlez. Serait-ce moi? » Lu Yingjie esquissa un sourire indéchiffrable. On ne pouvait dire s'il était joyeux ou irrité; ses paroles étaient aussi légères que des nuages.
 
-Lu Yuncong fronça les sourcils et, sans aucune retenue, rugit: « Tais-toi! Pour qui te prends-tu pour oser mentionner le Frère Liu? S'il était ici, il pourrait t'écraser aussi facilement qu'une fourmi! »
+Lu Yuncong fronça les sourcils et, sans aucune retenue, rugit: « Tais-toi! Pour qui te prends-tu pour oser mentionner le Frère Lu? S'il était ici, il pourrait t'écraser aussi facilement qu'une fourmi! »

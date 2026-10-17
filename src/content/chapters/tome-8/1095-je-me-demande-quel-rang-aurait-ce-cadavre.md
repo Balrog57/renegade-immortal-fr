@@ -16,7 +16,7 @@ Si quelqu'un d'autre avait été l'Empereur Divin, même si Lie Yunzi l'avait of
 
 Très peu de membres de l'Alliance comprenaient réellement Luotian, tout comme Luotian ne comprenait pas l'Alliance.
 
-Cependant, Wang Lin connaissait très bien Luotian, ayant été autrefois le Céleste du Tonnerre. Luotian n'avait donc rien de mystérieux pour lui.
+Cependant, Wang Lin connaissait très bien Luotian, ayant été autrefois le Céleste du Tonnerre. Le mystère de Luotian s'en trouvait donc fortement réduit à ses yeux.
 
 Mais cela restait secondaire. Le facteur crucial était la perception que Lie Yunzi avait de Wang Lin. Il savait que cet homme était impitoyable, audacieux et décisif. Si ce dernier avait voulu le tuer, il ne l'aurait pas emprisonné, car une prison offrirait toujours une chance de contre-attaque. Wang Lin aurait choisi l'assaut décisif, et Lie Yunzi n'aurait eu aucune chance de survie.
 
@@ -26,11 +26,11 @@ Une fois les parchemins rangés, le regard de Wang Lin s'anima et il dit d'un to
 
 Le cœur de Lie Yunzi sombra tandis qu'il fixait Wang Lin en serrant les dents. « Vous avez déjà pris les Parchemins de Bataille et j'ai déjà payé le prix! Que voulez-vous de plus?! »
 
-L'expression de Wang Lin demeura calme lorsqu'il reprit lentement: « Vous avez prétendu que j'avais dérobé un trésor important de votre famille Zhan. Vous devez m'en fournir une explication! » Wang Lin le dévisagea. Il aurait voulu tuer cet homme, mais cela ne ferait qu'aggraver les tensions entre Luotian et les Quatre Sectes Divines.
+L'expression de Wang Lin demeura calme lorsqu'il reprit lentement: « Vous avez prétendu que j'avais dérobé un trésor important de votre famille Zhan. Seriez-vous capable de prédire l'avenir? Vous devez m'en fournir une explication! » Wang Lin le dévisagea. Il aurait voulu tuer cet homme, mais cela ne ferait qu'aggraver les tensions entre Luotian et les Quatre Sectes Divines.
 
 Le tuer n'entrait pas dans le plan de Wang Lin pour traiter avec Tuo Sen. Plus important encore, si les relations entre les Quatre Sectes Divines et Luotian se détérioraient, ce sont la Secte des Cadavres et l'Alliance qui en profiteraient.
 
-Qing Shui se trouvait très probablement au quartier général de l'Alliance, sans compter la bienveillance de l'ancien Empereur Divin. Tous ces paramètres empêchaient Wang Lin de tuer Lie Yunzi pour le moment.
+Qing Shui se trouvait très probablement au sein de l'Alliance, sans compter la bienveillance de l'ancien Empereur Divin. Tous ces paramètres empêchaient Wang Lin de tuer Lie Yunzi pour le moment.
 
 Lie Yunzi réprima une fois de plus sa colère et demanda: « Que voulez-vous encore? »
 
@@ -64,7 +64,7 @@ Lie Yunzi rangea soigneusement le jade. Puis, il regarda Wang Lin. Il avait l'im
 
 Sa main droite s'avança pour extraire un objet d'une fissure devant lui. C'était une pierre noire qu'il broya instantanément en poudre. La poudre ne se dispersa pas, mais se condensa rapidement autour de lui, formant une traînée qui s'enroula autour de Lie Yunzi.
 
-En un instant, la vitesse de Lie Yunzi fut décuplée et il disparut sans laisser de trace.
+En un instant, la vitesse de Lie Yunzi fut multipliée et il disparut sans laisser de trace.
 
 Quelques jours plus tard, après avoir quitté la région Est contrôlée par les Quatre Sectes Divines à sa vitesse maximale, Lie Yunzi se précipitait vers la région Nord sous l'égide de Luotian.
 
@@ -92,7 +92,7 @@ Ce n'est que lorsque Lie Yunzi fut loin qu'une silhouette masculine apparut. L'h
 
 « Attaquer un junior par surprise avec un poison extrait de Situ Nan... Cette affaire... Ah, peu importe. Nous devons trop à Wang Lin... » L'homme soupira et s'évanouit dans l'air.
 
-Laissons de côté le sort de Lie Yunzi pour l'instant. Après avoir quitté la Secte Divine de l'Oiseau Vermillon, la femme de la Secte des Cadavres s'apprêtait à présenter ses hommages. Après avoir exprimé son souhait de former une alliance avec les Quatre Sectes Divines, elle allait prendre congé.
+Laissons de côté le sort de Lie Yunzi pour l'instant. Après son départ, dans la salle arrière de l'astre principal de la Secte Divine de l'Oiseau Vermillon, la femme de la Secte des Cadavres avait remis ses présents de félicitations. Après avoir exprimé son souhait de former une alliance avec les Quatre Sectes Divines, elle allait prendre congé.
 
 Cependant, Wang Lin lui demanda de rester pour assister à la cérémonie d'investiture qui aurait lieu dans quelques jours.
 
@@ -124,6 +124,6 @@ Ce n'était pas par faiblesse mentale, mais l'information contenue dans ce jade 
 
 « Ceci... ceci est... » Sa tête se redressa brusquement vers Wang Lin, ses paroles devenant incohérentes. Il était impossible d'exprimer l'effroi et l'excitation qui l'animaient par de simples mots. C'était comme si d'innombrables éclairs de tonnerre céleste avaient explosé dans son esprit.
 
-Wang Lin accepta calmement la tasse de thé que lui tendait un membre du secteur derrière lui. Après en avoir pris une légère gorgée, il fixa la belle femme.
+Wang Lin accepta calmement la tasse de thé que lui tendait un membre de son clan à ses côtés. Après en avoir pris une légère gorgée, il fixa la belle femme.
 
 « Je me demande de quel rang serait ce cadavre. »

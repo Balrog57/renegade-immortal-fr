@@ -82,17 +82,17 @@ Son esprit vacillait; elle ne pouvait s'empêcher d'être terrifiée, surtout en
 
 « Je dois me réconcilier avec cet homme et réparer le conflit que nous avons eu. Sinon, avec lui comme ennemi, il n'y aura plus de place pour moi dans la Mer des Nuages. Heureusement, notre différend n'est pas profond et il n'y a pas de querelle directe... » La vieille femme prit une grande inspiration et prit sa décision.
 
-Plus loin encore, Maître Âme-Nuage affichait un visage amer. Ayant naturellement perçu le combat, il éprouvait des sentiments complexes, dominés par une panique croissante. Cette panique était comme un feu prêt à consumer son esprit.
+Plus loin encore, Maître Nuage-Âme affichait un visage amer. Ayant naturellement perçu le combat, il éprouvait des sentiments complexes, dominés par une panique croissante. Cette panique était comme un feu prêt à consumer son esprit.
 
-« Lui... Comment peut-il être aussi puissant?! » Même maintenant, Maître Âme-Nuage ne pouvait y croire, et la peur envahissait son cœur. Depuis qu'il avait été téléporté ici, il vivait dans l'effroi. Il détestait Wang Lin et brûlait de dévorer sa chair et son sang.
+« Lui... Comment peut-il être aussi puissant?! » Même maintenant, Maître Nuage-Âme ne pouvait y croire, et la peur envahissait son cœur. Depuis qu'il avait été téléporté ici, il vivait dans l'effroi. Il détestait Wang Lin et brûlait de dévorer sa chair et son sang.
 
-Cependant, après avoir observé le combat, il fut frappé de stupeur et ne put accepter cette réalité. Après un moment, Maître Âme-Nuage laissa échapper un sourire misérable, ses yeux s'illuminant d'une intention meurtrière démente.
+Cependant, après avoir observé le combat, il fut frappé de stupeur et ne put accepter cette réalité. Après un moment, Maître Nuage-Âme laissa échapper un sourire misérable, ses yeux s'illuminant d'une intention meurtrière démente.
 
 « Cet homme ne me laissera jamais partir, mais il doit être gravement blessé après son combat contre ce Briseur du Nirvana au stade avancé. J'ai peut-être encore une chance! S'il récupère, je mourrai sans aucun doute, mais s'il est affaibli, je pourrais l'affronter dans un combat à mort!
 
-« Une fois que je l'aurai tué, tout le Royaume aux Sept Couleurs m'appartiendra! » Le cœur de Maître Âme-Nuage fut emporté par cette pensée. Avant d'entrer dans le royaume, il était certain de pouvoir tuer Wang Lin. Mais désormais, bien qu'il espère que Wang Lin soit blessé, il ressentait la nervosité d'un mortel tentant de terrasser un être céleste.
+« Une fois que je l'aurai tué, tout le Royaume aux Sept Couleurs m'appartiendra! » Le cœur de Maître Nuage-Âme fut emporté par cette pensée. Avant d'entrer dans le royaume, il était certain de pouvoir tuer Wang Lin. Mais désormais, bien qu'il espère que Wang Lin soit blessé, il ressentait la nervosité d'un mortel tentant de terrasser un être céleste.
 
-Ce changement témoignait de la peur inconsciente que Wang Lin inspirait à Maître Âme-Nuage. Il serra les dents et chargea en avant.
+Ce changement témoignait de la peur inconsciente que Wang Lin inspirait à Maître Nuage-Âme. Il serra les dents et chargea en avant.
 
 Le pilier de feu et de tonnerre se dissipa lentement. L'âme originelle du vieil homme avait totalement disparu de ce monde. Même après sa mort, le prétendu Souverain qu'il invoquait sans cesse ne fit jamais son apparition.
 
@@ -106,9 +106,9 @@ Il n'était pas pressé. Il gravit lentement la montagne jusqu'à atteindre l'en
 
 De cette position, les gémissements provenant de la grotte étaient encore plus distincts. C'était comme si une multitude de personnes s'y trouvaient, endurant des souffrances insupportables.
 
-À cet instant précis, dans le Système Stellaire Antique, au sein du palais, la flamme de la bougie brûlait intensément et la main flétrie se retira lentement.
+À cet instant précis, dans le Système Stellaire Antique, au sein du palais, la flamme de la bougie brûlait intensément et le doigt flétri se retira lentement.
 
-« La chaleur a atteint la température requise... Cependant, ce n'est pas encore le bon type de feu... Car il n'a pas encore fait bouillir l'âme... » dit une voix ancienne émanant de derrière la bougie.
+« La chaleur a atteint la température requise... Seulement, ce feu ne convient pas pour planter le Dao... Car il n'a pas encore fait bouillir l'âme... » dit une voix ancienne émanant de derrière la bougie.
 
 « Un faux membre du Clan de l'Extermination des Sceaux est mort. Avez-vous des doutes sur les causes de son décès? » demanda une voix indifférente.
 

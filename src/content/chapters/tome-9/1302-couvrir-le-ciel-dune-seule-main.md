@@ -20,7 +20,7 @@ S'ils ne parvenaient pas à briser cette empreinte, leur niveau de culture stagn
 
 Le tonnerre devint encore plus intense et l'espace trembla. Un bruit de déchirure encore plus assourdissant retentit un instant plus tard, et le tonnerre se propagea au-delà de la région de rang 9. Même la région de rang 8 pouvait clairement l'entendre!
 
-« Rétribution sonore... Rétribution sonore... » Les grondements tonitruants semblaient résonner de ces deux mots. Lorsque le tonnerre eut remplacé tous les sons du monde, des éclairs violets jaillirent des nuages et enveloppèrent toute la région de rang 9.
+« Affronte la rétribution... Affronte la rétribution... » Les grondements tonitruants semblaient résonner de ces deux mots. Lorsque le tonnerre eut remplacé tous les sons du monde, des éclairs violets jaillirent des nuages et enveloppèrent toute la région de rang 9.
 
 Ces éclairs étaient d'un violet profond et s'élançaient frénétiquement des nuages vers la fissure spatiale située à l'extérieur de la Secte Démon! Les décharges violettes occultèrent tout dans le ciel, attirant l'attention de tous les cultivateurs de la région de rang 9.
 
@@ -28,9 +28,9 @@ Il y avait trop d'éclairs, le tonnerre était trop intense et les rugissements 
 
 Alors que les innombrables éclairs violets jaillissaient, ils semblaient parcourir des distances infinies en un instant. C'était comme si rien au monde ne pouvait les arrêter et que le concept même de distance n'existait pas pour eux!
 
-En un instant, les innombrables éclairs violets qui perçaient les nuages enveloppèrent toute la région de rang 9. Ils formèrent un filet gigantesque autour de la fissure spatiale et condensèrent un éclair colossal d'environ 10 000 pieds de long!
+En un instant, les innombrables éclairs violets qui perçaient les nuages enveloppèrent toute la région de rang 9. Ils formèrent un filet gigantesque autour de la fissure spatiale et condensèrent un éclair colossal d'environ 10 000 pieds d'épaisseur!
 
-Rumble, rumble, rumble, rumble!
+Des grondements tonnerre retentirent!
 
 Cet éclair fonça vers la fissure spatiale. Il portait en lui une intention meurtrière visant à tout détruire lors de sa descente! Cet éclair attira l'attention de tous les cultivateurs. Leurs esprits devinrent vides, et la seule chose qui occupait leurs pensées était cette indescriptible rétribution divine!
 
@@ -46,19 +46,19 @@ Au moment où le tonnerre s'approchait, la main droite de Wang Lin protégea Li 
 
 Un homme, d'une seule main et doté de deux yeux indifférents, semblait couvrir le ciel. Au moment où il sortit de la fissure, il parut défier les cieux et la rétribution divine elle-même!
 
-Rumble, rumble, rumble, rumble!!
+Des grondements tonnerre retentirent!!
 
-Le tonnerre et la main de Wang Lin entrèrent en collision, créant un son encore plus violent. L'espace autour de Wang Lin s'effondra et la fissure spatiale derrière lui fut déchirée de part en part!
+Le tonnerre et la main de Wang Lin entrèrent en collision, créant un son encore plus violent. L'espace autour de Wang Lin s'effondra et la fissure spatiale derrière lui fut déchirée et élargie de plusieurs fois sa taille!
 
 Son corps trembla et sa main gauche eut une légère secousse. Cependant, son expression resta imperturbable, et il serra sans pitié!
 
 « La rétribution divine est inutile contre moi! » Alors qu'il exerçait sa pression, un grondement tonitruant résonna et le tonnerre rugit comme un fou. Une volonté inattendue émana de la main gauche de Wang Lin. Il allait lutter pour prendre le contrôle du tonnerre des cieux!
 
-Tandis que les grondements tonitruants résonnaient, les deux volontés à l'intérieur du tonnerre s'affrontèrent. Le tonnerre explosa soudainement et l'innombrable éclair violet se propagea en prenant Wang Lin pour centre. En un instant, le monde entier sembla se transformer en un puits de tonnerre!
+Tandis que les grondements tonitruants résonnaient, les deux volontés à l'intérieur du tonnerre s'affrontèrent. Le tonnerre explosa soudainement et l'innombrable éclair violet se propagea en prenant Wang Lin pour centre. En un instant, le monde entier sembla se transformer en un domaine de tonnerre!
 
-Les grondements continuèrent. Bien que le tonnerre ait éclaté, Wang Lin n'était plus celui qu'il était autrefois. Il ne comptait pas seulement résister à la rétribution divine sonore, mais la briser totalement!
+Les grondements continuèrent. Bien que le tonnerre ait éclaté, Wang Lin n'était plus celui qu'il était autrefois. Face à la rétribution divine, il ne comptait pas seulement l'endurer, mais la briser totalement!
 
-Sa main droite saisit Li Qianmei et il la fit basculer pour qu'elle soit sur son dos. Son énergie originelle forma des cordes pour les attacher ensemble. Une fois cela fait, les mains de Wang Lin formèrent des sceaux et il fit un geste ample. Le puits de tonnerre, prenant Wang Lin pour centre, rugit une fois de plus!
+Sa main droite saisit Li Qianmei et il la fit basculer pour qu'elle soit sur son dos. Son énergie originelle forma des cordes pour les attacher ensemble. Une fois cela fait, les mains de Wang Lin formèrent des sceaux et il fit un geste ample. Le domaine de tonnerre, prenant Wang Lin pour centre, rugit une fois de plus!
 
 « Je suis le tonnerre. En exerçant mon droit de contrôler le tonnerre, ô tout tonnerre, écoutez mes ordres. Montez! » Les paroles de Wang Lin étaient empreintes d'une puissance suprême. Dès que sa voix résonna, l'éclair violet rugit et se précipita vers lui.
 
@@ -68,19 +68,19 @@ Les yeux du Grand Ancien de la Secte Démon brillèrent intensément et il prit 
 
 Wang Lin pointa les nuages dans le ciel et laissa échapper un rugissement qui fit trembler les cieux: « Brise la rétribution divine pour moi! »
 
-Alors que les grondements tonitruants résonnaient, l'éclair devint fou. Il se transforma ensuite en un éclair de 10 000 pieds de long, imprégné de la volonté de Wang Lin, et fonça vers les nuages.
+Alors que les grondements tonitruants résonnaient, l'éclair devint fou. Il se transforma ensuite en un éclair de 10 000 pieds, imprégné de la volonté de Wang Lin, et fonça vers les nuages.
 
 Tandis que les grondements tonitruants s'intensifiaient, les nuages et le tonnerre entrèrent en collision. Un son encore plus violent que les précédents surgit et se propagea dans toute la région de rang 9!
 
-À l'intérieur de la Secte Divine, Mu Bingmei fut tirée de ses dix années de culture. Elle regarda à l'extérieur et découvrit que le ciel était noir et tremblait violemment, comme s'il allait s'effondrer!
+À l'intérieur de la Secte Divine, Mu Bingmei, enfermée depuis dix ans, fut tirée de sa méditation. Elle regarda à l'extérieur et découvrit que le ciel était noir et tremblait violemment, comme s'il allait s'effondrer!
 
 Wang Shanshan, à ses côtés, pâlit et leva les yeux vers le ciel.
 
-Au plus profond de la Secte Divine, dans la chambre où se trouvait Shui Daozi, la lumière aux sept couleurs entre ses sourcils s'était affaiblie. La pointe de l'ongle aux sept couleurs était apparue et toutes les veines de son corps avaient gonflé. Il était sur le point d'expulser l'ongle aux sept couleurs!
+Au plus profond de la Secte Divine, dans la chambre où se trouvait Shui Daozi, la lumière aux sept couleurs entre ses sourcils s'était affaiblie. La pointe du clou aux sept couleurs était apparue et toutes les veines de son corps avaient gonflé. Il était sur le point d'expulser le clou aux sept couleurs!
 
-Les grondements tonitruants précédents ne le distraient absolument pas. Il se trouvait au moment le plus critique, et même si le ciel s'effondrait, il ne détournerait pas le regard. Toute son attention était concentrée sur l'expulsion de l'ongle aux sept couleurs.
+Les grondements tonitruants précédents ne le distrayaient absolument pas. Il se trouvait au moment le plus critique, et même si le ciel s'effondrait, il ne détournerait pas le regard. Toute son attention était concentrée sur l'expulsion du clou aux sept couleurs.
 
-Cependant, à cet instant précis, les grondements tonitruants résonnèrent de nouveau, et une trace de la volonté de Wang Lin parvint aux oreilles de Shui Daozi au milieu du fracas. L'ongle aux sept couleurs s'était déjà terni et était sur le point d'être expulsé, mais à ce moment-là, en raison de la volonté de Wang Lin contenue dans le grondement, il entra en résonance avec la voix de Wang Lin et brilla de plus belle!
+Cependant, à cet instant précis, les grondements tonitruants résonnèrent de nouveau, et une trace de la volonté de Wang Lin parvint aux oreilles de Shui Daozi au milieu du fracas. Le clou aux sept couleurs s'était déjà terni et était sur le point d'être expulsé, mais à ce moment-là, en raison de la volonté de Wang Lin contenue dans le grondement, il entra en résonance avec la voix de Wang Lin et brilla de plus belle!
 
 Ce flash intense fit changer radicalement l'expression de Shui Daozi, qui cracha du sang. Tous ses efforts acharnés étaient anéantis!
 
@@ -90,13 +90,13 @@ La Secte Brise-Ciel de rang 9 avait également entendu ce tonnerre et vu les nua
 
 Le Maître de la Secte Brise-Ciel, assis dans sa chambre close, fixait silencieusement le ciel étoilé. Après un long moment, il poussa un soupir et agita ses manches. Il brisa la formation de protection de la secte et chargea à travers les nuages de rétribution divine vers la fissure spatiale de la Secte Démon!
 
-Outre la Secte Démon, la Secte Divine et la Secte Brise-Ciel, il y avait encore la Secte Fantôme! À cet instant, au plus profond des nuages, se trouvait une planète de culture dont la formation de protection était ouverte. Cependant, une ombre immense planait sur la formation. Cette ombre possédait une seule corne, telle un dieu démon!
+Outre la Secte Démon, la Secte Divine et la Secte Brise-Ciel, il y avait encore la Secte Fantôme! À cet instant, au plus profond des nuages, se trouvait une planète de culture dont la formation de protection était ouverte. Cependant, une ombre immense planait sur la formation. Cette ombre, haute d'environ 100 000 pieds, possédait une seule corne, telle un dieu démon!
 
-Elle fixait avidement les nuages en dégageant une aura diabolique. Neuf étoiles démoniaques tournaient dans ses yeux et, à chaque rotation, une force mystérieuse pénétrait son corps.
+Elle fixait avidement les nuages en dégageant une aura diabolique. Neuf étoiles démoniaques tournaient dans son œil gauche et, à chaque rotation, une force mystérieuse pénétrait son corps.
 
 Les grondements tonitruants se propagèrent au-delà de la région de rang 9 pour atteindre la région de rang 8. Cela fit changer radicalement l'expression des cultivateurs de rang 8. Leurs esprits tremblèrent et ils furent plongés dans une stupeur totale.
 
-À l'extérieur de la fissure spatiale près de la Secte Démon, Wang Lin portait Li Qianmei et leva les yeux vers les nuages violets. Cette rétribution divine était la plus puissante à ce jour! Et elle était extrêmement étrange. Il ne put s'empêcher de repenser au moment où il se trouvait dans le Système Stellaire de l'Alliance, lorsqu'il avait découvert ce monde étrange peuplé de statues d'anciens démons, de diables et de dieux, ainsi que ce jeune homme mystérieux assis sur une statue!
+À l'extérieur de la fissure spatiale près de la Secte Démon, Wang Lin portait Li Qianmei et leva les yeux vers les nuages violets. Cette rétribution divine était la plus puissante à ce jour! Et elle était extrêmement étrange. Il ne put s'empêcher de repenser au moment où il se trouvait dans le Système Stellaire de l'Alliance, lorsqu'il avait découvert ce monde étrange peuplé de statues d'anciens dieux, de diables et de démons, ainsi que ce jeune homme mystérieux assis sur une statue!
 
 Son regard perça les nuages et il vit clairement le pavillon en jade blanc qui émergeait en grande partie de la brèche menant à un autre monde. Il vit également la statue d'une personne assise sur le pavillon et les deux épées de pierre devant elle!
 

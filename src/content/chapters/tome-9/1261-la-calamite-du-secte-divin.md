@@ -8,7 +8,7 @@ slug: la-calamite-du-secte-divin
 ---
 Le maître de la Secte Éternelle remarqua l'expression de Wang Lin et sourit. « Cette montagne s'appelle Lu Su. On raconte qu'il y a fort longtemps, une épée venue de l'extérieur est tombée et s'est enfoncée dans le sol pour former cette montagne! »
 
-« Quel beau nom! Je me demande qui l'a nommé. » Le choc de Wang Lin ne se lisait pas sur son visage, mais des vagues de stupeur secouaient son cœur. Ce qui l'effrayait n'était pas tant l'intention d'épée que dégageait la montagne, mais plutôt sa similitude avec le souvenir que Tu Si avait de la création du trident, qu'il avait projeté avec désinvolture pour condenser une âme de trésor.
+« Quel beau nom! Je me demande qui l'a nommé. » Le choc de Wang Lin ne se lisait pas sur son visage, mais des vagues de stupeur secouaient son cœur. Ce qui l'effrayait n'était pas tant l'intention d'épée que dégageait la montagne, mais plutôt sa similitude avec le souvenir de Tu Si raffinant le trident, qu'il avait ensuite jeté avec désinvolture pour qu'il se change en montagne et condense son âme.
 
 Alors qu'il se rapprochait de la montagne, il sentit vaguement les étoiles de l'Ancien Dieu cachées entre ses sourcils tourner rapidement.
 
@@ -36,7 +36,7 @@ Wang Lin prit une profonde inspiration pour calmer son esprit et se rendit dans 
 
 À l'intérieur du pavillon, la sensation de l'âme en éveil devint encore plus intense. Cependant, hormis Wang Lin, personne ne pouvait la détecter. Les autres ne sentaient que l'énergie originelle et l'énergie spirituelle céleste devenir un peu plus denses dans les environs.
 
-Sous l'influence de l'aura émanant de cette âme, les étoiles de l'Ancien Dieu entre les sourcils de Wang Lin tournèrent encore plus vite. La sixième étoile qu'il avait brisée dans le Royaume aux Sept Couleurs montrait des signes inattendus de complétion!
+Sous l'influence de l'aura émanant de cette âme, les étoiles de l'Ancien Dieu entre les sourcils de Wang Lin tournèrent encore plus vite. La sixième étoile qu'il avait brisée dans le Royaume aux Sept Couleurs montrait vaguement des signes de reformation!
 
 Cette découverte força Wang Lin à baisser la tête pour dissimuler son trouble.
 
@@ -44,7 +44,7 @@ Heureusement, le maître de la secte et l'Ancien ne s'en soucièrent guère. Apr
 
 Une fois assis, des disciples de la Secte Éternelle apportèrent le thé avant de se retirer respectueusement.
 
-Le maître de la Secte Éternelle réfléchit un instant et dit: « Ma Secte Éternelle possède effectivement quelques-unes des âmes Yin extrêmes dont parle le camarade cultivateur Lu. Cependant, la plupart d'entre elles sont dispersées et cultivées par nos sectes affiliées. Elles n'appartiennent même pas à ma Secte Éternelle; elles nous ont été confiées par la Secte Divine. Ils ne nous les ont données que pour que nous les cultivions en leur nom. »
+Le maître de la Secte Éternelle réfléchit un instant et dit: « Ma Secte Éternelle possède effectivement quelques-unes des âmes Yin extrêmes dont parle le camarade cultivateur Lu. Cependant, la plupart d'entre elles sont dispersées et cultivées par nos sectes affiliées. Elles n'appartiennent même pas à ma Secte Éternelle; elles nous ont été confiées par la Secte Divine. Et elle n'en a pas donné qu'à nous: les autres sectes de la région de rang 8 en ont aussi reçu quelques-unes. Ils ne nous les ont données que pour que nous les cultivions en leur nom. »
 
 Wang Lin prit une gorgée de thé tout en dissimulant son trouble. Il sentait que plus il resterait ici, mieux ce serait pour lui, mais il craignait aussi que s'il prolongeait son séjour, quelqu'un ne finisse par remarquer quelque chose.
 
@@ -80,7 +80,7 @@ En ce laps de temps, la sixième étoile entre ses sourcils commença à former 
 
 « Cela a permis à mon étoile de montrer des signes de récupération en un instant seulement... L'étoile utilisée pour forger cette épée pourrait-elle provenir d'un... d'un Ancien Dieu Royal de 9 étoiles? » Wang Lin reposa sa tasse et réprima le choc dans son esprit.
 
-Sur une autre planète de culture, sur ordre de Feng Hai et des autres Anciens, les quelque 100 000 cultivateurs se dispersèrent. Chaque secte retourna à sa résidence. Quant à la Secte de l'Origine, Feng Hai les fit personnellement déménager de leur campement reculé vers la zone réservée aux sectes de rang 7.
+Sur une autre planète de culture, sur ordre de Feng Hai et des autres Anciens, les dizaines de milliers de cultivateurs se dispersèrent. Chaque secte retourna à sa résidence. Quant à la Secte de l'Origine, Feng Hai les fit personnellement déménager de leur campement reculé vers la zone réservée aux sectes de rang 7.
 
 Simultanément, une puissante formation s'activa autour de la planète. Nul ne pouvait partir sans un jeton, bien que l'entrée fût libre.
 
@@ -94,11 +94,11 @@ Ce garçon avait le teint rosé, mais les cheveux blancs. Ses yeux s'ouvraient e
 
 Le garçon leva la main droite et pointa chaque jade du doigt avant de s'arrêter sur celui marqué « Lu Zihao ».
 
-« Puisque j'ai détecté l'aura du Maître, j'ai utilisé le pouvoir de la Secte Divine pour fouiller la Mer des Nuages à la recherche d'individus suspects. J'en ai trouvé sept! Après les avoir éliminés un par un, il ne reste que ce Lu Zihao... » Une lueur d'intention meurtrière traversa les yeux du garçon aux cheveux blancs.
+« Depuis que l'aura du Maître s'est manifestée, j'ai utilisé le pouvoir de la Secte Divine pour fouiller la Mer des Nuages à la recherche d'individus suspects. J'en ai trouvé sept! Après les avoir éliminés un par un, il ne reste que ce Lu Zihao... » Une lueur d'intention meurtrière traversa les yeux du garçon aux cheveux blancs.
 
 À cet instant précis, il fronça les sourcils. Sa main s'étendit et un feu commença à brûler. Un jade apparut au milieu des flammes; il avait été envoyé par Wang Shanshan via une méthode spéciale.
 
-La main gauche du garçon s'avança et le feu pénétra étrangement dans sa paume. La scène de ce que Wang Lin venait de faire à la Secte Éternel apparut alors avec clarté!
+La main gauche du garçon s'avança et le feu pénétra étrangement dans sa paume. La scène de ce que Wang Lin venait de faire à la Secte Éternelle apparut alors avec clarté!
 
 Le garçon, qui était assis, se leva brusquement en voyant la vision. En se levant, six des sept jades gravés s'effondrèrent, à l'exception de celui portant le nom « Lu Zihao »!
 

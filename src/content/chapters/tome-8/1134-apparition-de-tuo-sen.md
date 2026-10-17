@@ -40,7 +40,7 @@ Après tout, il n'était pas assez fort pour utiliser la Nuit Brisée à volont�
 
 Cependant, à cet instant précis, l'homme qui avait jeté un regard vers la lumière provoquée par Wang Lin laissa apparaître un regard étrange. Ce qu'il ne parvenait pas à comprendre semblait avoir été influencé par la lumière au sein de l'obscurité, et il avait fini par comprendre.
 
-D'un seul pas, au moment même où l'obscurité se dissipait, il apparut aux côtés du dragon de sang. Sa main droite pointa indistinctement vers l'avant; le dragon de sang poussa un rugissement avant de battre en retraite précipitamment. Des grondements tonitruants émanaient de son corps, comme s'il allait s'effondrer!
+D'un seul pas, au moment même où l'obscurité se dissipait, il apparut aux côtés du dragon de sang. Sa main droite pointa négligemment vers l'avant; le dragon de sang poussa un rugissement avant de battre en retraite précipitamment. Des grondements tonitruants émanaient de son corps, comme s'il allait s'effondrer!
 
 Alors que la vision de Wang Lin se brouillait, l'homme l'extirpa de la blessure du dragon de sang et Wang Lin atterrit devant lui.
 
@@ -54,15 +54,15 @@ Tout cela ne prit qu'un instant!
 
 L'esprit de Wang Lin était sous le choc. Ses pupilles se rétractèrent immédiatement lorsqu'un individu exposa ainsi son plan, mais il retrouva vite son calme. L'admiration dans les yeux de l'homme s'intensifia. Il ne regardait plus Wang Lin ni le dragon de sang en plein effondrement, mais pointa le vortex de sa main droite!
 
-Ce n'était qu'un doigt, mais aux yeux de Wang Lin, ce doigt pouvait percer le monde. Il se remémora l'époque de Luotian, où un seul doigt de cet homme avait brisé la barrière spatiale entre Luotian et l'Alliance.
+Ce n'était qu'un doigt, mais aux yeux de Wang Lin, ce doigt pouvait percer le monde. Il se remémora l'époque de Luotian, où un seul coup de poing de cet homme avait brisé la barrière spatiale entre Luotian et l'Alliance.
 
 Le vortex dans le ciel s'arrêta soudainement, cessant de tourner face à ce doigt. Il s'ouvrit progressivement, exposant un monde qui demeurait rouge sang, même en l'absence de la mer de sang!
 
 Il y avait une montagne en forme de cône dans ce monde écarlate, et une personne se tenait à son sommet!
 
-Les cheveux rouges de cet individu ondulaient sans vent et ses yeux étaient d'un rouge sanglant. Ses yeux étaient empreints d'une intention meurtrière et d'une arrogance indomptable! On ne pouvait ignorer sa présence, car ces yeux captaient toute l'attention.
+Les cheveux rouges de cet individu ondulaient sans vent et ses yeux étaient d'un rouge sanglant. Ses yeux étaient empreints d'une intention meurtrière et d'une arrogance indomptable! Personne ne prêtait attention à son apparence, car sous de tels yeux, tous les regards étaient aspirés.
 
-« Tuo Sen! » L'expression de Wang Lin était complexe. Leurs destins étaient entrelacés. Si Wang Lin n'était pas apparu, Tuo Sen aurait obtenu l'héritage de la connaissance et se serait échappé depuis longtemps. Il aurait pu régner sur les étoiles avec le corps de Tu Si!
+« Tuo Sen! » L'expression de Wang Lin était complexe. Leurs destins étaient entrelacés. Si Wang Lin n'était pas apparu, Tuo Sen aurait obtenu tous ses souvenirs et se serait échappé depuis longtemps. Il aurait pu régner sur les étoiles avec le corps de Tu Si!
 
 Après tout, il était aussi Tu Si! Même si Tuo Sen était né en tant que démon intérieur lorsque Tu Si avait échoué à cultiver un sortilège, qu'il soit un démon ou non, Tuo Sen était un véritable Dieu Ancien, un véritable Dieu Ancien Royal!
 
@@ -98,7 +98,7 @@ L'homme en noir ne fut nullement offensé et esquissa un léger sourire. Il agit
 
 Face à l'effondrement du vide, Tuo Sen leva la main droite et lança un coup de poing!
 
-Le monde trembla et le vide fut violemment ébranlé. À ce moment-là, des cultivateurs au niveau de la Rupture du Nirvana arrivèrent. En voyant ce coup de poing, leurs visages se décomposèrent, envahis par la peur et la panique.
+Le monde trembla et le vide fut violemment ébranlé. À ce moment-là, des cultivateurs au niveau du Briseur du Nirvana arrivèrent. En voyant ce coup de poing, leurs visages se décomposèrent, envahis par la peur et la panique.
 
 Le visage de Wang Lin était livide. Il ressentait clairement la puissance de cet impact.
 
@@ -114,7 +114,7 @@ Cette zone de 5 000 kilomètres fut remplie de glaciers qui s'effondrèrent tous
 
 « Le clan de mes Dieux Anciens ne cultive pas les lois, car les lois sont des choses que mon clan brise! » Lorsque le coup de poing de Tuo Sen s'abattit, des craquements résonnèrent à travers le monde de glace. Que ce soient les glaciers qui fonçaient sur lui ou l'immense étendue de glace couvrant ces 5 000 kilomètres, tout s'effondra devant son coup!
 
-L'homme en noir chargea avec une expression sérieuse. Les 5 000 kilomètres de glace se transformèrent en tempête, mais Tuo Sen s'élança.
+L'homme en noir surgit d'un éclair, le visage grave. Les 5 000 kilomètres de glace s'effondrèrent en une tempête qui s'éleva vers le ciel, mais dans cet effondrement, le corps de Tuo Sen s'éleva dans les airs.
 
 « Je vais vous montrer la véritable puissance de mon clan! » Le regard de Tuo Sen ne se portait pas sur l'homme en noir, mais sur Wang Lin.
 

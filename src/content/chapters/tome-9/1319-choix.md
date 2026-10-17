@@ -56,7 +56,7 @@ Wang Lin ferma les yeux. La tentation du Maître du Dao Rêve Bleu était la plu
 
 Cependant, comment pouvait-il consentir aux deux conditions du Maître du Dao Rêve Bleu?
 
-Il était un membre du Royaume Intérieur; il y était né et il y avait grandi. Si le Royaume Intérieur était une nation, il serait un traître s'il acceptait! Les paroles des êtres célestes morts pour la Formation de l'Espace Scellé résonnaient à ses oreilles. Le sacrifice du Seigneur de l'Espace Scellé grondait dans son esprit.
+Il était un membre du Royaume Intérieur; il y était né et il y avait grandi. Si le Royaume Intérieur était une nation, il serait un traître s'il acceptait! Les paroles des êtres célestes morts pour la Formation du Royaume Scellé résonnaient à ses oreilles. Le sacrifice du Seigneur du Royaume Scellé grondait dans son esprit.
 
 Il ne pouvait accepter la première condition, et encore moins la seconde. Abandonner Li Muwan revenait à abandonner son Dao, sa quête de vie et sa promesse!
 
@@ -76,7 +76,7 @@ Le Maître du Dao Rêve Bleu réfléchit un instant puis répondit lentement: «
 
 Le Maître du Dao Rêve Bleu ne répondit pas à cette question. Au lieu de cela, après un long silence méditatif, il déclara:
 
-« La troisième étape de la culture est appelée les quatre royaumes du vide! Le premier est le Vide de Nirvana. Le Vide de l'Esprit est considéré comme le seuil, le Vide Arcanique est considéré comme le Grand Dao, et le Vide de la Tribulation est le sommet! Depuis des temps immémoriaux, on n'a entendu parler que de personnes atteignant le sommet du Vide de la Tribulation, mais jamais de quiconque ayant réussi à atteindre cette quatrième étape légendaire: la Marche sur le Ciel!
+« La troisième étape de la culture est appelée les quatre royaumes du vide! Le premier est le Vide de Nirvana. Le Vide de l'Esprit est considéré comme le seuil, le Vide Arcanique est considéré comme le Grand Dao, et le Vide de la Tribulation est le sommet! Depuis des temps immémoriaux, on n'a entendu parler que de personnes atteignant le sommet du Vide de la Tribulation, mais jamais de quiconque ayant traversé la tribulation avec succès; quant à la légendaire quatrième étape, la Marche sur le Ciel, personne ne l'a jamais atteinte!
 
 Même les huit concubines impériales n'ont pas atteint ce stade! » Le Maître du Dao Rêve Bleu détourna son regard de Wang Lin et parla lentement en contemplant l'horizon lointain.
 
@@ -86,7 +86,7 @@ Savez-vous combien de personnes comme moi existent ici, dans le Royaume Extérie
 
 « Sans compter les anciennes concubines impériales, il y en a au moins sept! »
 
-« Votre Royaume Intérieur ne possède pas de Flammes Joss et il est piégé par la Formation de l'Espace Scellé depuis d'innombrables années. Le Souverain est également réputé pour ses machinations, et il a failli causer l'effondrement de votre Royaume! À quoi bon vous accrocher à une cause perdue? » Face aux paroles du Maître du Dao Rêve Bleu, Wang Lin resta silencieux.
+« Votre Royaume Intérieur ne possède pas de Flammes Joss et il est piégé par la Formation du Royaume Scellé depuis d'innombrables années. Le Souverain est également réputé pour ses machinations, et il a semé de nombreuses graines de notre Royaume Extérieur, laissant votre Royaume Intérieur au bord de l'effondrement! À quoi bon vous accrocher à une cause perdue? » Face aux paroles du Maître du Dao Rêve Bleu, Wang Lin resta silencieux.
 
 Après un long moment, Wang Lin leva la tête vers le Maître du Dao Rêve Bleu et dit calmement: « Si ce que le Senior dit est vrai, alors pourquoi le Royaume Extérieur n'a-t-il pas encore déclenché de guerre contre le Royaume Intérieur? Pourquoi se contentent-ils d'affaiblir lentement les forces du Royaume Intérieur? Je crains qu'il n'y ait quelque chose dans le Royaume Intérieur qui inquiète profondément le Senior et les autres! »
 
@@ -108,13 +108,13 @@ La montagne sur laquelle se tenait Wang Lin sembla basculer. La terre devint le 
 
 Sous ses pieds s'étendait un ciel baigné de lumière bleue. Les nuages et le soleil étaient inversés, et seul le Maître du Dao Rêve Bleu demeurait debout!
 
-« Ce sort s'appelle le Sceau de l'Inversion Céleste! Qu'est-ce que l'inversion céleste? À mon sens, c'est retourner le ciel pour en faire la terre! La terre qui est devenue le ciel sera le sceau le plus puissant! » Le Maître du Dao Rêve Bleu agita sa main droite et la terre, transformée en ciel, s'abattit avec fracas vers les hauteurs!
+« Ce sort s'appelle le Sceau d'Inversion Céleste! Qu'est-ce que l'inversion céleste? À mon sens, c'est retourner le ciel pour en faire la terre! La terre qui est devenue le ciel sera le sceau le plus puissant! » Le Maître du Dao Rêve Bleu agita sa main droite et la terre, transformée en ciel, s'abattit avec fracas vers les hauteurs!
 
 L'esprit de Wang Lin trembla face à ce spectacle, laissant paraître une incrédulité totale. Il n'aurait jamais imaginé qu'un tel sort puisse exister. Ce sort était d'une puissance extrême et, s'il était utilisé dans l'espace, il pourrait massacrer toute vie!
 
 « Si vous voulez l'utiliser dans l'espace, vous devrez contenir un monde dans votre cœur! » Le Maître du Dao Rêve Bleu leva sa main droite et le temps sembla refluer. Tout revint à la normale en un instant. Le ciel redevint le ciel et la terre redevint la terre!
 
-« Qu'est-ce qui est le plus abondant dans l'espace? Ce ne sont ni les hommes, ni les esprits, ni les sorts, ni l'énergie originelle. À mon avis, c'est la lumière! La chose la plus abondante en ce monde est la lumière! La lumière est partout, et il n'est point de lieu sans elle! Le Sceau de l'Inversion Céleste est un sort d'attaque; mon second sort est un sort défensif. Regardez attentivement! » Le Maître du Dao Rêve Bleu ne laissa pas à Wang Lin le temps de digérer avant de lever à nouveau sa main droite.
+« Qu'est-ce qui est le plus abondant dans l'espace? Ce ne sont ni les hommes, ni les esprits, ni les sorts, ni l'énergie originelle. À mon avis, c'est la lumière! La chose la plus abondante en ce monde est la lumière! La lumière est partout, et il n'est point de lieu sans elle! Le Sceau d'Inversion Céleste est un sort d'attaque; mon second sort est un sort défensif. Regardez attentivement! » Le Maître du Dao Rêve Bleu ne laissa pas à Wang Lin le temps de digérer avant de lever à nouveau sa main droite.
 
 Dès qu'il leva la main, tout ce qui existait dans le monde émit une lumière infinie. Une clarté éclatante émanait même de l'espace lointain.
 

@@ -18,7 +18,7 @@ Bai Wei laissa échapper un soupir et afficha un sourire amer. Après un moment 
 
 Wang Lin fronça les sourcils mais resta silencieux.
 
-« Frère Wang, à l'origine, je ne pensais pas que vous me trouveriez si vite et j'étais prêt à vous donner un indice demain, mais cela n'est plus nécessaire. En ce moment même, Maître est en culture de porte close. Dès qu'il en sortira, il remarquera l'anomalie et viendra ici. »
+« Frère Wang, à l'origine, je ne pensais pas que vous me trouveriez si vite et j'étais prêt à vous donner un indice demain, mais cela n'est plus nécessaire. Nous sommes à l'heure du Lapin et Maître est en culture de porte close. Dès que l'heure du Lapin sera passée, il remarquera l'anomalie et viendra ici. »
 
 « Avant que Maître n'arrive, le frère Wang serait-il prêt à écouter une histoire... » Bai Wei esquissa un sourire amer, tandis que la confusion et la nostalgie emplissaient ses yeux.
 
@@ -42,13 +42,13 @@ Wang Lin fronça les sourcils mais resta silencieux.
 
 « Je n'oublierai jamais ce jour. Je cultivais et l'âme de ma petite sœur était sur le point de s'éveiller. Soudain, Zhao Xingsha apparut devant moi, avec un niveau de culture bien supérieur au mien, et me blessa. Cela provoqua une fusion plus profonde de l'âme de ma petite sœur avec la mienne alors qu'elle s'apprêtait à s'éveiller. Cela me condamna à cette situation misérable où je n'étais ni homme ni femme. » Une haine monstrueuse brûlait dans les yeux de Bai Wei.
 
-« Désespéré, j'ai sollicité l'aide de Maître, et celui-ci me remit la méthode du Double Désir Céleste. Il dit qu'une fois que j'aurais atteint le neuvième niveau, ma sœur et moi serions séparés.
+« Désespéré, j'ai sollicité l'aide de Maître, et celui-ci me remit la méthode du Double Désir Yin et Yang. Il dit qu'une fois que j'aurais atteint le neuvième niveau, ma sœur et moi serions séparés.
 
-« Je n'aurais jamais cru que Maître me mentirait. Grâce à la méthode du Double Désir Céleste, ma culture a progressé de manière fulgurante comme prévu. Cette méthode se concentrait sur l'âme et avait une influence immense sur ma croissance. Cependant, je m'en moquais; mon seul désir était de permettre un jour à l'âme de ma petite sœur de retourner dans le cycle de la réincarnation.
+« Je n'aurais jamais cru que Maître me mentirait. Grâce à la méthode du Double Désir Yin et Yang, ma culture a progressé de manière fulgurante comme prévu. Cette méthode se concentrait sur l'âme et avait une influence immense sur ma croissance. Cependant, je m'en moquais; mon seul désir était de permettre un jour à l'âme de ma petite sœur de retourner dans le cycle de la réincarnation.
 
 « En un éclair, des centaines d'années s'écoulèrent. C'est aussi l'époque où vous avez quitté la planète Tian Yun. Lorsque j'ai réalisé que quelque chose n'allait pas, il était trop tard... » Les yeux de Bai Wei se remplirent de tristesse et il déchira sa chemise, exposant son torse. Une ligne verte et une ligne rouge s'étendaient de chacun de ses bras, et les deux lignes se croisaient au milieu comme des branches d'arbre.
 
-« Voyez-vous cela? C'est la marque mystérieuse qui est apparue sur mon corps après avoir pratiqué la méthode du Double Désir Céleste. Tous les méridiens de mon corps ont été transformés par la méthode du Double Désir Yin et Yang. » À cet instant, la douleur crispa le visage de Bai Wei. L'énergie Yin à l'intérieur de son corps s'agita et cette étrange marque réapparut.
+« Voyez-vous cela? C'est la marque mystérieuse qui est apparue sur mon corps après avoir pratiqué la méthode du Double Désir Yin et Yang. Tous les méridiens de mon corps ont été transformés par la méthode du Double Désir Yin et Yang. » À cet instant, la douleur crispa le visage de Bai Wei. L'énergie Yin à l'intérieur de son corps s'agita et cette étrange marque réapparut.
 
 « Chaque fois que j'en parle, cette marque s'active et l'énergie Yin dans mon corps augmente considérablement. La méthode du Double Désir Yin et Yang cultive d'elle-même, hors de mon contrôle.
 
@@ -76,7 +76,7 @@ Bai Wei fixa Wang Lin, et sa voix résonna dans toute la vallée. Les mêmes mot
 
 Wang Lin réfléchit en silence. Il ne pouvait s'empêcher de peser le pour et le contre. Il ignorait ce que c'était, mais si l'Omniscient y accordait tant d'importance, cela devait être crucial. S'il l'acceptait maintenant, il ferait indubitablement face à la colère de l'Omniscient!
 
-« Le temps presse; Maître arrivera d'un instant à l'autre. Wang Lin, donnez-moi une réponse. Osez-vous ou non?! » Bai Wei attendit un moment avant de montrer un air de déception. Il sourit amèrement en secouant la tête et murmura: « Le Maître a-t-il aussi calculé tout cela... A-t-il prévu que même si je vous l'offrais, vous ne l'accepteriez pas? Et que même si vous le faisiez, vous la lui rendriez... Maître, avez-vous vraiment été infaillible durant toutes ces innombrables années? Je n'y crois pas, je n'y crois pas!!! Je refuse de croire que vous n'ayez jamais commis une seule erreur dans votre vie!! »
+« L'heure du Lapin touche à sa fin; Maître arrivera d'un instant à l'autre. Wang Lin, donnez-moi une réponse. Osez-vous ou non?! » Bai Wei attendit un moment avant de montrer un air de déception. Il sourit amèrement en secouant la tête et murmura: « Le Maître a-t-il aussi calculé tout cela... A-t-il prévu que même si je vous l'offrais, vous ne l'accepteriez pas? Et que même si vous le faisiez, vous la lui rendriez... Maître, avez-vous vraiment été infaillible durant toutes ces innombrables années? Je n'y crois pas, je n'y crois pas!!! Je refuse de croire que vous n'ayez jamais commis une seule erreur dans votre vie!! »
 
 Alors que les paroles de Bai Wei atteignaient Wang Lin, ses yeux commencèrent à briller intensément.
 
@@ -96,7 +96,7 @@ S'il agissait ainsi, son cœur de Dao deviendrait timoré. Que parler alors de c
 
 « Je suis un cultivateur qui défie les cieux! » Les yeux de Wang Lin s'illuminèrent en repensant à la façon dont il avait défié les cieux dans la Terre des Esprits Démoniaques. Comment un simple Omniscient pouvait-il être comparé aux cieux?!
 
-« Bai Wei n'a pas de bonnes intentions. Avant de mourir, il veut m'entraîner avec lui pour défier l'Omniscient! Il veut voir l'Omniscient se tromper sur quelqu'un avant son dernier souffle! »
+« Bai Wei n'a pas de bonnes intentions. Avant de mourir, il veut m'entraîner avec lui pour défier l'Omniscient! Il veut voir de ses propres yeux l'Omniscient se tromper sur une chose avant son dernier souffle! »
 
 Le regard de Wang Lin devint glacial, puis il dit lentement: « Pourquoi n'oserais-je pas? »
 

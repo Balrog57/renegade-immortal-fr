@@ -10,7 +10,7 @@ slug: ou-est-le-maitre
 
 Xu Liguo s'était métamorphosé en une brume noire et fuyait à toute allure. Il tenait une femme magnifique dont le visage affichait un rictus méprisant. Son propre visage était empreint de panique et de malice tandis qu'il poussait des rugissements continus.
 
-Les yeux de la superbe femme étaient emplis de dédain lorsqu'elle lança froidement: « Tu ne peux pas t'échapper. Dès que tu m'as capturée, tu as déclenché une immense calamité! Ce n'est qu'un simple Ancien et tu prends déjà la fuite? Il ne faudra pas longtemps avant que mon père ne sorte de sa culture en isolement pour te raffiner en une âme de tonnerre, afin que tu sois tourmenté pendant des milliers d'années pour apaiser la haine dans mon cœur! »
+Les yeux de la superbe femme étaient emplis de dédain lorsqu'elle lança froidement: « Tu ne peux pas t'échapper. Dès que tu m'as capturée, tu as déclenché une immense calamité! Ce n'est qu'un simple Ancien et tu prends déjà la fuite? Il ne faudra pas longtemps avant que mon père ne sorte de sa culture en isolement pour te raffiner en une âme de tonnerre, afin que tu sois tourmenté pendant dix mille ans pour apaiser la haine dans mon cœur! »
 
 Xu Liguo émergea de la brume, lui asséna une gifle et hurla avec colère: « Ferme-la! Qu'est-ce que ton Grand-père Xu n'a pas vu ou vécu? Qu'est-ce que cela représente?! »
 
@@ -26,9 +26,9 @@ Un vieil homme vêtu de vert fendit le ciel. Il semblait parcourir des distances
 
 Des grondements tonitruants résonnèrent alors que tout le tonnerre convergeait pour former des millions de serpents argentés, fondant sur Xu Liguo!
 
-Xu Liguo poussa un cri et se retourna brusquement, utilisant la magnifique femme comme bouclier. Il fendit l'air de ses mains, et d'innombrables rayons d'énergie d'épée jaillirent de son corps. Cette énergie était si puissante qu'elle faisait trembler les cieux et dégageait une aura glaciale. Elle entra en collision avec le tonnerre!
+Xu Liguo poussa un cri et se retourna brusquement en emportant la magnifique femme. Il joignit les mains et trancha violemment l'éclair qui approchait, et d'innombrables rayons d'énergie d'épée jaillirent de son corps. Cette énergie était si puissante qu'elle faisait trembler les cieux et dégageait une aura glaciale. Elle entra en collision avec le tonnerre!
 
-*Rumble, rumble, rumble, rumble!*
+*Boum, boum, boum, boum!*
 
 Le ciel changea de couleur et les nuages se brisèrent. L'impact colossal se propagea, forçant Xu Liguo à recracher son essence spirituelle, ce qui l'affaiblit instantanément. Cependant, la force du choc le repoussa et il parvint à s'échapper rapidement avec la magnifique femme.
 
@@ -54,13 +54,13 @@ Dès qu'il apparut, trois fils noirs jaillirent de la sphère de tonnerre et fon
 
 À l'instant où ils arrivèrent, Xu Liguo eut un sourire sardonique; il recula et utilisa à nouveau la femme comme bouclier! Les trois fils noirs hésitèrent et changèrent immédiatement de trajectoire.
 
-Saisissant cette opportunité, Xu Liguo battit en retraite et rugit: « Vieil homme, qu'est-ce que ton Grand-père Xu n'a pas vu? Tu n'es qu'au stade du Purificateur Nirvana, tu ne vaux rien! Une fois que mon Maître sera de retour, il pourra te tuer d'un seul doigt! »
+Saisissant cette opportunité, Xu Liguo battit en retraite et rugit: « Vieil homme, qu'est-ce que ton Grand-père Xu n'a pas vu? Tu n'es qu'au stade du Purificateur du Nirvana, tu ne vaux rien! Une fois que mon Maître sera de retour, il pourra te tuer d'un seul doigt! »
 
 Une vapeur noire s'échappa du visage du vieil homme qui poursuivait Xu Liguo; sa colère atteignait son paroxysme. Il avait vécu de nombreuses années, mais n'avait jamais rencontré un ennemi aussi venimeux. Tout au long de la poursuite, l'autre partie ne cessait de l'insulter, et bien que son cœur fût habituellement calme comme l'eau, il ne put s'empêcher de s'enflammer de rage!
 
 « Quand je t'aurai attrapé, je ferai en sorte que tu regrettes d'être né!!! »
 
-« Vieux fou, tu ne peux pas dire autre chose? Tu as déjà répété ça cent fois! Cent fois, ah, cent fois... Dis-moi, vieil homme, est-ce que tu veux me regarder profiter de cette petite fille? Est-ce pour cela que tu n'as pas réussi à atteindre le stade du Purificateur Nirvana? Veux-tu que je le fasse encore cent fois? » lança Xu Liguo avec malveillance en se téléportant. Bien qu'il fût affaibli, tel une lampe à huile presque vide, ses paroles n'en devenaient que plus cruelles!
+« Vieux fou, tu ne peux pas dire autre chose? Tu as déjà répété ça cent fois! Cent fois, ah, cent fois... Dis-moi, vieil homme, est-ce que tu veux me regarder profiter de cette petite fille? Sinon, avec ta culture de Purificateur du Nirvana, comment pourrais-tu ne pas me rattraper? Veux-tu me regarder encore cent fois? » lança Xu Liguo avec malveillance en se téléportant. Bien qu'il fût affaibli, tel une lampe à huile presque vide, ses paroles n'en devenaient que plus cruelles!
 
 « Très bien, ton Grand-père Xu va te laisser voir tout ce que tu veux! » La main droite de Xu Liguo s'abattit sur la magnifique femme et déchira ses vêtements. Une grande partie de son habit fut arrachée, révélant sa peau blanche comme neige.
 
@@ -76,7 +76,7 @@ Le vieil homme en vert qui le poursuivait avait entendu les derniers mots de Xu 
 
 Tandis que la poursuite continuait, Xu Liguo s'affaiblissait de plus en plus, mais il ne cessait de proférer des insultes. Le vieil homme bouillonnait de rage!
 
-Soudain, une voix douce résonna dans le monde: « Quel esprit d'épée à la langue acérée. Je veux voir si tu pourras encore tenir ce genre de propos après que j'aurai drainé ton corps spirituel pour te sceller dans un cochon! »
+Soudain, une voix douce résonna dans le monde: « Quel esprit d'épée à la langue acérée. Je veux voir si tu pourras encore tenir ce genre de propos après que j'aurai drainé ton corps spirituel pour te sceller dans le corps d'un porc ou d'un chien! »
 
 Un homme d'âge moyen vêtu de bleu apparut avec cette voix. Son apparition fut extrêmement bizarre, se tenant juste sur la trajectoire de fuite de Xu Liguo!
 

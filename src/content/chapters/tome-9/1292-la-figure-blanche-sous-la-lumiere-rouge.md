@@ -20,7 +20,7 @@ Il reconnut la brume bleue. Dans sa mémoire, ceux qui étaient enveloppés par 
 
 « C'est étonnamment un jeune dragon des Neuf Abîmes. Ce dragon ne peut plus être considéré comme une simple bête féroce. Bien qu'il soit de rang 12, il peut manifester une puissance équivalente à celle d'une bête-roi de rang 13 incapable de prendre forme humaine! »
 
-« C'est bel et bien un dragon des Neuf Abîmes. Ce genre de créature n'était pas apparu depuis longtemps. Un Ancien avait dit que ces groupes surpassaient largement les bêtes capables de transformation humaine. La légende raconte qu'il était l'un des six compagnons bestiaux appartenant à Ji Qiong! »
+« C'est bel et bien un dragon des Neuf Abîmes. Ce genre de créature n'était pas apparu depuis longtemps. Un Ancien avait dit que cette bête vivait en groupe et surpassait largement les bêtes capables de transformation humaine. La légende raconte qu'elle était l'une des six bêtes compagnes de Ji Qiong, bête du Dao de rang céleste! »
 
 « Cette affaire est cruciale, nous devons en informer les Anciens! » Les trois personnes dans la brume bleue communiquèrent par pensée. L'une d'elles sortit un jade et le broya, envoyant instantanément un message.
 
@@ -66,7 +66,7 @@ Le vieil homme jouissait d'une grande autorité parmi les milliers de cultivateu
 
 À sa commande, les cultivateurs environnants reculèrent tous en formant des sceaux de leurs mains. Une lumière de formation commença à émaner de leurs corps.
 
-« Nous offrons nos vies pour la Formation de la Secte Démon! » Des milliers de personnes sacrifièrent leur vitalité au même instant. Le cri unifié de ces milliers de cultivateurs généra une pression colossale!
+« Nous sacrifions notre vitalité, nous invoquons la Grande Formation de la Secte Démon! » Des milliers de personnes sacrifièrent leur vitalité au même instant. Le cri unifié de ces milliers de cultivateurs généra une pression colossale!
 
 Tandis que leurs voix résonnaient, une lueur fantomatique jaillit de la faille spatiale. Après un grondement de tonnerre, la faille se comporta comme une immense gueule et se referma brusquement!
 
@@ -78,7 +78,7 @@ En voyant cela, le vieil homme soupira. Il avait initialement voulu attirer le D
 
 La femme indifférente fit de même. Ces cultivateurs avaient œuvré ensemble durant de nombreuses années et se comprenaient parfaitement. Les quatre autres n'attaquèrent pas le grand crâne, mais se dispersèrent pour s'en prendre aux petits crânes et aux bêtes isolées.
 
-Les cultivateurs de la Secte Démon, enveloppés dans la brume bleue, restaient immobiles, observant la bataille et l'agonie des bêtes comme des hommes. Certains crânes et certaines bêtes chargèrent vers eux, mais dès qu'ils touchèrent la brume bleue, ils périrent misérablement.
+Les cultivateurs de la Secte Démon, enveloppés dans la brume bleue, restaient immobiles, observant la bataille et la mort des bêtes féroces comme des cultivateurs. Certains crânes et certaines bêtes chargèrent vers eux, mais dès qu'ils touchèrent la brume bleue, ils périrent misérablement.
 
 « Cet endroit est un champ de bataille, et les faibles n'y survivront pas. Si vous voulez vivre, devenez plus forts, franchissez vos limites; vous devez marcher sur le fil de la vie et de la mort, encore et toujours. Autrefois, nous trois faisions la même chose! »
 

@@ -6,13 +6,13 @@ bookTitle: "Alliance's Secret"
 en: Chapter 998 - Yao Xixues Hatred (1)
 slug: la-haine-de-yao-xixue-1
 ---
-À cet instant précis, le ciel au-dessus des Terres de l'Esprit Démon subit un changement stupéfiant. Des couches de vortex apparurent dans les cieux, comme si elles s'apprêtaient à les déchirer.
+À cet instant précis, le ciel au-dessus de la Terre des Esprits Démoniaques subit un changement stupéfiant. Des couches de vortex apparurent dans les cieux, comme si elles s'apprêtaient à les déchirer.
 
-Ce bouleversement soudain sema la panique parmi les habitants des Terres de l'Esprit Démon, qui levèrent tous les yeux vers le ciel.
+Ce bouleversement soudain sema la panique parmi les habitants de la Terre des Esprits Démoniaques, qui levèrent tous les yeux vers le ciel.
 
-Le vortex s'étendit jusqu'à presque couvrir l'intégralité de la voûte céleste au-dessus des Terres de l'Esprit Démon. Il tourbillonnait avec une rapidité effrénée, telle une tempête dévalant des cieux.
+Le vortex s'étendit jusqu'à presque couvrir l'intégralité de la voûte céleste au-dessus de la Terre des Esprits Démoniaques. Il tourbillonnait avec une rapidité effrénée, telle une tempête dévalant des cieux.
 
-Au sein des Terres de l'Esprit Démon, dans le Pays du Démon Sylvestre, se trouvait un profond ravin. Cette zone était très reculée et les profondeurs de la gorge étaient tapissées de mousse. L'endroit était extrêmement humide et, à l'aube, il était généralement enveloppé d'un brouillard dense.
+Au sein de la Terre des Esprits Démoniaques, dans le Pays des Démons du Bois, se trouvait un profond ravin. Cette zone était très reculée et les profondeurs de la gorge étaient tapissées de mousse. L'endroit était extrêmement humide et, à l'aube, il était généralement enveloppé d'un brouillard dense.
 
 À cet instant, une légère brume subsistait encore, mais elle se dissipait lentement sous l'effet du soleil.
 
@@ -26,13 +26,13 @@ C'était un visage démoniaque. Sa beauté transcendait celle d'un simple mortel
 
 « Vous êtes enfin venus... J'ai attendu ce jour pendant une éternité... »
 
-À cet instant précis, à l'autre extrémité des Terres de l'Esprit Démon, s'étendait une plaine herbeuse. Quelques fleurs y poussaient et, avant même de s'en approcher, on pouvait déjà humer le parfum de l'herbe.
+À cet instant précis, à l'autre extrémité de la Terre des Esprits Démoniaques, s'étendait une plaine herbeuse. Quelques fleurs y poussaient et, avant même de s'en approcher, on pouvait déjà humer le parfum de l'herbe.
 
-Ce parfum était très subtil, mais il exerçait un effet singulier. Chaque fois qu'un habitant des Terres de l'Esprit Démon le respirait, il ressentait un apaisement immédiat. En conséquence, au fil du temps, de nombreuses tribus s'étaient installées sur cette plaine.
+Ce parfum était très subtil, mais il exerçait un effet singulier. Chaque fois qu'un habitant de la Terre des Esprits Démoniaques le respirait, il ressentait un apaisement immédiat. En conséquence, au fil du temps, de nombreuses tribus s'étaient installées sur cette plaine.
 
-La Tribu de la Affinement de l'Âme s'y était également étendue, mais ce qui était étrange, c'est que les drapeaux d'âme y perdaient instantanément une partie de leur puissance. C'était comme si les fragments d'âme à l'intérieur n'osaient pas en sortir. S'ils étaient forcés de le faire, les fragments se dissipaient rapidement, un par un.
+Une branche de la Tribu du Raffinement des Âmes s'y était également étendue, mais ce qui était étrange, c'est que les drapeaux d'âme y perdaient instantanément une partie de leur puissance. C'était comme si les fragments d'âme à l'intérieur n'osaient pas en sortir. S'ils étaient forcés de le faire, les fragments se dissipaient rapidement, un par un.
 
-C'est pourquoi la Tribu de la Affinement de l'Âme finit par abandonner cet endroit.
+C'est pourquoi la Tribu du Raffinement des Âmes finit par abandonner cet endroit.
 
 Si l'on regardait d'en haut, cette prairie semblerait tout à fait ordinaire. Pourtant, si un expert en restrictions y jetait un œil, son front serait instantanément perlé de sueur froide.
 
@@ -44,13 +44,13 @@ La Formation du Royaume Céleste!
 
 Grâce à cette formation, ainsi qu'à une méthode spéciale et un jeton, on pouvait accéder à l'une des cinq grottes célestes!
 
-Quatre des cinq grottes célestes des Terres de l'Esprit Démon avaient été découvertes. Quant à la cinquième, nul ne savait où elle se cachait. Seule l'ouverture des parties intérieures des quatre autres permettrait de révéler la cinquième.
+Quatre des cinq grottes célestes de la Terre des Esprits Démoniaques avaient été découvertes. Quant à la cinquième, nul ne savait où elle se cachait. Seule l'ouverture des parties intérieures des quatre autres permettrait de révéler la cinquième.
 
 La grotte céleste reliée à ce réseau de transfert était imprégnée d'énergie spirituelle céleste; rien de ce qui s'y trouvait n'était commun.
 
 Cependant, bien qu'elle évoquât le Royaume Céleste, elle paraissait très vide et empreinte d'une certaine froideur. On ne pouvait qu'éprouver un sentiment de solitude et de mélancolie en y pénétrant.
 
-Cette grotte céleste, de forme sinueuse, était parsemée de pavillons. Un jeune homme était assis à l'intérieur d'une pagode imposante. Il était d'une grande beauté et dégageait l'aura d'un être céleste. Il tenait un rouleau de bambou.
+Cette grotte céleste, en forme de caractère 回, était entourée de nombreux pavillons, au centre desquels s'élevait un haut palais. Un jeune homme y était assis en tailleur. Il était d'une grande beauté et dégageait l'aura d'un être céleste. Il tenait un rouleau de bambou.
 
 Une tasse de thé reposait sur la table à ses côtés. La vapeur qui s'en échappait se transformait en fleurs éphémères dans l'air avant de se dissiper lentement.
 
@@ -72,19 +72,19 @@ Ce couple de cultivateurs était celui qui n'avait jamais quitté la grotte depu
 
 Hu Juan eut un petit rire et répondit doucement: « Cet esprit d'épée est très déterminé. Il a déjà atteint le huitième niveau de la Méthode de l'Esprit Immortel que tu lui as transmise, et il est sur le point d'atteindre le neuvième. S'il n'y a pas d'imprévu, il devrait bientôt franchir cette étape. »
 
-Les yeux de Wang Wei brillèrent d'admiration tandis qu'il hochait la tête. « Est-ce ainsi? Alors je ne l'ai pas aidé en vain... » En parlant, son regard s'assombrit et il secoua la tête. « Mais je reste perplexe. Qing Shuang n'est-elle pas morte? Sinon, comment a-t-elle pu forger l'Épée Céleste de la Pluie et faire de lui un esprit d'épée... Malheureusement, il refuse de parler, et comme je ne veux pas blesser les sentiments de Qing Shuang, il serait délicat de fouiller dans ses souvenirs. »
+Les yeux de Wang Wei brillèrent d'admiration tandis qu'il hochait la tête. « Est-ce ainsi? Alors je ne l'ai pas aidé en vain... » En parlant, son regard s'assombrit et il secoua la tête. « Mais je reste perplexe. Qing Shuang ne serait-elle pas morte? Sinon, comment a-t-elle pu forger l'Épée Céleste de la Pluie et faire de lui un esprit d'épée... Malheureusement, il refuse de parler, et comme je ne veux pas blesser les sentiments de Qing Shuang, il serait délicat de fouiller dans ses souvenirs. »
 
 Hu Juan murmura doucement: « Peut-être que la petite sœur Qing Shuang est encore en vie... »
 
-Au moment où le vortex apparut, le bassin du ravin et le couple de cultivateurs célestes n'étaient pas les seuls à réagir. Un changement colossal s'opérait également sous le palais du Pays du Démon du Vent.
+Au moment où le vortex apparut, le bassin du ravin et le couple de cultivateurs célestes n'étaient pas les seuls à réagir. Un changement colossal s'opérait également sous le palais du Pays des Démons du Vent.
 
-Il s'agissait de la terre sacrée du Pays du Démon du Vent. Une vaste étendue de grottes, semblable à un nid d'abeilles, s'étalait sous terre, à environ 3 300 mètres de profondeur, avec la capitale du pays en son centre.
+Il s'agissait de la terre sacrée du Pays des Démons du Vent. Une vaste étendue de grottes, semblable à un nid d'abeilles, s'étalait sous terre, à environ 3 300 mètres de profondeur, avec la capitale du pays en son centre.
 
-Chaque grotte était reliée par de nombreux tunnels qui finissaient tous par converger vers une immense caverne située sous le palais impérial. Ces cavités étaient remplies de squelettes d'un violet noirâtre dégageant une aura de mort.
+Chaque grotte était reliée par de nombreux tunnels qui finissaient tous par converger vers une immense caverne située sous le palais impérial. Chacune de ces cavités contenait un squelette d'un violet noirâtre dégageant une aura de mort.
 
 Dès que l'aura de mort émanait, elle était aspirée par les tunnels connectés aux grottes.
 
-Toute l'aura de mort provenant des innombrables cavernes du Pays du Démon du Vent convergeait vers la grotte sous le palais impérial. Cette dernière était immense, faisant au moins 3 300 mètres de large. Au centre se dressait un pilier colossal sur lequel une femme était assise.
+Toute l'aura de mort provenant des innombrables cavernes du Pays des Démons du Vent convergeait vers la grotte sous le palais impérial. Cette dernière était immense, faisant au moins 3 300 mètres de large. Au centre se dressait un pilier colossal sur lequel une femme était assise.
 
 L'apparence de cette femme était terrifiante. Son visage était marqué par de nombreuses cicatrices hideuses; il était impossible d'en dénombrer le nombre d'un simple coup d'œil.
 
@@ -96,13 +96,13 @@ Sous le pilier où siégeait la femme, s'étendait une mer d'aura de mort. Une p
 
 À chaque fois, le corps de la femme tremblait comme si elle subissait une douleur insupportable, mais elle serrait les dents pour l'endurer.
 
-« Wang Lin!!! Moi, Yao Xixue, j'ai dû subir toute cette douleur à cause de toi! Je déteste ne pas pouvoir dévorer ta chair pour venger mon père! Tant que je pourrai te tuer, que importe cette souffrance? Si je peux t'abattre, peu m'importe si je dois sacrifier ma beauté! » Les yeux de la femme étaient empreints d'une haine monstrueuse.
+« Wang Lin!!! Moi, Yao Xixue, j'ai dû subir toute cette douleur à cause de toi! Je déteste ne pas pouvoir dévorer ta chair pour venger mon père! Tant que je pourrai te tuer, qu'importe cette souffrance? Si je peux t'abattre, peu m'importe si je dois sacrifier ma beauté! » Les yeux de la femme étaient empreints d'une haine monstrueuse.
 
-Elle n'oublierait jamais le sentiment d'impuissance ressenti face au destin de son père lorsqu'elle s'était éveillée dans les Terres de l'Esprit Démon. Puis, une douleur fulgurante lui avait transpercé le cœur, lui indiquant par le lien de son sang que son père n'avait probablement pas survécu. À cet instant, sa haine envers Wang Lin avait atteint des sommets.
+Elle n'oublierait jamais le sentiment d'impuissance ressenti face au destin de son père lorsqu'elle était apparue seule dans la Terre des Esprits Démoniaques. Puis, une douleur fulgurante lui avait transpercé le cœur, lui indiquant par le lien de son sang que son père n'avait probablement pas survécu. À cet instant, sa haine envers Wang Lin avait atteint des sommets.
 
 Pour obtenir sa vengeance, elle avait tout sacrifié. Elle savait que pour élever son niveau de culture, elle devait solliciter l'aide du démon ancien de ce lieu. Elle avait travaillé sans relâche, endurant des épreuves et des humiliations dignes des pires cauchemars.
 
-Finalement, elle obtint la reconnaissance du démon ancien du Pays du Démon du Vent. Elle entra ici pour entamer une transmission d'héritage.
+Finalement, elle obtint la reconnaissance du démon ancien du Pays des Démons du Vent. Elle entra ici pour entamer une transmission d'héritage.
 
 Elle n'oublierait jamais l'instant où elle accepta l'héritage du démon du vent, ni cette voix démoniaque qui résonna dans son cœur:
 

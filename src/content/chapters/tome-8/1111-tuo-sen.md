@@ -12,19 +12,19 @@ Les beignets sortant de l'huile bouillante, les pains blancs s'échappant de leu
 
 Le stand de Ceng Shuishan vendait du vin. Bien que ce fût le matin, le vin de la famille Ceng était léger et rafraîchissant. Le consommer à l'aube ne rendait pas ivre; au contraire, il procurait une sensation de vitalité qui le rendait très prisé.
 
-Ceng Shuishan, un homme d'une cinquantaine d'années, se tenait sur le côté avec sa pipe, observant son serviteur s'affairer avec diligence. Un sourire apparut sur son visage marqué par les rides.
+Ceng Shuishan, un homme d'une cinquantaine d'années, se tenait sur le côté avec sa pipe, observant ses commis s'affairer avec diligence. Un sourire apparut sur son visage marqué par les rides.
 
 Un homme d'âge moyen, qui venait de s'acheter une cruche de vin, la secoua avant de prendre une longue gorgée. Il sourit au vieux Ceng et dit: « Oncle Ceng, votre vin n'est plus aussi savoureux qu'autrefois. Manquez-vous d'ingrédients? »
 
 Les yeux du vieux Ceng s'écarquillèrent alors qu'il tirait sur sa pipe et renifla: « Balivernes! Le vin de ma famille Ceng... »
 
-Avant qu'il n'ait pu terminer, l'homme d'âge moyen éclata de rire. « Le vin de votre famille Ceng se transmet depuis des millénaires. On raconte même qu'il avait captivé un immortel. Oncle Ceng, vous répétez cela presque tous les jours. Je dois aller travailler, je n'ai pas le temps d'écouter vos longs discours. » L'homme reprit son vin avec un sourire et partit.
+Avant qu'il n'ait pu terminer, l'homme d'âge moyen éclata de rire. « Le vin de votre famille Ceng se transmet depuis mille ans. On raconte même qu'il avait captivé un immortel. Oncle Ceng, vous répétez cela presque tous les jours. Je dois aller travailler, je n'ai pas le temps d'écouter vos longs discours. » L'homme reprit son vin avec un sourire et partit.
 
-Le vieux Ceng tira une grande bouffée de sa pipe et grommela: « Que sait un petit morveux? Le vin de ma famille Ceng a bel et bien été bu par un céleste pendant plus de soixante ans, il y a mille ans! »
+Le vieux Ceng tira une grande bouffée de sa pipe et grommela: « Que sait un petit morveux? Le vin de ma famille Ceng a bel et bien été bu par un immortel pendant plus de soixante ans, il y a plus de mille ans! »
 
 Il possédait encore quelques sculptures sur bois vieilles de plus de mille ans. Elles représentaient l'ancêtre de la première génération de la famille Ceng dans la ville de Nuage Flottant, ainsi qu'un immortel au visage flou.
 
-Une légende se transmettait de génération en génération au sein de leur lignée. Elle racontait que la famille Ceng n'était pas originaire de Ville du Nuage Flottant, mais qu'elle s'y était installée lors d'une catastrophe causée par une tempête de neige. La rumeur disait que leur ancêtre avait vécu avec cet immortel pendant plus de soixante ans et que ce dernier fut le bienfaiteur qui les avait aidés à s'établir ici.
+Une légende se transmettait de génération en génération au sein de leur lignée. Elle racontait que la famille Ceng n'était pas originaire de la ville de Nuage Flottant, mais qu'elle s'y était installée lors d'une catastrophe causée par une tempête de neige. La rumeur disait que leur ancêtre avait vécu avec cet immortel pendant plus de soixante ans et que ce dernier fut le bienfaiteur qui les avait aidés à s'établir ici.
 
 « L'ancêtre Ceng Daniu vécut jusqu'à l'âge de 137 ans. Même avant de mourir, il se souvenait encore de cet immortel. Cette histoire est transmise depuis des générations, comment pourrait-elle être fausse? » Le vieux Ceng plissa les yeux et tapota sa pipe contre le sol, l'air extrêmement fier.
 
@@ -62,13 +62,13 @@ La femme qui venait de parler était Xi Zifeng. Elle lança un regard glacial au
 
 Sur ce, elle l'ignora, contemplant la statue d'un regard complexe avant de soupirer et de s'envoler. Le cultivateur arrogant fronça les sourcils et examina attentivement l'œuvre. Plus il la scrutait, plus elle lui semblait familière, jusqu'à ce que ses yeux s'écarquillent de terreur. « C'est... le Céleste du Tonnerre, Xu Mu! »
 
-Bien que Luotian ait déjà retiré à Wang Lin son titre de Céleste du Tonnerre, la bataille de Wang Lin pour ce titre restait célèbre. Ce n'était pas un événement que l'on oublierait en quelques centaines d'années. Le cuir chevelu du cultivateur arrogant se hérissa. Il savait que le nom taoïste de Xu Mu était Maître Démon, et il ne pouvait l'ignorer. Sentant qu'il serait vain de détruire la statue d'un tel être, il fit volte-face et s'éloigna rapidement.
+Bien que Luotian ait déjà retiré à Wang Lin son titre de Céleste du Tonnerre, la bataille de Wang Lin pour ce titre restait célèbre. Ce n'était pas un événement que l'on oublierait en quelques centaines d'années. Le cuir chevelu du cultivateur arrogant se hérissa. Il savait que le nom taoïste de Xu Mu était Maître Démon, dont les massacres avaient été colossaux, et qu'il n'était pas homme à provoquer. Sentant qu'il serait vain de détruire la statue d'un tel être, il fit volte-face et s'éloigna rapidement.
 
 Maître Yan Leizi et son entourage, ainsi que les membres de la Secte des Cadavres, remarquèrent également la scène. Une fois les ordres donnés, plus personne n'osa envisager de briser la statue.
 
 La Secte des Cadavres, Luotian et les diverses puissances de l'Alliance s'étaient tous rassemblés sur la planète Suzaku. Ils convergeaient rapidement vers la Mer des Démons selon les informations reçues. La planète Suzaku n'étant pas très vaste, ils atteignirent bientôt leur destination.
 
-En réalité, aucun camp n'avait envoyé une armée immense; au total, on comptait environ 7 000 cultivateurs. Ils constituaient la première vague d'exploration. Car bien que les informations de Wang Lin fussent hautement crédibles, il fallait encore les vérifier. D'autres cultivateurs stagnaient en orbite autour de la planète Suzaku, regroupés par factions, attendant les nouvelles de cette avant-garde.
+En réalité, aucun camp n'avait envoyé une armée immense; au total, on comptait moins de 7 000 cultivateurs. Ils constituaient la première vague d'exploration. Car bien que les informations de Wang Lin fussent hautement crédibles, il fallait encore les vérifier. D'autres cultivateurs stagnaient en orbite autour de la planète Suzaku, regroupés par factions, attendant les nouvelles de cette avant-garde.
 
 Toutes les restrictions bloquant le chemin vers la Terre de l'Ancien Dieu n'étaient rien pour ces cultivateurs. Ils franchirent les barrières et passèrent au-delà des Étoiles Brisées pour atteindre l'entrée de la Terre de l'Ancien Dieu.
 
@@ -78,8 +78,8 @@ Cet endroit était celui où Wang Lin avait failli périr et où le crapaud de t
 
 Les rugissements provenant de l'ouverture de la Mer des Démons firent hésiter un instant les cultivateurs environnants, mais aucun ne fit marche arrière. Ils s'engouffrèrent tous dans le passage.
 
-Dès que les premiers apparurent, un rayon de lumière rouge jaillit du fond de l'abîme sans fin. Au moment où un cultivateur allait faire un mouvement, un éclair rouge surgit des profondeurs et le frappa de plein fouet. Le corps de l'homme trembla, paralysé par l'engourdissement. À cet instant, une lumière rouge s'approcha: c'était un python écarlate de près de 10 000 pieds de long qui dévora instantanément le cultivateur.
+Dès que les premiers apparurent, un rayon de lumière rouge jaillit du fond de l'abîme sans fin. Au moment où un cultivateur allait faire un mouvement, un éclair rouge surgit des profondeurs et le frappa de plein fouet. Le corps de l'homme trembla, paralysé par l'engourdissement. À cet instant, une lumière rouge s'approcha: c'était un python écarlate de près de 100 000 pieds de long qui dévora instantanément le cultivateur.
 
-Cet acte fut le signal du massacre. De nombreuses bêtes féroces chargèrent, entamant une lutte acharnée pour la survie contre les nouveaux arrivants! Le sang commença à pleuvoir dans l'abîme, excitant la nature sauvage des créatures. Tandis que le combat faisait rage, les fluctuations de l'énergie originelle se propagèrent progressivement vers les profondeurs du gouffre, là où même Wang Lin n'avait jamais exploré. Deux yeux rouge sang levèrent le regard vers les cultivateurs suspendus au-dessus.
+Cet acte fut le signal du massacre. De nombreuses bêtes féroces chargèrent, entamant une lutte acharnée pour la survie contre les nouveaux arrivants! Le sang commença à pleuvoir dans l'abîme, excitant la nature sauvage des créatures. Tandis que le combat faisait rage, les fluctuations de l'énergie originelle se propagèrent progressivement vers les profondeurs du gouffre et finirent par troubler un être endormi dans un endroit que même Wang Lin n'avait jamais exploré. Deux yeux rouge sang levèrent le regard vers les cultivateurs suspendus au-dessus.
 
-Au même moment, au sein de la mer de sang nichée au cœur de la Terre de l'Ancien Dieu, Tuo Sen, aux cheveux roux, était assis sur un pilier. Son doigt traînait sur le sol, produisant un crissement strident. Il leva lentement la tête avec un sourire, puis leva sa main droite et la referma impitoyablement!
+Au même moment, au sein de la mer de sang nichée au cœur de la Terre de l'Ancien Dieu, Tuo Sen, aux cheveux roux, était assis sur un immense bloc de pierre conique. Son doigt traînait sur le sol, produisant un crissement strident. Il leva lentement la tête, son visage hideux laissant filtrer un sourire cruel, puis leva sa main droite et la referma brutalement sur le côté!

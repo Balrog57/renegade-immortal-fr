@@ -12,13 +12,13 @@ Sa singularité résidait dans le fait que, de loin, il ressemblait à un pays d
 
 Cette magnifique jungle, qui aurait dû exister sur une planète, flottait simplement dans l'espace infini. Ce n'était pas seulement une jungle, mais une forêt vaste et dense qui semblait avoir toujours été là.
 
-Une énergie d'origine boisienne et dense emplissait le domaine stellaire, formant une brume verdâtre qui enveloppait le lieu et y persistait depuis des éternités...
+Une dense énergie d'origine de l'attribut Bois emplissait le domaine stellaire, formant une brume verdâtre qui enveloppait le lieu et y persistait depuis des éternités...
 
 Tout cultivateur s'en approchant verrait son énergie d'origine stagner, et certains la verraient même disparaître sans laisser de trace. Même l'Alliance de la Culture craignait cet endroit, ce qui en avait fait une zone interdite.
 
 Seuls quelques vieux monstres ayant vécu depuis des éons conservaient des souvenirs vagues de ce lieu imprégné de brume verte. Bien que ces souvenirs fussent flous, ils ne les avaient pas oubliés.
 
-C'était l'emplacement de la Secte Divine du Dragon Azure, l'un des quatre Sectes Divines!
+C'était l'emplacement de la Secte Divine du Dragon Azure, l'une des quatre Sectes Divines!
 
 À cet instant, une silhouette apparut lentement au loin. Cet homme d'âge moyen affichait une trace de nostalgie et de mélancolie dans le regard. Il contempla la Secte Divine du Dragon Azure et laissa échapper un soupir.
 
@@ -28,15 +28,15 @@ Un instant plus tard, plusieurs silhouettes jaillirent de la lumière émeraude.
 
 « Salutations, Empereur Divin de l'Oiseau Vermillon! » Après que les neuf vieillards furent sortis du brouillard vert et eurent aperçu l'homme d'âge moyen, ils manifestèrent leur respect en joignant les mains.
 
-« L'Éveilleur de l'Oiseau Vermillon est apparu; je dois emprunter le trésor sacré de votre Secte Divine du Dragon Azure. Et je demande à vous tous de me suivre! » L'homme d'âge moyen était l'âme originelle de l'Empereur Divin de l'Oiseau Vermillon. Pour s'assurer que rien ne tourne mal lors de ce voyage, il s'était déjà rendu auprès des Sectes Divines de la Tortue Noire et du Tigre Blanc. La Secte Divine du Dragon Azure était le dernier.
+« L'Éveilleur de l'Oiseau Vermillon est apparu; je dois emprunter l'ancien artefact sacré de votre Secte Divine du Dragon Azure. Et je demande à vous tous de me suivre! » L'homme d'âge moyen était l'âme originelle de l'Empereur Divin de l'Oiseau Vermillon. Pour s'assurer que rien ne tourne mal lors de ce voyage, il s'était déjà rendu auprès des Sectes Divines de la Tortue Noire et du Tigre Blanc. La Secte Divine du Dragon Azure était le dernier.
 
 Les neuf anciens de la Secte Divine du Dragon Azure se regardèrent sans longtemps hésiter. L'un des trois anciens en tête hocha respectueusement la tête: « Nous obéirons aux ordres de l'Empereur Divin de l'Oiseau Vermillon! »
 
 Quant à ce qui se tramait dans la Terre des Esprits Démoniaques, grâce à l'autodestruction de l'un des six anciens de la Secte Divine de l'Oiseau Vermillon, Wang Lin avait pu échapper à l'Omniscient. Ses yeux étaient injectés de sang et une douleur fulgurante lui transperçait le cœur en raison de ses blessures.
 
-Au loin, les cinq autres anciens de la Secte Divine de l'Oiseau Vermillon arrivèrent trop tard pour porter secours. Ils n'étaient pas tous des cultivateurs au sommet du stade de Briseur du Nirvana; la plupart se situaient aux premiers ou milieux stades, et ils peinaient déjà à affronter le Démon Ancien Ta Jia. Le moindre instant d'inattention les exposait à de graves blessures.
+Au loin, les cinq autres anciens de la Secte Divine de l'Oiseau Vermillon arrivèrent trop tard pour porter secours. Ils n'étaient pas au sommet du stade de Briseur du Nirvana; la plupart se situaient aux premiers ou milieux stades, et ils peinaient déjà à affronter l'Ancien Démon Ta Jia. Le moindre instant d'inattention les exposait à de graves blessures.
 
-Ces cinq anciens étaient entourés de flammes et de trésors magiques. Il ne s'agissait pas là d'objets ordinaires, mais de trésors du Vide accumulés par la Secte Divine de l'Oiseau Vermillon durant d'innombrables années. Bien qu'ils fussent inférieurs aux trésors du Pseudo-Vide du Nirvana, la manière dont les cinq les utilisaient avec le géant de flammes, aidés par la Concubine Impériale Fleur qui avait subjugué la créature humanoïde, leur permettait de tenir tête au démon ancien. Cependant, dès que ce dernier utilisait ses sorts, il était évident qu'ils étaient désavantagés.
+Ces cinq anciens étaient entourés de flammes et de trésors magiques. Il ne s'agissait pas là d'objets ordinaires, mais de trésors du Vide accumulés par la Secte Divine de l'Oiseau Vermillon durant d'innombrables années. Bien qu'ils fussent inférieurs aux trésors du Pseudo-Vide du Nirvana, la manière dont les cinq les utilisaient avec le géant de flammes, aidés par la Concubine Impériale des Fleurs qui avait contourné la créature humanoïde pour se joindre au combat contre l'Ancien Démon, leur permettait de tenir tête au démon ancien. Cependant, dès que ce dernier utilisait ses sorts, il était évident qu'ils étaient désavantagés.
 
 L'expression de l'Omniscient demeurait sereine. Après avoir arraché la marque entre ses sourcils, une aura puissante émanait de lui. Il s'approcha lentement de Wang Lin.
 
@@ -56,7 +56,7 @@ Sous l'effet d'un sort inconnu lancé par l'Omniscient, ces débris se rejoignir
 
 Le papillon battit des ailes et un craquement strident émana du dragon. Le son était atroce, semblable au frottement de milliers de pièces métalliques. En un instant, le dragon vola de nouveau en éclats, se transformant en une poussière dispersée par le vent.
 
-Cette scène glaça le sang de Wang Lin. C'était la première fois qu'il se retrouvait face à une puissance dont il ne pouvait même pas identifier le sort, le portant presque à la mort. S'il n'avait pas dégoupillé le Charriot de Guerre Divin assez promptement, il aurait été pris au dépourvu.
+Cette scène glaça le sang de Wang Lin. C'était la première fois qu'il se retrouvait face à une puissance dont il ne pouvait même pas identifier le sort, le portant presque à la mort. S'il n'avait pas sorti le Charriot de Guerre Divin assez promptement, il aurait été pris au dépourvu.
 
 Le papillon battit des ailes et un vent invisible imprégné de lois fut projeté vers l'Omniscient. Pourtant, ce dernier ne cilla pas devant l'apparition du papillon et se contenta de réciter une nouvelle incantation.
 
@@ -86,7 +86,7 @@ En un instant, l'index de l'Omniscient percuta la gaine.
 
 Un bruit assourdissant fit trembler les cieux et des fissures apparurent sur la gaine. Bien qu'elle ne se soit pas brisée, la force du choc projeta Wang Lin au loin.
 
-Il cracha un torrent de sang. Sa vision se brouilla et son âme originelle fut presque déchirée en deux. Il sentait son être s'effriter; à cet instant, seule sa volonté farouche de ne pas céder et son désir de défier les cieux le maintenaient debout!
+Il cracha un torrent de sang. Sa vision se brouilla et son âme originelle fut presque déchirée en morceaux. Il sentait son être s'effriter; à cet instant, seule sa volonté farouche de ne pas céder et son désir de défier les cieux le maintenaient debout!
 
 L'Omniscient marqua un temps d'arrêt. Malgré son apparente sérénité, la force de recul de la gaine l'avait surpris. Une intention meurtrière étincela dans ses yeux; il fit un pas et sembla se téléporter devant Wang Lin.
 
@@ -106,7 +106,7 @@ La fumée entourant son corps fut rapidement absorbée pour le guérir, et une p
 
 Au même moment, le cri déchirant de Da Tou retentit. Son corps avait été détruit par l'avatar de l'Omniscient et son âme originelle était gravement endommagée; il était sur le point de s'éteindre.
 
-C'est alors que Lei Ji, pourtant mort sérieusement blessé, poussa un rugissement. Se trouvant à proximité, il se précipita devant Da Tou pour intercepter l'attaque de l'avatar de l'Omniscient.
+C'est alors que Lei Ji, déjà gravement blessé, poussa un rugissement. Se trouvant à proximité, il se précipita devant Da Tou pour intercepter l'attaque de l'avatar de l'Omniscient.
 
 Boum!
 

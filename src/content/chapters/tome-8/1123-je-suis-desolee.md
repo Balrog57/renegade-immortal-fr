@@ -10,7 +10,7 @@ Lorsque Wang Lin regarda l'homme d'âge moyen, il ne put constater qu'une seule 
 
 L'expression de l'homme resta calme alors qu'il la réceptionnait et déployait son sens divin. Cependant, il fut surpris. En raison de son niveau de culture, il ne parvint pas à percevoir le contenu de cette pierre de jade.
 
-Il put néanmoins constater que le matériau dont elle était faite n'était pas ordinaire. Elle contenait une trace de feu originel. Compte tenu de l'identité de Wang Lin, cette pierre de jade n'avait rien de banal!
+Il put néanmoins constater que le matériau dont elle était faite n'était pas ordinaire. Elle contenait une trace de chaleur ardente du ciel et de la terre. Compte tenu de l'identité de Wang Lin, cette pierre de jade n'avait rien de banal!
 
 « Qu'est-ce que c'est? » L'homme leva la tête et fixa Wang Lin.
 
@@ -60,19 +60,19 @@ Zhou Ru regarda Wang Lin, puis Mu Bingmei. Au fil des ans, elle avait senti que 
 
 Mu Bingmei esquissa un sourire amer. Zhou Ru ne comprenait pas qu'une fois partie, elle n'aurait aucune chance de revenir, car Wang Lin ne le permettrait pas.
 
-« Je suis ta maîtresse et tu es ma disciple. Puisque tu t'apprêtes à partir, laisse ta maîtresse t'offrir un présent. » Tout en parlant, Mu Bingmei retira une broche de jade de sa chevelure. Elle la contempla avec tendresse avant de la lancer à Zhou Ru.
+« Je suis ta maîtresse et tu es ma disciple. Puisque tu t'apprêtes à partir, laisse ta maîtresse t'offrir un présent. » Tout en parlant, Mu Bingmei retira une épingle de jade vert de sa chevelure. Elle la contempla avec tendresse avant de la lancer à Zhou Ru.
 
-« Maîtresse, ceci... » Zhou Ru fut surprise et la rattrapa par réflexe. Elle se souvenait vaguement que Mu Bingmei lui avait dit que cette broche était un trésor extrêmement puissant, transmis par sa propre maîtresse.
+« Maîtresse, ceci... » Zhou Ru fut surprise et la rattrapa par réflexe. Elle se souvenait vaguement que Mu Bingmei lui avait dit que cette épingle était un trésor extrêmement puissant, transmis par sa propre maîtresse.
 
 « Viens ici, laisse ta maîtresse te l'attacher. » Les yeux de Mu Bingmei brillaient d'affection pour sa disciple. Après toutes ces années passées ensemble, elle avait développé des sentiments profonds pour elle.
 
 Zhou Ru s'approcha docilement de Mu Bingmei. Wang Lin voulut initialement l'interrompre, mais après avoir hésité, il resta silencieux.
 
-Elle enroula les cheveux de Zhou Ru et y inséra personnellement la broche. Mu Bingmei effleura doucement le sommet de la tête de la jeune fille. La froideur qui régnait dans ses yeux disparut et elle murmura: « Souviens-toi que tu seras toujours ma disciple, ma seule et unique disciple... Le Royaume du Vide Brillant est ta seconde maison. Tu... peux partir. »
+Elle enroula les cheveux de Zhou Ru et y inséra personnellement l'épingle. Mu Bingmei effleura doucement le sommet de la tête de la jeune fille. La froideur qui régnait dans ses yeux disparut et elle murmura: « Souviens-toi que tu seras toujours ma disciple, ma seule et unique disciple... Le Royaume du Vide Brillant est ta seconde maison. Tu... peux partir. »
 
-« Maîtresse! » Des larmes coulèrent sur les joues de Zhou Ru. Elle avait le pressentiment que sa maîtresse et son oncle se connaissaient; mais qu'ils n'étaient pas amis, mais ennemis. Elle craignait qu'une fois partie, elle ne reverrait jamais sa maîtresse.
+« Maîtresse! » Des larmes coulèrent sur les joues de Zhou Ru. Elle avait le pressentiment que sa maîtresse et son oncle se connaissaient; mais qu'ils n'étaient pas amis, plutôt ennemis. Elle craignait qu'une fois partie, elle ne reverrait jamais sa maîtresse.
 
-Wang Lin affichait un regard tourmenté. Avec sa sagesse, il percevait que le lien entre Mu Bingmei et Zhou Ru n'était pas feint, mais il n'osait pourtant s'y fier si facilement. Pensant au domaine impitoyable de Liu Mei, il dit: « Zhou Ru. »
+Wang Lin affichait un regard tourmenté. Avec sa sagesse, il percevait que le lien entre Mu Bingmei et Zhou Ru n'était pas feint, mais il n'osait pourtant s'y fier si facilement. Pensant au Dao impitoyable de Liu Mei, il dit: « Zhou Ru. »
 
 Zhou Ru regarda Mu Bingmei, recula de quelques pas et s'agenouilla. Elle effectua trois prosternations et pleura: « Maîtresse, la disciple s'en va. »
 
@@ -90,7 +90,7 @@ Durant ces années, la douleur dans son cœur l'avait torturée jusqu'au bord de
 
 « Liu Mei est déjà morte. Tu n'es pas elle. Il n'y a pas lieu de s'excuser. » Wang Lin ne se retourna pas, la main posée sur sa poitrine. Son cœur lui faisait mal en repensant à sa première rencontre avec Wang Ping. Ce bébé empli de ressentiment qui fixait violemment son père... C'était un cauchemar que Wang Lin ne pourrait jamais oublier.
 
-Liu Mei avait voulu graver son image dans le cœur taoïste de Wang Lin. Elle avait réussi, et même aujourd'hui, elle y parvenait encore!
+Liu Mei avait voulu graver son image dans le cœur Dao de Wang Lin. Elle avait réussi, et même aujourd'hui, elle y parvenait encore!
 
 « Je suis désolée... Je suis désolée... » Le visage de Mu Bingmei devint livide tandis que les larmes coulaient sur ses traits magnifiques. Lorsque ses larmes touchèrent le sol, elles semblèrent produire le bruit d'un effondrement.
 

@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1170 - What is It
 slug: quest-ce-que-cest
 ---
-Wang Lin regarda froidement l'homme en vert. Cet homme se trouvait au milieu du stade du Scruteur du Nirvana et, bien qu'il fût beau, il dégageait une aura sinistre. Ses deux compagnons derrière lui étaient tous deux des cultivateurs du Purificateur du Nirvana, et ils se tenaient dans une position étrange.
+Wang Lin regarda froidement l'homme en vert. Cet homme se trouvait au stade moyen du Purificateur du Nirvana et, bien qu'il fût beau, une aura sombre se cachait entre ses sourcils. Ses deux compagnons derrière lui étaient tous deux des cultivateurs du Purificateur du Nirvana au stade initial, et ils se tenaient dans une position étrange.
 
 Tandis que l'homme en vert parlait, ils se déplacèrent sur le côté pour encercler Wang Lin.
 
@@ -16,7 +16,7 @@ Après avoir détourné le regard, Wang Lin ne daigna même pas regarder l'homme
 
 Le vieil homme au stand restait calme et observait Wang Lin.
 
-« Cher compagnon cultivateur, de combien de cristaux d'origine disposez-vous? » demanda Wang Lin avec une nonchalance apparente, tout en jetant un œil à un jeton de jade attaché à la ceinture du vieillard.
+« Cher compagnon cultivateur, de combien de cristaux originels disposez-vous? » demanda Wang Lin avec une nonchalance apparente, tout en jetant un œil à un jeton de jade attaché à la ceinture du vieillard.
 
 Le visage du vieil homme se crispa légèrement avant qu'il ne sourie. « Pas beaucoup, seulement un; cependant, je ne cherche que des jades célestes et rien d'autre. »
 
@@ -26,7 +26,7 @@ Le vieil homme fut surpris un instant et observa Wang Lin longuement. Il afficha
 
 La main droite de Wang Lin s'étira et son espace de stockage s'ouvrit. Il y plongea la main et en sortit un sac de rangement. Bien que les cultivateurs du Purificateur du Nirvana n'aient pas besoin de sacs de rangement, ils en utilisaient toujours lors des échanges par souci de discrétion.
 
-Il balaya le sac de son sens divin et le lança au vieil homme. Puis Wang Lin dit calmement: « Ceci est un acompte. »
+Il effaça son sens divin du sac et le lança au vieil homme. Puis Wang Lin dit calmement: « Ceci est un acompte. »
 
 Le vieil homme attrapa le sac de rangement et l'examina attentivement avec son sens divin. Il regarda ensuite Wang Lin d'un air suggestif avant de réfléchir silencieusement, puis de ranger son stand. Il déclara: « Je vous retrouverai d'ici trois jours. » Une fois ses paroles prononcées, il s'apprêta à partir, mais marqua une pause pour regarder Wang Lin et lui envoya un message.
 
@@ -38,13 +38,13 @@ Les spectateurs ne pouvaient entendre ce que Wang Lin et le vieillard s'étaient
 
 Quant aux deux cultivateurs qui encerclaient Wang Lin, ils devinrent de plus en plus nerveux.
 
-Les yeux de Yang Yu s'illuminèrent et il dit: « Vous avez du cran. Mais vous n'avez pas répondu à ma question! »
+Les yeux de Yang Yu s'illuminèrent et il dit: « Vous prenez de grands airs. Vous n'avez pas répondu à ma question! »
 
 « Faites sortir votre seigneur pour qu'il me parle. » Bien que l'expression de Wang Lin fût calme, ses paroles étaient glaciales. Lorsqu'elles atteignirent leurs oreilles, elles résonnèrent comme un coup de tonnerre.
 
 Les expressions des deux cultivateurs du Purificateur du Nirvana au stade initial changèrent radicalement. Les pupilles de Yang Yu se rétractèrent et il s'apprêta à parler.
 
-Cependant, à cet instant précis, il bougea comme l'éclair et arriva immédiatement aux côtés du cultivateur situé à gauche. Ce dernier, qui était resté sur ses gardes, recula promptement tout en formant un sceau de sa main. Une fleur rouge gigantesque apparut soudainement, s'épanouissant sur plus de cent pieds de large. Son centre s'ouvrit, révélant une gueule pleine de dents qui tentait d'engloutir Wang Lin.
+Cependant, à cet instant précis, il bougea comme l'éclair et arriva immédiatement aux côtés du cultivateur situé à gauche. Ce dernier, qui était resté sur ses gardes, recula promptement tout en formant un sceau de sa main. Une fleur rouge gigantesque apparut soudainement, s'épanouissant sur plus de cent pieds de haut. Son centre s'ouvrit, révélant une gueule pleine de dents qui tentait d'engloutir Wang Lin.
 
 L'expression de Wang Lin resta neutre; au lieu de reculer, il avança. Il disparut sans laisser de trace et la fleur ne dévora que le vide. Wang Lin réapparut derrière le cultivateur et ses deux doigts se posèrent sur le dos de celui-ci.
 
@@ -68,9 +68,9 @@ Le visage de Yang Yu était pâle. Il réfléchissait silencieusement en fixant 
 
 Wang Lin marcha lentement vers Yang Yu, pas à pas.
 
-Autrefois, Lu Yuncong avait emprunté le pouvoir du monde et utilisé son Dao pour supprimer une menace. Bien que cela eût échoué sur Wang Lin, celui-ci en avait compris la méthode d'attaque. Grâce à sa propre compréhension du Dao, il lui fut facile de saisir cette essence et d'en faire son propre sortilège.
+Autrefois, Lu Yuncong avait emprunté le pouvoir du monde et utilisé son domaine pour écraser autrui. Bien que cela se fût effondré devant Wang Lin, celui-ci en avait compris la méthode d'attaque. Grâce à sa propre compréhension du Dao, il lui fut facile de saisir cette essence et d'en faire son propre sortilège.
 
-Chaque pas qu'il faisait était synchronisé avec les battements de cœur de Yang Yu. Cela faisait bondir le cœur de ce dernier à chaque foulée. En moins de dix pas, le visage de Yang Yu devint encore plus livide.
+Chaque pas qu'il faisait était synchronisé avec les battements de cœur de Yang Yu. Cela faisait bondir le cœur de ce dernier à chaque foulée. En une dizaine de pas, le visage de Yang Yu devint encore plus livide.
 
 À mesure que son cœur s'emballait à chaque pas, Wang Lin semblait grandir à ses yeux et s'abattre sur lui comme une montagne. Pourtant, Yang Yu ne recula pas. Les veines de son visage gonflèrent alors qu'il fixait Wang Lin. Il lutta pour pousser un rugissement, ses cheveux s'agitant sans qu'aucun vent ne soufflât. Cependant, il avait perdu toute la grâce qu'il arborait auparavant.
 
@@ -80,11 +80,11 @@ Wang Lin laissa échapper un renâclement froid. Ses pas étaient désormais tot
 
 Bang, bang, bang!
 
-Au moment où ces trois pas touchèrent le sol, Yang Yu eut l'impression qu'un marteau pesant une tonne s'écrasait trois fois dans sa poitrine. Son corps trembla, son visage devint rubicond et il cracha une bouchée de sang. Incapable de résister au domaine de Wang Lin, il fut repoussé.
+Au moment où ces trois pas touchèrent le sol, Yang Yu eut l'impression qu'un lourd marteau s'écrasait trois fois dans sa poitrine. Son corps trembla, son visage devint rubicond et il cracha une bouchée de sang. Incapable de résister au domaine de Wang Lin, il fut repoussé.
 
 Après avoir reculé d'un pas, il cracha à nouveau du sang. Il continua sa retraite, son visage rouge devenant de nouveau pâle. La confusion et la lutte se lisaient dans ses yeux. En un clin d'œil, ceux-ci devinrent injectés de sang.
 
-Des illusions défilèrent dans son esprit les unes après les autres: des scènes où lui et ses compagnons mouraient de mille façons différentes. Il savait que c'était faux, mais il ne pouvait apaiser son esprit. Ces illusions étaient comme des souvenirs gravés dans sa mémoire, devenant plus réelles à chaque seconde.
+Des illusions défilèrent dans son esprit les unes après les autres: des scènes où il mourait de mille façons atroces, tandis que ses compagnons de secte, ses maîtres et ses proches périssaient tous misérablement. Il savait que c'était faux, mais il ne pouvait apaiser son esprit. Ces illusions étaient comme des souvenirs gravés dans sa mémoire, devenant plus réelles à chaque seconde.
 
 Le corps de Yang Yu trembla violemment alors qu'il se tenait la tête. Il ne criait pas, mais continuait de lutter. Il perdait toute lucidité, submergé par la confusion.
 
@@ -100,7 +100,7 @@ En se déplaçant, l'ombre arriva devant Yang Yu et pointa son doigt vers lui. C
 
 « Pourquoi me cherchez-vous? » demanda Wang Lin calmement en observant le vieillard.
 
-Le vieil homme ne manifesta aucune émotion; il observa Wang Lin un moment avant de sourire. « Le compagnon cultivateur Lu est en effet très intelligent. Ce vieux cherche bel et bien à vous voir, j'espère donc que vous ne m'en voudrez pas d'avoir été un peu brusque. Que diriez-vous de trouver un endroit pour discuter, afin que je puisse réparer mes torts? »
+Le vieil homme ne manifesta aucune émotion; il observa Wang Lin un moment avant de sourire. « Le compagnon cultivateur Lu est en effet très intelligent. Ce vieux avait ses raisons et s'est montré brusque tout à l'heure; j'espère que vous ne m'en voudrez pas. Que diriez-vous de trouver un endroit pour discuter, afin que je puisse réparer mes torts? »
 
 L'expression de Wang Lin resta imperturbable. Après une courte réflexion, il hocha la tête. Wang Lin était déjà aussi rusé que le diable; dès l'apparition de Yang Yu, il avait remarqué que celui-ci le fixait avec insistance. Puis Yang Yu était arrivé en faisant semblant de rattraper Qianmei.
 
@@ -108,7 +108,7 @@ Il avait même percé à jour le stratagème: lorsque Yang Yu prétendait rejoin
 
 Si cela s'était arrêté là, ce n'aurait été rien, mais le fait que Yang Yu ait si rapidement ciblé Wang Lin était suspect. Compte tenu de son niveau de culture, cet acte semblait trop artificiel.
 
-En analysant ces indices et grâce à l'avertissement d'Ouyang Long, Wang Lin comprit que Yang Yu l'avait pris pour cible. Il n'avait affronté la Secte de la Collection Démoniaque qu'une seule fois, contre Zhao Yu sur le continent de Mo Luo. Mais ce n'était que par son regard. Wang Lin ignorait si l'autre partie testait sa force à cause de l'affaire Zhao Yu ou... en raison de la faille laissée sur le continent sauvage.
+En analysant ces indices et grâce à l'avertissement d'Ouyang Long, Wang Lin comprit que Yang Yu l'avait pris pour cible. Il n'avait affronté la Secte de la Collection Démoniaque qu'une seule fois, avec Zhao Yu sur le continent de Mo Luo. Wang Lin ignorait si l'autre partie testait sa force à cause de l'affaire Zhao Yu ou... en raison de la faille laissée sur le continent sauvage.
 
 Quoi qu'il en soit, dans le monde de la culture, les forts sont respectés. Manifester son niveau de culture ne servait pas seulement de moyen de dissuasion, cela lui permettait aussi d'obtenir le respect dû. Fort de cette conviction, Wang Lin avait choisi d'attaquer instantanément.
 

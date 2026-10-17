@@ -42,7 +42,7 @@ Son regard balaya le Char de Guerre Divin et il laissa échapper un reniflement 
 
 « Ce trésor présente trop de défauts. Puisque je n'en ai pas besoin, je vais le détruire! » Le Shui Daozi était extrêmement arrogant et possédait une personnalité excentrique. Il aimait détruire les objets que d'autres chérissaient, pourvu qu'ils lui soient inutiles.
 
-En tant que cultivateur du troisième niveau au stade initial du Nirvana Vide, le Shui Daozi était en effet pleinement qualifié pour agir ainsi!
+En tant que cultivateur du troisième niveau au stade initial du Vide Nirvana, le Shui Daozi était en effet pleinement qualifié pour agir ainsi!
 
 Lorsque le char de guerre formé par la Bête de Tonnerre s'effondra, les yeux de Wang Lin se remplirent de chagrin. La douleur dans son cœur se mua en une flamme invisible et infinie qui brûlait en lui. Mais tout restait confiné à l'intérieur de son corps. Ce deuil fit couler deux traînées de larmes de sang de ses yeux!
 
@@ -90,23 +90,23 @@ Alors que cette volonté allait anéantir Xu Liguo, le Shui Daozi fut soudaineme
 
 Une femme dormait à l'intérieur du cercueil.
 
-« Tout ce qui se trouve dans son espace n'est pas constitué de déchets. Il possède même le Cercueil Évitant les Foudres de l'Empereur Céleste! Ce Cercueil est un excellent trésor et me sera utile! » Le Shui Daozi divisa une partie de son sens divin vers le cercueil, s'apprêtant à s'en emparer ainsi que de la femme qu'il contenait.
+« Tout ce qui se trouve dans son espace n'est pas constitué de déchets. Il possède même le Cercueil Évitant le Ciel de l'Empereur Céleste de l'Éclair! Ce Cercueil est un excellent trésor et me sera utile! » Le Shui Daozi divisa une partie de son sens divin vers le cercueil, s'apprêtant à s'en emparer ainsi que de la femme qu'il contenait.
 
 À cet instant précis, le corps de Wang Lin trembla violemment et ses yeux révélèrent une folie sans précédent. Sa limite n'était ni la Perle Défiant le Ciel, ni son corps de Dieu Ancien, ni les secrets de son âme, mais ce cercueil et la femme qui s'y trouvait!
 
 « Hein? » Le Shui Daozi marqua une pause, remarquant l'anomalie de Wang Lin. Une pointe de moquerie brilla dans ses yeux.
 
-« Tu sembles être un amoureux éploré. Cette femme doit être très importante pour toi. J'avais prévu de sortir son corps plus tard, mais je vais le faire devant tes yeux. La rumeur dit qu'un corps extrait incorrectement du Cercueil Évitant les Foudres périt totalement. Voyons si cette rumeur est vraie! »
+« Tu sembles être un amoureux éploré. Cette femme doit être très importante pour toi. J'avais prévu de sortir son corps plus tard, mais je vais le faire devant tes yeux. La rumeur dit qu'un corps extrait incorrectement du Cercueil Évitant le Ciel périt totalement. Voyons si cette rumeur est vraie! »
 
 Le sens divin du Shui Daozi s'étira pour entourer le cercueil afin de l'ouvrir. Son sens divin se scinda en plusieurs fragments, cherchant la Perle Défiant le Ciel.
 
-Alors qu'il était sur le point d'ouvrir le Cercueil Évitant les Foudres, l'un de ses sens divins tressaillit en apercevant la femme argentée à l'intérieur de l'espace de stockage.
+Alors qu'il était sur le point d'ouvrir le Cercueil Évitant le Ciel, l'un de ses sens divins tressaillit en apercevant la femme argentée à l'intérieur de l'espace de stockage.
 
 Au moment où son sens divin atteignit sa cible, la femme argentée ouvrit les yeux et son regard percuta celui du Shui Daozi.
 
 « Tu... Tu... Tu es... » Même avec la force mentale et le statut de cultivateur du troisième niveau du Shui Daozi, son expression changea brusquement. Une pointe de panique envahit son esprit, qui devint confus.
 
-Tandis que son esprit vacillait, une force indescriptiblement puissante jaillit du corps de Wang Lin et ses yeux s'emplirent d'une intention meurtrière monstrueuse. Au moment où le Shui Daozi allait ouvrir le cercueil, Wang Lin dévora le sang qu'il avait raffiné à partir de l'épée de fer qui, pour une raison inconnue, n'avait pas été détectée par le Shui Daozi!
+Tandis que son esprit vacillait, une force indescriptiblement puissante jaillit du corps de Wang Lin et ses yeux s'emplirent d'une intention meurtrière monstrueuse. Au moment où le Shui Daozi allait ouvrir le cercueil, Wang Lin dévora, dans son âme originelle, la boule de sang de l'épée de fer que, pour une raison inconnue, le Shui Daozi n'avait pas détectée!
 
 S'appuyant sur cette aura destructrice, son corps gronda. Grâce à cette explosion de puissance, son corps emprisonné retrouva une certaine mobilité.
 

@@ -12,7 +12,7 @@ Face aux sept rayons de lumière formés par les sept hommes en noir et à leur 
 
 « Voyons si ma culture actuelle peut vaincre des cultivateurs du stade initial de Purificateur du Nirvana! »
 
-Da Tou se lécha les lèvres, une soif de sang brillant dans ses yeux. Cela faisait bien longtemps qu'il n'avait pas tué personne. En voyant ces sept hommes en noir, une intention meurtrière ne put s'empêcher d'envahir son cœur.
+Da Tou se lécha les lèvres, une soif de sang brillant dans ses yeux. Cela faisait bien longtemps qu'il n'avait tué personne. En voyant ces sept hommes en noir, une intention meurtrière ne put s'empêcher d'envahir son cœur.
 
 Da Tou demanda respectueusement: « Maître, puis-je les tuer? »
 
@@ -86,7 +86,7 @@ Cependant, il ressentait désormais de plein fouet l'aura puissante qui émanait
 
 Une lueur meurtrière traversa les yeux du vieil homme. Il avait toujours été un être impitoyable, et l'intention de tuer l'avait saisi dès le premier regard sur Wang Lin. Cette intention naissait de la cupidité qui rongeait son cœur. Non seulement il convoitait la monture du Clan des Démons Géants, mais il était encore plus avide de cette clé de grotte céleste!
 
-« Si je le tue, je pourrai obtenir la clé de la grotte céleste. Cela m'apportera d'immenses bénéfices lors du voyage vers la Terre des Esprits Démons! » Le vieil homme se lécha les lèvres, puis pointa son corps à plusieurs reprises.
+« Si je le tue, je pourrai obtenir la clé de la grotte céleste. Cela m'apportera d'immenses bénéfices lors du voyage vers la Terre des Esprits Démoniaques! » Le vieil homme se lécha les lèvres, puis pointa son corps à plusieurs reprises.
 
 À chaque geste, son corps tremblait. En continuant ainsi, il recula tout en arborant une expression féroce.
 
@@ -116,4 +116,4 @@ La Lance Tueuse de Dieux chargea le vieil homme. Ce dernier, terrifié par la si
 
 Le petit bouclier trembla et il fut repoussé, mais aucune fissure n'apparut sur la protection!
 
-Le vieil homme cracha une bouchée de sang et utilisa l'Échappatoire Sanguine pour s'enfuir avec son bouclier. La vitesse d'un cultivateur du Purificateur du Nirvana utilisant l'Échappatoire Sanguine était tout simplement inimaginable.
+Le vieil homme cracha une bouchée de sang et utilisa l'Évasion Sanguine pour s'enfuir avec son bouclier. La vitesse d'un cultivateur du Purificateur du Nirvana utilisant l'Évasion Sanguine était tout simplement inimaginable.

@@ -8,7 +8,7 @@ slug: pour-laine
 ---
 De minuscules éclairs tourbillonnaient autour de chaque fruit du tonnerre à l'intérieur de la vallée.
 
-« C'est donc le fruit du tonnerre... » Wang Lin tendit la main et l'un des fruits vola vers lui. Il examina attentivement le fruit vert; il contenait bel et bien une certaine puissance de tonnerre. Il pouvait renforcer le corps de l'intérieur comme de l'extérieur, le rendant plus apte à l'usage des sorts de tonnerre.
+« C'est donc le fruit du tonnerre... » Wang Lin tendit la main et l'un des fruits vola vers lui. Il examina attentivement le fruit vert; il contenait bel et bien une puissance de tonnerre, mais en faible quantité. Le consommer pouvait renforcer le corps de l'intérieur comme de l'extérieur, le rendant plus apte à l'usage des sorts de tonnerre.
 
 « Selon les souvenirs de Qi Zhi et Yu Fei, ce fruit du tonnerre peut être échangé contre un cristal de tonnerre... » Wang Lin contempla le fruit sans pour autant l'avaler. Au lieu de cela, il l'écrasa; une brève étincelle de tonnerre apparut et fut absorbée par sa main droite jusque dans son âme originelle.
 

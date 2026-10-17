@@ -14,7 +14,7 @@ Au cours de ces 99 ans, un changement cataclysmique avait secoué le Système St
 
 La Secte des Cadavres se souciait peu du fait que les cultivateurs de Luotian fussent des envahisseurs! Ce qui importait à ses yeux, c'était l'immense commerce de vente et d'achat de corps que la guerre générait. La Secte des Cadavres espérait même que ce conflit ne s'interrompe jamais.
 
-Cependant, tout cela fut ruiné par un homme: l'Empereur Divin du Dragon Azure. Il s'était précipité au sein de la Secte des Cadavres, massacrant de ses propres mains de nombreux Anciens et blessant gravement les rois restants. Cela avait contraint le Premier Roi ainsi que le Maître de la Secte des Cadavres à sortir de leur retraite. Les deux hommes s'étaient livrés à une bataille qui avait ébranlé tout le système stellaire!
+Cependant, tout cela fut ruiné par un homme: l'Empereur Divin du Dragon Azure. Il s'était précipité au sein de la Secte des Cadavres, massacrant de ses propres mains de nombreux Anciens et blessant gravement les rois restants. Cela avait contraint le Maître de la Secte des Cadavres, c'est-à-dire le Premier Roi, à sortir de sa retraite. Les deux hommes s'étaient livrés à une bataille qui avait ébranlé tout le système stellaire!
 
 En fin de compte, le Premier Roi de la Secte des Cadavres fut totalement vaincu. Si ce n'était pas pour les autres motivations de l'Empereur Divin du Dragon Azure, il lui aurait été facile de l'exterminer!
 
@@ -30,7 +30,7 @@ Une fois son carnage terminé, il partit en ne laissant qu'une seule phrase:
 
 Aucun des cultivateurs de Luotian n'osa le poursuivre, pas même Maître Lufu, qui se terrait de peur. Il s'était enfui loin du Système Stellaire de l'Alliance et n'osait plus y poser le pied!
 
-Heureusement, après son apparition, Tuo Sen ne resta pas longtemps dans le Système Stellaire de l'Alliance. Il se dirigea d'abord vers les Quatre Sectes Divines. Fort de sa puissance de Dieu Ancien et de celle de ses étoiles, il parvint à blesser gravement l'Empereur Divin du Dragon Azure en un seul coup. Il fit s'effondrer le champ stellaire des Quatre Sectes Divines, y laissant d'innombrables fissures qui empêchaient toute intrusion! Cependant, Tuo Sen ne tua pas l'Empereur Divin du Dragon Azure et lança une nouvelle fois:
+Heureusement, après son apparition, Tuo Sen ne resta pas longtemps dans le Système Stellaire de l'Alliance. Il se dirigea d'abord vers les Quatre Sectes Divines. Fort de sa puissance de Dieu Ancien, combinée au point stellaire entre ses sourcils, il parvint à blesser gravement l'Empereur Divin du Dragon Azure en un seul coup. Il fit s'effondrer le champ stellaire des Quatre Sectes Divines, y laissant d'innombrables fissures qui empêchaient toute intrusion! Cependant, Tuo Sen ne tua pas l'Empereur Divin du Dragon Azure et lança une nouvelle fois:
 
 « Tu es trop faible! »
 
@@ -40,7 +40,7 @@ Quant à la Secte Divine de l'Oiseau Vermillon, les flammes éternelles furent �
 
 Nul membre de la Secte Divine de l'Oiseau Vermillon n'osa exprimer sa colère.
 
-Puis, Tuo Sen partit vers le Royaume du Vide Brillant pour combattre le vieil homme. Après avoir scellé ce dernier dans l'une de ses étoiles, il utilisa la Lance Tueuse de Dieux et provoqua l'effondrement du Royaume du Vide Brillant! Le Royaume du Vide Brillant, qui avait existé durant d'innombrables années, disparut à jamais, ne devenant qu'un souvenir.
+Puis, Tuo Sen partit vers le Royaume du Vide Brillant pour combattre le vieil homme. Après avoir scellé ce dernier entre ses sourcils, il utilisa la Lance Tueuse de Dieux et provoqua l'effondrement du Royaume du Vide Brillant! Le Royaume du Vide Brillant, qui avait existé durant d'innombrables années, disparut à jamais, ne devenant qu'un souvenir.
 
 Le corps de Mu Bingmei s'effondra. Son âme originelle fut gravement blessée et elle disparut. Tuo Sen ne jugea pas nécessaire de la poursuivre; il lui laissa simplement une marque avant de la laisser partir.
 
@@ -76,7 +76,7 @@ Les membres de la Secte Démon se trouvaient également sur le champ de bataille
 
 Presque tous les cultivateurs savaient que Li Qianmei possédait un trésor: un stylo doré capable de tracer des runes d'une puissance extrême! Lorsque l'on tentait de l'emprunter pour l'examiner, Li Qianmei refusait catégoriquement, même si les demandeurs étaient membres de la Secte Démon. Son tempérament calme devenait alors d'une obstination inflexible!
 
-À une occasion, Li Qianmei fut encerclée par de nombreuses bêtes féroces de niveau 12. Elle finit par être gravement blessée et tomba dans le coma. Secourue par les membres de la Secte Démon, elle se réveilla peu après. Ignorant tous les avertissements, elle chargea à nouveau sur le champ de bataille, les cheveux en désordre, avec pour seul but de récupérer son stylo doré... Depuis lors, tous savaient que ce stylo était la possession la plus précieuse de Li Qianmei.
+À une occasion, Li Qianmei fut encerclée par de nombreuses bêtes féroces de niveau 12. Elle finit par être gravement blessée et tomba dans le coma, son stylo doré perdu sur le champ de bataille. Secourue par les membres de la Secte Démon, elle se réveilla peu après. Ignorant tous les avertissements, elle chargea à nouveau sur le champ de bataille, les cheveux en désordre, avec pour seul but de récupérer son stylo doré... Depuis lors, tous savaient que ce stylo était la possession la plus précieuse de Li Qianmei.
 
 « Toi, où es-tu maintenant... Près de cent ans ont passé... » À cet instant, Li Qianmei était assise sur une simple plateforme de culture, le visage pâle. Elle semblait blessée. Devant elle, une multitude de bêtes féroces chargeaient à travers le brouillard, contenues par d'innombrables cultivateurs. Elle paraissait avoir oublié le massacre du champ de bataille et les rugissements des bêtes; elle leva la tête et regarda au loin...
 
@@ -88,9 +88,9 @@ Le Royaume aux Sept Couleurs était plongé dans les ténèbres depuis plus de c
 
 Chen Tianjun et la vieille femme en vert ressentaient également le passage du temps dans cette obscurité.
 
-Un cadavre reposait là, immobile, au sommet de la montagne enveloppée par cette force mystérieuse. Malgré les presque cent années écoulées, aucun signe de décomposition n'apparaissait sur le corps de Dieu Ancien. Il semblait identique à celui d'il y a un siècle, seulement recouvert de poussière.
+Un cadavre, le corps de Wang Lin, reposait là, immobile, au sommet de la montagne enveloppée par cette force mystérieuse. Malgré les presque cent années écoulées, aucun signe de décomposition n'apparaissait sur le corps de Dieu Ancien. Il semblait identique à celui d'il y a un siècle, seulement recouvert de poussière.
 
-Dans l'espace spécial créé pour nourrir les Fruits aux Sept Couleurs, le fruit de la plante rouge avait grandi progressivement. Le moment de sa pleine maturité approchait. Ce jour-là, un résidu de sens divin apparut à l'intérieur du fruit. Semblant absorber la puissance du fruit, il grandit jusqu'à devenir une perle.
+Dans l'espace spécial créé pour nourrir les Fruits aux Sept Couleurs, le fruit de la plante rouge avait grandi progressivement jusqu'à atteindre quelques dizaines de pieds. Le moment de sa pleine maturité approchait. Ce jour-là, un résidu de sens divin apparut à l'intérieur du fruit. Semblant absorber la puissance du fruit, il grandit jusqu'à devenir une perle.
 
 Au moment où la perle apparut, Wang Lin s'éveilla lentement, comme s'il sortait d'un rêve...
 

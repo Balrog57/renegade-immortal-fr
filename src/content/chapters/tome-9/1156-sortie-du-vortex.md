@@ -10,13 +10,13 @@ Tenant l'épée de fer rouillée, Wang Lin recula tandis que Noble Argent charge
 
 Ces deux âmes de combat étaient les atouts les plus puissants de Wang Lin, après la faible source originelle qu'il lui restait. Accompagné de cette épée de fer, il engageait désormais toute sa puissance.
 
-Après tout, la situation n'était plus comparable à celle de la grotte de Qing Lin, où son corps original pouvait encaisser toutes les attaques. Il disposait alors d'une puissance d'Ancien Dieu illimitée lui permettant de déclencher une attaque capable de faire trembler le ciel d'un simple coup de poing. Désormais, il n'avait aucune opportunité d'utiliser *Nuit Brisée*, et son bouclier s'était brisé en sauvant Qing Lin; il ne pouvait donc pas non plus utiliser le *Rêve des Temps Anciens* que l'Ancien Dieu à 8 étoiles avait laissé derrière lui.
+Après tout, la situation n'était plus comparable à celle de la grotte de Qing Lin, où son corps original pouvait encaisser toutes les attaques. Il disposait alors d'une puissance d'Ancien Dieu illimitée lui permettant de déclencher une attaque capable de faire trembler le ciel d'un simple coup de poing. Désormais, il n'avait aucune opportunité d'utiliser *Nuit Brisée*, et son bouclier de lumière verte s'était brisé dans la grotte de Qing Lin; il ne pouvait donc pas non plus utiliser le *Rêve des Temps Anciens* que l'Ancien Dieu à 8 étoiles avait laissé derrière lui.
 
 En cet instant, n'ayant que son avatar de cultivateur, il serait extrêmement difficile pour Wang Lin de tuer ce cultivateur!
 
 D'autant plus qu'actuellement, sa jambe droite n'était qu'un carnage sanglant, transpercée par la lumière blanche de Noble Argent. Une énergie originelle contenant une forme de loi ravageait également son corps.
 
-Sans l'Armure de Cuir d'Ancien Dieu protégeant son âme originelle, celle-ci se serait déjà effondrée. Heureusement, le corps de Wang Lin n'était pas ordinaire; après avoir été raffiné dans la Secte Divine du Vermillon, il contenait les lois du feu et de la foudre.
+Sans l'Armure de Cuir d'Ancien Dieu protégeant son âme originelle, celle-ci se serait déjà effondrée. Heureusement, le corps de Wang Lin n'était pas ordinaire; après avoir été raffiné dans la Secte Divine de l'Oiseau Vermillon, il contenait les lois du feu et de la foudre.
 
 Grâce à cela, il ne subissait que des blessures au lieu de mourir sous les sorts de Noble Argent! Ayant traversé de nombreux périls durant sa vie de cultivateur, Wang Lin connaissait naturellement le danger que représentaient les cultivateurs du niveau Briseur du Nirvana.
 
@@ -42,7 +42,7 @@ L'énergie d'épée s'entremêla pour former une fleur. De loin, ces rayons incu
 
 En un clin d'œil, treize coups d'épée tombèrent! Wang Lin maniait son bras les yeux clos, l'épée obéissant à sa volonté propre. Une aura d'une intensité terrifiante émana de lui, comme si le monde entier allait être anéanti par cette lame!
 
-Tout cela se produisit en un instant. Noble Argent, entravé par Maître Vide et Omniscient, formait désespérément des sceaux pour lancer divers sorts et trésors, mais son visage était livide. Bien qu'il sût que l'épée de fer était un trésor du niveau Néant de Nirvana, il existait une immense différence de puissance entre les trésors de ce rang.
+Tout cela se produisit en un instant. Noble Argent, entravé par Maître Vide et Omniscient, formait désespérément des sceaux pour lancer divers sorts et trésors, mais son visage était livide. Bien qu'il sût que l'épée de fer était un trésor du niveau Pseudo-Nirvana Vide, il existait une immense différence de puissance entre les trésors de ce rang.
 
 Ce qu'il n'avait pas pu imaginer, c'était la puissance brute de l'énergie d'épée! À cet instant, bien qu'il voie l'énergie converger vers lui, il était incapable de l'esquiver. Il poussa un rugissement et tenta de se libérer des deux âmes qui le retenaient.
 
@@ -52,7 +52,7 @@ Au total, dix-neuf coups furent portés, consommant près de 60 % de l'énergie 
 
 « Tranche! » hurla Wang Lin, et les dix-neuf épées géantes chutèrent instantanément. Elles s'enchaînèrent en une série de coups continus, chargeant droit sur Noble Argent!
 
-La vitesse était inimaginable. Noble Argent fut incapable de résister aux dix-neuf entailles de l'épée du Néant de Nirvana. Un grondement tonitruant retentit alors que les lames pénétraient son corps.
+La vitesse était inimaginable. Noble Argent fut incapable de résister aux dix-neuf entailles de l'épée du Pseudo-Nirvana Vide. Un grondement tonitruant retentit alors que les lames pénétraient son corps.
 
 Son corps trembla et fut instantanément découpé en dix-neuf morceaux. Le sang jaillit de toutes parts!
 
@@ -68,7 +68,7 @@ Le visage de Wang Lin était livide. Au moment où l'âme originelle de Noble Ar
 
 Les Neuf Transformations Mystérieuses!
 
-Dès que les neuf couches apparurent, elles se contractèrent violemment autour de Wang Lin. Son corps semblait consumer par les flammes alors qu'il faisait un pas en avant.
+Dès que les neuf couches apparurent, elles se contractèrent violemment autour de Wang Lin. Son corps semblait consumé par les flammes alors qu'il faisait un pas en avant.
 
 À cet instant, son corps disparut pour laisser place à un oiseau vermillon blanc de plusieurs centaines de pieds de large. Cet oiseau vermillon blanc, c'était Wang Lin!
 
@@ -86,7 +86,7 @@ En fuyant, ses mains formèrent des sceaux et des runes mystérieuses apparurent
 
 Après avoir absorbé l'âme de son esprit de bête, Noble Argent s'enfuit comme un possédé sans même se retourner.
 
-L'oiseau vermillon disparut et Wang Lin réapparut. Sa poitrine était un carnage et ses os blancs étaient visibles. Il fixa l'âme fuyante de Noble Argent, et son intention meurtrière redoubla d'intensité.
+L'oiseau vermillon disparut et Wang Lin réapparut. Sa poitrine était un carnage et l'on distinguait vaguement des fils blancs qui se faufilaient dans sa chair. Il fixa l'âme fuyante de Noble Argent, et son intention meurtrière redoubla d'intensité.
 
 « Âme de l'Omniscient, fusionne avec mon sens divin! » Wang Lin n'utilisa pas le sort d'Arrêt, mais forma un sceau avant de pointer vers l'âme de l'Omniscient. Les yeux de l'âme scintillèrent et se transformèrent en un rayon de lumière qui pénétra le corps de Wang Lin.
 
@@ -116,19 +116,19 @@ Wang Lin ignorait que peu après la mort de Noble Argent, le décès de Shi Luox
 
 La mort de Noble Argent choqua la Secte de la Fleur Claire. Tout en scellant la zone, ils cherchèrent le meurtrier avec acharnement, mais Wang Lin était déjà loin.
 
-Les cultivateurs de la région de rang 6 trouvèrent naturellement le cadavre dans la vallée où se trouvait Shi Luoxing, et tous visèrent la Secte des Cinq Poisons. Face aux regards belliqueux de toutes les sectes, la Secte des Cinq Poisons fut incapable de se justifier.
+Les cultivateurs de la région de rang 6 trouvèrent naturellement le squelette et les fragments de crâne dans la vallée où se trouvait Shi Luoxing, et tous visèrent la Secte des Cinq Poisons. Face aux regards belliqueux de toutes les sectes, la Secte des Cinq Poisons fut incapable de se justifier.
 
 Un courant souterrain commença à s'agiter dans la région de rang 5.
 
 De retour sur le continent de Mo Luo, Wang Lin se transforma en un rayon de lumière et se dirigea vers la Secte de l'Origine. Il savait que la région de rang 5 allait sombrer dans le chaos. Les cultivateurs du rang 6 allaient intensifier leurs recherches, et à ce moment-là, son identité au sein de la Secte de l'Origine deviendrait cruciale.
 
-Le retour de Wang Lin ne suscita pas trop d'attention au sein de la Secte de l'Origine. Il apparut instantanément dans la cour sud. Dès son arrivée, il vit Xu Yun assise devant la maison, dont l'expression était frappée de stupeur.
+Le retour de Wang Lin ne suscita pas trop d'attention au sein de la Secte de l'Origine. Il apparut instantanément dans la cour sud. Dès son arrivée, il vit Sun Yun assise devant la maison, dont l'expression était frappée de stupeur.
 
-« Tu... » Xu Yun allait parler, mais Wang Lin ne lui prêta aucune attention et agita ses manches. Une quantité massive d'herbes apparut, formant rapidement une petite montagne entre eux.
+« Tu... » Sun Yun allait parler, mais Wang Lin ne lui prêta aucune attention et agita ses manches. Une quantité massive d'herbes apparut, formant rapidement une petite montagne entre eux.
 
 « Je te rends tes herbes! » lança Wang Lin avant de pénétrer dans la maison.
 
-Xu Yun regarda l'amas d'herbes devant elle et eut le souffle coupé. Grâce à sa clairvoyance, elle comprit que beaucoup de ces plantes étaient extrêmement rares, et que leur valeur dépassait de loin celle des herbes que Wang Lin avait consommées.
+Sun Yun regarda l'amas d'herbes devant elle et eut le souffle coupé. Grâce à sa clairvoyance, elle comprit que beaucoup de ces plantes étaient extrêmement rares, et que leur valeur dépassait de loin celle des herbes que Wang Lin avait consommées.
 
 Elle resta stupéfaite un long moment avant de reprendre ses esprits et de pousser un soupir de soulagement. Après le départ de Wang Lin, elle subissait les réprimandes quotidiennes de son maître et était très inquiète. Son maître lui avait dit que si le Senior Ceng Niu ne revenait pas, ce serait elle qui apporterait la ruine à la secte lors de l'arrivée de la Secte du Dao Pourpre.
 

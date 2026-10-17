@@ -44,7 +44,7 @@ Le singe géant qui méditait afficha un regard féroce et se redressa. Sa mont�
 
 Le singe noir lança un regard sauvage et abattit son bras droit avec fracas. Cependant, le corps de Wang Lin disparut instantanément sans laisser de trace, faisant échouer l'attaque. Il réapparut aussitôt à côté du grand arbre au sommet de la montagne.
 
-Les pupilles du géant se rétractèrent visiblement et il poussa un rugissement. Il balança sa main droite, envoyant vers Wang Lin une bourrasque de vent qui semblait ne faire qu'un avec le monde.
+Les pupilles du géant se rétractèrent visiblement et il poussa un rugissement. Il balança sa main droite, envoyant vers Wang Lin un ouragan reliant le ciel et la terre.
 
 La main droite de Wang Lin se posa sur le grand arbre et le tapota doucement. L'arbre disparut avec ses racines, aspiré dans son espace de stockage.
 

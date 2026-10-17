@@ -12,9 +12,9 @@ Cependant, cela ne fit que stopper la course du doigt un instant sans le briser.
 
 Mais dès que ce mouvement fut suspendu, la lumière verte se rapprocha et la hache balaya l'espace pour frapper le doigt. Sous le contrôle de Wang Lin, la hache de bataille libéra une aura destructrice. Des craquements résonnèrent alors que tous les sceaux de la hache étaient levés, déchaînant son pouvoir dévastateur!
 
-De nouveaux grondements tonitruants déchirèrent à nouveau le monde. Dans cette bataille, Wang Lin avait presque tout utilisé: tous ses sorts et deux trésors du Pseudo Nirvana Vide! Les rumeurs furent encore plus assourdissantes et un impact plus puissant que celui de l'effondrement de l'auriculaire se propagea.
+De nouveaux grondements tonitruants déchirèrent à nouveau le monde. Dans cette bataille, Wang Lin avait presque tout utilisé: tous ses sorts et deux trésors du Pseudo Vide du Nirvana! Les grondements furent encore plus assourdissants et un impact plus puissant que celui de l'effondrement de l'auriculaire se propagea.
 
-Le corps de Maître Âme Nuageuse ne put plus le supporter et explosa. Son âme originelle s'échappa, dans un état misérable, confus et lugubre.
+Le corps de Maître Nuage-Âme ne put plus le supporter et explosa. Son âme originelle s'échappa, dans un état misérable, confus et lugubre.
 
 L'index, au centre de l'impact, ne s'était toujours pas effondré, mais d'innombrables fissures le parcouraient déjà. Le doigt pressait impitoyablement vers Wang Lin!
 
@@ -38,7 +38,7 @@ Au moment où Wang Lin ordonna l'effondrement, le Fourneau du Dieu Antique émit
 
 Le fracas fit trembler l'âme originelle de Wang Lin, endommageant son esprit. Soudain, le puissant index s'effondra!
 
-Ce ne fut pas comme l'auriculaire qui n'avait été qu'à moitié brisé, mais un effondrement total en gravats. L'esprit de Wang Lin était affaibli, mais son intention de combat devint plus intense encore. Repoussé par l'explosion, il essuya le sang au coin de sa bouche et recueillit l'âme originelle mourante de Maître Âme Nuageuse au milieu du chaos.
+Ce ne fut pas comme l'auriculaire qui n'avait été qu'à moitié brisé, mais un effondrement total en gravats. L'esprit de Wang Lin était affaibli, mais son intention de combat devint plus intense encore. Repoussé par l'explosion, il essuya le sang au coin de sa bouche et recueillit l'âme originelle mourante de Maître Nuage-Âme au milieu du chaos.
 
 À cet instant, il était le seul être vivant dans le Royaume aux Sept Couleurs!
 
@@ -54,7 +54,7 @@ Wang Lin ne pouvait affronter deux doigts de front.
 
 Il lança le trident qu'il tenait dans un rugissement; celui-ci vola vers l'annulaire. Tandis que le trident bloquait l'annulaire un instant, Wang Lin chargea vers le majeur!
 
-Sa silhouette fendait l'air comme une météore et l'étoile de la loi entre ses sourcils tournait avec célérité. Des flammes bleues enveloppèrent soudainement son corps, remontant depuis la racine de ses cheveux blancs jusqu'à leurs pointes!
+Sa silhouette fendait l'air comme un météore et l'étoile de la loi entre ses sourcils tournait avec célérité. Des flammes bleues enveloppèrent soudainement son corps, remontant depuis la racine de ses cheveux blancs jusqu'à leurs pointes!
 
 De loin, on aurait vu clairement cette immense paume tenir une mer de feu. Au centre des flammes se dressait une silhouette droite: l'inflexible Wang Lin!
 
@@ -76,7 +76,7 @@ Il n'y avait pas de retraite; il devait tout donner!
 
 Les flammes bleues chargèrent le majeur avec une fureur démentielle. Le visage de Wang Lin était pâle et du sang coulait de sa bouche. En affrontant personnellement le majeur, il en ressentit la puissance colossale, suffisante pour faire trembler son corps et l'enfoncer violemment.
 
-« Je ne me résignerai pas! » Le rugissement furieux de Wang Lin résonna à travers le Royaume aux Sept Couleurs. Il refusait de se soumettre à ce destin. Il venait d'engloutir le fruit du Dao, augmentant considérablement son niveau de culture et gagnant des dizaines de milliers d'années pour atteindre le stade Briseur du Nirvana. Et alors qu'il était sur le point de quitter le Royaume aux Sept Couleurs, il se retrouvait face à une crise mortelle.
+« Je ne me résignerai pas! » Le rugissement furieux de Wang Lin résonna à travers le Royaume aux Sept Couleurs. Il refusait de se soumettre à ce destin. Il venait d'engloutir le fruit du Dao, augmentant considérablement son niveau de culture et s'épargnant dix mille ans pour poser un demi-pied dans le stade Briseur du Nirvana. Et alors qu'il était sur le point de quitter le Royaume aux Sept Couleurs, il se retrouvait face à une crise mortelle.
 
 Il ne se résignerait pas!
 
@@ -84,7 +84,7 @@ Alors qu'il hurlait, un tonnerre monstrueux s'assembla frénétiquement pour fra
 
 Mais malgré la violence de ces fracas, ils ne pouvaient couvrir les paroles inébranlables de Wang Lin!
 
-« Je ne me résignerai pas! » L'étoile de loi entre les sourcils de Wang Lin tournait encore plus vite. Alors que le feu et la foudre bombardaient le doigt, la puissance scellée par Wang Lin explosa!
+« Je ne me résignerai pas! » L'étoile de loi entre les sourcils de Wang Lin tournait encore plus vite. Alors que le feu et la foudre bombardaient le doigt, la puissance du fruit du Dao, absorbée puis scellée par Wang Lin, explosa!
 
 Cette force n'était pas extrêmement puissante en soi, mais après avoir fusionné avec le feu, la foudre et le domaine de bataille, elle avait engendré une nouvelle loi! Une loi qui n'appartenait qu'à Wang Lin!
 

@@ -24,11 +24,11 @@ Li Qianmei observa la pluie et, après un long moment, répondit doucement: « L
 
 « Pourtant, dans la vie dérisoire d'une simple goutte de pluie, celle-ci lutte d'innombrables fois pour échapper au contrôle du destin. Afin de combattre le destin, elle ne cesse de modifier sa trajectoire!
 
-« Et les longues vies des cultivateurs comme nous ne sont pas incomparables à celles de la pluie; mais combien sont prêts à lutter désespérément jusqu'à la mort pour échapper aux griffes du destin? Lutter jusqu'au bout pour résister aux arrangements des cieux. Lutter jusqu'à la mort pour défier la volonté céleste! »
+« Et les longues vies des cultivateurs comme nous sont incomparablement plus longues que celles de la pluie; mais combien sont prêts à lutter désespérément jusqu'à la mort pour échapper aux griffes du destin? Lutter jusqu'au bout pour résister aux arrangements des cieux. Lutter jusqu'à la mort pour défier la volonté céleste! »
 
-Wang Lin abaya de ses manches; le ciel gronda et la pluie fut repoussée dans les nuages. Les masses sombres s'effondrèrent et la pluie se mua en vapeur d'eau qui se dissipa dans le monde.
+Wang Lin balaya l'air de sa large manche; le ciel gronda et la pluie fut repoussée dans les nuages. Les masses sombres s'effondrèrent et la pluie se mua en vapeur d'eau qui se dissipa dans le monde.
 
-« En changeant le destin de la goutte de pluie, vous devenez la volonté des cieux. Le papillon de nuit est consumé par le feu. Si vous éteignez la flamme, empêchant ainsi le papillon de mourir, alors vous avez changé son destin. Si le destin veut qu'un être meure et que vous le sauvez, alors vous êtes la volonté des cieux! Un dicton de l'Antiquité dit: "Ceux qui se proclament rois et seigneurs sont-ils plus nobles que nous?" Cette sentence incarne cette vérité!
+« En changeant le destin de la goutte de pluie, vous devenez la volonté des cieux. Le papillon de nuit est consumé par le feu. Si vous éteignez la flamme, empêchant ainsi le papillon de mourir, alors vous avez changé son destin. Si le destin veut qu'un être meure et que vous le sauvez, alors vous êtes la volonté des cieux! Un dicton de l'Antiquité dit: "Rois, seigneurs, généraux et ministres: sont-ils d'une espèce à part?" Cette sentence incarne cette vérité!
 
 « Les immortels avaient aussi un adage: "Une fois qu'un homme atteint le Dao, ses poulets et ses chiens s'élèvent au ciel." C'est une autre expression de cette vérité. Voici ma réponse à votre deuxième question! »
 
@@ -68,7 +68,7 @@ Wang Lin attrapa la cruche et prit une grande gorgée.
 
 Lu Yuncong laissa échapper un soupir et regarda Wang Lin d'un air complexe. Bien que cet homme paraisse ordinaire, il dégageait une aura qui imposait la soumission.
 
-« Mon enfant était vraiment maudit. Mourir pour lui pourrait être considéré comme sa chance... » Lu Yuncong n'était pas un homme ordinaire. Après avoir bu une gorgée de vin, il sentit le nœud dans son cœur se dénouer.
+« Mon enfant méritait vraiment de mourir. Mourir de la main de cet homme pourrait être considéré comme sa chance... » Lu Yuncong n'était pas un homme ordinaire. Après avoir bu une gorgée de vin, il sentit le nœud dans son cœur se dénouer.
 
 Li Qianmei fronça les sourcils en massant doucement son front et dit doucement: « Mon Maître a dit quelque chose de similaire. Il disait qu'un homme est la fourmi, le Dao est la montagne, et la volonté est le ciel. Si les cieux sont en colère, le Dao suit la volonté des cieux. Mais si la fourmi est en colère, elle possède aussi la force de déplacer la montagne! »
 
@@ -80,7 +80,7 @@ Tout en parlant, elle regarda le sol. Elle posa un linge blanc et s'assit à son
 
 Li Qianmei réfléchit un instant et sourit. « La façon de penser de Frère Lu est très singulière. »
 
-Les trois semblèrent oublier le passage du temps et commencèrent à discuter dans la cour. L'aura meurtrière initiale avait été balayée par ce débat sur le Dao. La nuit tomba et la lune monta haut dans le ciel, projetant son ombre devant eux.
+Les trois semblèrent oublier le passage du temps et commencèrent à discuter dans la cour. L'aura meurtrière initiale avait été balayée par ce débat sur le Dao. La nuit tomba et la lune monta haut dans le ciel, projetant son ombre derrière eux.
 
 Ils s'étaient perdus dans leurs débats, mais cela rendait la vie des gens à l'extérieur amère. Le vieil homme n'était pas inquiet au début, mais après avoir attendu plus d'une demi-journée, il commença à froncer les sourcils.
 
@@ -92,7 +92,7 @@ Cependant, alors qu'ils approchaient et s'apprêtaient à franchir la barrière 
 
 « Reculez! Sans mon ordre, vous n'avez pas le droit de poser le pied sur le continent de Mo Luo! » Cette voix appartenait à Lu Yuncong. Le vieil homme, surpris, fit rapidement reculer le tigre, bien que son cœur fût toujours perplexe.
 
-Dans la cour, la lueur de la nuit enveloppait le lieu. Wang Lin regarda Lu Yuncong, qui restait assis en silence pour boire son vin. Il comprit qu'il n'était pas un adversaire pour cet homme en blanc. Même si toute la Secte Dao Pourpre débarquait, cela ne changerait rien.
+Dans la cour, la lumière du matin enveloppait le lieu. Wang Lin regarda Lu Yuncong, qui restait assis en silence pour boire son vin. Il comprit qu'il n'était pas un adversaire pour cet homme en blanc. Même si toute la Secte Dao Pourpre débarquait, cela ne changerait rien.
 
 Wang Lin regarda Li Qianmei et dit calmement: « Pour la troisième question, je ne peux dire que le Dao est semblable à une pensée. »
 
@@ -100,13 +100,13 @@ Li Qianmei esquissa un sourire d'une grande beauté. Elle regarda Wang Lin et mu
 
 Wang Lin fut surpris. Il regarda Li Qianmei et, après une courte réflexion, hocha la tête.
 
-Lu Yuncong soupira et se leva. Il joignit les mains vers Wang Lin et dit: « Camarade cultivateur Lu, grâce à notre nuit de débat sur le Dao, nos anciennes inimitiés sont effacées! Cependant, vous devez me rendre cette Bannière Céleste Yin! »
+Lu Yuncong soupira et se leva. Il joignit les mains vers Wang Lin et dit: « Daoïste Lu, grâce à notre nuit de débat sur le Dao, nos anciennes inimitiés sont effacées! Cependant, vous devez me rendre cette Bannière Céleste Yin! »
 
 Le regard de Wang Lin resta serein et il secoua la tête.
 
 « Vous... » Lu Yuncong prit une profonde inspiration et eut un sourire amer.
 
-Il soupira de nouveau: « Camarade cultivateur Lu, cette Bannière Céleste Yin n'appartient pas à la Secte Dao Pourpre. Elle a été envoyée par la secte principale pour y être nourrie. Elle doit être restituée après cent ans. Si vous refusez de la rendre, je ne m'obstinerai pas, mais une fois le délai de cent ans passé, si la secte principale vient réclamer son dû, ne me blâmez pas de leur avoir dit la vérité. »
+Il soupira de nouveau: « Daoïste Lu, cette Bannière Céleste Yin n'appartient pas à la Secte Dao Pourpre. Elle a été envoyée par la secte principale pour y être nourrie. Elle doit être restituée après cent ans. Si vous refusez de la rendre, je ne m'obstinerai pas, mais une fois le délai de cent ans passé, si la secte principale vient réclamer son dû, ne me blâmez pas de leur avoir dit la vérité. »
 
 « La Bannière Céleste Yin appartient à la secte principale? » L'expression de Wang Lin demeura neutre, mais diverses pensées traversèrent son esprit.
 
@@ -124,6 +124,6 @@ Lu Yuncong s'en alla, porté par le chant de la flûte, l'amertume au cœur de p
 
 Après un temps indéterminé, le son de la flûte s'estompa. Li Qianmei se leva, regarda Wang Lin, puis marcha vers la porte de la cour. Elle s'arrêta brusquement et se retourna avec un sourire.
 
-Au moment même où ce sourire éclot, Wang Lin ouvrit les yeux.
+Au moment même où ce sourire éclosait, Wang Lin ouvrit les yeux.
 
-« Frère Lu, le continent de Peng Lai organisera une vente aux enchères qui n'a lieu que tous les trente ans. Seriez-vous intéressé pour y assister? »
+« Frère Lu, le continent de Peng Lai organisera prochainement un marché et une vente aux enchères qui n'ont lieu que tous les trente ans. Seriez-vous intéressé pour y assister? »

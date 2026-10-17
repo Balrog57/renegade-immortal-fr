@@ -52,7 +52,7 @@ Lorsque ce poing fendit l'air, le monde changea de couleur et un grondement tonn
 
 C'était comme si le monde entier s'était arrêté à cet instant précis.
 
-Le poing de Wang Lin percuta instantanément l'annulaire. La puissance de l'étoile brisée, échangée contre ce coup, pénétra dans le doigt. Le corps de Wang Lin rétrécit immédiatement, passant de dizaines de milliers de pieds à seulement quelques milliers!
+Le poing de Wang Lin percuta instantanément l'annulaire. La puissance de l'étoile brisée, échangée contre ce coup, pénétra dans le doigt. Le corps de Wang Lin rétrécit immédiatement, passant de dizaines de milliers de pieds à seulement un millier!
 
 Cependant, tandis qu'il rapetissait, il avait délivré une frappe équivalente à l'attaque totale d'un Dieu Ancien Royal à sept étoiles!
 
@@ -114,11 +114,11 @@ Après un long moment, des ondulations apparurent et se déformèrent. Un vieil 
 
 L'esprit du vieil homme trembla et il n'osa plus rien dire. Bien qu'il fût un disciple du Souverain, face à l'un des cinq maîtres du Système Stellaire Antique, il n'osait faire preuve de présomption. Il retourna immédiatement dans les ondulations et disparut sans laisser de trace.
 
-« Si cet enfant n'avait aucun lien avec Yue Er, tout irait bien, mais comment pourrais-je blesser quelqu'un qui apportera le bonheur à notre fille... Et qu'importe s'il possède la Perle Défiant le Ciel? J'ai obtenu ma culture par moi-même sans dépendre d'objets extérieurs. Que la cupidité du Souverain me regarde-t-elle? De plus, la Perle Défiant le Ciel appartenait autrefois au Seigneur du Domaine Scellé. Si je suis incapable de briser le sceau, cela pourrait ne pas être une bénédiction, mais une catastrophe. Le Seigneur du Domaine Scellé en est la preuve! Quant au sceau... c'est difficile, difficile, difficile!
+« Si cet enfant n'avait aucun lien avec Yue Er, tout irait bien, mais comment pourrais-je blesser quelqu'un que notre fille a béni... Et qu'importe s'il possède la Perle Défiant le Ciel? J'ai obtenu ma culture par moi-même sans dépendre d'objets extérieurs. Que la cupidité du Souverain me regarde-t-elle? De plus, la Perle Défiant le Ciel appartenait autrefois au Seigneur du Royaume Scellé. Si je suis incapable de briser le sceau, cela pourrait ne pas être une bénédiction, mais une catastrophe. Le Seigneur du Royaume Scellé en est la preuve! Quant au sceau... c'est difficile, difficile, difficile!
 
-« C'est le Seigneur du Domaine Scellé qui a ouvert les neuf Royaumes aux Sept Couleurs, avant qu'ils ne soient repris par mon peuple. Je n'avais que la puissance de cette unique paume, et après cela, j'ai dû me retirer. Bien que le Souverain soit en culture de porte close depuis des dizaines de milliers d'années, ses complots sont trop profonds. Lorsqu'il m'a ordonné d'attaquer, je crains qu'il n'y ait eu un autre dessein!
+« C'est le Seigneur du Royaume Scellé qui a ouvert les neuf Royaumes aux Sept Couleurs, avant qu'ils ne soient repris par mon peuple. Je n'avais que la puissance de cette unique paume, et après cela, j'ai dû me retirer. Bien que le Souverain soit en culture de porte close depuis des dizaines de milliers d'années, ses complots sont trop profonds. Lorsqu'il m'a ordonné d'attaquer, je crains qu'il n'y ait eu un autre dessein!
 
-« Lorsque le Souverain entra dans le Domaine Scellé autrefois, il s'en échappa lourdement blessé. L'avertissement qui parcourut tout le Système Stellaire Antique inspire encore la crainte chaque fois qu'on y pense.
+« Lorsque le Souverain pénétra autrefois dans le Royaume aux Sept Couleurs, il s'en échappa lourdement blessé. L'avertissement qui parcourut tout le Système Stellaire Antique inspire encore la crainte chaque fois qu'on y pense.
 
 « Le lieu où sont plantées les Fleurs aux Sept Couleurs a été scellé par le Souverain. À part le gardien, personne ne peut y pénétrer avec son corps réel. Il prétend que c'est pour éviter de perturber l'intention du Dao et permettre la croissance ininterrompue des fleurs, mais quelle est la véritable raison?
 

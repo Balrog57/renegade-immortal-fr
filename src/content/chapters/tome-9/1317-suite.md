@@ -18,9 +18,9 @@ Il ne l'oublierait jamais!
 
 C'était impensable. Personne n'aurait imaginé que leur brève rencontre, il y a un peu plus de dix ans dans le Royaume aux Sept Couleurs, aboutirait à se retrouver ainsi en personne.
 
-L'homme d'âge moyen regarda Li Qianmei, et son chagrin s'intensifia. D'un revers de manche, il projeta une tempête vers Wang Lin. Il se déplaça à une vitesse fulgurante et rejoignit instantanément ce dernier.
+L'homme d'âge moyen regarda Li Qianmei, et son chagrin s'intensifia. D'un revers de manche, il projeta une tempête vers Wang Lin. La tempête, d'une vitesse fulgurante, atteignit Wang Lin en un instant et explosa.
 
-Une force puissante enveloppa Wang Lin tandis qu'une autre enveloppait Li Qianmei. Cette dernière vola doucement dans les bras de l'homme d'âge moyen. Celui-ci la serra contre lui, l'affection transparaissant sous la détresse de ses yeux.
+Une grande force se répandit et, des bras de Wang Lin, enveloppa Li Qianmei, qui vola doucement vers l'homme d'âge moyen. Celui-ci la serra contre lui, l'affection transparaissant sous la détresse de ses yeux.
 
 Il se détourna et s'éloigna en tenant Li Qianmei. La lumière bleue convergea vers lui jusqu'à ce qu'il disparaisse. Du début à la fin, il ne jeta pas un seul regard vers Wang Lin!
 
@@ -66,7 +66,7 @@ Le temps s'écoulait lentement. Li Qianmei était assise dans une demeure ordina
 
 À chaque geste de sa main, le corps de Li Qianmei tremblait. Des gaz noirs s'échappaient de ses orifices pour se dissiper dans la pièce.
 
-Des ondes de musique de flûte résonnaient à l'extérieur. C'était la femme en rose, assise devant la demeure bleue. Elle portait la flûte à ses lèvres et jouait avec douceur. La mélodie était chargée d'une émotion complexe qui semblait faire écho au monde entier, à la maison et à la montagne même que Wang Lin gravissait.
+Des ondes de musique de flûte résonnaient à l'extérieur. C'était la femme en rose, assise sur une pierre verte devant la demeure. Elle portait la flûte à ses lèvres et jouait avec douceur. La mélodie était chargée d'une émotion complexe qui semblait faire écho au monde entier, à la maison et à la montagne même que Wang Lin gravissait.
 
 Lorsque les notes de la flûte parvinrent aux oreilles de Wang Lin, il avait parcouru près de 50 % des marches. Il paraissait épuisé, ses yeux injectés de sang. La force de résistance était indescriptible; c'était comme si plusieurs planètes de culture s'abattaient sur lui. Chaque pas était un supplice!
 

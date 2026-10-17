@@ -40,7 +40,7 @@ Wang Lin poussa un soupir. Il fronça les sourcils alors que son corps disparais
 
 « Une seule fois. » Wang Lin soupira. Il n'avait contemplé le lever et le coucher du soleil qu'avec Li Muwan durant ses dernières années. Cela était devenu un souvenir éternel pour lui. Depuis lors, il ne l'avait fait avec personne d'autre.
 
-S'il y avait eu une autre exception, c'était à la Secte du Affinement de l'Âme, où lui et Liu Mei étaient séparés par un mur tout en contemplant ensemble le coucher du soleil.
+S'il fallait vraiment citer une autre fois, c'était à l'entrée de la grotte de retraite de la Secte de l'Affinement de l'Âme, où, non loin de Liu Mei, ils avaient pu contempler le coucher du soleil en même temps.
 
 Ling Er afficha un sourire radieux, hocha la tête et fit sonner les clochettes à son poignet. Un point blanc apparut au loin: une grue blanche qui vola vers elle et resta en suspension au-dessus de Ling Er.
 
@@ -108,7 +108,7 @@ Il avait obtenu l'héritage des connaissances de Tu Si, et pourtant, rien dans l
 
 Le visage de Ling Er devint instantanément livide; elle recula de quelques pas en fixant Wang Lin. Elle savait qu'il ne la croyait pas.
 
-Après un court instant de réflexion, le regard de Ling Er devint résolu. Elle n'était pas aussi faible qu'elle en avait l'air. Une fois sa décision prise, elle n'en démuerait pas.
+Après un court instant de réflexion, le regard de Ling Er devint résolu. Elle n'était pas aussi faible qu'elle en avait l'air. Une fois sa décision prise, elle n'en démordrait pas.
 
 Sans hésiter, Ling Er s'agenouilla sur un genou et ses mains formèrent la silhouette d'une bouteille de trésor. Elle leva la tête, exposant son cou gracile, et exécuta le geste qu'elle avait répété des milliers de fois dans ses rêves!
 

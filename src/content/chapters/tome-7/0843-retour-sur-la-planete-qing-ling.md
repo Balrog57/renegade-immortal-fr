@@ -8,7 +8,7 @@ slug: retour-sur-la-planete-qing-ling
 ---
 Au moment où Wang Lin disparut, d'innombrables tentacules surgirent du vide et s'enroulèrent autour de la formation de transfert, provoquant son effondrement.
 
-Profitant de l'aide de Lie Yunzi et de ses compagnons pour entraver le Serpent aux yeux de lune, Maître Yan Leizi ferma les yeux et hurla: « Scelle-le! »
+Profitant de l'aide de Lie Yunzi et de ses compagnons pour entraver le Serpent aux yeux de lune, les yeux de Maître Yan Leizi brillèrent; il rapprocha ses bras devant lui en forme de vortex et lança d'une voix grave: « Scellez! »
 
 D'innombrables fragments du Royaume Céleste grondèrent avant de converger vers le Serpent aux yeux de lune de toutes parts.
 
@@ -36,7 +36,7 @@ Le Serpent aux yeux de lune recula lentement!
 
 Dès son apparition, il regarda immédiatement en arrière et commença à réfléchir.
 
-« Il doit y avoir une raison à ce changement soudat chez le Serpent aux yeux de lune. Quelqu'un a-t-il lancé une attaque contre lui? L'enfant divin ancien à l'intérieur du serpent veut que je lui trouve un successeur, mais malheureusement, mon corps originel se trouve toujours dans le Système Stellaire de l'Alliance; sinon, cela vaudrait la peine d'essayer. Cependant, j'ignore s'il est sincère concernant cet héritage ou s'il cherche à utiliser une technique similaire au sort de possession des cultivateurs... Je dois rester prudent et ne pas agir avec imprudence! »
+« Il doit y avoir une raison à ce changement soudain chez le Serpent aux yeux de lune. Quelqu'un a-t-il lancé une attaque contre lui? L'enfant divin ancien à l'intérieur du serpent veut que je lui trouve un successeur, mais malheureusement, mon corps originel se trouve toujours dans le Système Stellaire de l'Alliance; sinon, cela vaudrait la peine d'essayer. Cependant, j'ignore s'il est sincère concernant cet héritage ou s'il cherche à utiliser une technique similaire au sort de possession des cultivateurs... Je dois rester prudent et ne pas agir avec imprudence! »
 
 « Toutefois, puisque j'ai déjà quitté le Serpent aux yeux de lune, je pense que personne ne pourra me détecter pendant un court laps de temps! »
 
@@ -64,7 +64,7 @@ Après être entré dans la grotte, Wang Lin activa immédiatement les formation
 
 Quelques heures plus tard, la nuit était déjà tombée. La lumière des étoiles se déversait sur la terre et tout était plongé dans le calme.
 
-Lorsque la lueur lunaire pénétra par l'entrée, elle se refléta sur le sol dans un spectacle magnifique. Wang Lin ouvrit la bouche pour expulser une bouffée d'air vicié. Depuis son départ pour le Royaume Céleste, il avait été épuisé. Même à l'intérieur du Serpent aux yeux de lune, il avait peine à trouver un moment de répit.
+Lorsque la lueur lunaire pénétra par l'entrée, elle se refléta sur le sol dans un spectacle magnifique. Wang Lin ouvrit la bouche pour expulser une bouffée d'air vicié. Depuis son départ du Royaume Céleste du Tonnerre, il avait été épuisé tout au long de la route. Même à l'intérieur du Serpent aux yeux de lune, il avait peine à trouver un moment de répit.
 
 Pourtant, en cet instant, sur sa propre planète de culture, Wang Lin pouvait enfin se détendre pleinement. Il leva les yeux vers le ciel à l'extérieur de la grotte et se mit à méditer. Après un long moment, il détourna son regard et murmura: « La chasse de la famille Yao ne s'arrêtera pas; je ne dispose pas de beaucoup de temps! »
 

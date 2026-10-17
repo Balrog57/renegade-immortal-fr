@@ -10,7 +10,7 @@ Le ciel étoilé était voilé de brume alors que six rayons de lumière fendaie
 
 Avec sa culture au niveau du Briseur du Nirvana, il était semblable à un éclair lorsqu'il volait à pleine vitesse. Derrière lui, tous les autres mobilisaient également toute leur puissance de culture pour accélérer.
 
-Wang Lin restait à la traîne. Après tout, son véritable niveau de culture n'était pas celui d'un Briseur du Nirvana. Il demeura calme, sortit un talisman et le plaça contre lui. Une bourrasque de vent éclata autour de lui et il s'élança.
+Wang Lin restait à la traîne. Après tout, son véritable niveau de culture n'était pas celui d'un Briseur du Nirvana. Il demeura calme, sortit un talisman de vitesse et le plaça contre lui. Une bourrasque de vent éclata autour de lui et il s'élança.
 
 Ils volèrent à toute allure, et quelques jours plus tard, la brume devint encore plus dense. Ils atteignirent les profondeurs de la région de rang 5, où l'on pouvait vaguement distinguer l'ombre d'un continent sauvage.
 
@@ -18,7 +18,7 @@ Ils volèrent à toute allure, et quelques jours plus tard, la brume devint enco
 
 « Peu de gens connaissent ce continent sauvage, et même ceux qui en ont vent ne découvriront jamais le secret que j'y ai caché. » Maître Pin Cendré sourit, le regard empreint de nostalgie en contemplant la terre.
 
-« Cher cultivateur Pang, je vous confie une tâche: trouvez tous les cultivateurs sur ce continent sauvage et... tuez-les tous! » lança Maître Pin Cendré à l'adresse du vieil homme au visage balafré.
+« Cher cultivateur Pang, je vous confie une tâche: trouvez tous les cultivateurs sur ce continent sauvage et... tuez-les tous! » lança Maître Pin Cendré à l'adresse du vieil homme au visage grêlé.
 
 L'homme nommé Pang hocha la tête puis disparut. Son sens divin se propagea à travers le continent sauvage pour poursuivre sa traque. Il élimina chaque cultivateur qu'il croisa, sans égard pour leur niveau de culture ou leur secte.
 
@@ -26,7 +26,7 @@ Wang Lin observa le continent sauvage sous ses pieds. Il avait le pressentiment 
 
 Les yeux de la vieille femme en vert s'illuminèrent également tandis qu'elle scrutait les environs avec gravité.
 
-Maître Nuage d'Âme jeta un regard méprisant à Wang Lin. Le secret de ce continent sauvage ne pouvait être perçu que si l'on y avait vécu durant de longues années.
+Maître Nuage-Âme regarda Wang Lin en ricanant intérieurement. Le secret de ce continent sauvage ne pouvait être perçu que si l'on y avait vécu durant de longues années.
 
 Le jeune garçon fronça également les sourcils en observant les lieux, mais nul ne savait ce qu'il pensait. Seul Chen Tianjun restait impassible, assis là, cultivant les yeux clos.
 
@@ -62,7 +62,7 @@ Il ne restait plus un seul grain de gravier sur la terre située entre les quatr
 
 À mesure que les jades célestes se dissipaient, la terre absorbait cette énergie dense, et la rune devint de plus en plus nette, émettant une douce lueur.
 
-En l'espace de quinze minutes, plus de cent mille jades célestes furent consommés. La rune brilla de plus en plus intensément jusqu'à ce que le continent sauvage entier soit illuminé!
+En l'espace de quinze minutes, plusieurs centaines de milliers de jades célestes furent consommés. La rune brilla de plus en plus intensément jusqu'à ce que le continent sauvage entier soit illuminé!
 
 « Formation céleste, activez! » rugit Maître Pin Cendré, sa voix résonnant comme un coup de tonnerre. À cet instant, la rune au sol projeta un éclat violent et une secousse tellurique ébranla tout l'espace.
 
@@ -104,8 +104,8 @@ Sous l'impact du continent, la fissure parut être déchirée de force et s'éla
 
 « Allez! » cria Maître Pin Cendré en se précipitant vers la faille. Les autres suivirent le mouvement, utilisant toute leur vitesse pour pénétrer dans l'ouverture.
 
-À ce moment précis, les deux seuls restés à l'extérieur étaient Maître Nuage d'Âme et Wang Lin. Maître Nuage d'Âme lança un regard glacial à Wang Lin, lequel laissa échapper un ricanement intérieur avant de se diriger droit vers la faille. Cependant, juste au moment où il allait s'y engouffrer, une lueur froide traversa le regard de Wang Lin et il se retourna brusquement!
+À ce moment précis, les deux seuls restés à l'extérieur étaient Maître Nuage-Âme et Wang Lin. Maître Nuage-Âme lança un regard glacial à Wang Lin, lequel laissa échapper un ricanement intérieur avant de se diriger droit vers la faille. Cependant, juste au moment où il allait s'y engouffrer, une lueur froide traversa le regard de Wang Lin et il se retourna brusquement!
 
-Les yeux de Maître Nuage d'Âme se contractèrent. Au moment où Wang Lin fit volte-face, sa main droite plongea dans le vide et une épée de fer apparut soudainement dans sa paume!
+Les yeux de Maître Nuage-Âme se contractèrent. Au moment où Wang Lin fit volte-face, sa main droite plongea dans le vide et une épée de fer apparut soudainement dans sa paume!
 
 Elle était couverte de rouille, mais c'était une lame qui dégageait une aura capable d'ébranler les cieux!

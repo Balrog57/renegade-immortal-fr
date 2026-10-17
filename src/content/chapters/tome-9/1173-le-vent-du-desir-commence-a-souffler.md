@@ -18,7 +18,7 @@ Maître Pin Cendré fixa la bulle, les yeux brillants d'intérêt. Après un lon
 
 Maître Pin Cendré soupira et cessa de proposer des offres.
 
-À cet instant précis, la vieille femme qui n'avait été émue par aucun trésor agita sa main droite, et un jade vola vers le vieil homme vêtu de noir. Ce dernier scruta le jade avec son Sens Divin, et ses yeux brillèrent comme jamais auparavant. Il ferma les paupières et médita longuement, mais refusa toujours d'acquiescer.
+À cet instant précis, la vieille femme qui n'avait été émue par aucun trésor agita sa main droite, et un jade vola vers le vieil homme vêtu de noir. Ce dernier scruta le jade avec son Sens Divin, et ses yeux s'ouvrirent brusquement. Il ferma les paupières et médita longuement, mais refusa toujours d'acquiescer.
 
 « J'ajouterai une carte de la région de rang 6! J'ai moi-même dressé cette carte en recueillant des informations pendant une longue période. Bien que je n'ose prétendre qu'elle soit exhaustive, elle couvre au moins 30 % de la région de rang 6. Elle contient également plusieurs continents sauvages dont je suis le seul à connaître l'existence. » La voix de la vieille femme était rauque alors qu'elle s'exprimait lentement.
 
@@ -36,7 +36,7 @@ La transaction entre la vieille femme et le vieil homme en noir fut également u
 
 Les dix mille jades célestes de Wang Lin attirèrent l'attention des vieux monstres présents. Toutefois, une telle somme n'était pas si déconcertante pour eux. Après avoir observé Wang Lin, leurs regards se tournèrent vers la plume.
 
-L'homme au visage balafré toucha l'anneau à son doigt et dit lentement: « L'Oiseau Vermillon d'autrefois est mort, son corps entier ayant explosé en flammes; cette plume n'est donc manifestement pas une originale. J'en propose trois mille jades célestes. »
+L'homme au visage balafré toucha l'anneau à son doigt et dit lentement: « L'Oiseau Vermillon d'autrefois est mort, toutes les plumes de son corps s'étant embrasées d'elles-mêmes; cette plume n'est donc manifestement pas une originale. J'en propose trois mille jades célestes. »
 
 « Cinq mille jades célestes », sourit faiblement Wu Qing.
 
@@ -84,7 +84,7 @@ Le vieil homme en noir s'apprêtait à rire et à parler, mais Wu Qing l'interro
 
 « Cinquante mille! » L'expression de Wang Lin se refroidit progressivement.
 
-« Cinquante-cinq mille jades célestes! » Wu Qing continuait de sourire. Tous les êtres présents étaient des vieux monstres ayant vécu des dizaines de milliers d'années; ils avaient immédiatement percé son intention de provoquer Wang Lin.
+« Cinquante-cinq mille jades célestes! » Wu Qing continuait de sourire. Tous les êtres présents étaient des vieux monstres ayant vécu des milliers, voire des dizaines de milliers d'années; ils avaient immédiatement percé son intention de provoquer Wang Lin.
 
 La belle femme fronça les sourcils. Elle n'était pas seule: tous les vieux monstres manifestèrent leur mécontentement. Ils étaient venus pour commercer et trouvaient ce genre de comportement absolument répugnant, à moins qu'une vendetta ne soit en jeu.
 
@@ -110,13 +110,13 @@ L'enchère prit fin peu de temps après, et chacun quitta les lieux un à un. Qu
 
 Maître Pin Cendré réfléchit un instant et proposa: « Voici ce que je suggère: le cultivateur peut séjourner dans la ville principale quelque temps. Une fois l'enchère terminée, moi et quelques-uns de mes vieux amis partirons. Nous pourrons vous accompagner afin que Wu Qing n'ose plus nourrir de pensées malveillantes à votre égard. »
 
-Sans attendre la réponse de Wang Lin, le visage de Maître Pin Cendré se fit grave: « Le cultivateur souhaite échanger cinq mille cristaux d'origine. Est-ce bien exact? »
+Sans attendre la réponse de Wang Lin, le visage de Maître Pin Cendré se fit grave: « Le cultivateur souhaite échanger cinq mille cristaux originels. Est-ce bien exact? »
 
 Wang Lin acquiesça sans mot dire.
 
 La main droite de Maître Pin Cendré s'étira vers le vide pour ouvrir son espace de stockage. Il en sortit un sac de rangement et le lança à Wang Lin, tout en le fixant d'un regard intense. Personne ne pouvait lire dans ses pensées.
 
-Wang Lin attrapa le sac et l'examina avec son Sens Divin. Il contenait cinq mille cristaux d'origine. Les cristaux d'origine étaient extrêmement rares dans la Mer des Nuages, et une telle quantité représentait une somme astronomique. On ignorait comment Maître Pin Cendré avait pu s'en procurer autant.
+Wang Lin attrapa le sac et l'examina avec son Sens Divin. Il contenait cinq mille cristaux originels. Les cristaux originels étaient extrêmement rares dans la Mer des Nuages, et une telle quantité représentait une somme astronomique. On ignorait comment Maître Pin Cendré avait pu s'en procurer autant.
 
 Après avoir rangé le sac, Wang Lin ouvrit son propre espace de stockage et sortit le sac qu'il avait préparé avec ses jades célestes. Il le lança à Maître Pin Cendré qui l'attrapa. Après l'avoir inspecté par son Sens Divin, ce dernier afficha un sourire.
 
@@ -126,15 +126,15 @@ Après avoir rangé le sac, Wang Lin ouvrit son propre espace de stockage et sor
 
 Wang Lin ne discuta plus et se leva pour partir.
 
-Une fois Wang Lin sorti, le sourire de Maître Pin Cendré s'effaça et il marmonna: « Mes cristaux d'origine ne sont pas quelque chose que l'on peut acquérir si aisément... »
+Une fois Wang Lin sorti, le sourire de Maître Pin Cendré s'effaça et il marmonna: « Mes cristaux originels ne sont pas quelque chose que l'on peut acquérir si aisément... »
 
-En sortant de la pièce, l'expression de Wang Lin était neutre, mais il laissa échapper un reniflement froid. Puisqu'il avait osé venir ici, il ne craignait pas que l'on découvre sa fortune en jades célestes. Tout comme Maître Pin Cendré, qui n'était qu'un membre de la Secte des Jades Précieux mais possédait tant de cristaux d'origine.
+En sortant de la pièce, l'expression de Wang Lin était neutre, mais il laissa échapper un reniflement froid. Puisqu'il avait osé venir ici, il ne craignait pas que l'on découvre sa fortune en jades célestes. Tout comme Maître Pin Cendré, qui n'était qu'un membre de la Secte du Jade Précieux mais possédait tant de cristaux originels.
 
 En songeant à ces cristaux, le cœur de Wang Lin manqua un battement tandis qu'il s'engageait dans le passage.
 
-« Ce Maître Pin Cendré a certainement des intentions malveillantes, mais il ignore que les miennes sont bien plus viles que les siennes! Cinq mille cristaux d'origine ne suffiront pas à nourrir cette bête mutée. Si je veux que la bête-moustique atteigne le même rang et puisse me protéger dans le Royaume Céleste du Vent, il me faudra une quantité phénoménale de cristaux d'origine! »
+« Ce Maître Pin Cendré a certainement des intentions malveillantes, mais il ignore que les miennes sont bien plus viles que les siennes! Cinq mille cristaux originels ne suffiront pas à nourrir cette bête mutée. Si je veux que la bête-moustique puisse évoluer grâce à cette méthode et me protéger dans le Royaume Céleste du Vent, il me faudra une quantité phénoménale de cristaux originels! »
 
-En quittant le passage, Wang Lin croisa Ouyang Long en chemin. Ce dernier le raccompagna au pavillon avant que Wang Lin ne reparte. Le ciel n'était plus lumineux et l'agitation s'était apaisée.
+En quittant le passage, Wang Lin croisa Ouyang Long en chemin. Ce dernier le raccompagna au pavillon avant que Wang Lin ne reparte. Le ciel commençait à peine à s'éclaircir et l'agitation s'était apaisée.
 
 Après avoir parcouru quelques pas dans cette rue devenue calme, Wang Lin s'arrêta net. Une ondulation apparut derrière lui, et la vieille femme qui avait obtenu l'âme de la bête en sortit. Elle lança un regard glacial à Wang Lin avant d'agiter la main droite pour projeter un jade vers lui.
 
@@ -146,6 +146,6 @@ Wang Lin saisit le jade, l'examina avec son Sens Divin, puis le rangea. Lorsqu'i
 
 Peu après son départ, un autre rayon de lumière jaillit: c'était Wu Qing qui poursuivait Wang Lin!
 
-Une tempête se préparait. Le départ précipité de Wu Qing attira l'attention de nombreux cultivateurs puissants qui comprirent parfaitement les raisons de sa fuite...
+Une tempête se préparait. Le départ précipité de Wu Qing attira l'attention de nombreux cultivateurs puissants qui comprirent parfaitement les raisons de son départ...
 
 « Quel dommage... » Dans la ville principale, la vieille femme en vert poussa un soupir de regret et secoua la tête.

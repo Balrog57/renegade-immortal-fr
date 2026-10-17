@@ -6,11 +6,11 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1233 - Movement of Wind
 slug: mouvement-du-vent
 ---
-Après s'être extrait du Domaine Brumeux des Bêtes du Chaos, Wang Lin pénétra dans la région de rang 8. Un éclair de joie traversa son regard alors qu'il se retournait vers la brume; il venait de ressentir l'aura d'une bête de rang 13.
+Après s'être extrait du Royaume du Brouillard des Bêtes du Chaos, Wang Lin pénétra dans la région de rang 8. Un éclair de joie traversa son regard alors qu'il se retournait vers la brume; il venait de ressentir l'aura d'une bête de rang 13.
 
 C’était précisément cette aura qui l'avait poussé à renoncer à tuer le mille-pattes. Après tout, sa priorité absolue était désormais d'atteindre le Royaume Céleste du Vent!
 
-« Il y a une raison bien réelle à la renommée de ce Domaine Brumeux des Bêtes du Chaos! » Après une brève réflexion, Wang Lin s'élança dans les airs.
+« Il y a une raison bien réelle à la renommée de ce Royaume du Brouillard des Bêtes du Chaos! » Après une brève réflexion, Wang Lin s'élança dans les airs.
 
 Une fois entré dans la région de rang 8, Wang Lin cessa d'agir avec autant d'arrogance. Il savait que cette zone regorgeait de vieux monstres. L'Ancien qui observait son combat dans la brume en était manifestement un.
 
@@ -30,9 +30,9 @@ Toutefois, très peu de gens osaient le faire. Seuls des groupes nombreux, mené
 
 Bien que la quantité fût infime, cela restait préférable à rien du tout.
 
-À cet instant, plus de dix cultivateurs se trouvaient à l'extérieur de la faille menant au Royaume Céleste de la Pluie, semblant attendre de nouveaux arrivants. Wang Lin émergea progressivement de la brume. Ses cheveux blancs étaient très voyants et, dès son apparition, tous les regards des cultivateurs présents se tournèrent vers lui.
+À cet instant, plus de dix cultivateurs se trouvaient à l'extérieur de la faille menant au Royaume Céleste du Vent, semblant attendre de nouveaux arrivants. Wang Lin émergea progressivement de la brume. Ses cheveux blancs étaient très voyants et, dès son apparition, tous les regards des cultivateurs présents se tournèrent vers lui.
 
-Au même moment, sur le continent de Mo Lou dans la région de rang 5, Lu Yanfei se tenait sur la montagne où elle avait parlé à Wang Lin pour la première fois. Le vent faisait flotter sa chevelure, lui donnant l'allure d'une immortelle.
+Au même moment, sur le continent de Mo Luo dans la région de rang 5, Lu Yanfei se tenait sur la montagne où elle avait parlé à Wang Lin pour la première fois. Le vent faisait flotter sa chevelure, lui donnant l'allure d'une immortelle.
 
 Une pointe de mélancolie assombrissait son beau visage.
 
@@ -122,7 +122,7 @@ Mu Bingmei répondit doucement: « Je vous en prie, entrez. »
 
 Une femme vêtue d'une robe jaune pénétra dans la grotte. Elle avait une apparence très délicate et, bien qu'elle ne fût pas aussi belle que Mu Bingmei, elle n'en serait pas moins gracieuse si elles se tenaient côte à côte.
 
-La femme regarda Mu Bingmei et s'excusa: « Après avoir reçu le jade, Maître comptait venir personnellement, mais un imprévu est survenu, c'est pourquoi la Jeune Sœur est venue chercher la Grande Sœur. Je ne me suis pas présentée, je m'appelle Wang Shanshan. »
+La femme regarda Mu Bingmei et s'excusa: « Après avoir reçu le jade, Maître comptait venir personnellement, mais un imprévu est survenu, c'est pourquoi la Jeune Sœur est venue chercher la Grande Sœur pour la ramener à la Secte Divine. Je ne me suis pas présentée, je m'appelle Wang Shanshan. »
 
 « Un nom en Wang... » Une lueur de solitude passa dans les yeux de Mu Bingmei lorsqu'elle hocha la tête et répondit doucement: « Je vous remercie de votre aide, Petite Sœur Shanshan. »
 
@@ -130,6 +130,6 @@ Cette femme nommée Wang Shanshan était très féminine. Après avoir sorti que
 
 Un soupçon d'amertume marqua le sourire de Mu Bingmei, qui resta silencieuse.
 
-« Grande Sœur Mu, la grande compétition des huit sectes de mon Système Stellaire de la Mer des Nuages approchera bientôt. Puisque cela se situe sur la route de la Secte Divine, nous devrions y aller ensemble. La Jeune Sœur sort rarement, et je n'ai pas envie de rentrer si tôt. »
+« Grande Sœur Mu, la grande compétition des sectes de rang 8 de mon Système Stellaire de la Mer des Nuages approchera bientôt. Puisque cela se situe sur la route de la Secte Divine, nous devrions y aller ensemble. La Jeune Sœur sort rarement, et je n'ai pas envie de rentrer si tôt. »
 
 Mu Bingmei regarda la femme devant elle et acquiesça d'un signe de tête.

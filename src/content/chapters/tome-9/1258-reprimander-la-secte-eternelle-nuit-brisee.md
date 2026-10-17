@@ -6,13 +6,13 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1258 - Rebuking the Everlasting Secte, Sundered Night
 slug: reprimander-la-secte-eternelle-nuit-brisee
 ---
-« Pourquoi aurais-je peur? »
+« Pourquoi n'oserais-je pas? »
 
 Les yeux de Wang Lin brillaient d'un éclat intense. Cette lueur remplaça soudainement toute autre source de lumière dans le monde, enveloppant l'univers d'une clarté dorée. Même la pluie qui tombait du ciel semblait se transformer en or.
 
 C'était comme si la silhouette de Wang Lin était devenue le soleil levant. La lumière dorée qu'il dégageait jaillissait telle des épées imprégnées de la loi originelle!
 
-Alors que cette voix impassible résonnait, un vieil homme aux cheveux blancs apparut dans le rayon de lumière. Son visage parcheminé de rides et son regard semblaient percer les mystères des cieux. À mesure qu'il s'approchait, le ciel et la terre changeaient de couleur, les vents déchiraient les nuages, et il semblait que l'univers entier était sous son contrôle.
+Alors que cette voix impassible résonnait, un vieil homme aux cheveux blancs, vêtu de gris, apparut dans le rayon de lumière. Son visage parcheminé de rides et son regard semblaient percer les mystères des cieux. À mesure qu'il s'approchait, le ciel et la terre changeaient de couleur, les vents déchiraient les nuages, et il semblait que l'univers entier était sous son contrôle.
 
 Un halo rouge apparut faiblement autour de la peau du vieil homme. En voyant cela, tous furent frappés de stupeur!
 
@@ -74,7 +74,7 @@ Même les anciens de la Secte Éternelle n'étaient pas épargnés!
 
 Ils ignoraient que, jadis, dans la Terre des Esprits Démoniaques, Wang Lin avait utilisé Nuit Brisée pour tuer Maître du Vide et forcer l'Omniscient aux robes grises à battre en retraite. Deux avatars de l'Omniscient, pourtant au stade avancé de Briseur du Nirvana, y avaient péri!
 
-Ils ignoraient également que Nuit Brisée était désormais reconnu comme un sort d'une puissance exceptionnelle suite à la bataille dans la Terre des Esprits Démoniaques!
+Ils ignoraient également que Nuit Brisée, depuis la bataille dans la Terre des Esprits Démoniaques, s'était répandu dans le Système Stellaire de l'Alliance et était désormais reconnu comme un sort d'une puissance exceptionnelle!
 
 Les vagues déferlaient sous l'obscurité de la nuit. Tout était sombre; même le filet de loi semblait fusionner avec les ténèbres. Le filet toucha la mer et les vagues rugirent comme si l'océan lui-même se convulsait.
 
@@ -94,7 +94,7 @@ Lorsque plus de la moitié du soleil avait émergé de l'horizon, une voix grave
 
 Les cultivateurs dont l'esprit s'était mêlé aux ténèbres ressentirent une douleur atroce dans leurs âmes originelles. C'était comme si leurs corps étaient déchirés par l'obscurité elle-même!
 
-L'expression du vieil homme en blanc, également fusionné avec les ténèbres, changea radicalement et il se retira précipitamment. Simultanément, ses mains formèrent des sceaux et son halo rouge clignota frénétiquement pour résister à la puissance de Nuit Brisée.
+L'expression du vieil homme aux cheveux blancs, également fusionné avec les ténèbres, changea radicalement et il se retira précipitamment. Simultanément, ses mains formèrent des sceaux et son halo rouge clignota frénétiquement pour résister à la puissance de Nuit Brisée.
 
 Un fracas tonitruant retentit lors de sa retraite.
 

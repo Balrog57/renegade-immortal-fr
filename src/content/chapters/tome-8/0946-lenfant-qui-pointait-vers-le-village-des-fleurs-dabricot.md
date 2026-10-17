@@ -13,9 +13,9 @@ Ce jour-là, un rayon de lumière traversa la nébuleuse. Sa progression n'étai
 
 Cet individu portait une robe verte et semblait âgé d'une trentaine d'années. Son apparence était ordinaire, sans rien d'inhabituel. S'il y avait un trait remarquable, c'était ce tempérament antique qu'il dégageait. C'était comme si cet homme avait vécu pendant des dizaines de milliers d'années.
 
-Wang Lin parcourut toute la distance ainsi. Il n'utilisa pas la Déviation Spatiale, se contentant de marcher calmement parmi les étoiles. Cela faisait quatre jours qu'il était revenu du vide.
+Wang Lin parcourut toute la distance ainsi. Il ne fusionna pas avec le monde, se contentant de marcher calmement parmi les étoiles. Cela faisait quatre jours qu'il était revenu du vide.
 
-Il y a quatre jours, lui et Qing Shui avaient ouvert le passage de retour depuis le vide avec l'aide du Maître Yan Leizi. Wang Lin n'avait que peu parlé de ce qui s'était passé dans le vide; il n'avait pas approfondi la question des localisations d'Yi Muzi, de Wudo Chan ou du Serpent aux yeux de lune.
+Il y a quatre jours, lui et Qing Shui avaient ouvert le passage de retour depuis le vide avec l'aide du Maître Yan Leizi. Wang Lin n'avait que peu parlé de ce qui s'était passé dans le vide; il n'avait pas approfondi la question des localisations d'Yi Muzi, de Wu Dongchan ou du Serpent aux yeux de lune.
 
 Le Maître Yan Leizi n'avait pas posé trop de questions, mais lorsqu'ils évoquèrent le Serpent aux yeux de lune, il fronça les sourcils.
 
@@ -27,7 +27,7 @@ Une fois de retour, le sceau qui entravait la culture de Qing Shui se dissipa ra
 
 En apparence, lors de leur départ, il semblait qu'ils n'avaient eu aucun contact, mais Wang Lin savait que Qing Shui viendrait le retrouver. Après tout, ce dernier n'avait pas encore exploré les souvenirs de l'Illustre Xuan Bao.
 
-En songeant à ce qui s'était passé dans le vide, Wang Lin ressentit un profond regret. Qu'il s'agisse de la vie de Lou Chen, des vagues à l'extérieur du sceau ou des secrets du Royaume Céleste, tout cela restait gravé dans son esprit. Ce qui l'avait le plus choqué, c'était la perle défiant le ciel!
+En songeant à ce qui s'était passé dans le vide, Wang Lin ressentit une profonde émotion. Qu'il s'agisse de la vie de Lou Chen, des vagues à l'extérieur du sceau ou des secrets du Royaume Céleste, tout cela restait gravé dans son esprit. Ce qui l'avait le plus choqué, c'était la perle défiant le ciel!
 
 Wang Lin n'aurait jamais imaginé que la perle défiant le ciel déclencherait inopinément une guerre monumentale entre les quatre Royaumes Célestes!
 
@@ -37,7 +37,7 @@ Un instant plus tard, des ondulations se propagèrent de l'endroit où il fixait
 
 « Le toi d'aujourd'hui est qualifié pour voyager parmi les étoiles, je peux donc me détendre », répondit Qing Shui en faisant un pas pour rejoindre Wang Lin.
 
-Wang Lin remarqua immédiatement une puissante odeur de sang émanant du corps de Qing Shui. Il pouvait vaguement sentir que la culture de ce dernier était plusieurs fois plus élevée qu'il y a quelques jours!
+Wang Lin remarqua immédiatement une puissante odeur de sang émanant du corps de Qing Shui. Il pouvait vaguement sentir que la culture de ce dernier était supérieure de plusieurs crans à celle d'il y a quatre jours!
 
 « En chemin, j'ai entendu quelques personnes prononcer ton nom; je suis donc allé massacrer quelques cultivateurs de l'Alliance qui étaient doués pour se cacher! » Bien que Qing Shui l'ait dit avec désinvolture, Wang Lin savait que ce n'était absolument pas une mince affaire.
 
@@ -49,7 +49,7 @@ Wang Lin frappa son sac de rangement, et l'âme originelle de l'Illustre Xuan Ba
 
 L'expression de Qing Shui devint sombre et il ferma les yeux. Après un long moment, il les rouvrit, le visage marqué par une couche de givre. Il renvoya l'âme originelle de l'Illustre Xuan Bao vers Wang Lin.
 
-Sans mot dire, Wang Lin réceptionna l'âme. Celle-ci avait perdu toute conscience et n'était plus qu'une simple source d'énergie d'origine céleste. L'ancien illustre, le frère cadet de l'Illustre Tian Bao, en était arrivé là. On ne pouvait que constater que, qu'on soit un Céleste ou un cultivateur, la moindre négligence pouvait mener à un tel dénouement. Pour être autre chose, il fallait devenir le plus fort.
+Sans mot dire, Wang Lin réceptionna l'âme. Celle-ci avait perdu toute conscience et n'était plus qu'une simple source d'énergie d'origine céleste. L'ancien illustre, le frère cadet de l'Illustre Tian Bao, en était arrivé là. On ne pouvait que constater que, qu'on soit un Céleste ou un cultivateur, la moindre négligence pouvait mener à un tel dénouement. Pour faire exception, il fallait devenir le plus fort.
 
 Wang Lin rangea cette âme dans son sac de rangement et regarda Qing Shui. L'expression de ce dernier était revenue à la normale, mais une lueur de férocité y persistait. Il avait trouvé un indice ténu dans l'âme originelle de l'Illustre Xuan Bao!
 
@@ -81,7 +81,7 @@ Wang Lin se tenait silencieusement au loin, contemplant le village devant lui. L
 
 Ce qu'il revoyait n'était pas le village qui s'offrait à lui, mais son enfance sur la planète Suzaku. Des fragments de comptine parvinrent jusqu'à lui, portés par l'écho des cloches matinales:
 
-« L'arbre à abricot fleurit de blanc. La fille ne sera pas prise par une famille de taoïstes. L'an passé, le second Lang monta à la montagne, et un an plus tard, le premier Lang n'était qu'un sac d'os. Les cris de la fille accompagnent les morts, mais elle prend le cercueil pour famille... L'arbre à abricot fleurit de blanc et les enfants ne doivent pas être pris par les taoïstes. Si l'on demande mon âge, je n'ai pas encore trouvé mon Dao. Le chien aboie, le chat griffe, faisant fuir le taoïste vers sa demeure. »
+« L'arbre à abricot fleurit de blanc. La fille ne sera pas prise par une famille de taoïstes. Avant le Nouvel An, le second Lang monta à la montagne, et après le Nouvel An, le premier Lang n'était qu'un sac d'os. Les cris de la fille accompagnent les morts, mais elle prend le cercueil pour famille... L'arbre à abricot fleurit de blanc et les enfants ne doivent pas être pris par les taoïstes. Si l'on demande mon âge, je n'ai pas encore trouvé mon Dao. Le chien aboie, le chat griffe, faisant fuir le taoïste vers sa demeure. »
 
 La voix d'un enfant tendre atteignit les oreilles de Wang Lin, mêlée au tintement cristallin d'une cloche. C'était un enfant vêtu d'habits ajustés qui montait sur un bœuf en direction du village. Un anneau de fer traversait le nez de l'animal, auquel étaient attachées deux cloches qui tintaient sans cesse à chaque pas. Plusieurs veaux suivaient le bœuf.
 

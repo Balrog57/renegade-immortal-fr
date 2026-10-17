@@ -6,7 +6,7 @@ bookTitle: "Alliance's Secret"
 en: Chapter 959 - All-Seers Secret
 slug: le-secret-de-lall-seer
 ---
-« Il faudra faire certains préparatifs pour ouvrir le Domaine des Esprits Démoniaques cette fois. Cette affaire est importante, et je dois également inviter quelques amis avant que nous ne puissions pénétrer dans cette grotte. Pendant ce temps, vous pouvez attendre ici en toute sérénité. » L'expression de l'Omniscient était calme, ne révélant ni colère ni joie. Une fois ses paroles achevées, des nuages apparurent et il s'éleva pour partir en marchant sur les cieux.
+« Il faudra faire certains préparatifs pour ouvrir la Terre des Esprits Démoniaques cette fois. Cette affaire est importante, et chacun de nous doit également inviter quelques amis avant que nous ne puissions pénétrer dans cette grotte. Pendant ce temps, vous pouvez attendre ici en toute sérénité. » L'expression de l'Omniscient était calme, ne révélant ni colère ni joie. Une fois ses paroles achevées, des nuages apparurent et il s'éleva pour partir en marchant sur les cieux.
 
 « Le Pavillon du Bois Pourpre vous est toujours réservé. » La voix de l'Omniscient parvint de loin.
 
@@ -50,9 +50,9 @@ L'homme en bleu, empreint de fierté, s'apprêtait à répondre lorsqu'il leva l
 
 Remarquant l'anomalie de son frère aîné, la femme leva la tête et aperçut également Wang Lin. Avec leur niveau de culture, ils n'avaient même pas perçu la présence de Wang Lin.
 
-L'expression de Wang Lin était sereine. En approchant du duo, il adressa un sourire à l'homme en bleu et dit: « Frère aîné Li, ne soyez pas un étranger. »
+L'expression de Wang Lin était sereine. En approchant du duo, il adressa un sourire à l'homme en bleu et dit: « Frère aîné Li, je vous vois en bonne santé depuis notre dernière rencontre. »
 
-« Vous... Vous... » L'homme en bleu restait figé comme un poulet devant un renard. Il venait de revenir à la secte et ignorait le retour de Wang Lin. En apercevant ce dernier, il l'avait trouvé familier, mais après avoir entendu sa voix, il fut frappé de stupeur.
+« Vous... Vous... » L'homme en bleu restait figé, les yeux hagards comme un poulet stupéfait. Il venait de revenir à la secte et ignorait le retour de Wang Lin. En apercevant ce dernier, il l'avait trouvé familier, mais après avoir entendu sa voix, il fut frappé de stupeur.
 
 « Wang Lin! » L'homme en bleu recula de quelques pas, les yeux écarquillés par l'effroi.
 
@@ -72,7 +72,7 @@ L'homme en bleu répondit brusquement: « Il s'appelle Wang Lin. C'était le sep
 
 La femme fut saisie d'effroi et son expression changea instantanément.
 
-« Est-ce celui dont les rumeurs disent qu'il a tué d'innombrables personnes dans le Domaine des Esprits Démoniaques, créant une véritable rivière de sang? Celui qui, finalement, fut traqué par Maître et de nombreux anciens, mais qui parvint tout de même à s'échapper? Le démon Wang Lin?! »
+« Est-ce celui dont les rumeurs disent qu'il a tué d'innombrables personnes dans la Terre des Esprits Démoniaques, créant une véritable rivière de sang? Celui qui, finalement, fut traqué par Maître et de nombreux anciens, mais qui parvint tout de même à s'échapper? Le démon Wang Lin?! »
 
 Au loin, Wang Lin esquissa un sourire amer. Les commérages étaient une chose redoutable. Au fil des centaines d'années, les rumeurs à son sujet avaient fini par se transformer. Dans un soupir, Wang Lin quitta la Secte du Destin Céleste en empruntant le petit sentier.
 

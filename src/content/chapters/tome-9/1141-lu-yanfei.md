@@ -22,7 +22,7 @@ Depuis son arrivée à la Secte de l'Origine, Wang Lin n'avait pas caché son ni
 
 L'énergie originelle d'un cultivateur du Purificateur du Nirvana est intégrée au monde, ce qui lui permet d'en absorber pour son usage personnel. Tant que l'énergie originelle à l'intérieur de son corps reste immobile, aucune fluctuation n'apparaît. Si cela avait été tout, Lu Yanfei aurait peut-être remarqué quelque chose.
 
-Cependant, Wang Lin possédait une parcelle d'origine source et avait déjà atteint la troisième étape. Il avait également expérimenté ce que signifiait être un cultivateur de la troisième étape grâce à l'aide de l'Empereur Céleste Qing Lin. Par conséquent, personne sur ce continent n'était capable de percer sa culture.
+Cependant, Wang Lin possédait une parcelle d'origine source et avait déjà entrevu la troisième étape dans la Perle Défiant le Ciel. Il avait également expérimenté ce que signifiait être un cultivateur de la troisième étape grâce à la faveur de l'Empereur Céleste Qing Lin. Par conséquent, personne sur ce continent n'était capable de percer sa culture.
 
 Vêtu de blanc et tenant son parapluie, il quitta la cour pour commencer à arpenter la Secte de l'Origine. Il croisa d'autres cultivateurs, mais tous étaient pressés et ne se dérangèrent pas mutuellement.
 
@@ -38,11 +38,11 @@ Il se trouvait dans un lieu où personne ne le connaissait; il était dans un mo
 
 L'expression de Wang Lin resta neutre lorsqu'il se retourna pour découvrir une femme. Celle-ci portait une robe rouge semblable à un nuage écarlate. Ses cheveux noirs s'étalaient dans son dos, et le contraste entre le noir, le rouge et son visage légèrement pâle la rendait d'une beauté saisissante.
 
-Cette femme était très délicate, mais en ce jour de pluie et de tonnerre, elle dégageait un sentiment de solitude et d'impuissance. Un léger soupçon d'humiliation apparut clairement dans les yeux de Wang Lin.
+Cette femme était très délicate, mais en ce jour de pluie et de tonnerre, elle dégageait un sentiment de solitude et d'impuissance. Cette fragilité touchante qui transparaissait en elle n'échappa pas aux yeux de Wang Lin.
 
 Wang Lin dit calmement: « Je m'appelle Ceng Niu. »
 
-La femme en rouge regarda froidement Wang Lin et fronça les sourcils. Le nom de « Ceng Niu » lui était totalement inconnu. Si Wang Lin n'avait pas été un simple mortel, elle l'aurait déjà chassé de la montagne.
+La femme en rouge regarda froidement Wang Lin et fronça les sourcils. Le nom de « Ceng Niu » lui était totalement inconnu. Si elle n'avait pas vu que Wang Lin n'était qu'un simple mortel, elle l'aurait déjà chassé de la montagne.
 
 « Ceng Niu? » La femme se souvint qu'un des trente et un mortels ramenés du nord portait ce nom. Cependant, cet homme était d'un calme trop absolu, une chose qui ne pouvait être simulée.
 
@@ -72,21 +72,21 @@ La brise montagnarde sifflait avec la pluie. Hormis le vent et l'eau, tout étai
 
 « Lorsque je tentais de franchir le stade de l'Ascendant, Maître fut prêt à dépenser une quantité immense d'herbes de la secte, et alla même en échanger auprès d'autres sectes pour me raffiner une Pilule Trompeuse du Ciel qui me permit d'atteindre le stade Ascendant... »
 
-« Je me souviens encore de cette année-là. Maître m'emmena chasser parmi les étoiles. Il fallut trois ans avant qu'il ne m'aide à capturer un renard roux à six yeux pour en faire mon esprit de bête de vie... »
+« Je me souviens encore de cette année-là. Maître m'emmena chasser dans la brume stellaire. Il fallut trois ans avant qu'il ne m'aide à capturer un renard roux à six yeux pour en faire mon esprit de bête de vie... »
 
 Lu Yanfei parlait lentement et avec amertume. Elle se fichait de savoir si Wang Lin comprenait ou l'écoutait; elle regardait simplement l'horizon comme si elle murmurait pour elle-même.
 
 « Maître est mort. Désormais, je ne pourrai plus jamais le revoir... »
 
-Lu Yanfei avait beaucoup dit. Wang Lin resta en retrait et écouta silencieusement. Le temps passa et bientôt midi sonna. La pluie diminua progressivement jusqu'à cesser totalement.
+Lu Yanfei avait beaucoup dit. Wang Lin resta en retrait et écouta silencieusement. Le temps passa et bientôt l'après-midi arriva. La pluie diminua progressivement jusqu'à cesser totalement.
 
 Les nuages sombres s'éloignèrent et le ciel se dégagea. Un arc-en-ciel éclatant apparut dans le ciel, d'une beauté indescriptible.
 
-« La Secte du Dao Pourpre a causé la mort de Maître, puis leur jeune maître m'a envoyé un jade me demandant de devenir sa partenaire de culture. Si je refuse, ils rapporteront à la secte principale qu'ils entameront une guerre contre notre Secte de l'Origine en profitant de la mort de mon maître... La secte principale ne nous a jamais aimés. Si la Secte du Dao Pourpre insiste vraiment, il y a 80 % de chances que la secte principale accepte... »
+« La Secte du Dao Pourpre a causé la mort de Maître, puis leur jeune maître m'a envoyé un jade me demandant de devenir sa partenaire de culture. Si je refuse, ils profiteront de l'affaiblissement de la Secte de l'Origine après la mort de mon maître pour en référer à la secte principale et nous déclarer la guerre... La secte principale a toujours été partiale. Si la Secte du Dao Pourpre insiste vraiment, il y a 80 % de chances que la secte principale accepte... »
 
 Lu Yanfei se mordit la lèvre, une pointe d'amertume marquant son beau visage.
 
-« Le plus ridicule est que mes trois frères aînés n'ont pas osé intervenir et ont considéré que l'affaire était classée... Ils veulent que je me sacrifie pour apporter la paix à la Secte de l'Origine. Cependant, pensent-ils vraiment que la Secte de l'Origine sera en sécurité une fois que j'appartiendrai à Lu Hai... »
+« Le plus ridicule est que mes trois frères aînés n'ont pas osé intervenir et ont tacitement consenti à cette affaire... Ils veulent que je me sacrifie pour apporter la paix à la Secte de l'Origine. Cependant, pensent-ils vraiment que la Secte de l'Origine sera en sécurité une fois que j'appartiendrai à Lu Hai... »
 
 Deux larmes coulèrent des yeux de Lu Yanfei, glissèrent le long de ses joues et tombèrent au sol, se mêlant à la pluie. Elle regarda silencieusement l'arc-en-ciel à l'horizon et murmura: « Un arc-en-ciel apparaît toujours après la pluie, mais... l'arc-en-ciel de ma Secte de l'Origine est funeste... »
 
@@ -98,7 +98,7 @@ Elle regarda dans la direction où Wang Lin s'était éloigné.
 
 Wang Lin descendit la montagne et entra dans la cour, toujours sous son parapluie. Xu Yun était encore en pleine culture lorsque Wang Lin rentra dans la maison, et ses yeux s'illuminèrent.
 
-« Je savais déjà, d'après les souvenirs de Zhao Yu, que ce Système d'Étoiles de la Mer des Nuages serait très différent de l'Alliance ou de Luotian. Maintenant que j'ai écouté l'Ancien de la Secte de l'Origine, il semble qu'une majorité de cultivateurs utilisent des bêtes spirituelles... Leur alchimie est également unique! La Mer des Nuages était remplie de brouillard, et dans ce brouillard se trouvait un monde appartenant aux bêtes spirituelles... »
+« Je savais déjà, d'après les souvenirs de Zhao Yu, que ce Système d'Étoiles de la Mer des Nuages serait très différent des deux royaumes de la Pluie et du Tonnerre. Maintenant que j'ai écouté l'Ancien de la Secte de l'Origine, il semble qu'une majorité de cultivateurs utilisent des bêtes spirituelles... Leur alchimie est également unique! L'immense mer d'étoiles n'est que brume stellaire, et dans cette brume se trouve un monde appartenant aux bêtes spirituelles... »
 
 Wang Lin commença à réfléchir, surtout en repensant aux paroles de l'Ancien. Il existait bel et bien une pilule capable d'aider à atteindre le stade Ascendant!
 
@@ -116,10 +116,10 @@ Il ne pouvait oublier que, sans le Cristal Ascendant de Zhou Yi, il aurait été
 
 À ce moment-là, Xu Yun ouvrit les yeux et cracha du sang. Son visage était livide. Elle avait échoué une fois de plus à franchir le stade du Yang Corporel...
 
-Cet échec avait blessé son âme originelle. Xu Yun se mordit la lèvre avec un regard résolu. Elle frappa son sac de rangement et en sortit une pilule.
+Cet échec avait blessé son âme originelle. Xu Yun se mordit la lèvre avec un regard résolu. Elle frappa son sac de rangement et en sortit une pilule enrobée de cire.
 
-Elle écrasa la pilule sans hésiter, révélant une substance noire. Dès son apparition, la pilule libéra une riche énergie originelle, imprégnée d'une faible force d'âme.
+Elle écrasa la cire sans hésiter, révélant une pilule noire. Dès son apparition, la pilule libéra une riche énergie originelle, imprégnée d'une faible force d'âme.
 
-« Pilule de Séparation de l'Âme et de la Mort... » Xu Yun serra les dents, prête à l'avaler. À cet instant, une voix calme retentit:
+« Pilule de Mort de Séparation de l'Âme... » Xu Yun serra les dents, prête à l'avaler. À cet instant, une voix calme retentit:
 
 « Arrête! »

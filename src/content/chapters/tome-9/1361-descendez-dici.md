@@ -14,13 +14,13 @@ La lumière dorée et aveuglante brillait intensément, attirant l'attention de 
 
 « Ce qu'il disait était vrai. Le corps du Grand Ancien s'est effondré et même son âme originelle a été presque détruite, ne laissant que ce vestige d'âme! »
 
-« Qui est cette personne?! Le Grand Ancien est tombé et a été capturé par lui. L'Éclair Éternel est revenu affaibli... »
+« Qui est cette personne?! Le Grand Ancien est tombé et a été capturé par lui. Le tonnerre éternel est revenu affaibli... »
 
 Un tumulte éclata au sein du Clan du Tonnerre Dispersé. Le Grand Ancien était le pilier spirituel de tout le clan, leur ancêtre même. Ils n'avaient pas cru les paroles de Wang Lin auparavant, mais maintenant qu'ils avaient vu l'âme originelle du Grand Ancien, leurs yeux étaient emplis de terreur!
 
 Leurs esprits tremblaient, car leur pilier spirituel s'était totalement effondré! Si même le Grand Ancien était tombé, comment pourraient-ils résister?!
 
-Tout cela se produisit en un instant. Wang Lin se montrait totalement impitoyable envers les habitants du Royaume Extérieur. Lorsqu'il avait annoncé la capture du Grand Ancien, il savait qu'en raison de leur foi, les membres du clan ne le croiraient pas immédiatement, mais il pouvait utiliser cela pour planter une graine!
+Tout cela se produisit en un instant. Wang Lin se montrait totalement impitoyable envers les cultivateurs de l'extérieur du monde. Lorsqu'il avait annoncé la capture du Grand Ancien, il savait qu'en raison de leur foi, les membres du clan ne le croiraient pas immédiatement, mais il pouvait utiliser cela pour planter une graine!
 
 Puis, il briserait la formation d'un seul coup et, au moment où leurs esprits seraient ébranlés, il sortirait le Fouet de l'Âme. Il n'aurait pas besoin de s'en servir pour attaquer; la simple vue de l'âme originelle du Grand Ancien frapperait comme un coup impitoyable dans les cœurs du Clan du Tonnerre Dispersé!
 
@@ -56,51 +56,51 @@ La terre sainte trembla. Une formation l'entourait, mais elle se brisa et s'effo
 
 La terre sainte vibrait comme si des dragons s'agitaient sous la terre. Des bruits de craquements résonnèrent et des fissures se propagèrent partout. Les grondements provenant du temple sur la terre sainte devinrent encore plus assourdissants!
 
-L'Éclair Éternel à l'intérieur du temple avait été considérablement affaibli. Au moment où le dragon de tonnerre de Wang Lin brisa la formation, un fracas tonitruant jaillit de l'Éclair Éternel. Une tempête d'éclairs éclata dans le temple, le déchirant en morceaux qui se dispersèrent dans toutes les directions.
+Le tonnerre éternel à l'intérieur du temple avait été considérablement affaibli. Au moment où le dragon de tonnerre de Wang Lin brisa la formation, un fracas tonitruant jaillit du tonnerre éternel. Une tempête d'éclairs éclata dans le temple, le déchirant en morceaux qui se dispersèrent dans toutes les directions.
 
-À l'instant où le temple s'effondra, l'Éclair Éternel sembla réaliser qu'il était en danger et commença à rétrécir! Puis, il s'élança vers le vide infini!
+À l'instant où le temple s'effondra, le tonnerre éternel sembla réaliser qu'il était en danger et commença à rétrécir! Puis, il s'élança vers le vide infini!
 
-Un vortex géant apparut dans le vide lointain. Le vortex était enveloppé de tonnerre, et l'Éclair Éternel se dirigeait droit vers son centre!
+Un vortex géant apparut dans le vide lointain. Le vortex était enveloppé de tonnerre, et le tonnerre éternel se dirigeait droit vers son centre!
 
-Voyant que l'Éclair Éternel allait s'échapper, Wang Lin se leva brusquement et le rattrapa en trois enjambées.
+Voyant que le tonnerre éternel allait s'échapper, Wang Lin se leva brusquement et le rattrapa en trois enjambées.
 
-Il se trouvait actuellement sous le vortex géant, et la majeure partie de l'Éclair Éternel était déjà entrée à l'intérieur. Seule une fraction restait encore à l'extérieur.
+Il se trouvait actuellement sous le vortex géant, et la majeure partie du tonnerre éternel était déjà entrée à l'intérieur. Seule une fraction restait encore à l'extérieur.
 
-Sans hésiter, Wang Lin tendit la main pour saisir l'Éclair Éternel qui s'enfuyait, puis il tira de toutes ses forces!
+Sans hésiter, Wang Lin tendit la main pour saisir le tonnerre éternel qui s'enfuyait, puis il tira de toutes ses forces!
 
 « Descendez d'ici! »
 
 Un rugissement tonitruant retentit et un grondement jaillit du vortex, accompagné d'un impact puissant. Wang Lin cracha du sang; il était incapable de résister à la puissance intense émanant du vortex!
 
-Sous cette force, la majeure partie de l'Éclair Éternel fut aspirée dans le vortex, ne laissant que quelques centaines de pieds à l'extérieur. Le corps de Wang Lin fut également entraîné, comme s'il allait être aspiré dans le vortex lui aussi!
+Sous cette force, la majeure partie du tonnerre éternel fut aspirée dans le vortex, ne laissant que quelques centaines de pieds à l'extérieur. Le corps de Wang Lin fut également entraîné, comme s'il allait être aspiré dans le vortex lui aussi!
 
-L'expression de Wang Lin était féroce. Il avait tout mis en œuvre, collaborant finalement avec Daoïste Esprit Dispersé pour tuer le Grand Ancien du clan. Tout cela n'avait qu'un but: absorber cet Éclair Éternel. Pourtant, au moment le plus critique, l'Éclair allait lui échapper!
+L'expression de Wang Lin était féroce. Il avait tout mis en œuvre, collaborant finalement avec Daoïste Esprit Dispersé pour tuer le Grand Ancien du clan. Tout cela n'avait qu'un but: absorber ce tonnerre éternel. Pourtant, au moment le plus critique, le tonnerre allait lui échapper!
 
-Si l'éclair s'était enfui à travers les étoiles, Wang Lin aurait pu le poursuivre, mais ce qui se passait dépassait son imagination. L'aura émanant du vortex lui était inconnue, et quelque chose en son sein fit naître une pointe de peur dans son cœur!
+Si le tonnerre s'était enfui à travers les étoiles, Wang Lin aurait pu le poursuivre, mais ce qui se passait dépassait son imagination. L'aura émanant du vortex lui était inconnue, et quelque chose en son sein fit naître une pointe de peur dans son cœur!
 
 Ce sentiment lui glaça le sang, semblable à ce que Daoïste Esprit Dispersé avait ressenti en découvrant le prétendu Royaume Céleste pour la première fois!
 
-« Cet Éclair Éternel est ma cible, personne ne pourra me le voler! Je tuerai les Célestes et les Dieux s'ils essaient! » Une volonté défiante brûlait dans le cœur de Wang Lin. Après avoir été témoin de la détermination sans borne d'innombrables êtres dans les 7 Millions de Mondes, il ne permettrait pas à ce qui se trouvait de l'autre côté du vortex de lui dérober son butin!
+« Ce tonnerre éternel est ma cible, personne ne pourra me le voler! Je tuerai les Célestes et les Dieux s'ils essaient! » Une volonté défiante brûlait dans le cœur de Wang Lin. Après avoir été témoin de la détermination sans borne d'innombrables êtres dans les 7 Millions de Mondes, il ne permettrait pas à ce qui se trouvait de l'autre côté du vortex de lui dérober son butin!
 
-« Corps de Dieu Ancien, étends-toi! » Alors qu'il s'agrippait à l'Éclair Éternel en train d'être aspiré, les étoiles divines entre ses sourcils tournèrent rapidement. En un instant, il grandit pour atteindre près de 10 000 pieds de haut, revêtant sa véritable forme de Dieu Ancien!
+« Corps de Dieu Ancien, étends-toi! » Alors qu'il s'agrippait au tonnerre éternel en train d'être aspiré, les étoiles divines entre ses sourcils tournèrent rapidement. En un instant, il grandit pour atteindre près de 10 000 pieds de haut, revêtant sa véritable forme de Dieu Ancien!
 
 Un Dieu Ancien de 10 000 pieds possédait une puissance capable de briser les cieux. Les bras de Wang Lin s'allongèrent également. Le sang dans son corps circula avec frénésie et son cœur battait plus vite pour accroître le flux sanguin, lui conférant une force décuplée!
 
 Les étoiles divines formèrent une tempête en tournant entre ses sourcils. L'aura du Dieu Ancien déferla sur chaque centimètre de son corps, créant un tourbillon indescriptible!
 
-Cette tempête fusionna avec ses battements de cœur pour former un rugissement qui ébranlait le ciel! Tout cela généra une force explosive sur le visage de Wang Lin. Les veines de son visage gonflèrent alors qu'il tirait violemment vers le bas!
+Cette tempête fusionna avec ses battements de cœur pour former un rugissement qui ébranlait le ciel! Tout cela se mua en une force explosive qui se déversa dans les mains de Wang Lin. Les veines de tout son corps gonflèrent et son visage se tordit de férocité alors qu'il tirait violemment vers le bas!
 
 « Descends!!! »
 
-Des grondements tonitruants résonnèrent violemment et le corps de Wang Lin recula comme s'il était emporté par une force folle. Il parvint à forcer l'Éclair Éternel à sortir de 1 000 pieds du vortex!
+Des grondements tonitruants résonnèrent violemment et le corps de Wang Lin recula comme s'il était emporté par une force folle. Il parvint à forcer le tonnerre éternel à sortir de 1 000 pieds du vortex!
 
-Une autre force puissante jaillit du vortex, s'agrippant à l'éclair pour lutter contre Wang Lin!
+Une autre force puissante jaillit du vortex, s'agrippant au tonnerre pour lutter contre Wang Lin!
 
 « Je ne permettrai à personne de me voler cela! » L'expression de Wang Lin était sauvage; chaque fibre de son corps était en mouvement et son cœur battait à un rythme terrifiant. Les étoiles entre ses sourcils tournaient si vite qu'il était impossible de les distinguer, même avec le Sens Divin!
 
 Une aura de Dieu Ancien encore plus puissante émana de lui, faisant trembler le monde. Un faible rugissement de colère provint du vortex!
 
-Grâce à cette traction, Wang Lin parvint à arracher l'Éclair Éternel de quelques milliers de pieds supplémentaires au vortex!
+Grâce à cette traction, Wang Lin parvint à arracher le tonnerre éternel de quelques milliers de pieds supplémentaires au vortex!
 
 Cette scène laissa les innombrables cultivateurs du Clan du Tonnerre Dispersé totalement stupéfaits!
 

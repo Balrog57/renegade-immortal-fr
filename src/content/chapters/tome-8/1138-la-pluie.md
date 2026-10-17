@@ -26,7 +26,7 @@ Un vieil homme en robe taoïste était assis dans le temple surplombant le bassi
 
 Quatre personnes étaient agenouillées devant lui: trois hommes et une femme. Hormis un homme et la femme qui étaient d'âge mûr, les deux autres étaient de vieux hommes.
 
-Ils étaient prosternés, le visage marqué par le chagrin, mais sans aucun manque de respect. La femme, d'une grande beauté, se mordait la lèvre inférieure tandis que des larmes s'échappaient de ses yeux pour mouiller le sol.
+Ils étaient agenouillés, le visage marqué par le chagrin, mais sans aucun manque de respect. La femme, d'une grande beauté, se mordait la lèvre inférieure tandis que des larmes s'échappaient de ses yeux pour mouiller le sol.
 
 Le regard du vieil homme était empreint de bienveillance, mais aussi d'une profonde amertume alors qu'il disait lentement: « La vie de votre Maître touche à sa fin. Ne soyez pas trop accablés par la douleur... Tout cultivateur devra un jour faire face à ce moment... Après mon départ, la Secte de l'Origine reposera sur vous quatre. »
 
@@ -48,21 +48,21 @@ En voyant cela, la femme éclata en sanglots. Les trois autres serrèrent les de
 
 Sans regarder sa main, le vieil homme fit un geste vers le vide. Une fissure spatiale menant à un espace de stockage apparut. Cette faille était pourpre et, dès son ouverture, une aura terrifiante s'en dégagea.
 
-Peu après, la tête d'un gigantesque python pourpre émergea lentement. La tête du reptile mesurait des dizaines de pieds de large, et sa simple apparition emplit le temple d'une pression écrasante.
+Peu après, la tête d'un gigantesque python violet sombre émergea lentement. La tête du reptile mesurait des dizaines de pieds de large, et sa simple apparition emplit le temple d'une pression écrasante.
 
 Toutefois, ce python semblait épuisé. Sa tête tourna autour du vieil homme; ses yeux reflétaient la tristesse et l'attachement alors que sa langue effleurait le vieillard.
 
 « Après ma mort, ce Python aux Yeux Pourpres de rang 5 deviendra la Bête de Secte de notre Secte de l'Origine. Vous tous... prenez-en soin... » Le visage du vieil homme n'était plus pâle mais soudainement rouge vif; il semblait regagner de l'énergie. Ce n'était pourtant que son dernier sursaut, le signe que sa fin était imminente.
 
-« Maintenant, laissez votre Maître utiliser ses dernières forces pour lancer le Grand Sortilège de Bienveillance Spirituelle et trouver un enfant partenaire spirituel pour la Secte de l'Origine... À vrai dire, j'ai été choisi par mon propre maître de cette façon. À l'époque, je n'étais qu'un simple jeune de village. » Un sourire nostalgique apparut sur ses lèvres tandis que ses mains formaient un sceau et qu'il fermait les yeux.
+« Maintenant, laissez votre Maître utiliser ses dernières forces pour lancer le Grand Sortilège de Bienveillance Spirituelle et trouver un enfant partenaire spirituel pour la Secte de l'Origine... À vrai dire, j'ai été choisi de cette façon par votre patriarche. À l'époque, je n'étais qu'un simple jeune de village. » Un sourire nostalgique apparut sur ses lèvres tandis que ses mains formaient un sceau et qu'il fermait les yeux.
 
-Les quatre disciples contemplaient leur maître avec douleur. Ils savaient que tous les chefs de secte passés, qui n'étaient pas morts au combat, avaient utilisé leurs dernières forces pour ce sortilège. Le but était de trouver sur le continent de Mo Luo un individu qui deviendrait un pilier pour la Secte de l'Origine dans le futur.
+Les quatre disciples contemplaient leur maître avec douleur. Ils savaient que tous les chefs de secte passés, à moins d'être morts loin de leur terre natale, avaient utilisé leurs dernières forces pour ce sortilège. Le but était de trouver sur le continent de Mo Luo un individu qui deviendrait un pilier pour la Secte de l'Origine dans le futur.
 
 Ce sortilège était d'un grand mystère; personne ne pouvait en expliquer précisément le mécanisme. Même le vieil homme ne le comprenait pas totalement, sachant seulement qu'il s'agissait d'une technique ancestrale transmise depuis des générations.
 
 Le sortilège ne garantissait jamais le succès. En réalité, au fil des millénaires, chaque fois qu'un chef de la Secte de l'Origine approchait de la mort, il tentait cette invocation. Sur toutes ces années, elle n'avait réussi que deux fois... Tous les autres échecs indiquaient qu'aucun talent correspondant n'existait sur le continent de Mo Luo.
 
-La dernière trace de vitalité et d'énergie originelle du vieil homme s'embrasa. Une flamme bleue enveloppa son corps, puis il commença à se dissiper devant ses quatre disciples.
+La dernière trace de vitalité et d'âme originelle du vieil homme s'embrasa. Une flamme bleue enveloppa son corps, puis il commença à se dissiper devant ses quatre disciples.
 
 Durant ce processus, son Sens Divin devint exceptionnellement vaste, comme s'il avait touché une loi universelle. Son Sens Divin embrassa tout le continent pour traquer l'enfant partenaire spirituel.
 
@@ -70,7 +70,7 @@ Il chercha encore et encore, mais ne trouva aucune trace de lui. Le vieil homme 
 
 À cet instant, sous les flammes bleues dévorantes, il ne restait plus que sa tête. Il était sur le point de disparaître totalement.
 
-Cependant, à ce moment précis, son Sens Divin perçut une lueur émanant de la pluie dans la partie nord du continent de Mo Luo. S'il prêtait attention à cette jungle, c'était parce qu'elle abritait la porte vers le Système Stellaire de l'Alliance.
+Cependant, à ce moment précis, son Sens Divin perçut une lueur émanant de la pluie dans la partie nord du continent de Mo Luo. S'il prêtait attention à cette jungle, c'était parce qu'elle abritait la formation de téléportation menant au Système Stellaire de l'Alliance.
 
 Il vit clairement la lumière du transfert s'illuminer et, simultanément, une silhouette blanche en émergea lentement. Ses cheveux blancs flottaient dans la nuit obscure, et même la pluie semblait frémir devant lui. Plus étrange encore, le tonnerre grondant semblait craindre cet individu et se dispersa soudainement.
 
@@ -92,9 +92,9 @@ Habité par un immense regret, il lutta pour articuler deux derniers mots avant 
 
 « Cheveux blancs... »
 
-Les quatre disciples restèrent pétrifiés alors que leur maître s'éteignait. Les quatre mots laissés par leur maître les frappèrent de stupeur, mais ils ne comprirent pas pourquoi le visage du vieillard avait été empreint d'une telle terreur.
+Les quatre disciples restèrent pétrifiés alors que leur maître s'éteignait. Les quatre mots laissés par leur maître les frappèrent de stupeur, mais ils ne comprirent pas pourquoi le visage du vieillard avait été empreint d'un tel choc à la fin.
 
-Au sein de la Secte de l'Origine, la cloche résonna et le bassin fut envahi par les cris. Au son de la cloche, il n'y eut que tristesse, regret, confusion et panique...
+Au sein de la Secte de l'Origine, la cloche résonna et le bassin fut envahi par les pleurs. Au son de la cloche, il n'y eut que tristesse, regret, confusion et panique...
 
 « Tous les disciples de la Secte de l'Origine, rendez-vous dans la partie nord du continent de Mo Luo! Cherchez toute personne ayant des capacités de culture, quel que soit son âge, en particulier si elle a... les cheveux blancs! »
 

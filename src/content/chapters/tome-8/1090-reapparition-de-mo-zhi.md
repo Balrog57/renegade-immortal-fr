@@ -16,13 +16,13 @@ Cependant, en raison de la puissance des Quatre Sectes Divines et d'autres raiso
 
 L'apparition d'un nouvel Empereur Divin suffisait à provoquer une immense fluctuation de l'énergie originelle. Pour les puissants cultivateurs, c'était un phénomène qu'ils pouvaient aisément ressentir.
 
-À cet instant précis, alors que Wang Lin achevait sa première transformation, l'énergie originelle de tout le Système Stellaire de l'Alliance commença à onduler, prenant pour centre la Secte du Oiseau Vermillon.
+À cet instant précis, alors que Wang Lin achevait sa première transformation, l'énergie originelle de tout le Système Stellaire de l'Alliance commença à onduler, prenant pour centre la Secte de l'Oiseau Vermillon.
 
 Luotian occupait les régions occidentales et septentrionales du Système Stellaire de l'Alliance. Les messagers du Temple Céleste du Tonnerre étaient partout. Après avoir annexé avec succès ces deux régions, le Temple Céleste du Tonnerre y exerçait désormais une domination suprême.
 
 Des palais noirs, semblables à de petites collines, flottaient parmi les étoiles en avançant lentement. Une multitude de cultivateurs de Luotian entouraient chaque palais.
 
-Au moins cent palais formaient ainsi une armée imposante, progressant vers les diverses forces de l'Alliance situées dans la région centrale.
+Au moins plusieurs centaines de palais formaient ainsi une armée imposante, progressant vers les diverses forces de l'Alliance situées dans la région centrale.
 
 Malgré leur nombre, aucun bruit ne se faisait entendre, si ce n'est le sifflement des épées volantes. Après des années de combat, les cultivateurs de Luotian avaient changé; leur immaturité avait laissé place à une aura de meurtre féroce.
 
@@ -30,7 +30,7 @@ Malgré leur nombre, aucun bruit ne se faisait entendre, si ce n'est le siffleme
 
 Pourtant, à l'intérieur d'un palais situé à l'arrière, dont la taille avoisinait dix fois celle des autres, Maître Yan Leizi ouvrit soudainement les yeux alors qu'il était en méditation assidue.
 
-Lorsqu'il ouvrit les yeux, les dix autres anciens présents dans le palais firent de même, leurs regards brillant d'une lueur vive.
+Lorsqu'il ouvrit les yeux, la dizaine d'autres anciens présents dans le palais firent de même, leurs regards brillant d'une lueur vive.
 
 L'un des anciens déclara d'une voix lente: « Cette fluctuation de l'énergie originelle provient de la partie orientale de l'Alliance... »
 
@@ -38,7 +38,7 @@ L'un des anciens déclara d'une voix lente: « Cette fluctuation de l'énergie o
 
 Maître Yan Leizi réfléchit et secoua la tête. « Cette fluctuation n'est pas la naissance d'un trésor puissant... La région orientale appartient aux Quatre Sectes Divines... Serait-ce possible... qu'un nouvel Empereur Divin soit apparu? » Les yeux de Maître Yan Leizi s'illuminèrent. Il n'en était pas tout à fait certain; après tout, il avait quitté l'Alliance depuis longtemps.
 
-« Les Quatre Sectes Divines? Si l'Alliance de Culture n'est pas de taille face à nous, une si petite secte s'effondrerait simplement sous la pression de mon armée de Luotian! » Un vieil homme aux cheveux roux, à l'intérieur du palais, afficha un regard empreint de mépris et de fierté.
+« Les Quatre Sectes Divines? Si l'Alliance de Culture n'est pas de taille face à nous, une si petite secte s'effondrerait simplement sous la pression de notre armée de Luotian! » Un vieil homme aux cheveux roux, à l'intérieur du palais, afficha un regard empreint de mépris et de fierté.
 
 Maître Yan Leizi regarda le vieillard roux et dit: « Les Quatre Sectes Divines ne sont certainement pas ce que tu imagines. Cette fluctuation de l'énergie originelle est probablement la naissance d'un nouvel Empereur Divin. Je me demande simplement lequel! »
 
@@ -48,7 +48,7 @@ Une autre personne ressentit cette fluctuation: un vieil homme vêtu de noir. Il
 
 Il leva immédiatement la tête et scruta l'horizon. Son regard semblait capable de percer les confins du système stellaire, et ses yeux s'illuminèrent.
 
-« Le nouvel Empereur Divin des Quatre Sectes Divines... Cette fluctuation contient une trace d'énergie originelle de feu; il doit donc s'agir du nouvel Empereur Divin du Oiseau Vermillon. Dans ce cas, la pièce devient bien plus intéressante... Maître Éternel, il est impossible que vous ne fassiez pas votre apparition lorsque l'Alliance sombrera dans le chaos! »
+« Le nouvel Empereur Divin des Quatre Sectes Divines... Cette fluctuation contient une trace d'énergie originelle de feu; il doit donc s'agir du nouvel Empereur Divin de l'Oiseau Vermillon. Dans ce cas, la pièce devient bien plus intéressante... Maître Éternel, il est impossible que vous ne fassiez pas votre apparition lorsque l'Alliance sombrera dans le chaos! »
 
 Dans la partie sud de l'Alliance, au plus profond de la Secte des Cadavres, se trouvait un immense cercueil noir. Des chaînes l'entouraient selon une structure octogonale, le reliant à un autre cercueil.
 
@@ -60,7 +60,7 @@ Une multitude de cercueils remplissaient cette zone, formant une sorte de toile.
 
 Alors que sa voix résonnait, on entendit le bruit de griffes grattant les couvercles des cercueils. Ce son était tel qu'on aurait dit que quelqu'un vous déchirait le cœur; des fissures apparurent même dans l'espace environnant.
 
-Les quatre grandes puissances des forces restantes de l'Alliance ressentirent également cette fluctuation. La plus puissante d'entre elles, le pays de culture de rang 8 de Chu Yu, contrôlait des dizaines de planètes disposées selon une formation.
+Les quatre grandes puissances des forces restantes de l'Alliance ressentirent également cette fluctuation. La plus puissante d'entre elles, le pays de culture de rang 8 de Chu Yun, contrôlait des dizaines de planètes disposées selon une formation.
 
 La Secte Chu Yun occupait la planète principale et régnait en maître sur le pays de Chu Yun.
 
@@ -68,7 +68,7 @@ Dans la pièce secrète de la Secte Chu Yun siégeait un vieil homme à l'appare
 
 À peine eut-il parlé que des ondulations apparurent devant lui, et un jeune homme chauve vêtu de vert en sortit. Il joignit les mains devant le vieil homme et dit respectueusement: « Mo Zhi salue son maître. »
 
-« Un nouvel Empereur Divin est apparu dans les Quatre Sectes Divines. Va chercher quatre pilules célestes de rang 5 supérieur, cent pilules célestes ordinaires, mille trésors célestes... et aussi l'esprit que j'ai affiné il y a cinq ans en guise de cadeau! »
+« Un nouvel Empereur Divin est apparu dans les Quatre Sectes Divines. Va chercher cinq pilules célestes de qualité suprême, cent pilules célestes ordinaires, mille trésors célestes... et aussi l'esprit que j'ai affiné il y a cinq ans en guise de cadeau! »
 
 « Cet esprit... » Mo Zhi leva les yeux vers le vieil homme avant de s'interrompre et de hocher la tête.
 
@@ -76,15 +76,15 @@ Dans la pièce secrète de la Secte Chu Yun siégeait un vieil homme à l'appare
 
 « Un vieil ami? » Mo Zhi avait très peu d'amis, mais il ne posa pas de question supplémentaire et se retira.
 
-À cet instant, au sein des Quatre Sectes Divines, des rayons de lumière fonçaient vers la Secte Divine du Oiseau Vermillon. Les flammes y rugissaient et les acclamations criant « Empereur Divin » atteignaient leur paroxysme.
+À cet instant, au sein des Quatre Sectes Divines, des rayons de lumière fonçaient vers la Secte Divine de l'Oiseau Vermillon. Les flammes y rugissaient et les acclamations criant « Empereur Divin » atteignaient leur paroxysme.
 
 Wang Lin prit une profonde inspiration en contemplant le ciel étoilé embrasé par le feu et le tonnerre.
 
-Non loin de lui, l'Empereur Divin du Oiseau Vermillon était transporté par l'excitation et éclata de rire: « Bien! Ma Secte Divine du Oiseau Vermillon a un nouvel Empereur Divin. Je peux enfin partir en souriant! »
+Non loin de lui, l'Empereur Divin de l'Oiseau Vermillon était transporté par l'excitation et éclata de rire: « Bien! Ma Secte Divine de l'Oiseau Vermillon a un nouvel Empereur Divin. Je peux enfin partir en souriant! »
 
 Il leva sa main droite vers le vide. Une fissure apparut devant lui et trois rayons de lumière s'en échappèrent!
 
-« Wang Lin, en tant qu'Empereur Divin du Oiseau Vermillon, tu as besoin de trois choses. La première est la cape de l'Empereur Divin du Oiseau Vermillon, transmise de génération en génération! » Le vieil homme agita sa main et un rayon de lumière jaillit vers Wang Lin.
+« Wang Lin, en tant qu'Empereur Divin de l'Oiseau Vermillon, tu as besoin de trois choses. La première est la cape de l'Empereur Divin de l'Oiseau Vermillon, transmise de génération en génération! » Le vieil homme agita sa main et un rayon de lumière jaillit vers Wang Lin.
 
 La lumière se mua en une cape blanche devant lui. Neuf oiseaux vermillon l'entouraient, dégageant une aura majestueuse.
 
@@ -92,15 +92,15 @@ La lumière se mua en une cape blanche devant lui. Neuf oiseaux vermillon l'ento
 
 Wang Lin toucha la cape de sa main droite. Celle-ci se transforma en lumière et enveloppa Wang Lin. Lorsque l'éclat s'estompa, Wang Lin la portait déjà.
 
-Ses cheveux étaient désormais blancs et il arborait une armure cramoisie. Avec cette cape sur les épaules, il dégageait une aura singulière.
+Ses cheveux étaient déjà blancs et il arborait déjà une armure cramoisie. Avec cette cape sur les épaules, il dégageait une aura singulière.
 
 Wang Lin ressentit clairement un sentiment d'ancienneté émanant de cette cape, comme si elle existait depuis l'éternité.
 
-« La deuxième chose est l'insigne des générations d'Empereurs Divins du Oiseau Vermillon! Le Saint Sceau du Oiseau Vermillon! » Le vieil Empereur Divin agita la main et le second rayon de lumière vola vers Wang Lin.
+« La deuxième chose est l'insigne des générations d'Empereurs Divins de l'Oiseau Vermillon! Le Jeton Saint de l'Oiseau Vermillon! » Le vieil Empereur Divin agita la main et le second rayon de lumière vola vers Wang Lin.
 
-Wang Lin le saisit, et la lumière se transforma en un sceau en forme de flamme. Il n'avait que la taille de sa paume, mais en le tenant, Wang Lin pouvait ressentir la puissante énergie de feu qu'il contenait ainsi qu'une aura ancestrale.
+Wang Lin le saisit, et la lumière se transforma en un jeton en forme de flamme. Il n'avait que la taille de sa paume, mais en le tenant, Wang Lin pouvait ressentir la puissante énergie de feu qu'il contenait ainsi qu'une aura ancestrale.
 
-« La troisième chose est l'objet le plus important de ma Secte Divine du Oiseau Vermillon: le Trésor Saint! » Le troisième rayon de lumière tomba dans la main de Wang Lin et se changea en une pierre blanche. En observant attentivement le Trésor Saint du Oiseau Vermillon, Wang Lin vit immédiatement d'innombrables runes scintiller sans cesse sur la pierre.
+« La troisième chose est l'objet le plus important de ma Secte Divine de l'Oiseau Vermillon: le Trésor Saint! » Le troisième rayon de lumière tomba dans la main de Wang Lin et se changea en une pierre blanche. En observant attentivement le Trésor Saint de l'Oiseau Vermillon, Wang Lin vit immédiatement d'innombrables runes scintiller sans cesse sur la pierre.
 
 À chaque éclat des runes, la chaleur de la pierre augmentait. On aurait dit que ces runes n'avaient cessé de briller depuis des éons. Le regard de Wang Lin devint sérieux.
 
@@ -110,7 +110,7 @@ Il percevait une aura très diffuse émanant de cette pierre... une aura similai
 
 « Le sang du Trésor Saint se trouve toujours entre les sourcils de Qing Lin. Tu pourras l'enlever à tout moment! » Le vieil Empereur Divin regarda Wang Lin avec une pointe de soulagement.
 
-« Ces trois choses ont été transmises par le premier Empereur Divin du Oiseau Vermillon. Seule chaque génération d'Empereur Divin peut les transmettre à la suivante. Tu dois les garder en sécurité... » Le vieil Empereur Divin peinait à se redresser. Son corps était devenu très faible, et le simple fait de se tenir debout lui était douloureux.
+« Ces trois choses ont été transmises par le premier Empereur Divin de l'Oiseau Vermillon. Seule chaque génération d'Empereur Divin peut les transmettre à la suivante. Tu dois les garder en sécurité... » Le vieil Empereur Divin peinait à se redresser. Son corps était devenu très faible, et le simple fait de se tenir debout lui était douloureux.
 
 Cependant, l'excitation et le soulagement dans ses yeux lui permettaient d'oublier la douleur. Lorsqu'il parvint à se lever, il fit un signe de la main à Wang Lin, le visage empreint de bonté.
 
@@ -118,6 +118,6 @@ Wang Lin marcha aux côtés du vieil Empereur Divin tout en réfléchissant. Le 
 
 Wang Lin regarda le vieil Empereur Divin. Il ouvrit la bouche pour dire quelque chose, mais finit par se taire et hocha la tête. Il lança un regard chargé de sens au vieillard avant de se retourner et de s'éloigner.
 
-L'armure rouge, la cape blanche, les cheveux blancs et le tatouage blanc du Oiseau Vermillon conféraient à Wang Lin un tempérament unique. Il disparut lentement à l'horizon.
+L'armure rouge, la cape blanche, les cheveux blancs et le tatouage blanc de l'Oiseau Vermillon conféraient à Wang Lin un tempérament unique. Il disparut lentement à l'horizon.
 
 Le vieil homme ferma les yeux et commença sa culture.

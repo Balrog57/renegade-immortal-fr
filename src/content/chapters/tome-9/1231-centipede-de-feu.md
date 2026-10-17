@@ -26,7 +26,7 @@ Quatre chemins existaient dans le Royaume du Brouillard des Bêtes du Chaos, et 
 
 La rumeur disait qu'ils avaient été ouverts par la Secte de Dieu il y a des éons. Ils avaient employé une méthode spéciale pour garantir la sécurité de ces quatre voies, afin que ceux qui les empruntaient ne soient pas attaqués par les bêtes féroces.
 
-Toutefois, hormis les disciples des sectes de rang 8 et ceux ayant obtenu un jade de guidage, personne n'ignorait l'existence de ces chemins. Les autres ne pouvaient que s'élancer tête baissée dans le Royaume du Brouillard des Bêtes du Chaos, avec pour seule chance d'atteindre la région de rang 8 de ne pas mourir en chemin.
+Toutefois, hormis les disciples des sectes de rang 8 et ceux ayant obtenu un jade de guidage, personne ne connaissait l'existence de ces chemins. Les autres ne pouvaient que s'élancer tête baissée dans le Royaume du Brouillard des Bêtes du Chaos, avec pour seule chance d'atteindre la région de rang 8 de ne pas mourir en chemin.
 
 À cet instant, sur le troisième chemin du Royaume du Brouillard des Bêtes du Chaos, quatre cultivateurs se précipitaient. Celui qui menait la marche était un vieil homme vêtu d'une robe taoïste noire et blanche, arborant une chevelure gris argenté. Bien qu'âgé, son regard était vif comme l'éclair. Le brouillard devant lui reculait souvent sous la seule force de sa vue.
 
@@ -58,9 +58,9 @@ Les grondements tonitruants de l'empreinte de la paume plongèrent le calme Roya
 
 L'expression de Wang Lin resta imperturbable et sa vitesse ne faiblit pas alors qu'il suivait la trace de la paume. Son sens divin se déploya pour saturer la zone. Il détecta une quantité massive de bêtes féroces au sein de ce brouillard.
 
-C'est à cet instant qu'un rugissement, capable de repousser la brume, retentit devant lui. C'était une centipède rouge longue de milliers de pieds, couverte de poils et d'une férocité extrême. Elle surgit du brouillard et chargea Wang Lin.
+C'est à cet instant qu'un rugissement, capable de repousser la brume, retentit devant lui. C'était une centipède rouge longue d'environ mille pieds, couverte de poils et d'une férocité extrême. Elle surgit du brouillard et chargea Wang Lin.
 
-Cette centipède était plutôt laide, et les deux pinces géantes sur les côtés de sa mâchoire brillaient d'un éclat froid. Son corps massif se mouvait avec l'agilité d'un poisson en pleine charge.
+Cette centipède était plutôt laide, et les deux pinces géantes sur les côtés de sa mâchoire brillaient d'un éclat froid. Son corps massif ondulait et, avant même qu'elle ne s'approche, un vent à l'odeur fétide balayait l'air.
 
 Dès l'apparition de la créature, les bêtes environnantes détectées par le sens divin de Wang Lin cessèrent de rugir et se dispersèrent. C'était comme si cette centipède était le roi de la zone et que sa présence imposait la retraite aux autres bêtes.
 

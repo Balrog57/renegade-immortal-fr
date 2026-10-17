@@ -60,7 +60,7 @@ La première impression que lui inspira cette femme fut un choc immense. Un sent
 
 « Elle n'est pas humaine! » Pour une raison inconnue, cette pensée surgit brusquement dans l'esprit de Wang Lin!
 
-Après un long silence, Wang Lin recula lentement. Il avançait avec prudence, les yeux plissés. Sa main droite était posée négligemment sur le côté, prête à saisir son épée de sang.
+Après un long silence, Wang Lin recula lentement. Il reculait avec prudence, les yeux mi-clos. Sa main droite était posée négligemment sur le côté, prête à saisir son épée de sang.
 
 La femme ne bougea pas d'un pouce et se contenta de contempler silencieusement Wang Lin jusqu'à ce qu'il disparaisse au loin.
 

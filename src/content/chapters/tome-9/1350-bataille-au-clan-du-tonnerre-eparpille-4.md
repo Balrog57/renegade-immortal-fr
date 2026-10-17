@@ -40,7 +40,7 @@ Tandis que les grondements tonitruants résonnaient, la sphère de l'Ancien se c
 
 Tout cela se produisit en un instant. Alors que les deux hommes compressaient le tonnerre, un changement titanesque survint. Le monde sembla se déchirer en deux, chaque moitié étant attirée vers l'un d'eux!
 
-Deux forces de tonnerre distinctes jaillirent soudainement de cette faille mondiale! Ce que détenait le Clan du Tonnerre Dispersé était l'Éclair Éternel, l'essence du tonnerre apparue du néant aux temps anciens!
+Deux forces de tonnerre distinctes jaillirent soudainement de cette faille mondiale! Ce que détenait le Clan du Tonnerre Dispersé était l'Éclair Éternel, l'essence du tonnerre descendue du ciel et de la terre il y a d'innombrables éons!
 
 Les yeux de l'Ancien brillèrent d'une lueur étrange et il bondit soudainement. Il chargea Wang Lin avec le tonnerre compressé 5 000 000 de fois!
 
@@ -88,7 +88,7 @@ Plus important encore, une lumière émanait du talisman des 7 Millions de Monde
 
 De loin, il était impossible de distinguer Wang Lin; on ne percevait que cette gigantesque silhouette de lumière absorbant toute la clarté environnante!
 
-Le sort de défense le plus puissant du Maître du Dao Rêve Bleu: le Bouclier d'Ombre Lumineuse!
+Le sort de défense le plus puissant du Maître du Dao Rêve Bleu: le Bouclier de Lumière et d'Ombre!
 
 Dès que la silhouette apparut, la seconde onde de choc percuta le bouclier. La silhouette lumineuse trembla violemment et l'éclat devint encore plus intense, illuminant le monde entier!
 
@@ -104,7 +104,7 @@ L'Ancien, en reculant, agita la main pour résister à la puissance des ondes. C
 
 L'apparition de la silhouette lumineuse fut un coup terrible pour son esprit.
 
-« Ceci... C'est le Bouclier d'Ombre Lumineuse du Maître du Dao Rêve Bleu!!! Serait-ce le Maître du Dao Rêve Bleu qui cherche à me tuer?! »
+« Ceci... C'est le Bouclier de Lumière et d'Ombre du Maître du Dao Rêve Bleu!!! Serait-ce le Maître du Dao Rêve Bleu qui cherche à me tuer?! »
 
 Les ondes réfléchies se précipitèrent vers lui, fusionnant avec l'onde de choc qui le frappait déjà. C'était comme si l'Ancien devait désormais encaisser toute la force de l'effondrement.
 
@@ -118,4 +118,4 @@ C'était l'Ancien en chef du Clan du Tonnerre Dispersé, mais il était plus pui
 
 Ses vêtements étaient en lambeaux et un trou percé par l'épée de sang marquait sa poitrine. Une fissure barrait la marque entre ses sourcils, causée par le Royaume Ji. Son corps était couvert de blessures dues à l'essence de tonnerre de Wang Lin, et son âme originelle était également endommagée par les ondes de choc!
 
-« Tu es mort! Avec ma vitalité infinie du cinquième Fléau Céleste, avec mon statut d'esclave de l'Éclair Éternel... j'ouvre le monde ancien et j'invoque l'ancien... Dragon du Tonnerre!!! »
+« Tu es mort! Avec ma vitalité infinie du cinquième Fléau Céleste, au nom du Saint Éclair Éternel dont je suis l'esclave... j'ouvre le Royaume du Tonnerre Antique et j'invoque, des éons passés... le Dragon du Tonnerre Antique!!! »

@@ -52,11 +52,11 @@ Un grondement de tonnerre secoua l'univers. En se contractant, l'ondulation proj
 
 Le décor changea brusquement. Il semblait qu'une éternité s'était écoulée. Le Royaume Céleste était toujours là, mais il avait perdu son éclat originel. Une odeur de sang imprégna l'air tandis que des hurlements macabres résonnaient. La terre tremblait et se fracturait sans relâche.
 
-Le ciel devint trouble, comme si de l'encre avait été versée dans l'eau pour l'obscurcir. Au loin, une douzaine d'êtres célestes volaient, mais les trois derniers furent soudainement frappés par un spasme. Leurs corps explosèrent en une pluie de chair et de sang qui s'écrasa au sol.
+Le ciel devint trouble, comme si de l'encre avait été versée dans l'eau pour l'obscurcir. Au loin, des dizaines d'êtres célestes volaient, mais les trois derniers furent soudainement frappés par un spasme. Leurs corps explosèrent en une pluie de chair et de sang qui s'écrasa au sol.
 
 Les cris de détresse ne cessaient de résonner.
 
-Ces douze célestiaux luttèrent pour atteindre la porte et tombèrent à genoux. L'un d'eux rugit face à l'édifice, sa voix empreinte d'un chagrin profond:
+Ces dizaines de célestiaux luttèrent pour atteindre la porte et tombèrent à genoux. L'un d'eux rugit face à l'édifice, sa voix empreinte d'un chagrin profond:
 
 « La porte céleste est dressée depuis 40 000 ans! Pourquoi le véritable être céleste du Royaume Céleste Antique n'est-il pas venu? »
 
@@ -84,7 +84,7 @@ Le sang continua de maculer la porte de pierre, conférant aux taches une atmosp
 
 Ce doigt était d'une taille phénoménale, et chaque cultivateur qui l'effleurait mourait sur le coup. Bientôt, le doigt absorba toute l'obscurité du ciel, et sa pointe percuta la porte façonnée à partir d'un continent!
 
-Rumble, rumble, rumble!
+Boum, boum, boum!
 
 Un fracas assourdissant étouffa tous les autres sons du monde. Sous la puissance de ce doigt, d'immenses fissures parcoururent la porte avant qu'elle ne s'effondre soudainement!
 
@@ -116,13 +116,13 @@ Cependant, la porte qui se manifestait dans son esprit n'était pas nette; elle 
 
 Cette porte de pierre différait de celle qu'il avait contemplée au bord de la falaise maritime. À l'époque, il n'y avait qu'une seule loi; il n'avait donc pas de choix à faire et pouvait simplement l'emporter.
 
-Mais désormais, la situation était différente. Wang Lin sentait que ces huit forces étaient huit lois distinctes. S'il voulait toutes les emporter, la porte ne prendrait forme que s'il restait ici durant des éons. S'il survivait et parvenait au sommet du stade de l'Éclatement du Nirvana, il aurait peut-être une chance.
+Mais désormais, la situation était différente. Wang Lin sentait que ces huit forces étaient huit lois distinctes. S'il voulait toutes les emporter, la porte ne prendrait jamais forme, à moins qu'il ne reste ici jusqu'à sa mort. Si, après d'innombrables années, il n'était pas mort et atteignait le sommet du stade Briseur du Nirvana, il aurait peut-être une chance.
 
 Il était évident que Wang Lin ne choisirait pas cette voie. Alors qu'il commençait à observer les huit lois, il remarqua quelque chose qui fit légèrement trembler son corps.
 
 « Outre ces huit lois, il y en a une autre! » Les yeux de Wang Lin s'ouvrirent brusquement et se fixèrent sur la gigantesque porte de pierre sous ses pieds.
 
-Le temps avait laissé sa marque sur cette porte de pierre. C'était une aura naturelle qui émergeait lorsque quelqu'un restait présent assez longtemps. Il n'y avait rien d'extraordinaire en soi; cette aura serait même plus puissante sur certaines planètes de culture antiques.
+Le temps avait laissé sa marque sur cette porte de pierre. C'était une aura naturelle qui émergeait lorsqu'un objet existait depuis assez longtemps. Il n'y avait rien d'extraordinaire en soi; cette aura serait même plus puissante sur certaines planètes de culture antiques.
 
 Cependant, pour une raison inconnue, la marque du temps sur cette porte avait subi une mutation. C'était comme l'évolution du domaine d'un cultivateur: elle était passée du « temps » à l'« éternité »!
 

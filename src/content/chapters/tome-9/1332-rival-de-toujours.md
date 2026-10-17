@@ -74,7 +74,7 @@ Wang Lin esquissa un sourire, hocha légèrement la tête et rangea l'épée vol
 
 Xu Liguo observa les alentours, puis fixa Grand Rouge. Il n'avait pas prêté attention à la foule auparavant, mais il sentit immédiatement que quelque chose clochait.
 
-« Cet individu dégage une légère odeur d'imposture... Cependant, il est loin de faire le poids face à votre Grand-père Xu. Le Grand-père Xu flatte ce démon depuis bien avant votre naissance! » Xu Liguo afficha un sourire bienveillant en regardant Grand Rouge. « Quel est ton nom, compagnon cultivateur? »
+« Cet individu dégage une légère odeur d'impudence... Cependant, il est loin de faire le poids face à votre Grand-père Xu. Le Grand-père Xu flatte ce démon depuis bien avant votre naissance! » Xu Liguo afficha un sourire bienveillant en regardant Grand Rouge. « Quel est ton nom, compagnon cultivateur? »
 
 Grand Rouge répondit avec le même sourire et joignit les mains: « Je suis Zhong Grand Rouge. Zhong comme le grand Zhong, et Rouge comme le grand rouge! »
 
@@ -84,7 +84,7 @@ Après avoir dit cela, il se retourna et rugit vers les membres de la secte qui 
 
 Sous sa pression, tout ce qui pouvait être échangé contre des cristaux de tonnerre fut collecté par Grand Rouge et remis à Wang Lin. Ce dernier rangea le butin, ses yeux brillant d'une lueur indéchiffrable. Il agita la main droite et sortit une pilule.
 
-Il sortit avec désinvolture une pilule dont il ne mentionnait pas la valeur. C'était une pilule qu'il avait raffinée à partir de l'âme d'une bête de rang 4 dans la Mer des Nuages. Cependant, en voyant cela, les yeux de Grand Rouge s'écarquillèrent et il s'exclama: « Une Pilule d'Âme!! Cette pilule peut être échangée contre au moins 20 000 cristaux de tonnerre, elle est extrêmement rare! »
+Il sortit avec désinvolture une pilule qui, à ses yeux, n'avait aucune valeur. C'était une pilule qu'il avait raffinée à partir de l'âme d'une bête de rang 4 dans la Mer des Nuages. Cependant, en voyant cela, les yeux de Grand Rouge s'écarquillèrent et il s'exclama: « Une Pilule d'Âme!! Cette pilule peut être échangée contre au moins 20 000 cristaux de tonnerre, elle est extrêmement rare! »
 
 Les yeux de Wang Lin s'illuminèrent et il fit un geste de la main. La pilule atterrit dans la paume de Grand Rouge.
 

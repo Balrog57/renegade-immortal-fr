@@ -12,14 +12,14 @@ Les deux autres étaient également blessés, en particulier celui qui se trouva
 
 Derrière eux, une douzaine de bêtes moustiques les suivaient. Bien que légèrement blessées, leurs blessures n'entravaient pas leur mouvement. Leurs yeux rouges étaient fixés sur les trois individus, mais, sous l'effet de l'encens, elles les suivaient malgré elles.
 
-— Maudit soit cet instant! Nous avons laissé s'échapper la reine des moustiques géantes! grogna le jeune homme à la jambe blessée, rongé par la frustration. Si nous avions pu la ramener à la Mer des Nuages, nous aurions pu l'échanger contre un Élixir de Fléau Céleste extrêmement précieux auprès de la Secte de l'Étoile Noire!
+— Maudit soit cet instant! Nous avons laissé s'échapper le jeune roi des moustiques géants! grogna le jeune homme à la jambe blessée, rongé par la frustration. Si nous avions pu le ramener à la Mer des Nuages, nous aurions pu l'échanger contre un Liquide du Déclin Céleste extrêmement précieux auprès de la Secte de l'Étoile Noire!
 
 Le jeune homme dont la poitrine était percé s'écria:
-— Tais-toi! Cette reine moustique a certainement été élevée par quelqu'un. Seul un puissant cultivateur de l'Alliance serait capable d'apprivoiser ces bêtes géantes qui ravagent la Mer des Nuages. Nous devons rejoindre les Anciens au plus vite; sinon, si ce cultivateur nous découvre, les conséquences seront inimaginables!
+— Tais-toi! Ce roi moustique a certainement été élevé par quelqu'un. Seul un puissant cultivateur de l'Alliance serait capable d'apprivoiser ces bêtes géantes qui ravagent la Mer des Nuages. Nous devons rejoindre les Anciens au plus vite; sinon, si ce cultivateur nous découvre, les conséquences seront inimaginables!
 
-— Tout se passait pourtant si bien... murmurait le troisième. Je ne pensais pas que la reine moustique commencerait soudainement à se débattre après notre départ de la région orientale. Cela a provoqué la rébellion de toute la meute. Si nous n'avions pas utilisé deux encens d'âme de moustique, je crains que nous n'ayons pas pu les détourner et que nous n'ayons pas été dévorés... Hélas, la reine s'est échappée.
+— Tout se passait pourtant si bien... murmurait le troisième. Je ne pensais pas que le roi moustique commencerait soudainement à se débattre après notre sortie de l'est de l'Alliance. Cela a provoqué la rébellion de toute la meute. Si nous n'avions pas utilisé deux encens d'âme de moustique, je crains que nous n'ayons pas pu les détourner et que nous n'ayons pas été dévorés... Hélas, le roi s'est échappé.
 
-Cependant, ajouta le dernier jeune homme en jaune, les yeux brillants d'avidité face aux créatures, dix-neuf bêtes géantes suffisent à nous assurer de grands bénéfices. Même au sein de la Secte de la Porte Céleste, notre statut n'en sera que changé!
+Cependant, ajouta le dernier jeune homme en jaune, les yeux brillants d'avidité face aux créatures, dix-neuf bêtes géantes suffisent à nous assurer de grands bénéfices. Même au sein de la Secte de la Porte Céleste, notre statut sera aussitôt tout autre!
 
 Alors qu'ils volaient, ils pénétrèrent progressivement dans les profondeurs du champ d'étoiles encombré de débris. Une zone était protégée par un écran de lumière verte. Les trois sortirent chacun un jade et mordirent leur langue pour en asperger la pierre de leur sang.
 
@@ -38,7 +38,7 @@ Deux vieillards se tenaient au sommet de la formation. Vêtus de pourpre et arbo
 L'arrivée des trois jeunes attira l'attention de l'assemblée, mais sans grande importance. Cependant, lorsque les regards se posèrent sur les bêtes moustiques qui les suivaient, les visages se décomposèrent. Certains, plus craintifs, s'écrièrent avec effroi:
 — Des... des moustiques géants!
 
-Un tumulte soudain éclata. Les cent cultivateurs cessèrent leur tâche pour fixer les créatures du regard. Les trois jeunes en jaune, loin d'être intimidés, se sentirent fiers de l'effet produit; car, à vrai dire, ils partageaient la même expression que la foule.
+Un tumulte soudain éclata. Les cent cultivateurs cessèrent leur tâche pour fixer les créatures du regard. Les trois jeunes en jaune, loin d'être intimidés, se sentirent fiers de l'effet produit; car, à vrai dire, lorsqu'ils avaient vu ces bêtes pour la première fois, ils avaient eu à peu près la même réaction.
 
 Deux rayons pourpres foncèrent vers eux: c'étaient les deux Anciens. L'un d'eux balaya du regard la douzaine de bêtes et tonna à l'adresse des cultivateurs:
 — Que regardez-vous? Vite, achevez la formation!
@@ -46,15 +46,15 @@ Deux rayons pourpres foncèrent vers eux: c'étaient les deux Anciens. L'un d'eu
 Sous cet ordre, les cultivateurs se dispersèrent pour reprendre leur travail, bien que certains ne puissent s'empêcher de lancer des regards gourmands vers les moustiques. Une fois le calme revenu, l'Ancien observa les bêtes d'un air singulier, puis se tourna vers les trois jeunes:
 — Su Xin, comment expliquez-vous la présence de ces moustiques géants?
 
-Le jeune homme blessé à la poitrine rapporta respectueusement les faits. Il hésita un instant avant de relater le déroulement du voyage et l'évasion de la reine moustique.
+Le jeune homme blessé à la poitrine rapporta respectueusement les faits. Il hésita un instant avant de relater le déroulement du voyage et l'évasion du roi moustique.
 
 En entendant cela, le visage de l'Ancien s'assombrit. Il échangea un regard avec son confrère, et une lueur d'inquiétude mêlée d'ambition brilla dans leurs yeux.
 — Si ces bêtes n'avaient pas de maître, ce ne serait pas un problème... mais les chances sont quasi nulles. Pourrions-nous provoquer quelqu'un capable de dresser de telles créatures?
 
-— Les moustiques géants ont une valeur immense dans le système stellaire de la Mer des Nuages, reprit l'autre. Ils vivent souvent en essaims de centaines de milliers, ce qui les rend extrêmement difficiles à capturer. Même des cultivateurs de rang 6 ou plus rencontreraient d'énormes difficultés pour les saisir. Ces douze bêtes représentent une fortune colossale pour notre Secte de la Porte Céleste...
+— Les moustiques géants ont une valeur immense dans le système stellaire de la Mer des Nuages, reprit l'autre. Ils vivent souvent en groupes d'au moins plusieurs centaines, voire des milliers, ce qui les rend impossibles à contenir, encore moins à capturer. Même une secte de rang 6 ou plus devrait se donner beaucoup de mal pour tenter de les capturer. Ces dix et quelques bêtes représentent une fortune colossale pour notre Secte de la Porte Céleste...
 
 Ils lurent mutuellement l'avidité et la détermination dans le regard de l'autre.
-— Grâce à cet écran de lumière verte, il sera difficile pour les cultivateurs de l'Alliance de pénétrer ici. Même si un cultivateur au stade du Briseur du Nirvana arrivait, il lui faudrait plusieurs jours pour briser cette formation offerte par une secte de rang 8. Nous devons simplement gagner du temps pour retourner dans le système de la Mer des Nuages. S'ils osent nous poursuivre jusque-là... Hmph, nous ferons en sorte qu'ils n'en reviennent jamais!
+— Grâce à cet écran de lumière verte, il sera difficile pour les cultivateurs de l'Alliance de pénétrer ici. Même si un cultivateur au sommet du stade du Briseur du Nirvana arrivait, il lui faudrait plusieurs jours pour briser cette formation offerte par une secte de rang 8. Nous devons simplement gagner du temps pour retourner dans le système de la Mer des Nuages. S'ils osent nous poursuivre jusque-là... Hmph, nous ferons en sorte qu'ils n'en reviennent jamais!
 — Accélérez la construction de la formation! conclurent-ils d'un commun accord.
 
 Les trois jeunes qui avaient ramené les bêtes étaient transportés par l'excitation. Puisque les Anciens avaient validé leur coup, ils étaient désormais hors de danger. De retour à la secte, les récompenses ne tarderaient pas.
@@ -76,7 +76,7 @@ D'un geste de la main, il plaça la créature blessée dans une faille spatiale,
 
 Déformation spatiale!
 
-Des ondes se propagèrent aux confins orientaux du système stellaire de l'Alliance, comme un caillou jeté dans une eau calme. Wang Lin émergea du centre de ces ondulations, imprégné d'une froide intention meurtrière.
+Aux confins orientaux du système stellaire de l'Alliance apparut une distorsion de mille pieds de large, dont les ondes se propagèrent comme un caillou jeté dans une eau calme. Wang Lin, les cheveux blancs, émergea du centre de ces ondulations, imprégné d'une froide intention meurtrière.
 
 Le silence régnait autour de lui tandis qu'il inspectait les lieux. C'était ici que la bataille s'était déroulée entre les moustiques et les trois cultivateurs en jaune. Une lueur assassine traversa son regard alors qu'il s'élançait.
 

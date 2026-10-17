@@ -20,13 +20,13 @@ La poursuite par la famille Yao et l'intervention d'autres familles de cultivate
 
 « Les cultivateurs à l'extérieur ont dû subir de lourdes pertes lors de l'attaque du Serpent aux yeux de lune. Je pense que personne ne me traquera pendant un certain temps. Même s'ils viennent, ils ne pourront pas pénétrer dans le corps du Serpent aux yeux de lune pour me trouver. Bien que ce lieu soit dangereux, il est aussi très sûr! » Les yeux de Wang Lin restaient clos tandis que l'énergie originelle circulait dans son corps, nourrissant lentement son âme originelle.
 
-À mesure que l'énergie originelle cyclait en lui, des vagues de douleur jaillissaient de son âme originelle. Il avait affronté de nombreuses crises durant cette période. Sans l'Armure de Cuir du Dieu Antique, il serait déjà mort à bien des reprises.
+À mesure que l'énergie originelle cyclait en lui, des vagues de douleur jaillissaient de son âme originelle. Il avait affronté de nombreuses crises durant cette période. Sans l'Armure de Cuir de l'Ancien Dieu, il serait déjà mort à bien des reprises.
 
 La cruauté du monde de la culture, où la vie peut basculer à tout instant, ne pouvait ébranler le Dao de Wang Lin. Il était déjà accoutumé à de telles expériences depuis son passage dans le Système Stellaire de l'Alliance. On pourrait dire que ce genre d'épreuves l'avait accompagné durant la majeure partie de sa vie.
 
-« Le sort de Yao Bingyun endommage trop l'âme originelle. S'il n'y avait pas eu l'Armure de Cuir du Dieu Antique... » Wang Lin ouvrit les yeux, et un éclat de froideur transperça son regard.
+« Le sort de Yao Bingyun endommage trop l'âme originelle. S'il n'y avait pas eu l'Armure de Cuir de l'Ancien Dieu... » Wang Lin ouvrit les yeux, et un éclat de froideur transperça son regard.
 
-Son corps n'était pas gravement atteint, c'était principalement son âme originelle qui en souffrait. Toutefois, grâce à l'Armure de Cuir du Dieu Antique, la situation n'était pas critique. Maintenant qu'il s'était apaisé, il se plongea pleinement dans sa culture.
+Son corps n'était pas gravement atteint, c'était principalement son âme originelle qui en souffrait. Toutefois, grâce à l'Armure de Cuir de l'Ancien Dieu, la situation n'était pas critique. Maintenant qu'il s'était apaisé, il se plongea pleinement dans sa culture.
 
 D'innombrables tentacules ondulaient à l'extérieur du fourneau. Près du vortex, Yao Bingyun ne paniquait pas; elle restait d'un calme olympien.
 
@@ -52,15 +52,15 @@ Après un long moment, elle prit une profonde inspiration pour se forcer à retr
 
 « Âme scellée! » Son âme originelle cessa totalement tout mouvement. Bien qu'elle fût séparée de son énergie originelle, son âme s'était enfermée dans un royaume extrêmement mystérieux.
 
-« Existence scellée! » Tout ce qui est vivant possède une existence. À cet instant, Yao Bingyun scella résolument sa propre existence. Toute vitalité disparut de son corps; elle flottait là, telle un cadavre.
+« Pensée scellée! » Cette pensée est celle de la vie: tout être doté de vitalité possède une pensée de vie. À cet instant, Yao Bingyun scella résolument sa propre pensée de vie. Toute vitalité disparut de son corps; elle flottait là, telle un cadavre.
 
-Yao Bingyun avait déjà atteint le stade du sceau d'existence du sort céleste du Scellement de l'Âme. Le talent joue peu de rôle dans la culture de ce sort; il exige plutôt une discipline absolue du Dao de l'esprit afin de ne pas se perdre dans ses propres pouvoirs.
+Yao Bingyun avait déjà atteint le stade de la pensée scellée du sort céleste de l'Âme Scellée, un niveau extrêmement élevé. Le talent joue peu de rôle dans la culture de ce sort; il exige plutôt un cœur du Dao extrêmement rigoureux afin de ne pas se perdre dans ses propres pouvoirs.
 
 Après s'être complètement scellée, des craquements résonnèrent dans son corps. Une fine couche de glace apparut en elle et se propagea rapidement.
 
 Le cristal de glace scella également le tentacule qui l'enroulait. L'énergie glaciale émanant de son corps devint de plus en plus intense à mesure que la glace s'épaississait. Finalement, une couche de glace d'un mètre d'épaisseur l'enveloppa.
 
-À moitié nue et emprisonnée dans la glace, son expression restait d'un calme si profond qu'il en devenait effrayant.
+À moitié nue et emprisonnée dans la glace, son expression restait parfaitement paisible, et à la voir, on ne pouvait s'empêcher d'être troublé.
 
 Le temps passa lentement. On ne percevait aucun signe du passage des jours à l'intérieur du Serpent aux yeux de lune. Le corps colossal de la créature errait lentement à travers le Domaine Nord.
 
@@ -90,7 +90,7 @@ Wang Lin fronça les sourcils mais ne renonça pas. Son sens divin s'étendit à
 
 Le processus était extrêmement lent. Il devait lutter contre la force de succion tout en effectuant cette tâche, ce qui était une épreuve ardue compte tenu de son niveau de culture. Le temps s'écoulait, mais Wang Lin ne s'arrêta pas. En continuant d'imprimer sa marque sur le fourneau, il sembla découvrir des indices.
 
-Une rune était gravée dans un coin à l'extérieur du fourneau. Cette rune était très complexe et, bien qu'elle fût sculptée sur le métal, la gravure n'était pas profonde. À l'œil nu, elle était presque indétectable.
+Une rune, gravée après coup, se trouvait dans un coin à l'extérieur du fourneau. Cette rune était très complexe et, bien qu'elle fût sculptée sur le métal, la gravure n'était pas profonde. À l'œil nu, elle était presque indétectable.
 
 Même avec le sens divin, à moins de chercher minutieusement comme Wang Lin, il aurait été impossible de la remarquer.
 

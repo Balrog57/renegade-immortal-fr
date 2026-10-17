@@ -6,13 +6,13 @@ bookTitle: Peak of the Cloud Sea
 en: "Chapter 1193 - A Bloody Battle Against Master Ashen Pine!"
 slug: une-bataille-sanglante-contre-le-maitre-ashen-pine
 ---
-Il pouvait dévorer tous les sorts du monde pour son propre usage; c'était le trésor de l'ancien dieu que l'ancien dieu Tu Si avait affiné à cette époque. Tu Si était extrêmement satisfait de ce trésor, mais celui-ci manquait d'une âme. Il le transforma donc en une montagne qu'il jeta sur une planète, espérant que le temps permettrait de lui condenser un esprit. Une fois sa technique achevée, ce serait un trésor digne de sa Lance Tueuse de Dieux!
+Il pouvait dévorer toutes choses du ciel et de la terre pour son propre usage; c'était le trésor de l'ancien dieu que l'ancien dieu Tu Si avait affiné à cette époque. Tu Si était extrêmement satisfait de ce trésor, mais celui-ci manquait d'une âme. Il le transforma donc en une montagne qu'il jeta sur une planète, espérant que le temps permettrait de lui condenser un esprit. Une fois sa technique de division de l'esprit Mo Liu achevée, ce serait pour lui un artefact d'ancien dieu, destiné à sa propre division d'esprit et comparable à sa Lance Tueuse de Dieux!
 
-Hélas, Tu Si échoua et ce trident se perdit dans le flux du temps.
+Hélas, la division d'esprit Mo Liu de Tu Si échoua et ce trident se perdit dans le flux du temps.
 
 Après que l'Omniscient l'eut obtenu, il put en utiliser la puissance, mais ne parvint pas à activer ses capacités. Seul un ancien dieu pouvait libérer son véritable pouvoir!
 
-Bien que le niveau de culture de Wang Lin fût inférieur à celui de l'Omniscient, il était un ancien dieu. Après avoir subi la première épreuve et les deux calamités, il était désormais un véritable ancien dieu. Avec le trident en main, il pouvait manifester sa capacité de dévoraison de sorts!
+Bien que le niveau de culture de Wang Lin fût inférieur à celui de l'Omniscient, il était un ancien dieu. Après avoir subi la première épreuve et les deux calamités, il était désormais un véritable ancien dieu. Avec le trident en main, il pouvait manifester sa capacité de dévoration!
 
 Les trois dragons étaient des dragons dévoreurs. La Restriction de la Vie et de la Mort fut dévorée et devint un sort du trident. La restriction s'élança et fusionna avec les dragons noirs alors qu'ils se précipitaient vers l'épée cristalline Pseudo-Vide du Nirvana.
 
@@ -26,7 +26,7 @@ Une faible lueur cristalline apparut sur le corps du trident, puis une empreinte
 
 L'expression du Maître Pin Cendré changea, mais il se précipita aussitôt en avant. Sa main droite forma un sceau et pointa vers l'avant. Un éclat de lumière apparut devant lui et se mua instantanément en une énergie d'épée infinie qui emplissait le ciel et fonçait sur Wang Lin.
 
-Peu après, sa main droite plongea dans son sac de rangement et en sortit trois perles. Il les lança en criant: « Invoquez, Défieur! »
+Peu après, sa main droite plongea dans son sac de rangement et en sortit trois perles. Il les lança en criant: « Invoque, Défieur! »
 
 Toute la lumière aux sept couleurs du monde se rassembla une fois de plus et afflua dans les trois perles. Sous des bruits de craquements successifs, l'une des perles s'effondra rapidement.
 
@@ -62,7 +62,7 @@ Maître du Vide, l'Omniscient et Wu Qing apparurent tous et chargèrent l'âpre 
 
 En outre, une multitude d'âmes de bataille sortirent du Sceau Céleste: des Célestes, des cultivateurs de Luotian et de l'Alliance. Cela enveloppa immédiatement la zone d'une aura violente.
 
-Cette scène fit pousser un cri de stupeur chez le Maître Pin Cendré. Il pensait avoir surestimé Wang Lin, mais les quelques trésors que ce dernier avait montrés suffisaient déjà à terrifier des cultivateurs ordinaires.
+Cette scène fit pousser un cri de stupeur chez le Maître Pin Cendré. Il pensait avoir surestimé Wang Lin, mais il n'imaginait pas que celui-ci n'avait pas encore sorti beaucoup de trésors: les seules techniques déployées suffisaient déjà à terrifier des cultivateurs ordinaires.
 
 Un fracas tonitruant résonna dans ce monde aux sept couleurs. Le trident fonça sur la boussole céleste, mais à seulement sept pouces de sa cible, il fut stoppé par un écran de lumière aux sept couleurs.
 
@@ -86,7 +86,7 @@ Les yeux du Maître Pin Cendré devinrent injectés de sang, révélant une poin
 
 À l'instant où la marque apparut, le monde entier s'obscurcit, comme si toute la lumière de l'univers avait été absorbée par elle.
 
-« J'échange le sang de cent origines contre la 7ème âme du Domaine Scellé! » rugit le Maître Pin Cendré alors que la marque d'éclair fulgurait. À cet instant précis, la paume de Wang Lin s'abattit sur la marque.
+« Par l'essence de sang de cent vies changée en Âmes Naissantes, j'invoque l'esprit de la septième formation du Domaine Scellé! » rugit le Maître Pin Cendré alors que la marque d'éclair fulgurait. À cet instant précis, la paume de Wang Lin s'abattit sur la marque.
 
 Un grondement tonitruant retentit et la paume se brisa. Au moment de sa destruction, un rayon d'éclair jaillit vers Wang Lin. Il fut si rapide que Wang Lin ne put l'esquiver; il frappa de plein fouet sa poitrine.
 
@@ -96,7 +96,7 @@ Sa main droite plongea dans le vide et une épée de fer apparut. Elle tourna au
 
 Le Maître Pin Cendré agita la main vers son espace de stockage et un clou aux sept couleurs apparut! C'était exactement le même que celui qui avait transpercé le squelette portant l'écriture du Dao gravée sur ses os!
 
-« Meurs, vieil homme! » Le Maître Pin Cendré lança le clou aux sept couleurs contre l'épée de fer. Ce clou portait une pression inimaginable, surpassant même les trésors du Pseudo-Vide du Nirvana!
+« Va mourir sous les coups de ce vieillard! » Le Maître Pin Cendré lança le clou aux sept couleurs contre l'épée de fer. Ce clou portait une pression inimaginable, surpassant même les trésors du Pseudo-Vide du Nirvana!
 
 En un instant, le clou percuta l'épée. Des craquements déchirants retentirent: l'épée de fer se fendit et se brisa en deux!
 
@@ -104,7 +104,7 @@ Le clou aux sept couleurs pulvérisa l'épée et s'enfonça directement dans l'�
 
 Une douleur atroce parcourut le corps de Wang Lin, le faisant trembler. Simultanément, bien que l'épée fût brisée, sa pointe avait pénétré la poitrine du Maître Pin Cendré avant de se planter dans le sol.
 
-Le Maître Pin Cendré cracha du sang. Gravement blessé, il fit volte-face et chargea vers les montagnes muraille! Le corps de Wang Lin trembla violemment; le clou aux sept couleurs semblait capable de lacérer son âme d'origine. Ses yeux devinrent confus et son corps commença à rétrécir rapidement, comme s'il allait redevenir un humain ordinaire.
+Le Maître Pin Cendré cracha du sang. Gravement blessé, il fit volte-face et chargea vers les montagnes muraille! Le corps de Wang Lin trembla violemment; le clou aux sept couleurs semblait capable de clouer son âme d'origine. Ses yeux devinrent confus et son corps commença à rétrécir rapidement, comme s'il allait redevenir un humain ordinaire.
 
 Il serra les dents en fixant le Maître Pin Cendré qui s'échappait en crachant sans cesse du sang. L'Empreinte de l'Esprit Guerrier apparut dans son esprit et il poussa violemment sa paume en avant!
 

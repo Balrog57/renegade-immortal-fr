@@ -54,7 +54,7 @@ Il n'y aurait plus quatre Empereurs Divins, mais un seul, nommé le Souverain Di
 
 De nombreux désaccords avaient éclaté au sein des Quatre Sectes Divines face à cette initiative de la Secte Divine du Dragon Azure. Cependant, toutes les voix d'opposition s'éteignirent devant la puissance de l'Empereur Divin du Dragon Azure.
 
-Les Trésors Sacrés des Sectes Divines de la Tortue Noire et du Tigre Blanc n'étaient plus la propriété des sectes, mais passèrent entre les mains de l'Empereur Divin du Dragon Azure. Les méthodes pour les utiliser n'étaient plus un secret pour les autres membres.
+Les Trésors Sacrés des Sectes Divines de la Tortue Noire et du Tigre Blanc n'étaient plus la propriété des sectes, mais passèrent entre les mains de l'Empereur Divin du Dragon Azure. Avec ce changement, les méthodes d'utilisation des Trésors Sacrés et les formules de culture de chaque secte n'avaient plus aucun secret.
 
 La silhouette de Wang Lin apparut dans la région orientale peu après que l'intégration fut achevée. Dès son apparition, il fut repéré par les membres de la Secte Divine du Dragon Azure.
 
@@ -92,7 +92,7 @@ Cependant, il ne trouva aucune trace de Da Tou ou de ses compagnons. L'expressio
 
 « Où sont-ils?! » Wang Lin les fixa intensément avant de se calmer de force. Il savait que la colère ne résoudrait rien; il devait rester lucide.
 
-« Wang Lin, le Souverain Divin veut vous voir. Dois-je le répéter une troisième fois? »
+« Wang Lin, en tant que membre de nos Quatre Sectes Divines, le Souverain Divin veut vous voir. Dois-je le répéter une troisième fois? » Le visage de l'ancien du Dragon Azure était sombre; sans égard pour l'ancien statut de Wang Lin et pour les innombrables années de bienfaits de l'ancien Empereur Divin de l'Oiseau Vermillon, il serait déjà intervenu.
 
 Wang Lin répondit avec lenteur: « Sans moi, le Souverain Divin du Dragon Azure serait encore scellé dans le Royaume Céleste de la Pluie! »
 
@@ -102,7 +102,7 @@ Wang Lin répondit avec lenteur: « Sans moi, le Souverain Divin du Dragon Azure
 
 L'ancien de la Secte du Dragon Azure éclata d'un rire furieux, mais son entourage resta silencieux.
 
-« L'Empereur Divin de l'Oiseau Vermillon est mort pour les Quatre Sectes Divines. Ce vieil homme l'admirait profondément pour cela. » À cet instant, un vide antique apparut. Il semblait contenir la puissance d'un sortilège si puissant que même le champ d'étoiles ardent parut se suspendre.
+« L'Empereur Divin de l'Oiseau Vermillon est mort pour les Quatre Sectes Divines. Ce vieil homme l'admirait profondément pour cela. » À cet instant, une voix chargée d'âge résonna entre ciel et terre. Elle semblait contenir un pouvoir de sortilège si puissant que, dès qu'elle retentit, même les flammes du champ d'étoiles ardent parurent marquer une pause.
 
 L'expression des sept anciens devint immédiatement solennelle. Ils reculèrent de quelques pas et joignirent les mains à l'unisson: « Salutations, Souverain Divin. »
 
@@ -118,6 +118,6 @@ Comparé à son état pitoyable dans le Royaume Céleste de la Pluie, l'Empereur
 
 L'Empereur Divin du Dragon Azure esquissa un sourire, mais ce fut un sourire d'une froideur extrême.
 
-« Je ne les ai pas maltraités. Tous les étrangers ont été envoyés sur une planète à la lisière des Quatre Sectes Divines. »
+« Je ne les ai pas maltraités. Il y a une planète rocheuse en dehors des Quatre Sectes Divines, et tous les étrangers y ont été envoyés. »
 
 « Je peux renoncer à mon identité d'Empereur Divin de l'Oiseau Vermillon, je peux vous donner le Trésor Sacré, je peux partir et ne jamais revenir, mais je vais emporter une chose avec moi! » Wang Lin n'avait jamais eu l'intention de garder le Trésor Sacré. Il agita la main droite vers le vide, et une pierre blanche incandescente apparut, contenant une goutte de sang sacré.

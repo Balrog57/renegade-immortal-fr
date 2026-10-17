@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1314 - The First Predestined Battle (4)
 slug: la-première-bataille-predestinee-4
 ---
-Sort de l'Extermination du Grand Dieu Lunaire, Ailes de la Lune Sanglante, Neuf Os de l'Ancien Dieu, Liquide de Décomposition Divine!
+Sort de l'Extermination du Grand Dieu Lunaire, Ailes de la Lune Sanglante, Neuf Crânes d'Anciens Dieux, Liquide de Décomposition Divine!
 
 Chacun de ces trésors était d'une puissance extrême. Ils avaient été préparés par le Clan de la Lune au fil d'innombrables années pour capturer un Ancien Dieu vivant!
 
@@ -34,7 +34,7 @@ Cependant, comparés à eux, le Liquide de Décomposition Divine était encore p
 
 Après avoir été nourri par le Clan de la Lune pendant d'innombrables années, la puissance du Liquide de Décomposition Divine était terrifiante!
 
-À cet instant, la mer de sang créée par le liquide pénétra dans le monde lunaire et entoura Wang Lin et Tuo Sen, formant un vortex sanguin gigantesque. Wang Lin sentit immédiatement le vortex dévorer son pouvoir d'Ancien Dieu, et un puissant sentiment de danger envahit son esprit!
+À cet instant, la mer de sang créée par le liquide pénétra dans le monde lunaire et entoura Wang Lin et Tuo Sen, formant un vortex sanguin gigantesque. Wang Lin sentit immédiatement que, dans ce vortex, le pouvoir d'Ancien Dieu fondait sans cesse, et un puissant sentiment de danger envahit son esprit!
 
 L'expression de Tuo Sen devint instantanément plus grave encore.
 
@@ -42,7 +42,7 @@ Cependant, ce n'était pas là l'unique préparation du Clan de la Lune. Ils s'�
 
 Le vieil homme fixa la formation en rugissant: « Invoquez le trésor du Clan de la Lune: les Yeux de l'Ancien Dieu! »
 
-Deux yeux rouge sang apparurent dans la formation. Ils semblaient dégager une puissante odeur de sang et fixèrent Tuo Sen et Wang Lin!
+Deux yeux rouge sang apparurent soudain dans le ciel étoilé. Leur regard semblait lui aussi empreint de sang ; ils se posèrent sur la formation et fixèrent Tuo Sen et Wang Lin!
 
 « Invoquez le trésor du Clan de la Lune: la Cloche Spirituelle Géante!! » Une cloche antique et gigantesque apparut dans le monde. Elle sonna violemment, créant des ondulations qui pénétrèrent la formation!
 
@@ -102,13 +102,13 @@ Le Sang Décomposant Dieu fut repoussé, les Yeux de l'Ancien Dieu explosèrent 
 
 Les fils de soie lunaire environnants se brisèrent soudainement. Tout fut repoussé par la lumière grise! Des fissures invisibles se formèrent dans le monde lunaire constituant la Formation de Scellement Divin.
 
-« Invoquer le premier trésor du Clan de la Lune: l'Os Fragmentaire d'Ancien Dieu! » rugit follement le vieil homme en blanc, tandis qu'une gigantesque faille spatiale apparaissait soudainement. Cette déchirure spatiale s'ouvrit largement, libérant une pression indescriptible.
+« Invoquer le premier trésor du Clan de la Lune: l'Os Fragmentaire d'Ancien Dieu! » rugit follement le vieil homme aux cheveux blancs, tandis qu'une gigantesque faille spatiale apparaissait soudainement. Cette déchirure spatiale s'ouvrit largement, libérant une pression indescriptible.
 
 Un doigt de la taille d'une demi-planète de culture émergea lentement de la faille. Il n'y avait ni chair ni sang sur ce doigt, seulement des os!
 
 C'était un os de majeur!
 
-« Détruisez les Dieux! » Le vieil homme poussa un rugissement qui fit trembler les cieux. Au même instant, les 100 000 cultivateurs du Clan de la Lune environnants lâchèrent le même cri!
+« Détruisez les Dieux! » Le vieil homme poussa un rugissement qui fit trembler les cieux. Au même instant, les 100 000 cultivateurs du Clan de la Lune environnants, ainsi que les cultivateurs maintenant la formation sur des centaines de planètes de culture, lâchèrent le même cri!
 
 « DÉTRUISEZ LES DIEUX!!! »
 

@@ -8,7 +8,7 @@ slug: troisieme-etape
 ---
 L'expression de Qing Shui demeurait indifférente. Il ne daignait pas regarder le Dieu de Sang, ses yeux fixant la silhouette démoniaque qui émergeait du corps de ce dernier avec une froideur glaciale.
 
-Son œil droit luttait d'un éclat écarlate, exhalant une intention meurtrière. D'un seul pas, Qing Shui s'élança. Le brouillard noir dans sa main s'étendit soudainement sur plus de dix mètres et vola vers le Dieu de Sang.
+Son œil droit scintillait d'un éclat écarlate, exhalant une intention meurtrière. D'un seul pas, Qing Shui s'élança. Le brouillard noir dans sa main s'étendit soudainement sur plus de dix mètres et vola vers le Dieu de Sang.
 
 Le visage du Dieu de Sang était empreint de férocité alors qu'il pointait la lampe antique du doigt. Il n'était pas le seul à bouger: le démon ancien pointa également la lampe antique.
 
@@ -26,11 +26,11 @@ Le Dieu de Sang poussa un rugissement féroce: « Flamme démoniaque dévorante 
 
 Alors qu'il rugissait, les flammes de la lampe antique se propagèrent et le véritable corps du démon ancien chargea.
 
-À cet instant, une masse colossale d'énergie démoniaque se répandit. Même le Domaine Méridional tout entier fut enveloppé par cette densité maléfique.
+À cet instant, une masse colossale d'énergie démoniaque se répandit. Même le Domaine Sud tout entier fut enveloppé par cette densité maléfique.
 
 C'était comme si une aura primordiale, issue des temps les plus anciens, s'était éveillée parmi les étoiles!
 
-Cette énergie démoniaque rendit l'énergie originelle de tous les cultivateurs du Domaine Méridional instable. Certaines bêtes sur les planètes de culture devinrent extrêmement agitées, absorbant l'énergie démoniaque avec frénésie.
+Cette énergie démoniaque rendit l'énergie originelle de tous les cultivateurs du Domaine Sud instable. Certaines bêtes sur les planètes de culture devinrent extrêmement agitées, absorbant l'énergie démoniaque avec frénésie.
 
 Tandis que le démon ancien chargeait, son corps fut recouvert de flammes. Sa griffe massive s'abattit vers Qing Shui. Cette griffe portait une aura plus puissante que la Loi elle-même; toutes les lois s'effacèrent devant elle!
 
@@ -54,13 +54,13 @@ Cependant, au moment où il s'effondrait, les flammes dans la lampe antique brû
 
 Pourtant, dès que l'éclair rouge apparut, il s'effondra sous le simple regard de Qing Shui. L'onde de choc provoquée par cet effondrement se propagea rapidement.
 
-L'expression de Qing Shui resta froide alors qu'il levait la main et disait calmement: « Xu Mu, regarde attentivement, voici le quatrième sort de Maître: l'Effondrement des Montagnes! »
+L'expression de Qing Shui resta froide alors qu'il levait la main et disait calmement: « Xu Mu, regarde attentivement, voici le quatrième des six grands sorts de Maître: l'Effondrement des Montagnes! »
 
-Les yeux du démon ancien, saturés d'énergie démoniaque, s'enfoncèrent dans une retraite rapide pour saisir le Dieu de Sang. Il pénétra immédiatement dans son corps, arrachant des cris de douleur à la bouche du Dieu de Sang.
+Les yeux du démon ancien étaient saturés d'énergie démoniaque. Son corps colossal recula rapidement pour saisir le Dieu de Sang. Il pénétra immédiatement dans son corps, arrachant des cris de douleur à la bouche du Dieu de Sang.
 
 Les veines sur le visage du Dieu de Sang saillirent, révélant une expression de souffrance indicible. C'était comme s'il subissait une douleur déchirante!
 
-Ses cheveux s'agitèrent sans vent et s'allongèrent brusquement. Puis, deux cornes illusoires apparurent sur son front. Simultanément, une lumière verte recouvrit son corps. Il n'avait plus rien d'humain; il ressemblait désormais à un démon ancien!
+Ses cheveux s'agitèrent sans vent et s'allongèrent brusquement. Puis, deux cornes illusoires jaillirent du sommet de son crâne. Simultanément, une lumière verte recouvrit son corps. Il n'avait plus rien d'humain; il ressemblait désormais à un démon ancien!
 
 Une énergie démoniaque dense émanait de lui. Les yeux du Dieu de Sang n'avaient plus de point fixe, seulement un éclat maléfique. Il poussa un rugissement et chargea Qing Shui.
 
@@ -76,7 +76,7 @@ Même le Dieu de Sang, pourtant devenu fou, redressa instantanément la tête, s
 
 Dès que cette figure illusoire se manifesta, elle leva la main et fit un geste désinvolte vers le Dieu de Sang. Ce dernier cracha immédiatement une grande quantité de sang, et le démon ancien fut expulsé de son corps. Le visage du démon ancien était pétrifié par le choc alors qu'il fixait la silhouette illusoire.
 
-« Démon ancien, je me fiche que vous empruntiez la famille Yao pour restaurer votre corps; cela m'est égal. Cependant, si vous provoquez un massacre dans le Système Stellaire Luotian et perturbez l'entrée dans le Système Stellaire de l'Alliance, alors je n'hésiterai pas à éteindre votre flamme démoniaque inextinguible! »
+« Démon ancien, je me fiche que vous empruntiez la famille Yao pour restaurer votre corps; cela m'est égal. Cependant, si vous provoquez un massacre dans le Système Stellaire Luotian et perturbez l'entrée dans l'Alliance, alors je n'hésiterai pas à éteindre votre flamme démoniaque inextinguible! »
 
 La voix de cet être était calme, mais elle portait une aura capable de terrasser les cœurs. À cet instant, Wang Lin eut l'impression d'avoir remonté mille ans en arrière; il ressentait la même sensation qu'un mortel contemplant un puissant cultivateur!
 
@@ -94,7 +94,7 @@ Les yeux de Qing Shui restèrent froids tandis qu'il fixait la figure illusoire.
 
 L'ombre illusoire était floue, rendant son apparence impossible à distinguer. Après avoir parlé, l'être tendit le bras et une lumière cristalline envahit la zone.
 
-Alors que les pupilles de Wang Lin se rétractaient, l'espace environnant qui s'était effondré se rassembla rapidement pour retrouver sa forme normale. Non seulement cela, mais à mesure que la lumière cristalline s'estompait, toute la destruction subie par le Domaine Méridional fut annulée.
+Alors que les pupilles de Wang Lin se rétractaient, l'espace environnant qui s'était effondré se rassembla rapidement pour retrouver sa forme normale. Non seulement cela, mais à mesure que la lumière cristalline s'estompait, toute la destruction subie par le Domaine Sud fut annulée.
 
 Même l'énergie démoniaque absorbée par certaines bêtes sur les planètes de culture se dissipa silencieusement!
 
@@ -108,10 +108,10 @@ Qing Shui et Wang Lin étaient désormais les deux seuls restants. Wang Lin n'é
 
 Il était certain que l'ombre illusoire était un cultivateur de la troisième étape! Cet être était apparu sans la moindre fluctuation, et le sentiment de terreur qui émanait de son âme était si puissant qu'il ne se dissipait pas.
 
-C'était comme s'il n'avait besoin que d'une seule pensée pour provoquer l'effondrement du Domaine Méridional tout entier!
+C'était comme s'il n'avait besoin que d'une seule pensée pour provoquer l'effondrement du Domaine Sud tout entier!
 
 Wang Lin ferma les yeux. Après un long moment, il réprima le choc dans son cœur, joignit les mains vers Qing Shui et dit: « Merci... Je me souviendrai à jamais que Senior m'a sauvé! »
 
-Les yeux de Qing Shui se tournèrent vers les étoiles lointaines, empreints de mélancolie. Après un long moment, cette tristesse se dissipa avant qu'il ne regarde Wang Lin et ne dise calmement: « Ne me remercie pas! Je me moque de la manière dont tu as appris "Appeler le Vent", mais puisque tu l'as appris, tu es un disciple d'une génération postérieure à mon Maître. Moi, Qing Shui, n'ai aucun lien dans ce système. Te rencontrer était l'arrangement de mon Maître... »
+Les yeux de Qing Shui se tournèrent vers les étoiles lointaines, empreints de mélancolie. Après un long moment, cette tristesse se dissipa avant qu'il ne regarde Wang Lin et ne dise calmement: « Ne me remercie pas! Je me moque de la manière dont tu as appris "Invoquer le Vent", mais puisque tu l'as appris, tu es un disciple d'une génération postérieure à mon Maître. Moi, Qing Shui, n'ai aucun lien dans ce système. Te rencontrer était l'arrangement de mon Maître... »
 
-« Tu n'as pas encore formé ton origine céleste, et sans le Bassin Céleste, cela te sera impossible. Maintenant que la compétition des 108 titres célestes du Temple Céleste du Tonnerre approche, les 36 Cieux Célestes ont le droit d'accéder au Bassin Céleste. Tu devrais aller te battre pour l'obtenir! »
+« Tu n'as pas encore formé ton origine céleste, et sans le Bassin Céleste, cela te sera impossible. Maintenant que la compétition des 108 titres célestes du Temple Céleste du Tonnerre approche, les 36 Célestes du Ciel ont le droit d'accéder au Bassin Céleste. Tu devrais aller te battre pour l'obtenir! »

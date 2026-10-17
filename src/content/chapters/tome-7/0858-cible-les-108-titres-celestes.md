@@ -16,11 +16,11 @@ Qing Shui fit demi-tour, marcha vers le vide et disparut lentement... Juste avan
 
 Wang Lin regarda la silhouette de Qing Shui s'éloigner et réfléchit longuement en silence avant de joindre les mains vers cette direction. Il saisit le cristal de glace, puis disparut sans laisser de trace.
 
-« Cette personne doit être un cultivateur du troisième niveau. Un tel être incroyable existe donc au sein du Système Stellaire de Luotian... » Wang Lin se dirigea rapidement vers le lieu où se trouvait la famille de Li Yuan.
+« Cette personne doit être un cultivateur de la troisième étape. Un tel être incroyable existe donc au sein du Système Stellaire de Luotian... » Wang Lin se dirigea rapidement vers le lieu où se trouvait la famille de Li Yuan.
 
-« J'ignore seulement s'il existe un cultivateur du troisième niveau dans le Système Stellaire de l'Alliance... Cette personne est trop puissante, même un cultivateur Briseur du Nirvana ne pourrait lui résister... » La silhouette de Wang Lin fendit les étoiles, ses yeux brillant d'un éclat singulier.
+« J'ignore seulement s'il existe un cultivateur de la troisième étape dans le Système Stellaire de l'Alliance... Cette personne est trop puissante, même un cultivateur Briseur du Nirvana ne pourrait lui résister... » La silhouette de Wang Lin fendit les étoiles, ses yeux brillant d'un éclat singulier.
 
-« Cependant, j'ai pu percevoir la direction du troisième niveau grâce à la Perle Défiant le Ciel... » Les yeux de Wang Lin brillèrent davantage alors qu'il traversait l'espace en utilisant la Déformation Spatiale.
+« Cependant, j'ai pu percevoir la direction de la troisième étape grâce à la Perle Défiant le Ciel... Un jour... » Les yeux de Wang Lin brillèrent davantage alors qu'il traversait l'espace en utilisant la Déformation Spatiale.
 
 Il existait une planète de culture dans un système reculé du Domaine Sud. Cette planète se nommait Annihilation. Il y a fort longtemps, elle était célèbre non seulement dans le Domaine Sud, mais à travers tout le Système Stellaire de Luotian!
 
@@ -84,7 +84,7 @@ En contemplant la sphère, Wang Lin ferma les yeux. Un instant plus tard, il les
 
 Cette terre avait été collectée dans le Royaume Céleste du Tonnerre sous la direction de Li Yuan. Wang Lin agita la main et toute la terre fut aspirée par la sphère noire.
 
-La sphère se solidifia progressivement. Au même moment, Wang Lin cracha une bouffée d'énergie originelle. Lorsque celle-ci toucha l'objet, il brilla intensément. La sphère noire rétrécit et changea de forme sous les yeux de Wang Lin jusqu'à devenir une boussole octogonale!
+La sphère se solidifia progressivement. Au même moment, Wang Lin cracha une bouffée d'essence de l'âme originelle. Lorsque celle-ci toucha l'objet, il brilla intensément. La sphère noire rétrécit et changea de forme sous les yeux de Wang Lin jusqu'à devenir une boussole octogonale!
 
 « Chaque génération de descendants de la Restriction d'Annihilation doit posséder sa propre boussole du Cœur de Restriction. Félicitations, Frère Xu! » Li Yuan ouvrit ses yeux fatigués et sourit. C'était un sourire sincère, exempt de toute fausseté.
 
@@ -110,6 +110,6 @@ Wang Lin hocha la tête et dit calmement: « Avec votre talent, Frère Li, une p
 
 Li Yuan prit le jade. Après l'avoir examiné de près, il fut frappé de stupeur. Bien que sa famille Li possédât des héritages antiques, beaucoup avaient été perdus. La seule chose qui leur restait était la Restriction d'Annihilation. En réalité, ils étaient désormais inférieurs à une simple famille de culture.
 
-Bien que le sort de l'Origine du Tonnerre du Temple Céleste du Tonnerre ne fût pas un trésor inestimable, il n'en demeurait pas moins rare. Il hocha la tête et dit: « Frère Xu, je ne vous remercierai pas, puisque nous sommes seuls. Si un jour je réalise ma percée, je viendrai vous trouver. Nous pourrons alors errer parmi les étoiles comme deux célestes. Ce sera une occasion joyeuse! »
+Bien que le sort de l'Origine du Tonnerre du Temple Céleste du Tonnerre ne fût pas un trésor inestimable, il n'en demeurait pas moins rare. Il hocha la tête et dit: « Frère Xu, entre vous et moi, je ne prononcerai pas le mot merci. Si un jour je réalise ma percée, je viendrai vous trouver. Nous pourrons alors parcourir librement les étoiles comme dans le Royaume Céleste du Tonnerre. Ce sera une occasion joyeuse! »
 
 Wang Lin sourit et dit: « Frère Li, adieu! » Sur ce, il fit un pas en avant. Des ondulations apparurent sous ses pieds et il disparut.

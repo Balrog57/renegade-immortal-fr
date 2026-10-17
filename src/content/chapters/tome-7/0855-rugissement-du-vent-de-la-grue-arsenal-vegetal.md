@@ -14,13 +14,13 @@ Wang Lin contemplait la scène avec stupeur. En entendant les paroles de Qing Sh
 
 C'était une sensation très singulière pour lui, comme si elle ne s'était pas manifestée en son for intérieur depuis une éternité.
 
-Pourtant, il se souvenait vaguement de l'époque où il se trouvait sur la planète Suzaku, lorsque le Maître Dun Tian, de la Secte du Affinement de l'Âme, lui avait procuré ce sentiment. Puis Situ Nan, qui fut à la fois son mentor et son ami, lui avait transmis cette même sensation. De même, lors de sa première confrontation avec l'Omniscient alors qu'il tentait d'atteindre le stade de la Formation de l'Âme.
+Pourtant, il se souvenait vaguement de l'époque où il se trouvait sur la planète Suzaku, lorsque le Maître Dun Tian, de la Secte de l'Affinement de l'Âme, lui avait procuré ce sentiment. Puis Situ Nan, qui fut à la fois son mentor et son ami, lui avait transmis cette même sensation. De même, lors de sa première rencontre avec l'Omniscient alors qu'il tentait d'atteindre le stade de la Formation de l'Âme.
 
 Zhou Yi lui avait également donné ce sentiment.
 
-La vie de Wang Lin suivait un principe immuable: si les autres ne l'offensaient pas, il ne les offenserait pas. De même, si quelqu'un lui témoignait de la gratitude, aussi infime fût-elle, Wang Lin la chérissait.
+La vie de Wang Lin suivait un principe immuable: si les autres ne l'offensaient pas, il ne les offenserait pas. De même, si quelqu'un lui rendait un service, aussi infime fût-il, Wang Lin le chérissait.
 
-Il n'avait pas oublié la bienveillance de Dun Tian; dans son cœur, il portait toujours l'esprit de la Secte du Affinement de l'Âme.
+Il n'avait pas oublié la bienveillance de Dun Tian; dans son cœur, il portait toujours l'esprit de la Secte de l'Affinement de l'Âme.
 
 Il n'avait pas non plus oublié la bonté de Situ Nan, à qui il n'avait pas hésité à offrir un objet aussi précieux que le Char de Guerre Divin. Si Situ Nan se trouvait dans une situation périlleuse, Wang Lin savait que même si cela devait lui coûter la vie, tant qu'une possibilité de le sauver existait, il ne reculerait jamais.
 
@@ -32,9 +32,9 @@ Il avait également une dette envers l'Omniscient lors de sa tentative d'atteind
 
 Pourtant, au plus profond de son âme, une trace de tristesse persistait.
 
-Et à présent, Qing Shui se tenait devant lui pour faire barrage entre Dieu de Sang et la rétribution divine. Tout cela pour un sort nommé « Appel du Vent » et un héritage qui n'existait même pas.
+Et à présent, Qing Shui se tenait devant lui pour faire barrage à Dieu de Sang et à la rétribution divine. Tout cela pour un sort nommé « Appel du Vent » et un héritage qui n'existait même pas.
 
-L'expression de Dieu de Sang était d'une extrême noirceur. À cet instant, les gouttes de pluie qui l'entouraient firent vaciller sa détermination. Il n'était pas aussi intrépide qu'il en avait l'air; en vérité, quelques mois auparavant, lorsqu'il avait encaissé le choc d'une étoile brisée par un Dieu Ancien, il avait été gravement blessé.
+L'expression de Dieu de Sang était d'une extrême noirceur. À cet instant, les gouttes de pluie qui l'entouraient firent vaciller sa détermination. Il n'était pas aussi intrépide qu'il en avait l'air; en vérité, quelques mois auparavant, lorsqu'il avait encaissé la frappe brise-étoiles du jeune enfant de l'ancien dieu, il avait été gravement blessé.
 
 Il avait cependant réprimé sa douleur par la force et utilisé une technique secrète transmise par son clan pour se rétablir. Néanmoins, s'il devait affronter Qing Shui maintenant, le danger serait immense.
 
@@ -44,7 +44,7 @@ Qing Shui était une figure trop légendaire. Même si Dieu de Sang n'était pas
 
 Soudain, les gouttes de pluie s'animèrent dans un sifflement aigu et strident. Chaque goutte contenait une énergie originelle inimaginable, imprégnée d'une trace d'énergie pure provenant du Royaume Céleste!
 
-Ces innombrables gouttes étaient comme autant d'épées chargeant frénétiquement vers Dieu de Sang. Chaque goutte dégageait une aura terrifiante; une seule suffisait à anéantir un cultivateur Ascendant!
+Ces innombrables gouttes étaient comme autant d'épées chargeant frénétiquement vers Dieu de Sang. Chaque goutte dégageait une aura terrifiante; une seule suffisait à anéantir le corps d'un cultivateur Ascendant au stade de complétude!
 
 Dix gouttes suffisaient à tuer un cultivateur de l'Yin Illusoire. Cent gouttes pouvaient détruire un cultivateur du Yang Corporel! Mille gouttes, et même un cultivateur Scruteur du Nirvana devrait battre en retraite!
 
@@ -76,7 +76,7 @@ Une onde de choc violente se propagea et la sphère se métamorphosa soudainemen
 
 Sans perdre un instant, Dieu de Sang continua de rassembler l'énergie originelle céleste. En un clin d'œil, neuf grues furent formées!
 
-Alors que les neuf grues s'envolaient, Dieu de Sang hurla: « Qing Shui, la tempête de mon ancêtre de la famille Yao ne peut égaler ton Appel du Vent. Cependant, au fil des millénaires, les générations de mes ancêtres ont créé un sort unique! »
+Alors que les neuf grues s'envolaient, Dieu de Sang hurla: « Qing Shui, le pouvoir divin des ancêtres de ma famille Yao, de type tonnerre et vent, ne peut égaler ton Appel du Vent. Cependant, au fil des millénaires, les générations de mes ancêtres ont créé un sort unique! »
 
 Les yeux des neuf grues virèrent instantanément au rouge, dégageant une puissante aura démoniaque. Cette aura se propagea comme une tempête, faisant vaciller la glace environnante.
 
@@ -84,7 +84,7 @@ Cette énergie démoniaque était d'une puissance colossale. Au centre, les chev
 
 À cet instant, Dieu de Sang n'était plus un simple cultivateur, mais un démon antique ayant investi un corps humain!
 
-« Sort céleste, la Puissance de la Grue! » Les yeux de Dieu de Sang brillaient d'un éclat démoniaque semblable à une lampe. Tandis qu'il criait, les neuf grues entamèrent une danse autour de lui en poussant des cris impérieux.
+« Sort céleste, le Cri de la Grue! » Les yeux de Dieu de Sang brillaient d'un éclat démoniaque semblable à une lampe. Tandis qu'il criait, les neuf grues entamèrent une danse autour de lui en poussant des cris impérieux.
 
 Ces cris étaient d'une violence et d'une acuité extrêmes. Ils formèrent aussitôt une tempête sonore qui résonna avec une force inimaginable.
 
@@ -112,4 +112,4 @@ Alors que son sort atteignait son apogée et approchait de Qing Shui, les nuages
 
 Avant même l'apparition de cet éclair, une sensation terrifiante fit trembler les cœurs. L'éclair septicolore s'abattit instantanément. Il n'y avait pas qu'un seul coup, mais sept!
 
-Les éclairs rouge, orange, jaune, vert, bleu et violet descendirent alors que le nuage de la rétribution divine se dissipait! Ces foudres portaient en elles des forces de destruction absolue!
+Les éclairs rouge, orange, jaune, vert, cyan, bleu et violet descendirent alors que le nuage de la rétribution divine se dissipait! Ces foudres portaient en elles des forces de destruction absolue!

@@ -6,7 +6,7 @@ bookTitle: "Alliance's Secret"
 en: Chapter 1107 - Battling Against Heaven
 slug: combattre-contre-le-ciel
 ---
-Tous les cultivateurs de la Mer des Nuages avaient été réduits en cendres. Seul le dernier ancien vêtu de violet, qui avait craché du sang après le deuxième effondrement, tentait désespérément de s'échapper.
+Tous les cultivateurs de la Mer des Nuages avaient été réduits en cendres. Seul le dernier ancien vêtu de pourpre, qui avait craché du sang après le deuxième effondrement, tentait désespérément de s'échapper.
 
 Il était terrifié, absolument terrifié!
 
@@ -24,7 +24,7 @@ L'Oiseau Vermillon semblait danser au sein des flammes célestes.
 
 Cette rétribution divine par le feu était une épreuve que Wang Lin pouvait endurer!
 
-Il leva la tête vers le ciel, affichant un regard provocateur. Wang Lin avait affronté de nombreuses rétributions divines et s'était toujours retrouvé dans un état lamentable après coup. Il avait failli mourir maintes fois, mais il n'avait jamais cédé. Aujourd'hui, maîtrisant à la fois le feu et le tonnerre, sa nature défiante, longtemps réprimée, éruptait de nouveau.
+Il leva la tête vers le ciel, affichant un regard provocateur. Wang Lin avait affronté de nombreuses rétributions divines et s'était toujours retrouvé dans un état lamentable après coup. Il avait failli mourir maintes fois, mais il n'avait jamais cédé. Aujourd'hui, maîtrisant à la fois le feu et le tonnerre, sa nature défiante, réprimée depuis mille ans, éruptait de nouveau.
 
 Cette rétribution divine était l'expression du Dao céleste. Si l'on voulait défier les cieux, il fallait d'abord défier la rétribution divine des cieux!
 
@@ -50,7 +50,7 @@ En raison de l'encerclement par la rivière ardente, l'âme originelle de l'anci
 
 Wang Lin laissa échapper un froid reniflement, puis sa main droite prit la forme d'une paume et s'abattit sur l'âme originelle. L'énergie originelle du champ d'étoiles se rassembla furieusement pour former une empreinte de main gigantesque, qui s'écrasa sur l'âme originelle du vieil homme.
 
-L'expression de l'homme changea radicalement et il hurla: « C'est... l'Empreinte de l'Esprit de Guerre de la Secte des Âmes de Rang 9! » À peine eut-il prononcé ces mots que l'empreinte percuta son âme originelle et le renvoya violemment dans la rivière ardente.
+L'expression de l'homme changea radicalement et il hurla: « C'est... l'Empreinte de l'Esprit de Guerre de la Secte Divine de Rang 9! » À peine eut-il prononcé ces mots que l'empreinte percuta son âme originelle et le renvoya violemment dans la rivière ardente.
 
 Des grondements tonitruants résonnèrent et l'âme originelle du vieil homme s'effondra instantanément!
 
@@ -106,7 +106,7 @@ Il combattait le ciel pour s'approprier le droit de commander la foudre! Alors q
 
 « Feu des cieux, écoutez le commandement de mon Oiseau Vermillon: rassemblez-vous! » À l'instant même, une immense quantité de flammes blanches apparut aux côtés de l'ancien dragon de tonnerre et se mua en un gigantesque Oiseau Vermillon. Cet oiseau déploya ses ailes et poussa un cri!
 
-Une mer de flammes surgit de nulle part pour converger vers la main gauche de Wang Lin. Simultanément, une masse de flammes jaillit des nuages de la rétribution divine pour s'engouffrer dans la sphère de feu tenue par sa main gauche.
+Une mer de flammes surgit de nulle part pour converger vers la main gauche de Wang Lin. Simultanément, une masse de flammes jaillit des nuages de la rétribution divine tel un entonnoir pour s'engouffrer dans la sphère de feu tenue par sa main gauche.
 
 Non seulement il rivalisait avec les cieux pour le tonnerre, mais il luttait aussi contre eux pour le feu!
 

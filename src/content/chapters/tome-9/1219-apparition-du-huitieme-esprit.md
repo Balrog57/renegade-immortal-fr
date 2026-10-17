@@ -12,7 +12,7 @@ Il saisit la Lance Tueuse de Dieux et la brandit dans un rugissement. Une aura c
 
 Des bruits de craquements résonnèrent frénétiquement et l'épée courte bleue se brisa soudainement en d'innombrables fragments. Bien qu'elle ne se soit pas dissipée, elle fut projetée droit sur Tuo Sen.
 
-Au même moment, davantage de lumière surgit de la formation. Cette fois, trois lueurs distinctes brillèrent violemment. L'une d'elles était dorée et se condensa en un immense couteau d'or. Ce couteau, long de plus de mille pieds, vola immédiatement vers Tuo Sen.
+Au même moment, davantage de lumière surgit de la formation. Cette fois, trois lueurs distinctes brillèrent violemment. L'une d'elles était dorée et se condensa en un immense couteau d'or. Ce couteau, long d'environ mille pieds, vola immédiatement vers Tuo Sen.
 
 Le deuxième rayon de lumière était pourpre et apparut après la lueur dorée. Il se mua en un fouet pourpre de dix mille pieds de long, gravé d'innombrables runes. Dès son apparition, la formation parut se tordre.
 
@@ -20,7 +20,7 @@ Des bruits de déchirement résonnèrent alors que le fouet ondulait tel un pyth
 
 Le troisième rayon était rouge et se répandit comme du sang frais, donnant à l'ensemble de la formation une teinte écarlate. Des gémissements et des cris de douleur émanèrent immédiatement de la lumière rouge.
 
-Lorsque la lumière rouge se condensa, une massue à neuf têtes apparut. Du sang dégoulinait de ces neuf têtes. Il semblait que ce trésor spirituel fût d'une brutalité extrême, taché par le sang de tant d'êtres au fil des éons. Dès son apparition, il chargea Tuo Sen.
+Lorsque la lumière rouge se condensa, une massue à neuf têtes apparut. Du sang dégoulinait de ces neuf têtes. Il semblait que ce trésor spirituel fût d'une brutalité extrême, taché par le sang de tant d'êtres au fil des éons. Dès son apparition, il balaya l'espace en grandissant jusqu'à cent mille pieds et chargea Tuo Sen.
 
 Il y avait au total neuf esprits dans cette formation et, à cet instant précis, cinq d'entre eux apparurent pour attaquer Tuo Sen!
 
@@ -36,7 +36,7 @@ C'était une catapulte géante! Une immense boule de feu reposait dans l'engin. 
 
 Dans un fracas assourdissant, la catapulte projeta la boule de feu droit sur Tuo Sen. Une seule boule de feu n'aurait été qu'un contretemps, mais presque immédiatement après le premier tir, la formation en forgea une autre, et la catapulte se mit à en lancer sans relâche!
 
-Au cours des éons, alors que les mortels tentaient de briser la formation de scellement, un nombre inimaginable de personnes y avaient péri!
+Au cours des éons, alors que les gens du Royaume Scellé tentaient de briser la formation de scellement, un nombre inimaginable de personnes y avaient péri!
 
 Lorsque le sixième esprit apparut, même Tuo Sen fut désavantagé. Sous l'assaut des six esprits, un grondement fit trembler les cieux et Tuo Sen dut reculer pour la première fois!
 
@@ -70,7 +70,7 @@ Son assaut fut bloqué, et bien que ses yeux fussent empreints de folie, son esp
 
 « Au lieu de reculer pour trouver un cultivateur du troisième pas afin d'accroître ma puissance, je vais m'élancer maintenant et traquer les cultivateurs du troisième pas dans le Système Stellaire Antique. Ce sera votre punition pour avoir placé une telle formation ici! » Il leva la main droite, laissa échapper un reniflement glacial et pointa sa deuxième étoile.
 
-La deuxième étoile émit soudainement une énergie originelle encore plus puissante et s'élança comme une seconde météorite. Elle fonça sur la formation avec une force supérieure à celle de la première!
+La deuxième étoile émit soudainement une énergie originelle encore plus puissante et s'élança comme une seconde météorite. Elle fonça sur la formation avec une force plusieurs fois supérieure à celle de la première!
 
 « Brisez-vous pour ce Dieu! » rugit Tuo Sen en poursuivant les deux météores. Leur impact combiné représenta un assaut que la formation n'avait que rarement connu au cours de ses innombrables années d'existence!
 
@@ -96,7 +96,7 @@ Tuo Sen chargea et fusionna avec le météore. L'explosion de l'origine de trois
 
 À cet instant, les assauts des sept esprits frappèrent le météore, tandis que la hache géante s'abattit directement sur lui.
 
-Le météore s'effondra soudainement et Tuo Sen cracha du sang intérieurement, mais il accéléra encore davantage.
+Le météore s'effondra soudainement et Tuo Sen cracha du sang, le visage déformé par la férocité, mais il accéléra encore davantage.
 
 Lorsque la hache frappa pour la seconde fois, il percuta la formation!
 
@@ -104,7 +104,7 @@ Cette collision fut apocalyptique. Elle fit trembler les quatre Royaumes Célest
 
 Cette formation, qui n'avait jamais cédé auparavant, trembla violemment comme sur le point de s'effondrer! Mais finalement, elle tint bon! Tuo Sen continua de la percuter avec acharnement, provoquant des secousses toujours plus violentes.
 
-« Technique Divine de Transformation d'Encre Fluide! » La hache s'abattait encore et encore, chaque coup faisant cracher du sang à Tuo Sen. Il demeurait cependant possédé et utilisa même la Technique Divine de Transformation d'Encre Fluide que Tu Si n'avait pas réussi à maîtriser!
+« Technique Divine de Transformation d'Encre Fluide! » La hache s'abattait encore et encore, chaque coup faisant cracher du sang à Tuo Sen. Il demeurait cependant possédé et utilisa même la Technique Divine de Transformation d'Encre Fluide que Tu Si n'avait pas totalement achevée de son vivant!
 
 À cet instant, une brume noire enveloppa Tuo Sen, et soudain, la hache s'interrompit comme si elle hésitait.
 

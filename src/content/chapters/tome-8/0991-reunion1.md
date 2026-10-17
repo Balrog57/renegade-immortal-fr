@@ -22,9 +22,9 @@ Da Tou résista à l'impact du sens divin et rejoignit le palais de Wang Lin. L�
 
 Quant aux cultivateurs juniors, ils étaient tous extrêmement pâles. Ceux qui n'étaient que légèrement blessés crachaient du sang, tandis que les plus touchés s'évanouissaient. Seules Zhao Xue et Ling Er, protégées par des artefacts confiés par les trois frères Chen, parvinrent à peine à tenir debout.
 
-Ce sens divin d'une arrogance extrême balaya le palais où se trouvait Wang Lin. Cependant, Wang Lin était en plein processus d'affinage de la charogne féminine et avait atteint l'instant le plus critique.
+Ce sens divin d'une arrogance extrême balaya le palais où se trouvait Wang Lin. Cependant, Wang Lin était en plein processus d'affinage du cadavre féminin et avait atteint l'instant le plus critique.
 
-Le sens divin de Wang Lin était presque totalement lié à la charogne féminine. À moins qu'un être ne possède un niveau de culture bien supérieur, il n'aurait perçu que la charogne elle-même. Après tout, celle-ci se trouvait également au stade Purificateur du Nirvana.
+Le sens divin de Wang Lin était presque totalement lié au cadavre féminin. À moins qu'un être ne possède un niveau de culture bien supérieur, il n'aurait perçu que le cadavre lui-même. Après tout, celui-ci se trouvait également au stade Purificateur du Nirvana.
 
 Le sens divin marqua une hésitation avant de continuer sa course. Au loin, les yeux du Maître Fu Fengzi brillèrent puis se plissèrent. Tandis que le sens divin se propageait, une lueur sombre traversa son regard; il traça un sceau et pointa le doigt vers l'avant.
 
@@ -118,4 +118,4 @@ Il reporta ensuite son regard sur Ling Er, et ses yeux brillèrent d'une lueur �
 
 Zhao Xue ne daigna même pas jeter un regard à l'homme en bleu aux côtés de Situ Nan. Son expression froide et arrogante était manifeste.
 
-Situ Nan fut trop désintéressé pour prêter attention aux paroles de Zhao Xue. D'un revers de manche, une bourrasque de vent emporta immédiatement Zhao Xue et Ling Er. Il déclara avec arrogance: « Ce vieil homme prend les deux! »
+Situ Nan était trop paresseux pour prêter attention aux paroles de Zhao Xue. D'un revers de manche, une bourrasque de vent emporta immédiatement Zhao Xue et Ling Er. Il déclara avec arrogance: « Ce vieil homme prend les deux! »

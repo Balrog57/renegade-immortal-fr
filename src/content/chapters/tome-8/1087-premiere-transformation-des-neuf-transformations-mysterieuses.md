@@ -12,7 +12,7 @@ Wang Lin méditait en silence, profondément inquiet. Personne ne pouvait empêc
 
 Ce jeune homme était son espoir, l'espoir de la Secte Divine de l'Oiseau Vermillon. Pour cet enfant, il était prêt à tout!
 
-« Lors de la crise dans les Terres des Esprits Démoniaques, il n'a pas oublié ses amis. Maintenant qu'il est en sécurité, il ne pense toujours pas à oublier Qing Shui. Cela suffit à me rassurer lorsque je quitterai la Secte Divine de l'Oiseau Vermillon pour lui transmettre tous mes sorts... »
+« Lors de la crise dans les Terres des Esprits Démoniaques, il n'a pas oublié ses amis. Maintenant qu'il est en sécurité, il n'oublie toujours pas Qing Shui. Un tel homme suffit à me rassurer pour lui confier la Secte Divine de l'Oiseau Vermillon et lui transmettre tous mes sorts... »
 
 L'homme hocha discrètement la tête tandis qu'il levait sa main droite pour pointer le dos de Wang Lin. Son énergie originelle se déversa sans cesse dans le corps du jeune homme, enveloppant son âme originelle pour pénétrer la graine de feu qui siégeait en lui.
 
@@ -54,7 +54,7 @@ Lors des quatre premières fois, l'Empereur Divin de l'Oiseau Vermillon avait ai
 
 Au moment où son énergie originelle fut maîtrisée, un huitième tatouage de feu apparut aux côtés des sept déjà présents sur son bras droit. Les huit tatouages formaient un cercle; il n'en manquait plus qu'un seul pour le compléter.
 
-« La première transformation des Neuf Transformations Mystérieuses requiert neuf vies de culture. Tu dois continuer à absorber l'énergie originelle du feu jusqu'à ce que neuf tatouages se forment. Ces neuf tatouages représentent neuf vies de culture. Tu empruntes la puissance de ces neuf existences pour renverser les cieux, puis tu absorbes toute cette force en une seule unité pour achever la première transformation! »
+« La première transformation des Neuf Transformations Mystérieuses requiert neuf vies de culture. Tu dois continuer à absorber l'énergie originelle du feu jusqu'à ce que neuf tatouages se forment. Ces neuf tatouages représentent neuf vies de culture. Tu empruntes la puissance de ces neuf existences pour voiler le ciel, puis tu absorbes toute cette force en une seule unité pour achever la première transformation! »
 
 « La transformation ne changera pas ta nature, elle te rendra plus fort. Elle te permettra de libérer une puissance extrême une fois accomplie. Ce n'est que lorsque tu l'auras fait que je me sentirai assez serein pour te laisser devenir l'Empereur Divin et entreprendre mon voyage vers l'Alliance de Culture. » La voix du vieil Empereur Divin de l'Oiseau Vermillon résonna derrière lui.
 
@@ -102,4 +102,4 @@ Le huitième tatouage sur sa main droite commença à brûler et s'éleva dans l
 
 « La première transformation des Neuf Transformations Mystérieuses! » Le choc sur les visages des Anciens de la Secte Divine de l'Oiseau Vermillon fut plus grand encore que lorsqu'ils avaient découvert l'Éveil de l'Oiseau Vermillon!
 
-L'Éveil de l'Oiseau Vermillon ne signifiait pas seulement qu'une personne serait le prochain Empereur Divin, mais la première transformation des Neuf Transformations Mystérieuses, elle, en était la preuve absolue! C'était le symbole même de la transmission du titre d'Empereur Divin à la génération suivante!
+L'Éveil de l'Oiseau Vermillon ne faisait pas forcément de quelqu'un l'Empereur Divin, mais la première transformation des Neuf Transformations Mystérieuses, elle, en faisait à coup sûr un! C'était aussi le symbole du passage de relais entre deux générations d'Empereurs Divins!

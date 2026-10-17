@@ -26,7 +26,7 @@ Tout cela n'était dû qu'à une seule phrase prononcée par Tuo Sen lorsqu'ils 
 
 Aucun de ces anciens cultivateurs n'était faible, mais ils portaient tous les sceaux de Tuo Sen en eux, ce qui les empêchait de déployer leur pleine puissance. Après tout, Tuo Sen avait placé de nombreux sceaux qu'il fallait transférer à ces cultivateurs. Souvent, plusieurs individus étaient nécessaires pour contenir un seul sceau, et peu pouvaient supporter une telle charge seuls.
 
-Cependant, au cours des mille dernières années, les sceaux s'étaient constamment affaiblis. Tuo Sen se rétablissant de plus en plus vite, les sceaux sur son propre corps perdaient de leur force. Par extension, ceux qu'il avait placés sur les anciens cultivateurs s'atténuèrent également. En conséquence, ils étaient bien plus puissants que la première fois que Wang Lin était venu ici.
+Cependant, depuis plus de mille ans, la force des sceaux du monde de la mer de sang s'était constamment affaiblie. Tuo Sen se libérant de plus en plus vite, les sceaux sur son propre corps perdaient de leur force. Par extension, ceux qu'il avait placés sur les anciens cultivateurs s'atténuèrent également. En conséquence, ils étaient bien plus puissants que la première fois que Wang Lin était venu ici.
 
 Le vide fut envahi par des ombres rouges. Les anciens cultivateurs surgissant de la mer de sang ressemblaient à des dragons émergeant des abysses. Leurs yeux étaient empreints d'une soif de sang et d'un calme absolu. Ils entamèrent un massacre dans le vide, suivant les ordres de Tuo Sen.
 
@@ -40,7 +40,7 @@ Alors que le dragon de sang rugissait, il fendait le vide. À chaque mouvement, 
 
 Avant que quiconque ne puisse réagir, une bourrasque de vent fit vaciller ces cultivateurs qui reculèrent de quelques pas. À cet instant, une tête de dragon rouge géante surgit à l'horizon. Personne ne put distinguer ses traits, tant elle était rapide!
 
-Au moment où les pupilles des cultivateurs se contractèrent, la tête géante les atteignit. Les combattants de première ligne ne purent même pas esquiver avant que la gueule du dragon ne s'écraser sur eux.
+Au moment où les pupilles des cultivateurs se contractèrent, la tête géante les atteignit. Les combattants de première ligne ne purent même pas esquiver avant que la gueule du dragon ne s'écrase sur eux.
 
 Ils eurent soudain l'impression d'être frappés par une planète de culture; leurs corps explosèrent dans un fracas assourdissant, se transformant en un amas de chair, avant de pulvériser une seconde fois en une brume de sang!
 
@@ -74,7 +74,7 @@ Ce dragon était trop immense, même pour ces huit experts, et leurs pupilles se
 
 Un vieil homme aux cheveux violets cria promptement: « Activez la Quatrième Formation des Cadavres! »
 
-Sans hésiter, les huit formèrent un sceau. Ils bougèrent de concert et une énergie glaciale surgit soudainement. Cette froideur croît de manière exponentielle pour former rapidement une masse de glace noire.
+Sans hésiter, les huit s'assirent en tailleur et formèrent un sceau. Ils bougèrent de concert et une énergie glaciale surgit soudainement. Cette froideur croît de manière exponentielle pour former rapidement une masse de glace noire.
 
 Le cristal de glace grandit et s'étira jusqu'à se transformer, en un clin d'œil, en un géant de glace de plus de mille pieds de haut! Dès que le géant prit forme, les huit personnes situées dans son abdomen s'animèrent!
 
@@ -84,7 +84,7 @@ L'un resta dans l'abdomen, un autre partit dans le bras gauche, un autre dans le
 
 Au même moment, le dragon de sang siffla à travers le vide et percuta de plein fouet le géant de glace!
 
-*Rumble, rumble, rumble!*
+*Boum, boum, boum!*
 
 Un grondement assourdissant secoua les lieux, terrifiant tous les cultivateurs présents. Dans le vide, chacun ressentit cette vibration et tourna un regard terrifié vers l'impact!
 

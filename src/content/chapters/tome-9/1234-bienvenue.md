@@ -12,7 +12,7 @@ Les cultivateurs situés en dehors du Royaume Céleste du Vent étaient ainsi.
 
 Ils étaient tous les juniors des diverses sectes, mais leurs niveaux de culture n'étaient pas faibles. Ils s'étaient rassemblés pour tenter d'explorer le Royaume Céleste du Vent!
 
-Li Yuanlei était l'un d'eux. Parmi ce groupe, il faisait figure de chef, car il se trouvait au stade avancé du Nirvana Purificateur. Sous sa robe verte, sa silhouette élancée dégageait une aura majestueuse.
+Li Yuanlei était l'un d'eux. Parmi ce groupe, il faisait figure de chef, car il se trouvait au stade avancé du Nirvana Purificateur, à la grande perfection. Sous sa robe verte, sa silhouette élancée dégageait une aura majestueuse.
 
 Ses yeux magnifiques brillaient tandis qu'il fixait froidement l'horizon.
 
@@ -24,7 +24,7 @@ Dès qu'il apparut, plus d'une dizaine de cultivateurs se tournèrent vers lui. 
 
 Les autres cultivateurs aux côtés de Li Yuanlei jetèrent un coup d'œil à Wang Lin avant de détourner les yeux. Ils ne prêtèrent plus aucune attention à Wang Lin, mais Li Yuanlei fronça les sourcils. Il sentait que ce jeune homme aux cheveux blancs dégageait une sensation étrange.
 
-En contemplant la fissure spatiale menant au Royaume Céleste du Vent, les yeux de Wang Lin s'illuminèrent d'une lueur indéchiffrable. Il avait passé plus d'un mois à voyager pour arriver ici, uniquement pour le Royaume Céleste du Vent!
+En contemplant la fissure spatiale menant au Royaume Céleste du Vent, les yeux de Wang Lin s'illuminèrent d'une lueur indéchiffrable. Il avait passé un mois à voyager pour arriver ici, uniquement pour le Royaume Céleste du Vent!
 
 À cet instant, il ne daigna pas regarder les cultivateurs stationnés devant la faille. Il chargea directement vers la déchirure spatiale qui menait au Royaume Céleste du Vent.
 

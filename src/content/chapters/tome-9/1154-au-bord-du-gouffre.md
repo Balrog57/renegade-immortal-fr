@@ -10,7 +10,7 @@ slug: au-bord-du-gouffre
 
 Il possédait des sorts terrifiants et, de par sa personnalité, si vous le provoquiez sans disposer d'un niveau de culture puissant ou d'une secte solide pour vous protéger, la seule issue était la mort.
 
-Il y a plus de 1 000 ans, une petite secte de la région de rang 6 avait osé tuer l'un de ses disciples. Il s'était alors frayé un chemin jusqu'à elle et, accompagné de certains de ses alliés, l'avait totalement anéantie dans un véritable bain de sang.
+Il y a plus de 1 000 ans, une petite secte de la région de rang 6 avait tué par erreur l'un de ses disciples. Il s'était alors frayé un chemin jusqu'à elle et, accompagné de plusieurs de ses condisciples, l'avait totalement anéantie dans un véritable bain de sang.
 
 Cette bataille l'avait rendu célèbre, et chaque secte de la région de rang 6 avait appris son nom.
 
@@ -92,7 +92,7 @@ Il s'agissait manifestement d'un message transmis par un jade. Ces sorts étaien
 
 Ce jade vola trop vite et dépassa Wang Lin en un clin d'œil avant de retomber dans la main de Noble Argent, qui n'était pas encore loin. L'expression de ce dernier changea brusquement; sa main gauche traça un sceau unique pour vérifier le contenu. Dès que son Sens Divin pénétra dans le jade, son corps fut parcouru d'un tremblement.
 
-C'était un message envoyé par la seconde vague de cultivateurs. Il ne contenait qu'une seule information: la tablette spirituelle de Shi Luoxing s'était brisée!
+C'était un message envoyé par la seconde vague de cultivateurs. Il ne contenait qu'une seule information: la tablette de vie de Shi Luoxing, dans le pavillon Jiying de la secte, s'était brisée!
 
 Shi Luoxing était mort!
 

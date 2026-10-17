@@ -32,7 +32,7 @@ Tandis qu'il rugissait, une lueur écarlate émana de lui et une armure cramoisi
 
 À l'instant où l'armure apparut, l'inimaginable énergie d'origine dans le corps de Wang Lin sembla trouver un refuge en s'engouffrant dans l'armure. Cela fit briller cette protection écarlate avec une intensité accrue.
 
-Le Dieu Empereur du Oiseau Vermillon observait Wang Lin avec anticipation et tension, sa main droite levée dans les airs. Si Wang Lin ne parvenait pas à endurer cela, il interviendrait immédiatement. Bien que cela le décevrait, ce membre du clan qui s'était éveillé deux fois était plus important que la Première Transformation.
+L'Empereur Divin de l'Oiseau Vermillon observait Wang Lin avec anticipation et tension, sa main droite levée dans les airs. Si Wang Lin ne parvenait pas à endurer cela, il interviendrait immédiatement. Bien que cela le décevrait, ce membre du clan qui s'était éveillé deux fois était plus important que la Première Transformation.
 
 « Je suis trop impatient. Son talent est ordinaire; le forcer ainsi pourrait lui nuire... Hélas. » Il avait déjà pris sa décision: dès que Wang Lin montrerait qu'il ne pouvait plus tenir, il viendrait à son aide sans attendre.
 
@@ -44,7 +44,7 @@ Le cinquième tatouage, le quatrième tatouage, le troisième tatouage!
 
 Il activa quatre tatouages presque simultanément. À cet instant, une quantité d'énergie équivalente à quatre fois la sienne jaillit, provoquant un grondement fracassant qui fit trembler les cieux et résonna à travers tout le champ stellaire!
 
-L'action insensée de Wang Lin fit se rétracter les pupilles du Dieu Empereur du Oiseau Vermillon. Il voyait bien que Wang Lin portait en lui une détermination impitoyable.
+L'action insensée de Wang Lin fit se rétracter les pupilles de l'Empereur Divin de l'Oiseau Vermillon. Il voyait bien que Wang Lin portait en lui une détermination impitoyable.
 
 « Cet homme n'a cultivé que depuis un peu plus de mille ans et a pourtant pu atteindre ce niveau. S'être éveillé deux fois n'était pas un accident. Sa cruauté et sa combativité sont les clés de tout ceci! »
 
@@ -52,13 +52,13 @@ L'apport de quatre fois sa capacité d'énergie d'origine, s'ajoutant à l'éner
 
 Un Oiseau Vermillon blanc apparut instantanément entre ses sourcils. La masse colossale d'énergie d'origine se déversa aussitôt dans l'oiseau, le faisant croître jusqu'à ce qu'il couvre le ciel.
 
-Ce Oiseau Vermillon avait été capturé par l'Omniscient, mais depuis l'arrivée du Dieu Empereur du Oiseau Vermillon, comment pouvait-il laisser cet homme s'emparer de l'esprit du Oiseau Vermillon?
+Cet Oiseau Vermillon avait été capturé par l'Omniscient, mais depuis l'arrivée de l'Empereur Divin de l'Oiseau Vermillon, comment pouvait-il laisser cet homme s'emparer de l'esprit de l'Oiseau Vermillon?
 
 Alors que le Oiseau Vermillon se manifestait, Wang Lin endura la douleur atroce qui le ravageait et poussa un rugissement en levant sa main gauche pour pointer l'un des deux derniers tatouages de feu!
 
 En un instant, ce tatouage se mua en énergie d'origine et pénétra rapidement dans son corps. À cet instant, Wang Lin eut la sensation que tout son être brûlait, comme s'il était raffiné à l'intérieur d'un fourneau céleste naturel.
 
-Wang Lin ignorait que les membres de la Secte Divine du Oiseau Vermillon observaient tous l'ascension d'un nouveau Dieu Empereur grâce à leurs sens divins par une méthode spéciale! Des personnes familières regardaient également la scène.
+Wang Lin ignorait que les membres de la Secte Divine du Oiseau Vermillon observaient tous l'ascension d'un nouvel Empereur Divin grâce à leurs sens divins par une méthode spéciale! Des personnes familières regardaient également la scène.
 
 Lei Ji et Da Tou étaient sur un sommet montagneux. Ils cessèrent leur culture pour lever les yeux vers le ciel. Tous deux pressentaient vaguement que Wang Lin était tel un phénix sur le point de s'éveiller, subissant une divine rétribution.
 

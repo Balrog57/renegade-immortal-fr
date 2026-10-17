@@ -22,7 +22,7 @@ Si Wang Lin avait été un cultivateur du troisième niveau, il aurait pu balaye
 
 La force était tout, et elle était la clé de la survie dans ce monde impitoyable de la culture!
 
-« Je t'ai sous-estimé, petite fourmi, mais plus tu lutteras, plus ce vieil homme aura envie de te tuer! » La voix antique résonna à travers le monde comme un coup de tonnerre. La brume tourbillonna violemment alors qu'un jeune homme vêtu d'une robe taoïste en émergea!
+« Je t'ai sous-estimé, petite fourmi, mais plus tu lutteras, plus ce vieil homme aura envie de te tuer! » La voix antique résonna à travers le monde comme un coup de tonnerre. L'immense main se retira dans la brume stellaire, qui tourbillonna violemment alors qu'un garçon vêtu d'une robe taoïste en émergea peu à peu!
 
 Ce garçon avait une chevelure blanche, mais sa peau était claire et pure. En sortant, son regard se posa sur Wang Lin, en contrebas. Les cultivateurs du troisième niveau apparaissaient rarement en personne, car ils pouvaient fusionner avec le monde et créer un avatar du troisième niveau n'importe où.
 
@@ -60,7 +60,7 @@ Un grondement de tonnerre résonna et toute la région de rang 5 trembla violemm
 
 Cependant, alors que le sang approchait, un simple regard de Shui Daozi suffit à le faire s'effondrer! À cet instant, le garçon aux cheveux blancs tendit la main et une seule goutte de sang cessa de se dissiper. Elle vola rapidement vers la main du garçon.
 
-Le corps blanc saisit cette goutte de sang et l'avala, ses yeux commençant à briller.
+Le garçon aux cheveux blancs saisit cette goutte de sang et l'avala, ses yeux commençant à briller.
 
 « Ce n'est pas sa réincarnation!! »
 
@@ -82,7 +82,7 @@ Les restrictions qui avaient été contenues dans ces cent continents sauvages �
 
 La Restriction de la Vie et de la Mort forma deux auras, l'une de vie et l'autre de mort. Elles entourèrent le garçon aux cheveux blancs, créant la Restriction de la Vie et de la Mort!
 
-La Restriction du Temps avait inversé 5 000 ans grâce au sort « Flux Temporel » de Wang Lin. Elle explosa désormais avec une aura antique qui enveloppa l'âme originelle du garçon!
+La Restriction du Temps avait inversé 5 000 ans grâce au sort « Temps Fluide » de Wang Lin. Elle explosa désormais avec une aura antique qui enveloppa l'âme originelle du garçon!
 
 Alors que Wang Lin parlait, les trois grandes restrictions éclatèrent soudainement!
 
@@ -94,7 +94,7 @@ L'effondrement incessant résonna avec frénésie, faisant apparaître des fissu
 
 Il fallait une puissance phénoménale pour effondrer cent continents sauvages; c'était une prouesse que seuls les cultivateurs du troisième niveau pouvaient accomplir!
 
-Cependant, bien que les continents sauvages s'effondrent, les trois grandes restrictions absorbaient le sang laissé par les tatouages. Les restrictions formèrent un octogone et scellèrent le corps blanc à l'intérieur!
+Cependant, bien que les continents sauvages s'effondrent, les trois grandes restrictions absorbaient le sang laissé par les tatouages. Les restrictions se répandirent dans les huit directions et scellèrent le garçon aux cheveux blancs à l'intérieur!
 
 Les trois restrictions pouvaient sceller le monde, la chair et l'âme originelle, mais elles ne pouvaient pas sceller l'âme, car il manquait la dernière restriction pour fusionner véritablement en une seule entité!
 

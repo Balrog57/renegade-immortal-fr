@@ -32,7 +32,7 @@ Le temps s'écoulait lentement, et Wang Lin était toujours assis sur le contine
 
 Une heure, deux heures, trois heures... jusqu'à ce que dix heures ne se soient écoulées.
 
-Après avoir consommé tous les cristaux d'origine, il avait finalement réussi à extraire 30 % du sang de l'épée de fer. Ce sang sombre se mua en une pilule de la taille d'un haricot qui dégageait une aura étrange et flottait autour de Wang Lin.
+Après avoir consommé tous les cristaux d'origine, il avait finalement réussi à extraire 30 % du sang de l'épée de fer. Ce sang sombre se mua en une pilule de la taille d'un haricot qui dégageait une aura étrange et flottait dans l'âme originelle de Wang Lin.
 
 Extraire 30 % du sang de l'épée de fer représentait la limite de Wang Lin. Même avec plus de temps, il n'aurait pu en extraire davantage. Sans le danger qui l'avait poussé dans ses derniers retranchements, il n'aurait jamais été capable d'en arracher autant.
 
@@ -52,7 +52,7 @@ La brume se déplaça comme une vague, et les rugissements provenant du brouilla
 
 Simultanément, un vortex géant de brouillard apparut soudainement à la limite du champ de vision de Wang Lin. Un grondement de tonnerre résonna lorsqu'un bras gigantesque émergea du vortex et fondit sur lui.
 
-Ce bras était très vieux et ridé; c'était la main d'un Ancien. En s'étendant vers Wang Lin, il donnait l'impression que le monde entier allait s'effondrer sous sa masse!
+Ce bras était très vieux et ridé; c'était la main d'un vieillard. En s'étendant vers Wang Lin, il donnait l'impression que le monde entier allait s'effondrer sous sa masse!
 
 L'énergie originelle du monde semblait avoir été scellée par une force mystérieuse; il n'en restait plus aucune dans cette région.
 
@@ -60,15 +60,15 @@ La vitesse de cette main géante était indescriptible. À l'instant où Wang Li
 
 Il n'y avait ni mots, ni questions, ni chance de survie alors que la main descendait!
 
-Wang Lin avait déjà rencontré cela dans le Royaume aux Sept Couleurs. Il semblait que chaque cultivateur du troisième pas aimait utiliser ce genre de sorts pour broyer ceux qu'ils considéraient comme des fourmis!
+Wang Lin avait déjà rencontré cela dans le Royaume aux Sept Couleurs. Il semblait que chaque cultivateur de la troisième étape aimait utiliser ce genre de sorts pour broyer ceux qu'ils considéraient comme des fourmis!
 
-Il semblait qu'en dehors des autres cultivateurs du troisième pas, personne ne pouvait faire apparaître ces êtres sous leur forme réelle, et encore moins une fourmi comme Wang Lin!
+Il semblait qu'en dehors des autres cultivateurs de la troisième étape, personne ne pouvait faire apparaître ces êtres sous leur forme réelle, et encore moins une fourmi comme Wang Lin!
 
 Cependant, une fourmi peut toujours mordre, lutter et résister. Sans parler du fait que Wang Lin ne s'était jamais considéré comme une fourmi! Et même si c'était le cas, il aurait voulu dévorer le monde, animé d'une volonté de défi!
 
 Au moment où la main descendit, les yeux de Wang Lin brillèrent d'un regard frénétique et il poussa un grognement froid. Il bondit vers la main tel un météore.
 
-« Même les cultivateurs du troisième pas ne me feront pas céder! » L'intention de combat dans le cœur de Wang Lin s'enflamma et l'étoile de la loi entre ses sourcils tourna avec frénésie. Au moment où il chargea, il se rapprocha de la main et, alors qu'elle s'abattait sur lui, il poussa un rugissement qui fit trembler le ciel!
+« Même les cultivateurs de la troisième étape ne me feront pas céder! » L'intention de combat dans le cœur de Wang Lin s'enflamma et l'étoile de la loi entre ses sourcils tourna avec frénésie. Au moment où il chargea, il se rapprocha de la main et, alors qu'elle s'abattait sur lui, il poussa un rugissement qui fit trembler le ciel!
 
 « Dix millions d'ombres d'épées! » L'index droit de Wang Lin pointa vers la main qui se refermait sur lui. L'énergie de l'épée dissimulée à l'intérieur explosa soudainement. Un, deux, dix, cent, mille, dix mille, cent mille... 5 millions, 8 millions... 9 999 999!
 
@@ -78,7 +78,7 @@ Il ne manquait qu'une seule ombre pour atteindre les dix millions.
 
 Dès que cette complétude fut atteinte, les ombres de deux cerfs apparurent et encerclèrent l'index de Wang Lin lors de la collision avec la main!
 
-C'était le choc entre une paume et un doigt. Dix millions d'ombres d'épées condensées en un seul point. Cela possédait le pouvoir de tuer n'importe quel cultivateur Briseur du Nirvana, et même les cultivateurs de la Faille Céleste en seraient choqués!
+C'était le choc entre une paume et un doigt. Dix millions d'ombres d'épées condensées en un seul point. Cela possédait le pouvoir de tuer n'importe quel cultivateur Briseur du Nirvana, et même les cultivateurs du Fléau Céleste en seraient choqués!
 
 C'était la première attaque de Wang Lin contre celui qui voulait sa mort!
 
@@ -112,7 +112,7 @@ Dès que sa voix résonna, les dix millions d'ombres qui avaient pénétré la m
 
 C'était comme si dix millions de cultivateurs s'étaient transformés en épées volantes pour pénétrer dans la main et lancer une attaque autodestructrice et frénétique. Le rugissement semblait issu d'une époque antique, ébranlant le monde!
 
-Ce sort était suffisant pour tuer n'importe quel Briseur du Nirvana, et même les cultivateurs de la Faille Céleste en seraient sortis dans un état lamentable. Pourtant, à cet instant, la main géante trembla soudainement et une force étrange apparut. L'effondrement des dix millions d'ombres se dissipa brusquement. La main resta indemne!
+Ce sort était suffisant pour tuer n'importe quel Briseur du Nirvana, et même les cultivateurs du Fléau Céleste en seraient sortis dans un état lamentable. Pourtant, à cet instant, la main géante trembla soudainement et une force étrange apparut. L'effondrement des dix millions d'ombres se dissipa brusquement. La main resta indemne!
 
 Il ne restait qu'un point rouge au centre de la paume, et une goutte de sang tomba.
 

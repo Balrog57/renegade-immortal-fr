@@ -66,7 +66,7 @@ Wang Lin approchait progressivement de la sortie en suivant la carte contenue da
 
 Pourtant, Wang Lin avait déjà vu la Formation du Royaume Scellé et il n'était guère confiant quant à sa capacité à l'ouvrir!
 
-« La rétribution divine ne s'est pas manifestée à l'intérieur de la fissure, mais je sens qu'elle tombera dès que je serai sorti. Peut-être qu'... avec la puissance de la rétribution divine, pourrai-je briser la Formation du Royaume Scellé! » Les yeux de Wang Lin s'illuminèrent et il vola encore plus vite.
+« La rétribution divine ne s'est pas manifestée à l'intérieur de la fissure, mais je sens qu'elle tombera dès que je serai sorti. Peut-être que... avec la puissance de la rétribution divine, pourrai-je briser la Formation du Royaume Scellé! » Les yeux de Wang Lin s'illuminèrent et il vola encore plus vite.
 
 Cependant, alors qu'il avait parcouru plus de la moitié du chemin et approchait de l'issue, une voix douce flotta vers lui.
 
@@ -86,7 +86,7 @@ La femme joua avec ses cheveux et murmura: « Ne soyez pas nerveux, mon corps or
 
 Wang Lin ne prononça pas un mot et son visage resta impassible, mais il serra l'épée de sang plus fermement dans sa main gauche.
 
-La femme regarda Wang Lin et dit doucement: « Je suis l'une des concubines de l'Ancien Empereur Céleste. Mon nom est One Moon. La femme à vos côtés a presque perdu toute vitalité, mais en vous voyant, vous semblez posséder le moyen de la restaurer. Je ne peux pas vous obliger à rester, mais je peux vous empêcher de partir assez longtemps pour que la vitalité de cette femme se dissipe complètement... »
+La femme regarda Wang Lin et dit doucement: « Je suis l'une des concubines de l'Ancien Empereur Céleste. Mon nom est Yi Yue. La femme à vos côtés a presque perdu toute vitalité, mais en vous voyant, vous semblez posséder le moyen de la restaurer. Je ne peux pas vous obliger à rester, mais je peux vous empêcher de partir assez longtemps pour que la vitalité de cette femme se dissipe complètement... »
 
 L'expression de Wang Lin resta inchangée, mais une détermination implacable perçait sous son calme lorsqu'il répondit lentement: « Si elle meurt, je ne quitterai pas cet endroit. Au lieu de cela, je me frayerai un chemin jusqu'à votre lieu de guérison et je vous tuerai! »
 

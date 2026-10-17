@@ -24,13 +24,13 @@ Le moment était idéal pour l'attaque!
 
 La puissance d'un Trésor Pseudo-Vide du Nirvana était capable de faire trembler les cieux. À cet instant, un rayon monstrueux d'énergie d'épée fonça vers Maître Nuage-Âme!
 
-L'expression de Maître Nuage-Âme changea brusquement. Il n'était pas loin de Wang Lin et se trouvait très près de la faille aux sept couleurs. N'ayant pas le temps de réfléchir alors que l'énergie d'épée approchait à une vitesse fulgurante, il poussa un rugissement et ses mains formèrent un sceau. La flamme spirituelle derrière lui s'élança pour contrer l'assaut de Wang Lin!
+L'expression de Maître Nuage-Âme changea brusquement. Il n'était pas loin de Wang Lin et se trouvait très près de la faille aux sept couleurs. N'ayant pas le temps de réfléchir alors que l'énergie d'épée approchait à une vitesse fulgurante, il poussa un rugissement et ses mains formèrent un sceau. Les flammes d'âme qui l'entouraient s'élancèrent pour contrer l'assaut de Wang Lin!
 
-La flamme spirituelle percuta l'énergie d'épée dans un fracas tonitruant, mais elle finit par s'effondrer. Elle fut incapable d'empêcher l'énergie d'épée de transpercer sa défense.
+Les flammes d'âme percutèrent l'énergie d'épée dans un fracas tonitruant, mais elles s'effondrèrent aussitôt. Elles furent incapables d'empêcher l'énergie d'épée de transpercer sa défense.
 
 Face à cette crise, les yeux de Maître Nuage-Âme s'écarquillèrent de rage. Au moment ultime, il se mordit la langue et cracha un jet de sang essentiel. Ce sang se mua en un crâne qui dévora le rayon d'énergie d'épée.
 
-Un bang assourdissant secoua l'espace alors que le corps de Maître Nuage-Âme tremblait et que son visage pâlissait. Ses yeux étaient empreints de choc, mais il demeurait, après tout, un cultivateur du stade intermédiaire du Briseur du Nirvana; l'énergie d'épée de Wang Lin ne put donc pas le blesser mortellement. L'impact projeta Wang Lin en arrière de quelques pas, le faisant vaciller vers la faille.
+Un bang assourdissant secoua l'espace alors que le corps de Maître Nuage-Âme tremblait et que son visage pâlissait. Ses yeux étaient empreints de choc, mais il demeurait, après tout, un cultivateur du stade intermédiaire du Briseur du Nirvana; l'énergie d'épée de Wang Lin ne put donc pas le blesser mortellement. L'impact projeta Wang Lin en arrière de quelques pas, son âme originelle trembla, et il vacilla vers la faille.
 
 « Tu cherches la mort, Junior! » rugit Maître Nuage-Âme en s'élançant. Sa vitesse était prodigieuse et il rejoignit Wang Lin en un instant.
 
@@ -58,11 +58,11 @@ Le ciel et la terre existaient ici, mais le firmament irradiait une lueur aux se
 
 Wang Lin ne prit pas le temps d'examiner les environs. Ses yeux s'animèrent alors qu'il inspectait les autres personnes téléportées ici. Maître Nuage-Âme n'était pas là! En constatant cela, Wang Lin se détendit légèrement. Il avait tenté un pari risqué, et il venait de gagner! Son acte avait été extrêmement périlleux. Maître Nuage-Âme n'était pas préparé, et son sort avait été interrompu par la stase. Si le sort de l'autre avait été lancé, les choses ne se seraient pas terminées si vite.
 
-Tous se trouvaient sur une sorte d'autel d'à peine mille pieds de large. Le vieil homme nommé Pang observa les alentours en songeant au passé. C'était sa troisième visite ici. La première fois, beaucoup de leurs compagnons étaient morts. La deuxième, le carnage fut encore plus grand. Aujourd'hui, incluant lui-même, ils n'étaient plus que trois.
+Tous se trouvaient sur une sorte d'autel d'à peine mille pieds de large. Le vieil homme nommé Pang observa les alentours en songeant au passé. C'était sa troisième visite ici. La première fois, beaucoup de leurs compagnons étaient morts. La deuxième, une partie des survivants avait encore péri. Aujourd'hui, incluant lui-même, ils n'étaient plus que trois.
 
 Le garçon nommé Duanmu fixait la brume devant lui en se léchant les lèvres, murmurant: « Ce brouillard n'est pas de la brume stellaire... »
 
-Chen Tianjun, de la Secte des Bêtes de Bataille, manifesta une vive excitation dès son arrivée. Il prit plusieurs inspirations profondes, le regard brillant d'une lueur étrange.
+Chen Tianjun, de la Secte de la Bête de Bataille, manifesta une vive excitation dès son arrivée. Il prit plusieurs inspirations profondes, le regard brillant d'une lueur étrange.
 
 Seule la vieille femme en vert fronça légèrement les sourcils; nul ne savait à quoi elle pensait.
 
@@ -108,6 +108,6 @@ Wang Lin laissa échapper un reniflement méprisant. Il joignit ses mains en ret
 
 Pendant ce temps, dans une vallée noyée sous une brume dense au cœur de ce monde aux sept couleurs, Maître Nuage-Âme était assis, le visage livide, scrutant nerveusement les environs. Le sang ne coulait plus de son bras droit, mais la terreur transparaissait sous son expression.
 
-« Maudit soit ce destin... J'ai été transporté ici! » Son cœur tremblait tandis qu'il se léchait les lèvres desséchées. Il fixa la brume épaisse à l'entrée de la vallée.
+« Maudit... J'ai été téléporté ici!! » Son cœur tremblait tandis qu'il se léchait les lèvres desséchées. Il fixa la brume épaisse à l'entrée de la vallée.
 
 De faibles rugissements émanaient de la brume, accompagnés d'une odeur de poisson fétide...

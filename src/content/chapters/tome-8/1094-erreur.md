@@ -52,7 +52,7 @@ Déjà sous le choc, Lie Yunzi cracha une bouchée de sang lorsque cette pressio
 
 « Cette affaire revient à envoyer quelqu'un au Temple Céleste du Tonnerre pour exiger le Maître Yan Leizi. Lie Yunzi, à moins que vous ne me fournissiez une explication satisfaisante aujourd'hui, vous ne quitterez pas la Secte Divine Oiseau Vermillon. Demain, votre Luotian en paiera le prix! »
 
-« Ce n'est pas moi qui rends les choses difficiles. Le compagnon cultivateur Mo Zhi, du pays de Chu Yun, peut en être témoin! » Wang Lin ne laissa aucune chance à Lie Yunzi; il lança son assaut comme un coup de tonnerre!
+« Ce n'est pas une accusation fabriquée de ma part. Le compagnon cultivateur Mo Zhi, du pays de Chu Yun, peut en être témoin! » Wang Lin ne laissa aucune chance à Lie Yunzi; il lança son assaut comme un coup de tonnerre!
 
 L'esprit de Lie Yunzi était encore en plein chaos, et ces paroles le firent cracher à nouveau du sang. Alors qu'il allait tenter de répliquer, Mo Zhi prit la parole.
 
@@ -62,7 +62,7 @@ Les yeux de la belle femme de la Secte des Cadavres s'illuminèrent et elle sour
 
 Lie Yunzi n'eut pas le temps de reprendre son souffle avant d'entendre les paroles de Mo Zhi et de la femme de la Secte des Cadavres. Il cracha davantage de sang, puis redressa brusquement la tête pour fixer Wang Lin.
 
-Wang Lin ricana et se rassit. Il leva sa main droite comme s'il examinait ses ongles, n'accordant aucune attention à Lie Yunzi. Nous étions dans la Secte Divine Oiseau Vermillon; Lie Yunzi ne pouvait donc pas échapper à son emprise.
+Wang Lin ricana et se rassit. Il leva sa main droite comme s'il examinait les moindres détails de ses empreintes digitales, n'accordant aucune attention à Lie Yunzi. Ils se trouvaient dans la Secte Divine Oiseau Vermillon; Lie Yunzi ne pouvait donc pas échapper à son emprise.
 
 Si cet homme n'avait pas formulé une requête aussi insensée, Wang Lin n'en serait pas arrivé là. Mais désormais, il devait donner une leçon à Lie Yunzi. Et non seulement lui, mais même les quatre anciens derrière lui le fixaient d'un regard glacial.
 
@@ -94,7 +94,7 @@ Wang Lin fit mine de n'avoir rien entendu et continua d'observer sa main droite.
 
 Les veines de Lie Yunzi gonflèrent tandis qu'il réprimait sa rage. En voyant les quatre anciens du Briseur du Nirvana entourant Wang Lin, son esprit vacilla. Après une réflexion rapide, il força un air respectueux et dit: « J'espère que l'Empereur Divin ne tiendra pas rigueur de l'erreur de ce vieil homme. J'ai été imprudent, mais je n'avais nullement l'intention d'insulter... »
 
-Wang Lin fixa sa main droite et déclara lentement: « Imprudent! Je vous ai demandé si cette affaire était personnelle ou si elle concernait Luotian! Je me souviens très bien de votre réponse. Je me demande quel objet du Temple Céleste du Tonnerre je détiens actuellement. »
+Wang Lin fixa sa main droite et déclara lentement: « Imprudent! Je vous ai demandé si cette affaire était personnelle ou si elle concernait Luotian! Je me souviens très bien de votre réponse. Je me demande dans quelles affaires du Temple Céleste du Tonnerre de Luotian je me trouve impliqué. »
 
 « Vous! » Lie Yunzi leva la tête, réprimant la rage qui allait exploser. À cet instant, il n'osait pas s'emporter... Si la femme de la Secte des Cadavres et Mo Zhi n'avaient pas été là, il aurait tout déversé. Même s'il risquait de mourir, Luotian se vengerait pour lui.
 

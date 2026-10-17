@@ -38,7 +38,7 @@ Les yeux de Wang Lin s'illuminèrent; sa main droite s'élança et le trident re
 
 Ces neuf continents n'étaient rien d'autre qu'une multitude de bêtes moustiques!
 
-Le nombre de créatures était terrifiant. Wang Lin ne pouvait absolument pas les dénombrer, mais selon son intuition, il estimait qu'elles se comptaient par millions.
+Le nombre de créatures était terrifiant. Wang Lin ne pouvait absolument pas les dénombrer, mais selon son intuition, il estimait qu'elles dépassaient le million.
 
 Le roi moustique avait bu deux gorgées de sang et son corps dégageait désormais une lueur dorée. Une pression plusieurs fois plus puissante que la précédente s'abattit sur la zone!
 
@@ -72,7 +72,7 @@ Au moment où il apparut, toutes les bêtes moustiques environnantes poussèrent
 
 Le géant moustique lança un regard féroce vers l'endroit où le troupeau avait disparu. Il poussa un rugissement et se lança dans une poursuite à une vitesse inimaginable!
 
-Son mouvement entraîna des millions de bêtes moustiques dans sa course. Elles couvrirent le ciel alors qu'elles entamaient la chasse!
+Son mouvement entraîna un million de bêtes moustiques dans sa course. Elles couvrirent le ciel alors qu'elles entamaient la chasse!
 
 À cet instant, le Royaume Céleste du Vent tout entier entra en ébullition; la terre tremblait et d'innombrables fissures lacéraient le ciel. Des rugissements parcouraient le royaume tandis que l'immense essaim de moustiques formait une scène majestueuse en se déployant lentement.
 

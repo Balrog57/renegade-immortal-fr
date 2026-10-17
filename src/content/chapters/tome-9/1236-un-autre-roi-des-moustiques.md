@@ -6,13 +6,13 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1236 - Another Mosquito King
 slug: un-autre-roi-des-moustiques
 ---
-À la vitesse de Wang Lin, ils décrivèrent un large cercle autour du Royaume Céleste du Vent. Tout en traquant les bêtes-moustiques, Wang Lin récolta également quelques jades célestes.
+En deux jours, à la vitesse de Wang Lin, il avait déjà effectué un large cercle autour de la périphérie du Royaume Céleste du Vent. Tout en traquant les bêtes-moustiques, Wang Lin récolta également quelques jades célestes.
 
 Peut-être était-ce dû à la présence massive de bêtes-moustiques qui empêchait les cultivateurs d'entrer, mais Wang Lin fit une importante récolte de jades célestes.
 
 Cependant, ce qui le fit progressivement froncer les sourcils était que de moins en moins de nuées de moustiques étaient portées par le vent. Il devait souvent voler pendant plusieurs heures avant de repérer un autre essaim.
 
-C'était un phénomène très anormal. Si le Royaume Céleste du Vent ne comptait qu'un tel nombre de bêtes-moustiques, il serait impossible d'en empêcher les cultivateurs de la Mer des Nuages de changer d'expression dès que l'on évoquait ce lieu.
+C'était un phénomène très anormal. Si le Royaume Céleste du Vent ne comptait qu'un tel nombre de bêtes-moustiques, il serait impossible que les cultivateurs de la Mer des Nuages s'arrêtent à ses portes et changent d'expression dès que l'on évoquait ce lieu.
 
 Ce jour-là, Wang Lin flottait dans les airs et scruta les profondeurs du Royaume Céleste du Vent. Durant ses deux jours d'observation, il avait remarqué que la plupart des bêtes-moustiques du royaume étaient rassemblées dans la partie intérieure. Quant aux nuages de brume rouge qu'il avait vus jusqu'à présent, le vent les avait soufflés depuis la région intérieure, ce qui expliquait leur faible densité.
 
@@ -22,15 +22,15 @@ Ce rugissement créa des ondulations invisibles qui se propagèrent à travers t
 
 Bien qu'elles fussent loin, la lumière rouge était d'une puissance capable de faire trembler les cieux. Des rugissements déchaînés émanaient de cette lueur, capables de faire frémir l'esprit de quiconque les entendrait. Même le ciel fut secoué, et de nombreuses fissures spatiales apparurent.
 
-L'expression de Wang Lin resta impassible, mais ses pupilles se rétractèrent. Il y avait près de mille bêtes-moustiques rouges dans cette vague! Et ce n'était que la première. Wang Lin pouvait imaginer que bientôt, d'autres créatures apparaîtraient, et qu'il ne s'agirait pas seulement de moustiques rouges, mais de spécimens bien plus puissants.
+L'expression de Wang Lin resta impassible, mais ses pupilles se rétractèrent. Il y avait plus de mille bêtes-moustiques rouges dans cette vague! Et ce n'était que la première. Wang Lin pouvait imaginer que bientôt, d'autres créatures apparaîtraient, et qu'il ne s'agirait pas seulement de moustiques rouges, mais de spécimens bien plus puissants.
 
-Un instant plus tard, la nuée de mille bêtes se rapprocha, mais au moment même où elles arrivaient, une bête-moustique s'élança vers l'avant. Une lumière dorée pâle brilla et une pression écrasante se propagea instantanément. Parmi les mille individus, on comptait près de cent moustiques rouge foncé et plus d'une dizaine de moustiques rouge brunâtre. Sous cette pression, tous tremblèrent.
+Un instant plus tard, la nuée de mille bêtes se rapprocha, mais au moment même où elles arrivaient, une bête-moustique s'élança vers l'avant. Une lumière dorée pâle brilla et une pression écrasante se propagea instantanément. Parmi les mille individus, on comptait près de cent moustiques rouge foncé et des dizaines de moustiques brun rougeâtre. Sous cette pression, tous tremblèrent.
 
-Les moustiques rouges se rendirent immédiatement, tandis que les cent spécimens rouge foncé luttèrent un court instant avant de capituler. Seuls les douze ou treize moustiques rouge brunâtre reculèrent brusquement, tentant de s'enfuir.
+Les moustiques rouges se rendirent immédiatement, tandis que les cent spécimens rouge foncé luttèrent un court instant avant de capituler. Seules les quelques dizaines de bêtes brun rougeâtre reculèrent brusquement, tentant de s'enfuir.
 
-Les yeux de Wang Lin s'illuminèrent. Il était sur le point de signaler au roi des moustiques de les poursuivre, mais à cet instant, un autre rugissement violent déchira le ciel. Au loin, une immense nuée d'au moins 10 000 bêtes-moustiques chargeait!
+Les yeux de Wang Lin s'illuminèrent. Il était sur le point de signaler au roi des moustiques de les poursuivre, mais à cet instant, un autre rugissement violent déchira le ciel. Au loin, une immense nuée d'au moins plusieurs dizaines de milliers de bêtes-moustiques chargeait!
 
-Cette scène fit immédiatement frissonner Wang Lin. Il savait qu'il serait extrêmement difficile pour le roi des moustiques de rassembler 10 000 individus dans son état actuel. Wang Lin repéra également une grande quantité de lueurs bleues et même quelques lueurs blanches au sein de cet essaim.
+Cette scène fit immédiatement frissonner Wang Lin. Il savait qu'il serait extrêmement difficile pour le roi des moustiques de rassembler ces dizaines de milliers d'individus dans son état actuel. Wang Lin repéra également une grande quantité de lueurs bleues et même quelques lueurs blanches au sein de cet essaim.
 
 Sans hésiter, Wang Lin agit, et les quelque 2 000 bêtes-moustiques l'entourèrent. Il dissimula sa présence et envoya un ordre. Le roi des moustiques battit en retraite avec ses 2 000 sujets pour éviter la grande nuée.
 
@@ -44,7 +44,7 @@ Ce qui excita encore davantage Wang Lin, ce furent les moustiques au corps blanc
 
 C'était l'aura des cultivateurs du Briseur du Nirvana!
 
-Parmi ces 10 000 bêtes, il y avait près de 300 moustiques blancs. S'il pouvait contrôler cette force, ce serait bien plus avantageux que de diriger des dizaines de milliers de moustiques rouges!
+Parmi ces dizaines de milliers de bêtes, il y avait près de 300 moustiques blancs. S'il pouvait contrôler cette force, ce serait bien plus avantageux que de diriger des dizaines de milliers de moustiques rouges!
 
 « Ce Royaume Céleste du Vent est un lieu de vie ou de mort, mais pour moi, c'est le plus grand trésor que j'aie jamais vu! » Wang Lin prit une profonde inspiration pour réprimer son excitation.
 
@@ -62,7 +62,7 @@ Le cinquième jour après son entrée, alors que Wang Lin progressait vers la r�
 
 Un fragment de Royaume Céleste flottait ici. À mesure qu'ils s'en approchaient, une lueur bleue jaillit. Les yeux de Wang Lin se plissèrent d'excitation: il vit clairement une bête-moustique à l'intérieur de cette lumière bleue!
 
-Ce moustique était entièrement bleu et dégageait l'aura d'un cultivateur du Purificateur du Nirvana!
+Ce moustique était entièrement bleu et dégageait l'aura d'un cultivateur du stade initial du Purificateur du Nirvana!
 
 Il ne voyageait pas en groupe, mais seul. En plein vol, le roi des moustiques sous les ordres de Wang Lin émit un sifflement. Le moustique bleu s'arrêta net et fixa Wang Lin ainsi que le roi des moustiques. De la confusion et de la résistance luisaient dans ses yeux.
 
@@ -86,7 +86,7 @@ Lorsque la bête bleue reprit ses esprits, elle redevint féroce et s'apprêta �
 
 Dès qu'il s'approcha, tous les moustiques rouges se dispersèrent, n'osant absolument pas l'approcher.
 
-« Un seul moustique bleu est déjà si difficile à contrôler. S'il y en a d'autres, il sera encore plus complexe de les soumettre... Cela est lié au fait que mon roi des moustiques n'a pas été élevé ici. D'après les souvenirs de ce spécimen, il existe un autre roi des moustiques non loin d'ici... Ce Royaume Céleste du Vent est immense; s'il n'y a pas beaucoup de rois, il doit en exister quelques-uns... Selon l'instinct de ces créatures, si leur roi meurt et qu'il est absorbé par mon roi des moustiques, alors ils devraient accepter le contrôle de mon sujet! »
+« Un seul moustique bleu est déjà si difficile à contrôler. S'il y en a d'autres, il sera encore plus complexe de les soumettre... Cela est lié au fait que mon roi des moustiques n'a pas été élevé ici. D'après les souvenirs de ce spécimen, il existe un autre roi des moustiques non loin d'ici... Ce Royaume Céleste du Vent est immense; s'il n'y a pas beaucoup de rois, il doit en exister quelques-uns... Selon l'instinct de ces créatures, si leur roi meurt et qu'il est absorbé par mon roi des moustiques, alors mon roi des moustiques pourra recevoir pleinement toutes les bêtes que ce roi contrôle! »
 
 Les yeux de Wang Lin brillèrent tandis qu'une idée germait. Cependant, cette idée était un peu trop audacieuse...
 
@@ -102,7 +102,7 @@ La lumière dorée pâle de son corps se rétracta progressivement jusqu'à disp
 
 À cet instant, il ressemblait à une bête-moustique bleue parfaite. Même la pression de roi des moustiques était totalement scellée par l'Âme Originelle de Wang Lin, sans qu'aucune ne fuite.
 
-Un instant plus tard, le roi des moustiques poussa un cri et s'envola. Il décrivit un demi-cercle dans les airs avant d'ordonner la protection du corps de Wang Lin, puis il disparut au loin!
+Un instant plus tard, le roi des moustiques poussa un cri et s'envola. Il décrivit un cercle dans les airs avant d'ordonner la protection du corps de Wang Lin, puis il disparut au loin!
 
 Bien qu'il soit parti, les quelque 2 000 bêtes-moustiques obéirent à l'ordre. Peu importait ce qui arrivait, même au prix de leur vie, ils protègeraient le corps de Wang Lin.
 
@@ -116,7 +116,7 @@ Wang Lin vit même parmi elles un moustique bleu profond dont l'aura était équ
 
 Elles passèrent près du roi des moustiques sans s'arrêter. Seul le spécimen bleu profond jeta un regard chargé de confusion lors de leur passage.
 
-Wang Lin contrôlait la bête et fonçait sans relâche. En chemin, il croisa trois vagues de cent essaims de moustiques bleus, ce qui le choqua profondément.
+Wang Lin contrôlait la bête et fonçait sans relâche. En chemin, il croisa trois vagues d'essaims d'une centaine de moustiques bleus, ce qui le choqua profondément.
 
 « Pas étonnant que même Tu Si ait dû s'enfuir honteusement à l'époque. Bien que ces bêtes-moustiques ne soient pas fortes individuellement, leur nombre est tout simplement colossal! Et ce n'est que la région extérieure. Une fois que je serai plus profondément engagé... si une multitude de moustiques bleus et blancs apparaissent, je crains que même les cultivateurs du Fléau Céleste n'aient aucune chance de survivre! »
 

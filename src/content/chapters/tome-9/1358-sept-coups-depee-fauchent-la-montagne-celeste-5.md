@@ -18,7 +18,7 @@ Cette rancœur était si intense que même Wang Lin en fut stupéfait. Il avait 
 
 En un instant, une quantité infinie d'âmes tourmentées sembla être invoquée et manifesta sa présence dans le monde! Ces âmes révélèrent aussitôt leurs formes — hommes et femmes — affichant toutes des regards venimeux. Elles encerclèrent le sixième rayon d'énergie de l'épée pour former ce sixième coup fantomatique qui faisait trembler les cieux!
 
-C'était un coup de pure rancœur!
+C'était l'épée de la rancœur envers les immortels!
 
 Il était forgé par les âmes de tous les cultivateurs morts lors des tribulations divines dans les 7 Millions de Mondes. Bien qu'ils fussent décédés, leur ressentiment persistait. Au moment de leur agonie, ils avaient tout compris. Ils vouaient une haine farouche aux êtres célestes et au Royaume Céleste lui-même!
 
@@ -58,7 +58,7 @@ Instantanément, une aura inimaginable envahit les 7 Millions de Mondes et conve
 
 L'expression de Wang Lin changea radicalement. Il était impossible de résister ou de briser cette force qui l'atteignait déjà. Wang Lin sentit sa vitalité s'étioler, comme si on l'extrayait violemment de son corps!
 
-Un premier souffle passa rapidement. La porte du Royaume Céleste du Vent apparut dans l'esprit de Wang Lin et le Sort du Temps Fluide s'activa.
+Un premier souffle passa rapidement. L'antique porte de pierre du Royaume Céleste du Vent apparut dans l'esprit de Wang Lin et le Sort du Temps Fluide s'activa.
 
 « Temps Fluide, remonte 1 000 ans!! »
 
@@ -68,7 +68,7 @@ Le septième coup fit trembler les cieux. La longue épée quitta la main de Wan
 
 L'effondrement des 7 Millions de Mondes s'étendit sans fin, entraînant la chute d'innombrables fragments. Sur ces débris se trouvaient une multitude de mortels et de cultivateurs qui donnèrent tous tout ce qu'ils possédaient!
 
-Un coup d'épée infiniment proche, dépassant même la puissance d'un cultivateur du troisième niveau, surgit soudainement!
+Un coup d'épée sans précédent dans les 7 Millions de Mondes, égalant presque, voire surpassant, la puissance d'un cultivateur de la troisième étape, surgit soudainement!
 
 Si le Shui Daozi devait faire face à cette attaque, il n'aurait d'autre choix que de fuir. S'il était touché, il mourrait sans l'ombre d'un doute!
 
@@ -80,7 +80,7 @@ Voyant sa fin imminente, ses yeux s'écarquillèrent et il poussa un dernier rug
 
 « Tonnerre sacré éternel, sauve-moi, sauve-moi!!! »
 
-Alors que son cri résonnait, l'éclair éternel qui bombardait la tempête s'arrêta net, comme s'il avait senti la mort de son maître. Le tonnerre gronda avec violence et se mua en un éclair divin de plus de 100 000 pieds de long!
+Alors que son cri résonnait, l'éclair éternel qui bombardait la tempête s'arrêta net, comme s'il avait senti le cri de mort de son serviteur. Le tonnerre gronda avec violence et se mua en un éclair divin d'environ 100 000 pieds d'épaisseur!
 
 Il chargea directement vers la tempête. La puissance du tonnerre éternel décupla et s'abattit sur l'orage. La tempête qui persistait jusqu'alors s'effondra brusquement!
 
@@ -94,7 +94,7 @@ Le rayon d'énergie de l'épée trembla, montrant des signes de rupture. Cependa
 
 « Les 7 Millions de Mondes sont brisés et mon clan est libre. Tous mes gens, toutes les créatures, nous allons briser le Royaume Céleste ensemble!!! »
 
-Les 7 Millions de Mondes en plein effondrement se transformèrent en d'innombrables fragments. Toutes les survivantes offrirent volontairement leur vie à l'épée pour entamer leur ultime combat contre le tonnerre éternel!
+Les 7 Millions de Mondes en plein effondrement se transformèrent en d'innombrables fragments. Tous les êtres survivants offrirent volontairement leur vie à l'épée pour entamer leur ultime combat contre le tonnerre éternel!
 
 L'épée de sept pieds contenait toute la puissance des 7 Millions de Mondes! Le tonnerre éternel était l'objet sacré du Clan du Tonnerre Dispersé. La confrontation de ces deux forces représentait la détermination des peuples des 7 Millions de Mondes à conquérir leur liberté!
 
@@ -102,7 +102,7 @@ Un rugissement tonitruant résonna dans le monde entier. Ce grondement fut si pu
 
 L'effondrement de la barrière laissa entrer le chaos, et les 7 Millions de Mondes commencèrent à se désintégrer!
 
-Simultanément, l'épée de sept pieds se brisa en une multitude de fragments. Le tonnerre éternel sembla également avoir subi un coup terrible. Délaissant le Grand Ancien, il brisa rapidement le vide pour regagner la terre sacrée. Dès son retour dans le temple, une formation s'activa, interdisant tout accès au Clan du Tonnerre Dispersé. Elle fut déclenchée hors du contrôle du clan!
+Simultanément, l'épée de sept pieds se brisa en une multitude de fragments. Le tonnerre éternel sembla également avoir subi un coup terrible. Délaissant le Grand Ancien, il brisa rapidement le vide pour regagner la terre sacrée. Dès son retour dans le temple, sur les seize planètes de culture du Clan du Tonnerre Dispersé, une formation échappant au contrôle des cultivateurs s'activa, interdisant à quiconque d'y mettre le pied!
 
 « Membres restants du clan, le Royaume Céleste est ouvert. Le monde est détruit, nous partons donc vers l'extérieur! » Le Daoïste Esprit Dispersé était transporté par une excitation monstrueuse. D'un revers de manche, il emmena toutes les vies restantes des 7 Millions de Mondes à travers la brèche laissée par le départ du tonnerre éternel!
 

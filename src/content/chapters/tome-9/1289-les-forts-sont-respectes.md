@@ -12,13 +12,13 @@ En raison de l'activation du réseau de transfert, les disciples de la Secte Ét
 
 Cependant, avant qu'ils ne puissent l'atteindre, Wang Lin se déplaça comme un éclair et balaya les disciples de la Secte Éternelle. La tempête qu'il déclencha força les disciples à reculer, leurs visages empreints de terreur.
 
-La vitesse de Wang Lin avait déjà atteint une limite. Il se téléportait tout en avançant et, en un clin d'œil, il apparut devant le sommet de la montagne gigantesque!
+La vitesse de Wang Lin avait déjà atteint une limite. Il se téléportait tout en avançant et, en un clin d'œil, il apparut dans les airs, devant l'ancienne porte de la Secte Éternelle, face à la montagne gigantesque!
 
 « C'est ici! » Ce que Wang Lin voulait, c'était l'épée du dieu ancien qui s'était transformée en montagne et qu'il soupçonnait avoir été forgée par un dieu ancien à 9 étoiles! Seul ainsi pourrait-il espérer sauver Li Qianmei de ce champ de bataille périlleux.
 
 Wang Lin n'avait pas le temps de trop réfléchir. Il savait seulement qu'il devait obtenir cette arme du dieu ancien et qu'il devait agir vite! Vite! Vite!
 
-À cet instant, il s'approcha de la montagne et joignit les mains contre le sol.
+À cet instant, il s'approcha de la montagne et salua, poing dans la paume, le ciel et la terre.
 
 « Je vais prendre cette montagne, mais je vous rembourserai certainement à l'avenir. Je suis prêt à payer n'importe quel prix! J'espère que mes frères de culture de la Secte Éternelle pourront m'aider cette fois! » Sur ces mots, Wang Lin fit un pas en avant et se posa sur la montagne.
 
@@ -46,7 +46,7 @@ Tout cela se produisit en un instant. Tandis que Wang Lin absorbait l'aura du di
 
 Ces six auras appartenaient à des cultivateurs extrêmement puissants au premier stade du Fléau Céleste!
 
-« Li Zhihao!!! C'est toi!! Que fais-tu?! » Un rugissement retentit depuis l'une des deux auras émanant de la montagne. L'homme avait les cheveux blancs et portait une robe noire. Après avoir hurlé, il vit ce que Wang Lin entreprenait et manifesta une intention meurtrière!
+« Lu Zihao!!! C'est toi!! Que fais-tu?! » Un rugissement retentit depuis l'une des deux auras émanant de la montagne. L'homme avait les cheveux blancs et portait une robe noire. Après avoir hurlé, il vit ce que Wang Lin entreprenait et manifesta une intention meurtrière!
 
 Wang Lin n'avait jamais vu ce vieil homme auparavant, mais d'après son niveau de culture, il était évident qu'il s'agissait de l'un des Grands Anciens de la Secte Éternelle!
 
@@ -64,15 +64,15 @@ C'était comme si Wang Lin était leur véritable maître, le souverain de tout 
 
 Le visage de l'homme en noir se décomposa. Il agita ses manches pour percuter les sphères de foudre. Un grondement tonitruant qui secoua l'univers entier retentit!
 
-« Cher collègue cultivateur Li, ma Secte Éternelle a été bon envers vous. Autrefois, vous vouliez l'Extrême Yin, et ce vieil homme vous l'a donné. Vous avez tué le Maître de la Secte de la Musique Céleste et je n'ai pas poursuivi l'affaire. J'ai même déplacé la Secte Origin dans la région 7! Même si vous avez disparu ces dix dernières années et que l'on disait vous mort, ce vieil homme a continué de traiter la Secte Origin avec égard! Vous réapparaissez et, alors que vous auriez dû être un simple invité, voilà que vous voulez prendre la montagne de ma Secte Éternelle!! Pensez-vous être digne de défier ma Secte Éternelle?! » Le Maître de la Secte Éternelle fixait Wang Lin, ses paroles tonnant comme l'orage!
+« Cher collègue cultivateur Lu, ma Secte Éternelle a été bon envers vous. Autrefois, vous vouliez l'Extrême Yin, et ce vieil homme vous l'a donné. Vous avez tué le Maître de la Secte de la Musique Céleste et je n'ai pas poursuivi l'affaire. J'ai même fait de la Secte Origin une secte de domaine stellaire de septième rang! Même si vous avez disparu ces dix dernières années et que l'on disait vous mort, ce vieil homme a continué de traiter la Secte Origin avec égard! Vous réapparaissez et, alors que vous auriez dû être un simple invité, voilà que vous voulez prendre la montagne de ma Secte Éternelle!! Pensez-vous être digne de défier ma Secte Éternelle?! » Le Maître de la Secte Éternelle fixait Wang Lin, ses paroles tonnant comme l'orage!
 
 Wang Lin réfléchit silencieusement en observant le Maître de la Secte. Après un long moment, il dit lentement: « Je dois une immense faveur à la Secte Éternelle et je rendrai certainement ce qui se trouve dans cette montagne à l'avenir! Pour certaines raisons, je dois l'emporter avec moi! Un jour, je reviendrai et je vous rembourserai tous! »
 
 L'aura du dieu ancien sous Wang Lin s'agita une fois de plus pour charger en lui. Ses vêtements furent secoués par la poussée de l'énergie divine antique qui affluait en son sein. La quatrième étoile se forma entre ses sourcils!
 
-« Une faveur? Pour qui vous prenez-vous? Quelles sont vos qualifications pour devoir un service à la Secte Éternelle? Croyez-vous être l'Ancien Suprême de la Secte de Dieu?! » L'homme en noir, qui avait lancé l'attaque de foudre, venait de résister à son propre sort. Le visage un peu pâle, il ricana avec sarcasme. Il chargea Wang Lin et ses mains formèrent un sceau. Un sortilège capable de faire trembler les cieux commença à se manifester, entouré d'éclairs violets!
+« Une faveur? Pour qui vous prenez-vous? Quelles sont vos qualifications pour devoir un service à la Secte Éternelle? Croyez-vous être l'Ancien Suprême de la Secte Divine?! » L'homme en noir, qui avait lancé l'attaque de foudre, venait de résister à son propre sort. Le visage un peu pâle, il ricana avec sarcasme. Il chargea Wang Lin et ses mains formèrent un sceau. Un sortilège capable de faire trembler les cieux commença à se manifester, entouré d'éclairs violets!
 
-Le Maître de la Secte Éternelle devint encore plus glacial. Lorsqu'il avait appris la disparition et la prétendue mort de Wang Lin, il n'avait pas protégé la Secte Origin comme il l'avait promis; au contraire, il les avait tenus prêts à être livrés à la Secte de Dieu. Il ne deviendrait pas l'ennemi de la Secte de Dieu pour une seule personne ou une simple branche sectaire! Et encore moins pour protéger le petit Secte Origin qui n'avait plus aucune valeur.
+Le Maître de la Secte Éternelle devint encore plus glacial. Lorsqu'il avait appris la disparition et la prétendue mort de Wang Lin, il n'avait pas protégé la Secte Origin comme il l'avait promis; au contraire, il les avait tenus prêts à être livrés à la Secte Divine. Il ne deviendrait pas l'ennemi de la Secte Divine pour une seule personne ou une simple branche sectaire! Et encore moins pour protéger le petit Secte Origin qui n'avait plus aucune valeur.
 
 À ce moment-là, il chargea lui aussi en pointant le ciel. Une épée de sept pieds apparut dans sa main. Cette épée avait la forme d'un dragon et, dès son apparition, un rugissement draconique retentit!
 
@@ -80,23 +80,23 @@ Les deux hommes se déplacèrent à une vitesse inimaginable pour converger vers
 
 Au moment où leur sort et l'épée-dragon arrivèrent, Wang Lin pointa l'avant de son index droit. Une aura noire et blanche apparut, se transformant en deux petits cerfs. Simultanément, cent mille, un million, cinq millions, dix millions de rayons d'énergie d'épée éclatèrent!
 
-Les dix millions de rayons éblouissants couvrirent le ciel entier! Même Shui Daozi avait été blessé par une telle puissance, alors cette attaque était phénoménale! C'était la deuxième fois que cette technique apparaissait dans les mains de Wang Lin, formant une véritable tempête.
+Les dix millions de rayons éblouissants couvrirent le ciel entier! Même Shui Daozi aurait été blessé par une telle puissance, alors cette attaque était phénoménale! C'était la deuxième fois que cette technique apparaissait dans les mains de Wang Lin, formant une véritable tempête.
 
 Des grondements tonitruants résonnèrent à travers la planète de culture; même le brouillard entourant la planète fut repoussé comme s'il craignait l'approche de ce pouvoir! Lorsque l'homme en robe noire percuta les rayons d'énergie, la foudre autour de lui s'effondra. Il cracha du sang et recula immédiatement, révélant une expression de terreur qu'il n'avait jamais montrée auparavant!
 
 L'expression du Maître de la Secte changea radicalement; il agita l'épée-dragon, créant d'innombrables lames. Des bruits de rupture résonnèrent alors qu'il tentait de résister, mais la tempête des dix millions de rayons d'énergie l'obligea à battre en retraite. Il ne pouvait absolument pas approcher Wang Lin.
 
-« Ce Lu Zhihao était déjà très fort. Après dix ans, il est devenu encore plus puissant!!! »
+« Ce Lu Zihao était déjà très fort. Après dix ans, il est devenu encore plus puissant!!! »
 
 « Je ne souhaite pas devenir l'ennemi de la Secte Éternelle. Je veux seulement emprunter ce qui se trouve dans la montagne. Je le rendrai assurément un jour! » Wang Lin était entouré par les dix millions de rayons d'énergie, et sa voix était empreinte de sincérité.
 
 Le Maître de la Secte Éternelle esquiva l'énergie et dit d'un ton sombre: « Pourquoi la Secte Éternelle vous prêterait-il quoi que ce soit? Pourquoi devrions-nous vous croire?! »
 
-« Le fait que Shui Daozi de la Secte de Dieu ait voulu me tuer et ait échoué, se retrouvant contraint à une culture en porte fermée avec de graves blessures! Ou le fait que je sois prêt à prêter un serment de sang! » Wang Lin mordit la pointe de sa langue et cracha du sang. Ce sang se transforma en une rune de couleur sang contenant une trace de l'âme de Wang Lin! La rune s'échappa de la tempête d'épée et flotta devant le Maître de la Secte Éternelle.
+« Le fait que Shui Daozi de la Secte Divine ait voulu me tuer et ait échoué, se retrouvant contraint à une culture en porte fermée avec de graves blessures! Ou le fait que je sois prêt à prêter un serment de sang! » Wang Lin mordit la pointe de sa langue et cracha du sang. Ce sang se transforma en une rune de couleur sang contenant une trace de l'âme de Wang Lin! La rune s'échappa de la tempête d'épée et flotta devant le Maître de la Secte Éternelle.
 
 Les paroles de Wang Lin furent comme un coup de tonnerre qui choqua l'esprit du Maître de la Secte et du vieil homme en noir!
 
-« Shui Daozi de la Secte de Dieu a échoué à vous tuer?! » Le Maître de la Secte laissa échapper un souffle, les yeux remplis d'incrédulité.
+« Shui Daozi de la Secte Divine a échoué à vous tuer?! » Le Maître de la Secte laissa échapper un souffle, les yeux remplis d'incrédulité.
 
 « Absurde, personne au monde ne vous croirait. Votre serment de sang est inutile à mes yeux! » L'homme en noir avait dû reculer deux fois face à Wang Lin. Avec son niveau de culture et son statut, une telle situation était inédite. Il ricana, les yeux brillants, et tendit sa main droite vers le serment de sang de Wang Lin pour l'écraser sans pitié!
 

@@ -16,7 +16,7 @@ Lu Yanfei ne s'expliqua pas. Elle se transforma en un rayon de lumière et fondi
 
 Sous terre, les quatre ralentirent alors que les rugissements devenaient plus distincts. En raison de leur proximité avec la source sonore, non seulement leurs esprits tremblaient, mais leurs corps aussi.
 
-Des fluctuations terrifiantes émanaient des profondeurs, exerçant une pression sur leurs âmes. C'était comme si une existence colossale, capable de faire trembler le monde, se trouvait là, et que devant elle, les trois n'étaient que des fourmis!
+Des fluctuations terrifiantes émanaient des profondeurs, exerçant une pression sur leurs âmes. C'était comme si une existence colossale, capable de faire trembler le monde, se trouvait là, et que devant elle, les quatre n'étaient que des fourmis!
 
 Cette sensation immédiate les fit s'arrêter net, leurs expressions devenant graves. Seuls les yeux de Lu Yanfei s'illuminèrent tandis qu'elle mordait sa lèvre inférieure, mais personne ne put deviner ses pensées.
 
@@ -62,7 +62,7 @@ Les quatre restèrent suspendus dans les airs, le regard empli de terreur. Leurs
 
 « Grand Oncle-Maître? » Les trois étaient livides; ce Sens Divin enragé était resté gravé dans leur esprit. La simple pensée de cela les terrifiait, mais les paroles de Lu Yanfei les laissèrent stupéfaits.
 
-Après un moment de réflexion, elle murmura doucement: « Grand Oncle-Maître Lu Zhihao. Vous devriez tous avoir entendu parler de lui. »
+Après un moment de réflexion, elle murmura doucement: « Grand Oncle-Maître Lu Zihao. Vous devriez tous avoir entendu parler de lui. »
 
 Ignorant les quatre pour le moment, au plus profond des entrailles de la terre, le corps de trois mille pieds de Wang Lin avait presque tous ses os brisés, ne laissant derrière lui que des cendres osseuses en forme humaine. Des rugissements tonitruants s'en échappaient encore.
 
@@ -106,7 +106,7 @@ La barrière protectrice s'effondra comme une simple feuille de papier.
 
 Dès sa chute, la puissante énergie originelle pénétra et se transforma en une tempête qui fonça sur la Secte de l'Origine. Tous les cultivateurs de la secte avaient déjà été évacués; ils observaient désormais la tempête d'énergie originelle s'engouffrer sous terre.
 
-L'effondrement de la barrière et l'afflux d'énergie provoquèrent l'entrée des bêtes féroces des environs. Cependant, avant qu'elles ne puissent se disperser, elles furent aspirées vers la Secte de l'Origine par cette force de succion.
+L'effondrement de la barrière et l'afflux d'énergie firent affluer la brume stellaire de l'extérieur. Cependant, avant qu'elle ne puisse se répandre sur tout le continent de Mo Luo, elle fut aspirée vers la Secte de l'Origine par cette force de succion.
 
 Le ciel fut enveloppé de brume, laquelle s'écoula comme un fleuve vers le sol.
 
@@ -120,4 +120,4 @@ Bien que la calamité osseuse fût puissante, elle fut contrainte de reculer fac
 
 Toute l'énergie originelle et la brume étoilée situées dans un rayon de 50 kilomètres autour du continent de Mo Luo furent attirées. De loin, on aurait dit qu'un vortex gigantesque s'était formé, avec la Secte de l'Origine en son centre.
 
-Plus loin encore, une bête colossale en forme de lion et couverte d'épines se dirigea vers le continent de Mo Luo avec un regard avide. Aucune des bêtes féroces n'osa l'approcher lorsque l'aura d'une créature de rang 8 se propagea dans l'air.
+Plus loin encore, une bête colossale en forme de lion, couverte d'épines et haute de plus de 2 000 pieds, se dirigea vers le continent de Mo Luo avec un regard avide. Aucune des bêtes féroces n'osa l'approcher lorsque l'aura d'une créature de rang 8 se propagea dans l'air.

@@ -14,13 +14,13 @@ Près de la montagne, des centaines de bêtes moustiques bleues observaient la s
 
 Ces bêtes moustiques se déplacèrent tels des météores bleus pour s'approcher instantanément. Cependant, alors qu'elles arrivaient à portée, le roi moustique libéra une aura féroce et esquiva avec célérité. Puis, sa trompe balaya l'air et transperça la bête moustique bleue la plus proche.
 
-La bête moustique bleue poussa un rugissement. Loin de reculer, elle chargea le roi moustique. Mais au moment où elle allait le percuter, l'étoile de loi formée par l'âme originelle de Wang Lin brilla un instant. Simultanément, une pression écrasante enveloppa le corps de la bête moustique bleue.
+La bête moustique bleue poussa un rugissement. Loin de reculer, elle chargea le roi moustique. Mais au moment où elle allait le percuter, l'Étoile de la Loi renfermant l'Âme Originelle de Wang Lin brilla un instant. Simultanément, une pression écrasante enveloppa le corps de la bête moustique bleue.
 
 Le corps de la créature trembla et se figea. C'est à cet instant précis que la trompe acérée du roi moustique s'enfonça profondément dans son corps. Le roi moustique aspira violemment, et le corps de la bête bleue trembla avant de se réduire instantanément en un squelette. Toute son essence et son sang avaient été absorbés par le roi moustique.
 
 Les trois autres bêtes moustiques bleues qui approchaient poussèrent des cris et fondirent sur le roi moustique. Le sang maculait encore la trompe du roi moustique, dont les yeux brillaient d'une lueur féroce. Il poussa un rugissement, s'élança et percuta l'une d'elles.
 
-Le choc fut brutal. La bête moustique bleue, manifestement de trop faible calibre, fut projetée au loin. Avant qu'elle ne puisse se rétablir, la trompe du roi moustique la transperça à nouveau pour en aspirer toute l'essence, avant de foncer vers la suivante avec une vitesse encore plus fulgurante.
+Le choc fut brutal. La bête moustique bleue, manifestement loin d'être faible, fut pourtant projetée au loin en battant des ailes. Avant qu'elle ne puisse se rétablir, la trompe du roi moustique la transperça à nouveau pour en aspirer toute l'essence, avant de foncer vers la suivante avec une vitesse encore plus fulgurante.
 
 Tout cela se produisit en un éclair, d'une rapidité dépassant l'imagination. En un instant, les quatre bêtes moustiques bleues périrent l'une après l'autre, ne laissant que le roi moustique bourdonner dans les airs, fixant froidement les centaines de bêtes bleues qui l'attendaient.
 
@@ -54,15 +54,15 @@ Le rugissement du roi moustique résonna dans le monde entier. Simultanément, l
 
 Avant qu'elle ne soit à portée, un rugissement assourdissant, porteur d'un impact titanesque, percuta le roi moustique.
 
-Dans un fracas de tonnerre, le roi moustique fut repoussé de plusieurs dizaines de pieds. Il poussa un cri et chargea de nouveau.
+Dans un fracas de tonnerre, le roi moustique fut repoussé de plusieurs centaines de pieds. Il poussa un cri et chargea de nouveau.
 
 Après avoir repoussé le roi moustique, la bête blanche resta en suspension dans les airs, le contemplant avec une intention meurtrière manifeste. Elle s'élança à nouveau, telle une traînée d'éclair blanc, vers le roi moustique.
 
-Au moment où les deux bêtes entrèrent en collision, l'étoile de loi formée par Wang Lin se mit à tourner frénétiquement, et une immense quantité d'énergie originelle enveloppa le corps du roi moustique. Cette énergie s'écrasa contre la bête blanche lors de l'impact.
+Au moment où les deux bêtes entrèrent en collision, l'Étoile de la Loi où se trouvait l'Âme Originelle de Wang Lin se mit à tourner frénétiquement, et une immense force du ciel et de la terre enveloppa le corps du roi moustique. Cette force s'écrasa contre la bête blanche lors de l'impact.
 
-Dès que l'énergie originelle apparut, les bêtes environnantes poussèrent des rugissements stridents. Les centaines de moustiques bleus encerclèrent immédiatement le roi moustique, le fixant intensément.
+Dès que cette force du ciel et de la terre apparut, les bêtes environnantes poussèrent des rugissements stridents. Les centaines de moustiques bleus encerclèrent immédiatement le roi moustique, le fixant intensément.
 
-Un choc tonitruant retentit alors que la bête blanche, secouée, était repoussée. Ses yeux trahissaient un regard glacial tandis qu'elle battait des ailes, redressant les poils en forme de crochets qui couvraient son corps. Elle semblait alors recouverte d'une armure de lances.
+Un choc tonitruant retentit alors que la bête blanche, secouée, était repoussée. Ses yeux trahissaient un regard glacial tandis qu'elle battait des ailes, faisant vibrer les poils en forme de crochets qui couvraient son corps, lesquels s'allongèrent aussitôt. Elle semblait alors couverte de longs poils.
 
 Soudain, ces poils se dispersèrent. À première vue, la bête blanche semblait avoir gonflé de volume. Elle chargea alors le roi moustique avec vigueur.
 
@@ -74,7 +74,7 @@ Le roi moustique était lui aussi dans un état lamentable et semblait quelque p
 
 La bête blanche poussa un rugissement. Tous les poils de son corps se redressèrent avant de se détacher et de tourbillonner autour d'elle comme des épées volantes. Tel un sortilège puissant, tous ces poils furent projetés vers le roi moustique.
 
-Alors que le roi moustique avançait, loin de ralentir, il accéléra encore davantage. Le roi moustique de Wang Lin était encore en phase de croissance et n'avait pas connu de nombreux combats contre ses semblables, mais il apprenait vite. Au moment où il chargea, tous ses poils crochus se mirent à briller d'une lueur bleue. En un instant, ils s'allongèrent jusqu'à atteindre des dizaines de pieds. Il imita la technique de la bête blanche: tous ses poils se détachèrent et furent projetés en avant.
+Alors que le roi moustique avançait, loin de ralentir, il accéléra encore davantage. Le roi moustique de Wang Lin était encore en phase de croissance et n'avait pas connu de nombreux combats contre ses semblables, mais il apprenait vite. Au moment où il chargea, tous ses poils crochus se mirent à briller d'une lueur bleue. En un instant, ils s'allongèrent jusqu'à atteindre des centaines de pieds. Il imita la technique de la bête blanche: tous ses poils se détachèrent et furent projetés en avant.
 
 Un fracas assourdissant retentit lorsque les deux pluies de poils se rencontrèrent dans une série d'explosions soniques. L'impact colossal força toutes les bêtes moustiques environnantes à reculer.
 
@@ -86,7 +86,7 @@ Dès l'apparition de cette aura, l'autre bête blanche s'envola et poussa un rug
 
 Un rayon de lumière pourpre jaillit de cette faille. Simultanément, une aura antique se propagea et une brume pourpre s'en échappa.
 
-Cette brume était dense et se retira rapidement. De l'intérieur du brouillard, une bête moustique d'apparence féroce, mesurant près de mille pieds, s'élança dans les airs!
+Cette brume était dense et se retira rapidement. De l'intérieur du brouillard, une bête moustique d'apparence féroce, mesurant mille pieds, s'élança dans les airs!
 
 Cette créature était couverte de poils pourpres. Bien qu'ils fussent tombants et d'apparence désordonnée, dès son apparition, toutes les autres bêtes moustiques, rouges comme bleues, se turent instantanément.
 
