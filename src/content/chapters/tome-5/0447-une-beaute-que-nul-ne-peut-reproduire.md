@@ -26,7 +26,7 @@ Certains furent dupés par l'autel, mais Qian Feng n'était pas tombé dans le p
 
 Bien que la section intérieure fût plus restreinte que la section extérieure, elle demeurait vaste. Les formes de vie y étaient bien plus nombreuses et certaines d'entre elles étaient extrêmement puissantes. Qian Feng ne pouvant les vaincre, il fut contraint de battre en retraite.
 
-Durant ses jours passés dans la section intérieure, il n'avait toujours pas trouvé la première tombe de Suzaku. Au fil du temps, de plus en plus de cultivateurs et de membres du Clan de l'Immortel Délaissé pénétraient dans cette zone.
+Durant ses jours passés dans la section intérieure, il n'avait toujours pas trouvé le premier Tombeau de Suzaku. Au fil du temps, de plus en plus de cultivateurs et de membres du Clan de l'Immortel Délaissé pénétraient dans cette zone.
 
 Qian Feng avait vu de ses propres yeux les yeux d'un cultivateur de la Transformation de l'Âme qu'il connaissait s'éteindre et mourir, après que quelques membres du Clan de l'Immortel Délaissé eurent déployé toute leur puissance pour terrasser l'une de ces formes de vie.
 

@@ -12,7 +12,7 @@ Zhou Zihong se mordit la lèvre inférieure. Elle voulut arrêter Wang Lin, mais
 
 Lin Tao bougea aussi vite qu'il le put, non pas pour s'enfuir, mais pour esquiver de gauche à droite dans la zone, tentant désespérément de rester à distance de l'âme errante. Il savait que, même en s'enfuyant, il n'était pas certain d'aller plus vite que l'âme errante, et que, même s'il avait la chance de lui échapper, vu l'immensité du champ de bataille étranger, il ne pourrait jamais regagner vivant une matrice de transfert.
 
-Pensant à cela, il s'exclama précipitamment: « Senior, je n'ai aucun lien avec Mai Liang! Nous nous parlons à peine. Je vous en prie, épargnez-moi... Senior, je... je suis prêt à devenir votre esclave! »
+Pensant à cela, il s'exclama précipitamment: « Senior, je n'ai aucun lien avec Ma Liang! Nous nous parlons à peine. Je vous en prie, épargnez-moi... Senior, je... je suis prêt à devenir votre esclave! »
 
 Lin Tao s'exprima avec angoisse alors que l'âme errante se rapprochait de lui. Wang Lin esquissa un léger sourire. D'un geste de la main, il fit s'arrêter immédiatement l'âme errante.
 
@@ -22,7 +22,7 @@ Une fois la goutte de sang apparue, le corps de Lin Tao parut bien plus affaibli
 
 Wang Lin agita la main. Après avoir capturé le sang, son regard se posa sur le frère aîné Yang.
 
-En voyant Wang Lin accepter la goutte de sang, Lin Tao poussa un long soupir de soulagement. Sa vie était sauve. Il était très intelligent et fut sans doute le premier à comprendre que quelque chose n'allait pas: il avait réalisé que Mai Liang était déjà mort et qu'un autre l'avait possédé, mais il n'avait pas osé le mentionner aux deux autres.
+En voyant Wang Lin accepter la goutte de sang, Lin Tao poussa un long soupir de soulagement. Sa vie était sauve. Il était très intelligent et fut sans doute le premier à comprendre que quelque chose n'allait pas: il avait réalisé que Ma Liang était déjà mort et qu'un autre l'avait possédé, mais il n'avait pas osé le mentionner aux deux autres.
 
 Lin Tao savait aussi que suivre Wang Lin était son unique chance de survie. Même si Wang Lin ne le tuait pas et se contentait de le chasser, il mourrait à coup sûr; ce fut donc une décision qu'il n'eut même pas à peser. Lorsque Wang Lin avait ordonné à l'âme errante de le poursuivre, il avait compris que Wang Lin avait percé son secret, c'est pourquoi il n'avait pas tenté de jouer l'idiot. Cela n'aurait fait qu'accélérer sa perte.
 
@@ -34,11 +34,11 @@ Lin Tao se précipita aux côtés de Wang Lin, puis pointa son épée vers les d
 
 L'homme de nom de famille Yang eut un sourire amer. Sans un mot, il frappa son propre front et une goutte de sang d'essence de l'âme vola vers Wang Lin.
 
-Il n'avait pas été plus lent que Lin Tao pour spéculer sur le fait que les comportements étranges de Mai Liang étaient dus à une possession. Il était resté extrêmement nerveux durant tout ce temps. Puisque tout était désormais découvert, il évalua rapidement ses options et décida de devenir l'esclave de Wang Lin. Face à la vie ou à la mort, qu'importait la fierté? De plus, cet homme était manifestement un cultivateur d'un pays de culture supérieure, assez puissant pour que ces créatures étranges le craignent. S'il le suivait, il trouverait peut-être plus tard une belle opportunité.
+Il n'avait pas été plus lent que Lin Tao pour spéculer sur le fait que les comportements étranges de Ma Liang étaient dus à une possession. Il était resté extrêmement nerveux durant tout ce temps. Puisque tout était désormais découvert, il évalua rapidement ses options et décida de devenir l'esclave de Wang Lin. Face à la vie ou à la mort, qu'importait la fierté? De plus, cet homme était manifestement un cultivateur d'un pays de culture supérieure, assez puissant pour que ces créatures étranges le craignent. S'il le suivait, il trouverait peut-être plus tard une belle opportunité.
 
 Après avoir offert sa goutte de sang, il regarda sa jeune apprentie sœur Zhou Zihong d'un air complexe et tenta de la raisonner: « Jeune apprentie sœur, tu... »
 
-Zhou Zihong lui fit signe de se taire. Elle fixa Wang Lin en se mordant la lèvre inférieure et demanda: « Senior... quand vous avez possédé ce corps, Mai Liang était-il mort ou vivant? » Son regard devint soudainement calme alors qu'elle soutenait celui de Wang Lin.
+Zhou Zihong lui fit signe de se taire. Elle fixa Wang Lin en se mordant la lèvre inférieure et demanda: « Senior... quand vous avez possédé ce corps, Ma Liang était-il mort ou vivant? » Son regard devint soudainement calme alors qu'elle soutenait celui de Wang Lin.
 
 Elle avait voulu poser cette question dès qu'elle avait remarqué que quelque chose n'allait pas chez lui.
 
@@ -50,7 +50,7 @@ Ainsi, sans un mot, elle envoya une goutte de son propre sang d'essence de l'âm
 
 Trois gouttes de sang d'essence apparurent devant Wang Lin. Il ouvrit la bouche et les aspira. Trois points lumineux apparurent dans son Sens Divin. D'une seule pensée, il pouvait désormais les tuer tous les trois.
 
-En vérité, Wang Lin n'avait rien caché durant tout ce temps. Quiconque avait connu Mai Liang aurait remarqué l'anomalie. Conjugué au fait que les âmes errantes le craignaient, n'importe qui aurait pu deviner qu'il se passait quelque chose d'inhabituel.
+En vérité, Wang Lin n'avait rien caché durant tout ce temps. Quiconque avait connu Ma Liang aurait remarqué l'anomalie. Conjugué au fait que les âmes errantes le craignaient, n'importe qui aurait pu deviner qu'il se passait quelque chose d'inhabituel.
 
 Wang Lin n'avait pas l'intention de les tuer, mais si ces trois-là manquaient d'intelligence, il n'aurait pas d'autre choix. Le fait qu'il ait possédé un corps devait à tout prix rester secret, mais une fois qu'il aurait quitté le champ de bataille étranger, cela serait facile à justifier. Après tout, cinquante ans sont amplement suffisants pour que la personnalité de quelqu'un change.
 
@@ -96,7 +96,7 @@ Lin Tao craignait que Wang Lin ne se sente toujours en insécurité et se demand
 
 Zhou Zihong, elle, s'inquiétait de savoir si cet homme la désirerait; une expression de lutte intérieure marquait son visage.
 
-Yang Xiong était encore plus anxieux, ses pensées s'emballant. Il ne craignait pas seulement pour sa vie, mais redoutait aussi que Wang Lin n'abandonne le corps de Mai Liang pour s'emparer du sien.
+Yang Xiong était encore plus anxieux, ses pensées s'emballant. Il ne craignait pas seulement pour sa vie, mais redoutait aussi que Wang Lin n'abandonne le corps de Ma Liang pour s'emparer du sien.
 
 L'expression de Wang Lin devint sombre alors qu'il volait vers la matrice de transfert. Les trois esclaves le suivirent rapidement, tandis que l'âme errante les suivait prudemment à distance.
 

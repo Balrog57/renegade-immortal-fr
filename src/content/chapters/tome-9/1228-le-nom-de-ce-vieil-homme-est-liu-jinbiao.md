@@ -32,7 +32,7 @@ Une fois la compétition des sectes de rang 8 terminée, les trois disciples les
 
 Une part de cette puissance servait d'étalage devant la secte de rang 9. Si le vainqueur final parmi les sectes de rang 8 parvenait à maintenir sa victoire pendant 10 000 ans, il obtiendrait une partie des qualifications nécessaires pour entrer dans la région de rang 9!
 
-Chaque secte de rang 8 commençait ses préparatifs très tôt pour cette compétition capitale. Les trois représentants choisis pour ce combat majeur étaient déjà désignés. Bien qu'ils ne soient pas ramenés à la secte principale, ils recevaient le même traitement que les disciples principaux, et des membres de la secte principale se déplaçaient personnellement pour les instruire.
+Chaque secte de rang 8 commençait ses préparatifs très tôt pour cette compétition capitale. Les trois représentants choisis pour ce combat majeur étaient déjà désignés. Bien qu'ils ne soient pas ramenés à la secte principale, ils recevaient le même traitement que les disciples centraux, et des membres de la secte principale se déplaçaient personnellement pour les instruire.
 
 Depuis que la Secte Brise-Ciel avait quitté la région de rang 8, dix-sept compétitions avaient eu lieu, entre victoires et défaites dispersées parmi les sectes. Cependant, il y a 10 000 ans, avec l'ascension de la Secte de l'Âme Silencieuse, celle-ci avait remporté neuf victoires consécutives. Ce cycle marquait la 18e compétition depuis le départ de la Secte Brise-Ciel. Si la Secte de l'Âme Silencieuse l'emportait à nouveau, son passage au rang 9 ne serait qu'une question de temps.
 

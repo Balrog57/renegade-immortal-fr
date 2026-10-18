@@ -19,9 +19,9 @@ L'expression de Lin Yi était sombre alors qu'il lançait un regard glacial à T
 
 Chaque cultivateur stationné à l'extérieur de la vallée Jue Ming se souviendrait du jeune homme qui avait osé défier un cultivateur de l'Âme Naissante. Le cultivateur à l'Établissement des Fondations nommé Wang Lin était désormais gravé dans le cœur de tous.
 
-Le droit d'entrer dans le champ de bataille étranger pour la nation de Zhao fut impitoyablement annulé. Peu importait qu'il restât des jetons, car le messager seigneurial venu ouvrir le tunnel était déjà parti en poursuite de quelque chose. Pourquoi se soucierait-il d'un détail aussi insignifiant?
+Le droit d'entrer dans le champ de bataille étranger pour la nation de Zhao fut impitoyablement annulé. Peu importait qu'il restât des jetons, car l'inspecteur venu ouvrir le tunnel était déjà parti en poursuite de quelque chose. Pourquoi se soucierait-il d'un détail aussi insignifiant?
 
-Lin Yi bouillonnait de rage en voyant l'objet de la mission publiée par l'Alliance de Culture passer en volant sous ses yeux, avant de lui être arraché de force par un autre. Ce sentiment lui donnait envie de cracher son sang. Surtout lorsqu'il songea que la perle s'était toujours trouvée à Zhao et qu'il en était le superviseur. Si cela venait à s'ébruiter, l'humiliation serait totale.
+Lin Yi bouillonnait de rage en voyant l'objet de la mission publiée par l'Alliance de Culture passer en volant sous ses yeux, avant de lui être arraché de force par un autre. Ce sentiment lui donnait envie de cracher son sang. Surtout lorsqu'il songea que la perle s'était toujours trouvée à Zhao et qu'il en était l'inspecteur. Si cela venait à s'ébruiter, l'humiliation serait totale.
 
 Le visage de Teng Huayuan était sombre, car il ignorait si Wang Lin était mort ou non. Il supposait que Wang Lin était mort, mais ne parvenait pas à dissiper ce sentiment de terreur qui lui serrait le cœur.
 
@@ -39,7 +39,7 @@ Tout le pays de Zhao sembla soudainement s'apaiser.
 
 Le champ de bataille étranger, lui, était saturé de failles spatiales et de vents d'acier. À cet instant précis, un millier de personnes provenant de dizaines de pays de culture de rang 3 s'y trouvaient pour nettoyer le site. Le cultivateur de plus haut niveau présent était au stade avancé de l'Établissement des Fondations. Avec un tel niveau, ils pouvaient à peine faire un pas sans courir péril, comment espéraient-ils accomplir cette tâche?
 
-En réalité, lors de leur entrée dans le champ de bataille étranger, le messager seigneurial qui avait ouvert le tunnel avait remis à chacun un morceau de jade. Ce jade les protégeait du vent d'acier et les téléporterait dans leur pays d'origine après cinquante ans. Mais face aux mystérieuses failles spatiales pouvant surgir n'importe où, ces jades étaient impuissants.
+En réalité, lors de leur entrée dans le champ de bataille étranger, l'inspecteur qui avait ouvert le tunnel avait remis à chacun un morceau de jade. Ce jade les protégeait du vent d'acier et les téléporterait dans leur pays d'origine après cinquante ans. Mais face aux mystérieuses failles spatiales pouvant surgir n'importe où, ces jades étaient impuissants.
 
 Le champ de bataille étranger demeurait extrêmement dangereux pour ces cultivateurs à l'Établissement des Fondations, mais s'ils faisaient preuve de prudence et de chance, ils pouvaient espérer en sortir vivants. En règle générale, le taux de survie y était de 30 %.
 

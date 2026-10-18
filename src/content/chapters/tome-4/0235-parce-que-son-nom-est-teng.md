@@ -40,7 +40,7 @@ Pourtant, grâce à son sens divin, il savait sans même l'étendre que personne
 
 Au centre de la pièce principale, Wang Lin vit deux tablettes commémoratives, l'une sur l'autre. Celle du haut indiquait:
 
-« Wang Tianshui, Zhou Yingsu »
+« Wang Tian Shui, Zhou Yingsu »
 
 Celle du bas indiquait: « Fils aîné: Wang Lin »
 

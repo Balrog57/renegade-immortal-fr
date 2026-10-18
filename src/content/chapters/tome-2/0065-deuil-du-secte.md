@@ -8,7 +8,7 @@ slug: deuil-du-secte
 ---
 Huang Long toucha son sac de rangement et regarda vers la Montagne Heng Yue d'un air complexe. Dao Xu se tenait à ses côtés et déclara: « Chef de secte, un jour viendra où nous reprendrons la Montagne Heng Yue. »
 
-Huang Long eut un sourire amer et répondit: « L'Épée de Lune Pourpre m'a été offerte par l'Ancêtre Liu lorsque je suis devenu le chef de secte. Je lui avais dit que tant que l'épée serait là, je serais là aussi... mais maintenant, hélas. »
+Huang Long eut un sourire amer et répondit: « L'Épée Zi Yue m'a été offerte par l'Ancêtre Liu lorsque je suis devenu le chef de secte. Je lui avais dit que tant que l'épée serait là, je serais là aussi... mais maintenant, hélas. »
 
 L'Ancien au visage rouge, nommé Ma, déclara d'un ton sombre: « Chef de secte, la Secte Xuan Dao possédait un cultivateur de l'Âme Naissante. Ne pas l'affronter était la chose la plus logique à faire. Il n'y a aucune raison d'avoir des regrets pour ce genre de choses. Le monde de la culture a toujours été ainsi. À l'époque où la Secte Heng Yue était puissant, nous faisions la même chose. »
 

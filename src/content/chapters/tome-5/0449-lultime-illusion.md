@@ -117,8 +117,8 @@ Yun Quezi observa l'objet avec respect et déclara d'un ton grave: « L'ancêtre
 
 Le premier ancêtre demanda lentement: « Qui s'y rendra alors? »
 
-La troisième ancêtre, cette femme belle et charmante, n'avait plus le cœur à rire et soupira: « L'idéal serait que le premier ancêtre y aille, mais votre corps est enfoui profondément dans la Nécropole Immortelle. Si vous tentez d'y pénétrer avec votre âme tatouée, nous ignorons si la Tombe de Suzaku aura un impact sur vous. Que diriez-vous de... »
+La troisième ancêtre, cette femme belle et charmante, n'avait plus le cœur à rire et soupira: « L'idéal serait que le premier ancêtre y aille, mais votre corps est enfoui profondément dans la Nécropole Immortelle. Si vous tentez d'y pénétrer avec votre âme tatouée, nous ignorons si le Tombeau de Suzaku aura un impact sur vous. Que diriez-vous de... »
 
-Elle s'interrompit brusquement en se levant pour regarder vers la tombe de Suzaku, affichant une expression étrange.
+Elle s'interrompit brusquement en se levant pour regarder vers le Tombeau de Suzaku, affichant une expression étrange.
 
 « Ce fragment de mon domaine d'autrefois tente de posséder un corps... Humph, comment pourrais-je la laisser faire à sa guise?! »

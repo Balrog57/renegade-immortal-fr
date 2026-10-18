@@ -92,7 +92,7 @@ C'est de là que venait son nom. Quant à son véritable nom, personne ne s'en s
 
 Wang Lin assimilait les informations contenues dans le jade tout en utilisant la technique d'évasion tellurique. Il s'arrêta brusquement lorsqu'il détecta, par son Sens Divin, deux épées volantes fendant le ciel. Celle de tête appartenait à une jeune femme au visage pâle et paniqué. Son corps semblait sur le point de s'effondrer.
 
-Cette jeune fille était aussi belle et gracieuse qu'une fée. C'était Li Muwan, de la Secte Lou He, qu'il avait rencontrée une fois.
+Cette jeune fille était aussi belle et gracieuse qu'une fée. C'était Li Muwan, de la Secte Luo He, qu'il avait rencontrée une fois.
 
 La personne qui la poursuivait était un jeune homme aux cheveux lissés. Non seulement il ne semblait pas pressé alors qu'il la traquait avec décontraction, mais il se moquait d'elle bruyamment: « Ma petite chérie, j'ai déjà éliminé tous les membres de ton escouade de treize personnes. Où pourrais-tu bien te cacher? »
 
@@ -126,7 +126,7 @@ Sans attendre la fin de ses explications, les yeux de Wang Lin s'illuminèrent: 
 
 Le regard de Wang Lin terrifia Li Muwan. Elle était une personne très intelligente, sans quoi elle n'aurait pas osé prononcer ces trois mots dans l'espoir d'être sauvée.
 
-Après tout, ils étaient tous deux originaires de Huo Fen; tomber entre ses mains était préférable à celle de ce cultivateur de la Formation du Noyau. Pensant cela, elle ajouta immédiatement: « Je n'ai pas de Pilule du Ciel Lointain achevée, seulement un produit semi-complet... » Ses yeux s'embuèrent alors qu'elle percevait le regard peu amical de Wang Lin et expliqua précipitamment: « Aucune des pilules de la Secte Lou He n'est complète; elles sont toutes dans un état semi-fini. Cependant, il ne faut que trente minutes de raffinage pour la rendre parfaite. C'est parce qu'une fois la Pilule du Ciel Lointain achevée, elle est impossible à stocker. Elle doit être consommée dans l'année, sinon son efficacité diminue drastiquement. »
+Après tout, ils étaient tous deux originaires de Huo Fen; tomber entre ses mains était préférable à celle de ce cultivateur de la Formation du Noyau. Pensant cela, elle ajouta immédiatement: « Je n'ai pas de Pilule du Ciel Lointain achevée, seulement un produit semi-complet... » Ses yeux s'embuèrent alors qu'elle percevait le regard peu amical de Wang Lin et expliqua précipitamment: « Aucune des pilules de la Secte Luo He n'est complète; elles sont toutes dans un état semi-fini. Cependant, il ne faut que trente minutes de raffinage pour la rendre parfaite. C'est parce qu'une fois la Pilule du Ciel Lointain achevée, elle est impossible à stocker. Elle doit être consommée dans l'année, sinon son efficacité diminue drastiquement. »
 
 L'esprit de Wang Lin tourna à toute vitesse. Il avait initialement prévu de faire un détour pour atteindre la Mer des Démons, mais désormais, tenant la main délicate de Li Muwan, il chargea vers la frontière de Huo Fen.
 
@@ -180,7 +180,7 @@ Mais si elle échouait, elle était certaine que ce jeune homme froid lui arrach
 
 Wang Lin fronça les sourcils. Le temps pressait, pourtant cette fille semblait prostrée. Comment pouvait-il deviner ses pensées? La supposition de Li Muwan était cependant erronée. Même si elle n'avait pas fini, Wang Lin aurait pris le produit semi-complet, mais il lui aurait tout de même laissé un trésor pour survivre. De plus, puisque les bêtes le traquaient lui, elle aurait eu de fortes chances de s'en sortir.
 
-Le cœur de Li Muwan tressaillit en voyant le froncement de sourcils de Wang Lin. Elle mordilla sa lèvre et dit d'une voix tremblante: « Se... Senior, le temps est trop court pour produire une pilule parfaite, mais... je peux raffiner des pilules. Je connais presque toutes les recettes de la Secte Lou He et j'ai mémorisé de nombreuses formules anciennes. Tant que j'ai les matériaux, je peux les raffiner. »
+Le cœur de Li Muwan tressaillit en voyant le froncement de sourcils de Wang Lin. Elle mordilla sa lèvre et dit d'une voix tremblante: « Se... Senior, le temps est trop court pour produire une pilule parfaite, mais... je peux raffiner des pilules. Je connais presque toutes les recettes de la Secte Luo He et j'ai mémorisé de nombreuses formules anciennes. Tant que j'ai les matériaux, je peux les raffiner. »
 
 Wang Lin fut surpris et la dévisagea un instant, avant de voir la lueur rouge approcher. Il saisit Li Muwan et chargea vers la Mer des Démons.
 

@@ -94,7 +94,7 @@ Son corps volait toujours plus haut, mais juste avant de s'éloigner trop de la 
 
 « Je n'arrive pas à croire qu'un être puisse atteindre une compréhension si profonde sur cette planète de culture inutile! Mais avec votre simple stade d'Âme Naissante, même si vous utilisez cette compréhension pour atteindre la Formation de l'Âme, ne soyez pas trop gourmand. Je crains que ce genre de Dao Céleste ne vous prenne des millions d'années à en trouver la source. Et quand cela arrivera, votre corps aura déjà pourri. Y avez-vous pensé? »
 
-Wang Lin fut stupéfait, le regard chargé de confusion. Le vieil homme rit et, après l'avoir observé attentivement, cria: « Je m'appelle Tian Yunzi. Puisque nous nous sommes rencontrés, je vous propose un marché. Si vous parvenez à quitter cette planète de culture inutile pour venir me trouver sur la Planète Tian Yun, je ferai de vous mon disciple honorifique pour cent ans! »
+Wang Lin fut stupéfait, le regard chargé de confusion. Le vieil homme rit et, après l'avoir observé attentivement, cria: « On m'appelle l'Omniscient. Puisque nous nous sommes rencontrés, je vous propose un marché. Si vous parvenez à quitter cette planète de culture inutile pour venir me trouver sur la Planète Tian Yun, je ferai de vous mon disciple honorifique pour cent ans! »
 
 Sur ces mots, il pointa sa main droite et le corps de Wang Lin trembla. Il eut l'impression d'être percuté par une force colossale qui le renvoya brusquement vers la planète brune, en direction du territoire de l'Alliance des Quatre Sectes.
 
@@ -110,7 +110,7 @@ Une fois terminé, il se rendit à l'arrière pour se laver, changea ses vêteme
 
 Grâce à cette compréhension des cieux, le niveau de culture de Wang Lin était passé du milieu de l'Âme Naissante au sommet de sa phase tardive. Il n'était plus qu'à un souffle de la Formation de l'Âme.
 
-Pourtant, en repensant à ce qui venait de se passer, il ne put s'empêcher d'éprouver une crainte. Sans l'intervention de ce vieil homme nommé Tian Yunzi, il se serait véritablement perdu dans sa quête de la source. Si cela était arrivé, la seule issue aurait été la mort.
+Pourtant, en repensant à ce qui venait de se passer, il ne put s'empêcher d'éprouver une crainte. Sans l'intervention de ce vieil homme nommé l'Omniscient, il se serait véritablement perdu dans sa quête de la source. Si cela était arrivé, la seule issue aurait été la mort.
 
 Comprendre les lois célestes n'était pas un acte de paix; c'était une entreprise périlleuse. Cette fois, Wang Lin l'avait enfin compris.
 
@@ -120,6 +120,6 @@ Il venait d'achever la statue du vieil homme en cyan imprégnée de son domaine.
 
 Car ce Dao Céleste de la vie et de la mort n'était pas une chose qu'un simple cultivateur au stade de la Formation de l'Âme pouvait appréhender.
 
-À cet instant, une carte stellaire résidait dans l'esprit de Wang Lin, laissée par le vieux cultivateur Tian Yunzi. Au sein de cette carte se trouvait une planète bien plus vaste que Suzaku: c'était la planète de Tian Yunzi.
+À cet instant, une carte stellaire résidait dans l'esprit de Wang Lin, laissée par le vieux cultivateur, l'Omniscient. Au sein de cette carte se trouvait une planète bien plus vaste que Suzaku: c'était la planète de l'Omniscient.
 
 Il était toutefois impossible pour l'actuel Wang Lin d'y parvenir. Il soupira, réajusta son état d'esprit et retourna à sa vie de mortel. Mais dans son esprit, le sentiment d'avoir touché au Dao de la vie et de la mort était une chose qu'il n'oublierait jamais...

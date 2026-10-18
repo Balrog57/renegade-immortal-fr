@@ -36,7 +36,7 @@ Après avoir rapidement franchi la frontière de Huo Fen, ils purent apercevoir 
 
 Arrivés sur place, Wang Lin s'arrêta. Après une courte réflexion, il dit: « Je ne vous accompagnerai pas plus loin. »
 
-Li Muwan se mordit la lèvre inférieure en regardant derrière eux et répondit: « Et si vous me suiviez à la Secte Lou He pour vous y cacher un moment? »
+Li Muwan se mordit la lèvre inférieure en regardant derrière eux et répondit: « Et si vous me suiviez à la Secte Luo He pour vous y cacher un moment? »
 
 Wang Lin répondit calmement: « Ce n'est pas nécessaire. » Sur ces mots, il hésita un instant en contemplant Li Muwan. Il se frappa le front, et le sang de l'essence de l'âme de Li Muwan s'envola.
 

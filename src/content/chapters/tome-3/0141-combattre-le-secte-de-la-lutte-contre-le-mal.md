@@ -52,7 +52,7 @@ Wang Lin ne tourna pas la tête et répondit froidement:
 
 À ces mots, ce fut comme si la foudre frappait l'esprit de Li Muwan. Elle se souvenait parfaitement que son frère avait affirmé que le camp de Huo Fen engagé dans cette bataille était précisément la 10e brigade. Elle était désormais presque certaine que ce jeune homme au regard glacial était responsable du massacre des cultivateurs de l'Établissement des Fondations de Xuan Wu.
 
-En y pensant, son dernier vestige de volonté de résister s'évapora totalement. Elle n'avait plus la moindre envie de reculer. Mais à cet instant, elle se souvint soudain d'une description de technique étrange lue à la Secte Lou He et lâcha:
+En y pensant, son dernier vestige de volonté de résister s'évapora totalement. Elle n'avait plus la moindre envie de reculer. Mais à cet instant, elle se souvint soudain d'une description de technique étrange lue à la Secte Luo He et lâcha:
 « La technique que vous venez d'utiliser... était-ce le sort de la mort? »
 
 Le cœur de Wang Lin tressaillit légèrement, mais rien ne trahit son émotion. Il répondit calmement, sans se retourner:

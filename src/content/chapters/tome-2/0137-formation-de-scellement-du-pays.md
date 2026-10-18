@@ -16,7 +16,7 @@ Au fil du temps, les bêtes de feu commencèrent à rattraper l'arrière-garde. 
 
 Un immense bassin se dressait à la frontière de Huo Fen. Une fois l'armée de cultivateurs arrivée sur place, les quatre grandes sectes et quelques grandes familles de culture, soit dix-neuf cultivateurs de l'Âme Naissante au total, entamèrent une importante réunion secrète.
 
-À l'issue de la rencontre, dix-neuf silhouettes s'envolèrent dans un grondement de vent et de tonnerre jusqu'au-dessus du bassin. Un cultivateur de l'Âme Naissante de la Secte Lou He dit d'une voix grave: « Après de nombreuses années d'exploration, ma Secte Lou He a déterminé que ce lieu est la terre ancestrale du groupe de volcans, le lieu de naissance des bêtes spirituelles de feu. Si nous posons un sceau ici, nous pourrons certainement contenir tous les volcans. Alors, en utilisant la formation de scellement du pays laissée par nos ancêtres il y a plusieurs milliers d'années, nous pourrons emprisonner les bêtes de feu à l'intérieur de Huo Fen. »
+À l'issue de la rencontre, dix-neuf silhouettes s'envolèrent dans un grondement de vent et de tonnerre jusqu'au-dessus du bassin. Un cultivateur de l'Âme Naissante de la Secte Luo He dit d'une voix grave: « Après de nombreuses années d'exploration, ma Secte Luo He a déterminé que ce lieu est la terre ancestrale du groupe de volcans, le lieu de naissance des bêtes spirituelles de feu. Si nous posons un sceau ici, nous pourrons certainement contenir tous les volcans. Alors, en utilisant la formation de scellement du pays laissée par nos ancêtres il y a plusieurs milliers d'années, nous pourrons emprisonner les bêtes de feu à l'intérieur de Huo Fen. »
 
 Un homme aux cheveux rouges de la Secte des Démons Maléfiques jeta un coup d'œil au bassin en contrebas et renifla: « Si nos ancêtres avaient déjà tout préparé, pourquoi ne les ont-ils pas simplement anéanties à l'époque au lieu de laisser la situation en venir là? »
 
@@ -30,13 +30,13 @@ Une fois la parole donnée par l'Ancêtre Song, six cultivateurs de l'Âme Naiss
 
 Les six poussèrent un cri synchronisé et six fleurs de lotus surgirent de leurs sceaux de mains pour se poser aussitôt à l'angle plein est du bassin. Le bassin entier trembla avec fracas tandis qu'une brume rouge s'élevait.
 
-Aussitôt, la Secte Lou He, la Secte des Cadavres et la Secte des Démons Maléfiques projetèrent leurs lotus respectifs vers les points plein sud, plein ouest et plein nord.
+Aussitôt, la Secte Luo He, la Secte des Cadavres et la Secte des Démons Maléfiques projetèrent leurs lotus respectifs vers les points plein sud, plein ouest et plein nord.
 
 Les grondements s'intensifièrent alors qu'une brume rouge toujours plus abondante s'élevait du bassin. Elle se rassembla en plein ciel, prenant diverses formes avant de se transformer en un anneau de brume évidé.
 
 À cet instant, les cultivateurs de l'Âme Naissante issus des familles de culture qui n'étaient pas encore intervenus affichèrent un air résigné. Chacun d'eux se frappa violemment le front d'une main pour libérer son Âme Naissante, qui s'éleva rapidement jusqu'à l'espace vide au centre de l'anneau, où elle hésita, n'osant avancer.
 
-Un cultivateur de la Secte Lou He cria: « Chers compagnons cultivateurs indépendants, si vous n'agissez pas maintenant, quand le ferez-vous? »
+Un cultivateur de la Secte Luo He cria: « Chers compagnons cultivateurs indépendants, si vous n'agissez pas maintenant, quand le ferez-vous? »
 
 L'une des Âmes Naissantes à l'intérieur de l'anneau répondit d'une voix perçante: « Soit! Chers compagnons, puisque les quatre grandes sectes nous offrent des Pilules de Restauration de l'Origine, ce n'est que cent ans d'énergie spirituelle que je perds! Je me jette dans la bataille! » Sur ces mots, l'Âme Naissante se retourna, forma des sceaux de ses deux mains et, avec un grondement sourd, se précipita dans l'anneau. Dès qu'elle y pénétra, elle disparut comme si elle s'y était entièrement fondue, ne faisant plus qu'un avec lui.
 
@@ -52,9 +52,9 @@ Après une heure, l'anneau recouvrait tout le pays de Huo Fen tel un bol renvers
 
 Une fois la formation déployée, seuls les mortels pouvaient circuler librement. Cultivateurs comme bêtes spirituelles, tout être doté de pouvoirs et de niveau inférieur au stade de la Formation de l'Âme ne pouvait plus franchir la barrière.
 
-À l'instant où la formation s'ouvrit, les dix-neuf cultivateurs de l'Âme Naissante des quatre sectes se retirèrent; plusieurs d'entre eux saisirent les corps des cultivateurs indépendants à l'Âme Naissante pour les ramener dans leurs familles respectives, et ceux qui n'avaient pas de famille furent tous déposés à la Secte Lou He.
+À l'instant où la formation s'ouvrit, les dix-neuf cultivateurs de l'Âme Naissante des quatre sectes se retirèrent; plusieurs d'entre eux saisirent les corps des cultivateurs indépendants à l'Âme Naissante pour les ramener dans leurs familles respectives, et ceux qui n'avaient pas de famille furent tous déposés à la Secte Luo He.
 
-Plusieurs cultivateurs de la Secte Lou He se tenaient à l'extérieur de la formation. Ils s'inclinèrent et crièrent: « Chers compagnons, soyez tranquilles pendant que vous maintenez la formation. Nous promettons de protéger vos corps. Ce sceau ne peut tenir que trois mois. Je suis convaincu qu'à ce moment-là, nous aurons pris solidement pied à Xuan Wu. Je crois aussi que le pays de culture supérieur viendra alors éliminer les bêtes. Nous viendrons personnellement saluer votre retour. »
+Plusieurs cultivateurs de la Secte Luo He se tenaient à l'extérieur de la formation. Ils s'inclinèrent et crièrent: « Chers compagnons, soyez tranquilles pendant que vous maintenez la formation. Nous promettons de protéger vos corps. Ce sceau ne peut tenir que trois mois. Je suis convaincu qu'à ce moment-là, nous aurons pris solidement pied à Xuan Wu. Je crois aussi que le pays de culture supérieur viendra alors éliminer les bêtes. Nous viendrons personnellement saluer votre retour. »
 
 Dès que ces mots furent prononcés, les cultivateurs de l'Âme Naissante des trois autres sectes s'inclinèrent avec une sincérité sans faille.
 
@@ -94,8 +94,8 @@ Cette vaste montagne était désormais entièrement occupée par les quatre sect
 
 Les yeux de l'Ancêtre Song du Sanctuaire du Dieu de la Guerre brillaient comme des éclairs. Sa voix, empreinte d'une intention meurtrière, tonna: « Ceci est une guerre sans bien ni mal. Si nous ne parvenons pas à établir un point d'appui à Xuan Wu d'ici trois mois, les bêtes de feu briseront la formation pour sortir. Les bêtes de feu ne sont pas effrayantes; ce qui est terrifiant, c'est de manquer d'énergie spirituelle pour cultiver! »
 
-« À compter de ce jour, le Sanctuaire du Dieu de la Guerre, la Secte des Démons Maléfiques, la Secte Lou He et la Secte des Cadavres forment l'Union Huo Fen. Chaque disciple de l'Union au stade de l'Établissement des Fondations recevra un trésor de niveau Formation du Noyau, et chaque disciple de la Formation du Noyau recevra un trésor de niveau Âme Naissante! »
+« À compter de ce jour, le Sanctuaire du Dieu de la Guerre, la Secte des Démons Maléfiques, la Secte Luo He et la Secte des Cadavres forment l'Union Huo Fen. Chaque disciple de l'Union au stade de l'Établissement des Fondations recevra un trésor de niveau Formation du Noyau, et chaque disciple de la Formation du Noyau recevra un trésor de niveau Âme Naissante! »
 
 « En temps de guerre, tout ce que vous saisirez vous appartiendra. L'Union ne vous le reprendra pas. Disciples, ceci est une guerre, mais je veux que vous la considériez comme une invasion... une invasion pour la survie! »
 
-Un cultivateur de l'Âme Naissante de la Secte Lou He intervint en toussant: « Outre les trésors, chacun de vous recevra un talisman de jade permettant d'enregistrer le nombre d'ennemis abattus. Quiconque tuera cent cultivateurs de la 5ème couche de Condensation de Qi ou plus, ou dix cultivateurs au stade de l'Établissement des Fondations, recevra dix pierres spirituelles de qualité moyenne. Quiconque tuera deux cents cultivateurs de la 5ème couche de Condensation de Qi ou plus, vingt cultivateurs de l'Établissement des Fondations, ou un seul cultivateur de la Formation du Noyau, sera récompensé par dix bouteilles de pilules spirituelles! »
+Un cultivateur de l'Âme Naissante de la Secte Luo He intervint en toussant: « Outre les trésors, chacun de vous recevra un talisman de jade permettant d'enregistrer le nombre d'ennemis abattus. Quiconque tuera cent cultivateurs de la 5ème couche de Condensation de Qi ou plus, ou dix cultivateurs au stade de l'Établissement des Fondations, recevra dix pierres spirituelles de qualité moyenne. Quiconque tuera deux cents cultivateurs de la 5ème couche de Condensation de Qi ou plus, vingt cultivateurs de l'Établissement des Fondations, ou un seul cultivateur de la Formation du Noyau, sera récompensé par dix bouteilles de pilules spirituelles! »

@@ -54,7 +54,7 @@ Wang Lin accepta la cruche et en prit une gorgée.
 
 « Tout cela appartient au passé désormais, mais tu t'en souviens encore. » Wang Lin sourit amèrement, ne sachant que dire.
 
-« Bien sûr que je m'en souviens. Si je n'avais pas été gravement blessée, je n'aurais pas été sous le contrôle de Qian Feng... En parlant de cela, merci de m'avoir libérée dans la Tombe de Suzaku. » Évoquant le passé, Papillon Rouge laissa échapper un soupir.
+« Bien sûr que je m'en souviens. Si je n'avais pas été gravement blessée, je n'aurais pas été sous le contrôle de Qian Feng... En parlant de cela, merci de m'avoir libérée dans le Tombeau de Suzaku. » Évoquant le passé, Papillon Rouge laissa échapper un soupir.
 
 « Il n'y a plus de haine profonde entre nous, tout est derrière nous. Tu m'as demandé d'aller à Xue Yu pour trouver la rose bleue, et je l'ai trouvée. » Papillon Rouge était la femme qui lui avait laissé l'impression la plus profonde après Li Muwan et Liu Mei.
 

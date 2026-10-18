@@ -67,16 +67,16 @@ Ce déploiement couvrit instantanément tout le champ de bataille, faisant s'int
 
 Les trois grands Sens Divins avaient envoyé leurs messages respectifs. Ils cessèrent de manger et attendirent la réponse de Wang Lin, car à leurs yeux, il était leur égal.
 
-C'était la première fois qu'il entendait parler des dévoreurs d'âmes. Il réfléchit un instant en triant les souvenirs de Mai Liang; il savait que la matrice de transfert allait bientôt s'ouvrir. Si le champ de bataille s'effondrait totalement, il n'était pas sûr que la matrice puisse encore fonctionner.
+C'était la première fois qu'il entendait parler des dévoreurs d'âmes. Il réfléchit un instant en triant les souvenirs de Ma Liang; il savait que la matrice de transfert allait bientôt s'ouvrir. Si le champ de bataille s'effondrait totalement, il n'était pas sûr que la matrice puisse encore fonctionner.
 
 — Je ne cherche pas à vous arrêter, mais j'espère que vous ralentirez pour laisser au champ de bataille un peu plus de temps avant son effondrement.
 — D'accord.
 — Comme tu voudras.
 — Je suis d'accord aussi, mais tu ne peux empêcher les âmes errantes de chasser.
 
-Après avoir conclu cet accord, Wang Lin se dirigea vers la matrice de transfert en s'appuyant sur les souvenirs de Mai Liang. En chemin, chaque fois que des âmes errantes le repéraient, elles étaient prises de terreur; elles reculaient promptement, n'osant l'entraver.
+Après avoir conclu cet accord, Wang Lin se dirigea vers la matrice de transfert en s'appuyant sur les souvenirs de Ma Liang. En chemin, chaque fois que des âmes errantes le repéraient, elles étaient prises de terreur; elles reculaient promptement, n'osant l'entraver.
 
-Tout au long du trajet, Wang Lin se sentait très mal à l'aise dans ce nouveau corps. Bien que le talent et la racine spirituelle de Mai Liang fussent plutôt bons, plusieurs fois supérieurs à ceux qu'il avait autrefois, il s'agissait néanmoins d'un corps possédé. Il lui faudrait du temps pour le raffiner avant de pouvoir le maîtriser totalement.
+Tout au long du trajet, Wang Lin se sentait très mal à l'aise dans ce nouveau corps. Bien que le talent et la racine spirituelle de Ma Liang fussent plutôt bons, plusieurs fois supérieurs à ceux qu'il avait autrefois, il s'agissait néanmoins d'un corps possédé. Il lui faudrait du temps pour le raffiner avant de pouvoir le maîtriser totalement.
 
 Pour l'heure, son corps était dépourvu d'énergie spirituelle et il devait compter sur son Sens Divin pour se déplacer. Sa priorité était de trouver un endroit pour une culture en vase clos afin de raffiner ce corps tout en élevant sa culture, pour l'allier à son immense Sens Divin et retourner à Zhao tout massacrer sur son passage.
 

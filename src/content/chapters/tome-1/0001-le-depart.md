@@ -156,7 +156,7 @@ Le père de Tie Zhu tapota doucement l'épaule de son fils, les yeux emplis d'es
 
 Ils continuèrent à saluer la parentèle. Le père ramena Tie Zhu vers le banquet où régnait une effervescence joyeuse.
 
-Le père de Tie Zhu s'exclama: « Chers parents, chers villageois, moi, Wang Tianshui, ne suis pas un homme très cultivé et n'ai guère de grands discours à tenir. Mais aujourd'hui, mon cœur est léger car mon fils a la chance de devenir un disciple de la Secte Heng Yue. C'est le plus beau jour de ma vie. Je ne dirai rien de plus, mais merci à tous d'être venus. » Il leva sa coupe et vida le vin d'un trait.
+Le père de Tie Zhu s'exclama: « Chers parents, chers villageois, moi, Wang Tian Shui, ne suis pas un homme très cultivé et n'ai guère de grands discours à tenir. Mais aujourd'hui, mon cœur est léger car mon fils a la chance de devenir un disciple de la Secte Heng Yue. C'est le plus beau jour de ma vie. Je ne dirai rien de plus, mais merci à tous d'être venus. » Il leva sa coupe et vida le vin d'un trait.
 
 « Deuxième frère, ton fils est brillant depuis l'enfance. Il sera certainement choisi, tout comme le petit Wang Zhuo, et deviendra un immortel! »
 « Deuxième frère, avoir un fils comme Tie Zhu signifie que tu n'as pas vécu ta vie en vain. À l'avenir, il ne te restera qu'à récolter les fruits de cette fortune. »

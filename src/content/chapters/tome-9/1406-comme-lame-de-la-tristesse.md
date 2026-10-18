@@ -76,7 +76,7 @@ Le jeune homme fut tout aussi stupéfait par l'apparition de cette cruche. Aprè
 
 « Senior est... un immortel? »
 
-Wang Lin tint sa coupe et murmura pour lui-même: « Tu as grandi dans un village de montagne. Ton père est Wang Tianshui, le second fils de la famille, un charpentier... Ta mère est Zhou Yingsu, originaire du village de la famille Zhou, ayant étudié quelques années dans une école privée. Quand tu étais enfant, elle t'a appris à lire et à écrire... »
+Wang Lin tint sa coupe et murmura pour lui-même: « Tu as grandi dans un village de montagne. Ton père est Wang Tian Shui, le second fils de la famille, un charpentier... Ta mère est Zhou Yingsu, originaire du village de la famille Zhou, ayant étudié quelques années dans une école privée. Quand tu étais enfant, elle t'a appris à lire et à écrire... »
 
 Ces paroles tombèrent sur le jeune homme comme la foudre, le laissant pétrifié.
 

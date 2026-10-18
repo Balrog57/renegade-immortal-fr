@@ -94,7 +94,7 @@ Comparé à l'effondrement du champ de bataille étranger, on sentait ici en plu
 
 Wang Lin ne put s'empêcher d'entrer en transe devant tant de grandeur. Lorsqu'il reprit ses esprits, il était déjà arrivé au centre de l'armée avec le jeune homme.
 
-Qingxuan cria: « L'éclaireur de la Secte Lou He, Qingxuan, a ramené le disciple Ma Liang du Sanctuaire du Dieu de la Guerre! Que les camarades cultivateurs du Sanctuaire vérifient son identité afin que je puisse faire mon rapport! »
+Qingxuan cria: « L'éclaireur de la Secte Luo He, Qingxuan, a ramené le disciple Ma Liang du Sanctuaire du Dieu de la Guerre! Que les camarades cultivateurs du Sanctuaire vérifient son identité afin que je puisse faire mon rapport! »
 
 L'expression de Wang Lin resta impassible. Ce jour-là, la femme de l'Âme Naissante ne s'en était pas prise à lui et ses paroles laissaient entendre une certaine volonté de le recruter. Mais même sans cela, Wang Lin serait venu ici; c'était son seul refuge face à la poursuite des bêtes de feu.
 

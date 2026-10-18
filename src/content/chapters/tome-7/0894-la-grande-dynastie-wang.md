@@ -16,7 +16,7 @@ Par conséquent, qu'il s'agisse des descendants de Wang Lin, de la secte qu'il a
 
 Grâce au statut de nouveau Suzaku de Zhou Wutai, il fut fort aisé d'offrir à la descendance de la famille Wang une chance qui en fit les maîtres suprêmes du monde mortel. Cela permit également au pays de Zhao de croître par paliers jusqu'à devenir un pays de culture de rang 5.
 
-Le peuple savait naturellement que tout cela n'était fait que pour le compte de Wang Lin. Les exploits de Wang Lin dans la Tombe de Suzaku s'étaient propagés aux quatre coins du monde. Après mûre réflexion, Zhou Wutai avait progressivement convaincu l'ensemble des cultivateurs de reconnaître Wang Lin comme le gardien et l'ancêtre de la planète Suzaku.
+Le peuple savait naturellement que tout cela n'était fait que pour le compte de Wang Lin. Les exploits de Wang Lin dans le Tombeau de Suzaku s'étaient propagés aux quatre coins du monde. Après mûre réflexion, Zhou Wutai avait progressivement convaincu l'ensemble des cultivateurs de reconnaître Wang Lin comme le gardien et l'ancêtre de la planète Suzaku.
 
 Zhou Wutai avait une autre raison d'agir ainsi. Lorsqu'il était devenu Suzaku, il n'avait pas encore atteint le stade d'Ascendant. Il était le Suzaku le plus faible et ne possédait pas la puissance nécessaire pour régner. Ainsi, il ne pouvait que s'appuyer sur la renommée de Wang Lin pour asseoir son autorité et réprimer toute opposition!
 

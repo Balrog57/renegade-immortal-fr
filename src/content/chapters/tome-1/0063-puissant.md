@@ -76,8 +76,8 @@ Pu Nanzi ricana. Il l'interrompit une fois de plus: « Prêter? Très bien. Prê
 
 Tous les disciples internes bouillonnaient de rage, mais nul n'osa l'exprimer. Ils se sentaient tous accablés et restèrent silencieux, certains commençant même à songer à leur propre sort.
 
-Le regard de Pu Nanzi balaya la zone et se posa sur Huang Long. Il dit: « Toi. Remets-moi ton Épée de Lune Pourpre. Mon neveu-disciple Ouyang la convoite. »
+Le regard de Pu Nanzi balaya la zone et se posa sur Huang Long. Il dit: « Toi. Remets-moi ton Épée Zi Yue. Mon neveu-disciple Ouyang la convoite. »
 
 Huang Long endura l'humiliation et serra les poings. Il regarda Liu Wenju et la vieille femme. En constatant que ni l'un ni l'autre ne disait mot, il poussa un soupir résigné, sortit l'épée et la jeta au sol.
 
-Pu Nanzi tendit sa main droite et l'Épée de Lune Pourpre vola vers lui. Au moment où l'arme entra dans sa paume, une brume pourpre s'en échappa et prit la forme d'un dragon gigantesque.
+Pu Nanzi tendit sa main droite et l'Épée Zi Yue vola vers lui. Au moment où l'arme entra dans sa paume, une brume pourpre s'en échappa et prit la forme d'un dragon gigantesque.

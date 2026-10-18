@@ -122,7 +122,7 @@ Soudain, l'idée jaillit avec clarté dans l'esprit de Wang Lin. Son froncement 
 
 « Puisque mon corps ne peut pas résister à l'énergie Yin, alors je ferai en sorte que mon corps ne devienne qu'un avec elle. De la sorte, je pourrai la supporter. » Wang Lin prit une profonde inspiration, regarda Li Muwan et se dirigea vers elle.
 
-Le visage de Li Muwan devint livide. Elle recula contre le mur, tremblante, et au moment où elle s'apprêtait à se donner la mort avec un sourire amer, Wang Lin dit: « Quand j'atteindrai la Formation du Noyau, je te renverrai à la Secte Lou He. »
+Le visage de Li Muwan devint livide. Elle recula contre le mur, tremblante, et au moment où elle s'apprêtait à se donner la mort avec un sourire amer, Wang Lin dit: « Quand j'atteindrai la Formation du Noyau, je te renverrai à la Secte Luo He. »
 
 Sur ces mots, il fit volte-face, s'élança hors de la grotte et disparut en un clin d'œil.
 

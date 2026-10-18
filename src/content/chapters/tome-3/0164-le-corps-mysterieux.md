@@ -6,7 +6,7 @@ bookTitle: Famous in the Sea of Devils
 en: Chapter 164 - The Mysterious Corpse
 slug: le-corps-mystérieux
 ---
-Parmi les quatre grandes sectes, le Sanctuaire du Dieu de la Guerre, la Secte Lou He et la Secte du Démon Maléfique étaient seules à rester sur le pic principal. Quant à la Secte des Cadavres, après un bref séjour initial, elle avait quitté la montagne dès que le pays de culture de rang 4 eut éliminé les bêtes de feu, pour regagner l'intérieur de Huo Fen.
+Parmi les quatre grandes sectes, le Sanctuaire du Dieu de la Guerre, la Secte Luo He et la Secte du Démon Maléfique étaient seules à rester sur le pic principal. Quant à la Secte des Cadavres, après un bref séjour initial, elle avait quitté la montagne dès que le pays de culture de rang 4 eut éliminé les bêtes de feu, pour regagner l'intérieur de Huo Fen.
 
 Ce mouvement déconcerta de nombreuses personnes. Bien que les bêtes de feu aient été nettoyées, l'énergie spirituelle y était devenue trop violente pour la culture. En conséquence, le pays entier était devenu une zone morte pour les cultivateurs.
 

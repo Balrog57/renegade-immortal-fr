@@ -45,7 +45,7 @@ Peu après, Zhu Quezi ouvrit les yeux. Une trace de folie y brillait. Un tel reg
 
 « Si je n'avais pas secrètement comploté pendant de longues années pour finalement dérober le Cœur de la Planète de Culture au dernier Suzaku lors de son trépas, je crains que le Suzaku de cette génération n'ait pas été moi.
 
-« Qian Pinghai, tu as été aveugle de nommer Yun Quezi comme prochain Suzaku! Si j'avais suivi tes ordres en remettant le Cœur de la Planète de Culture à Yun Quezi, la planète aurait été conquise par le Clan des Immortels Délaissés. Qian Pinghai, vieux renard, je n'ai pas enterré ton corps dans la tombe de Suzaku, je l'ai vendu à la Secte des Cadavres! C'était le seul moyen d'apaiser ma haine envers toi.
+« Qian Pinghai, tu as été aveugle de nommer Yun Quezi comme prochain Suzaku! Si j'avais suivi tes ordres en remettant le Cœur de la Planète de Culture à Yun Quezi, la planète aurait été conquise par le Clan des Immortels Délaissés. Qian Pinghai, vieux renard, je n'ai pas enterré ton corps dans le Tombeau de Suzaku, je l'ai vendu à la Secte des Cadavres! C'était le seul moyen d'apaiser ma haine envers toi.
 
 « Qian Pinghai, la vérité prouve que je suis l'homme le plus apte à devenir le prochain Suzaku. Tu t'es trompé à l'époque, tellement...
 

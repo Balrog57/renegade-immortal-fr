@@ -30,15 +30,15 @@ Peu de temps après, la demeure du clan Wang apparut. Wang Lin ouvrit les yeux. 
 
 Tous les membres de la famille Wang étaient présents. Même ceux qui étaient partis acheter du bois dans d'autres contrées étaient revenus. La célébration battait son plein, entre tintements de coupes et allées et venues.
 
-À la tête du banquet se trouvaient le frère aîné de Wang Tianshui, Wang Tianshui lui-même, et le troisième frère de ce dernier. Tous les parents les entouraient pour leur présenter leurs félicitations. La scène était véritablement festive.
+À la tête du banquet se trouvaient le frère aîné de Wang Tian Shui, Wang Tian Shui lui-même, et le troisième frère de ce dernier. Tous les parents les entouraient pour leur présenter leurs félicitations. La scène était véritablement festive.
 
 Leurs yeux étaient empreints d'envie, mais leurs bouches débordaient de flatteries, particulièrement envers le père de Wang Lin, dont ils soupiraient sur le passé en s'apitoyant.
 
 Le sixième oncle de Wang Lin, un homme d'âge moyen au gros ventre, s'exclama d'une voix forte: « Deuxième frère, cette fois, ton fils sera certainement sélectionné. Après cela, tu n'auras plus à faire de la menuiserie. Dans la famille, qui te verra n'aura d'autre choix que de t'appeler "Deuxième Maître". »
 
-Le cinquième oncle de Wang Tianshui, les yeux plissés, assis à côté du père de Wang Lin, leva sa coupe et le flatta: « Lao Er, dès cette époque j'avais vu que ta vie ne serait pas ordinaire. Alors, j'avais raison, non? Ta destinée s'accomplit en Tie Zhu. Maintenant qu'il va devenir un immortel, toi, son père, tu seras quelqu'un d'extraordinaire. »
+Le cinquième oncle de Wang Tian Shui, les yeux plissés, assis à côté du père de Wang Lin, leva sa coupe et le flatta: « Lao Er, dès cette époque j'avais vu que ta vie ne serait pas ordinaire. Alors, j'avais raison, non? Ta destinée s'accomplit en Tie Zhu. Maintenant qu'il va devenir un immortel, toi, son père, tu seras quelqu'un d'extraordinaire. »
 
-« Deuxième frère, cette fois, ton fils Tie Zhu et mon fils seront tous deux sélectionnés. Nous, les frères, ne nous sommes pas vus depuis plus de dix ans. Cette fois, nous ne partirons pas avant d'être ivres, quoi qu'il arrive! » dit le père de Wang Hao en apportant des coupes de vin. C'était également le troisième frère de Wang Tianshui.
+« Deuxième frère, cette fois, ton fils Tie Zhu et mon fils seront tous deux sélectionnés. Nous, les frères, ne nous sommes pas vus depuis plus de dix ans. Cette fois, nous ne partirons pas avant d'être ivres, quoi qu'il arrive! » dit le père de Wang Hao en apportant des coupes de vin. C'était également le troisième frère de Wang Tian Shui.
 
 Le père de Tie Zhu regarda tous ces parents qui, autrefois, le méprisaient. Toute la douleur de son passé semblait s'être envolée. Cependant, il ne put s'empêcher de sentir un poids immense peser sur son cœur.
 

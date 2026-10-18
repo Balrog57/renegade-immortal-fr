@@ -22,7 +22,7 @@ Le chef de secte, Huang Long, scruta les disciples de la Secte Xuan Dao. Son reg
 
 « Faut-il vraiment faire sortir les disciples vêtus de pourpre? Mais ils sont en retraite de mort... » Soudain, le regard de Huang Long se posa sur le disciple resté tout au fond, et il prit enfin une décision.
 
-« Très bien. Puisqu'ils ont envoyé ce disciple, il est temps que nos disciples principaux sortent, eux aussi. »
+« Très bien. Puisqu'ils ont envoyé ce disciple, il est temps que nos disciples centraux sortent, eux aussi. »
 
 Sur cette pensée, il eut un rire et dit: « Ami Ouyang, vos disciples doivent être fatigués par le voyage. Laissez-les se reposer d'abord. Entre vieux compagnons, nous devrions passer un moment agréable. Entrez dans la salle principale. » Il fit un geste de la main pour les inviter à entrer, un sourire aux lèvres.
 

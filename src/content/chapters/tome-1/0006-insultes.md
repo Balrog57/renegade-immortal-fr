@@ -42,7 +42,7 @@ La situation était à l'opposé total de la scène précédente, comme le ciel 
 
 Le père de Wang Zhuo rit intérieurement et ricana: « Lao Er, ne t'avais-je pas dit que pour devenir disciple d'un immortel, il faut avoir le destin de son côté et que les exigences sont très strictes? Comment pourrait-il y avoir la moindre chance sans posséder un talent comme celui de mon fils? Pourtant, tu as sérieusement cru que c'était possible. Voilà que tu pousses ton fils à bout! Était-ce vraiment nécessaire? »
 
-Le père de Tie Zhu ne put plus contenir sa rage. Il hurla: « Wang Tianshan, tais-toi! À l'époque, sur son lit de mort, notre père m'avait laissé une part de l'héritage. Tu t'es ligué avec les autres pour me la voler, et maintenant tu oses m'insulter? Penses-tu vraiment que moi, Wang Tianshui, je vais subir cela en silence? »
+Le père de Tie Zhu ne put plus contenir sa rage. Il hurla: « Wang Tianshan, tais-toi! À l'époque, sur son lit de mort, notre père m'avait laissé une part de l'héritage. Tu t'es ligué avec les autres pour me la voler, et maintenant tu oses m'insulter? Penses-tu vraiment que moi, Wang Tian Shui, je vais subir cela en silence? »
 
 « Et vous tous aussi! Il y a un instant, vous me félicitiez joyeusement, et voilà que vous nous insultez. Notre fils est déjà dans cet état, et vous ajoutez l'insulte à la blessure. Êtes-vous encore des êtres humains? »
 

@@ -38,7 +38,7 @@ Tandis qu'ils volaient, la femme demanda d'une voix suave: « Maître, où nous 
 
 Le vieil homme ne répondit pas et continua sa progression jusqu'aux profondeurs du Royaume du Brouillard des Bêtes du Chaos. Ce n'est qu'alors qu'il s'arrêta et se retourna vers les trois disciples.
 
-« Vous êtes tous les disciples principaux de ma Secte Éternelle, mais vous vous êtes reposés sur les pilules pour augmenter votre niveau de culture, et par conséquent, vous manquez de compréhension profonde des cieux, sans parler des lois du monde. La meilleure façon de comprendre le ciel est de traverser une crise de vie ou de mort. Aujourd'hui, votre Maître vous a amenés ici, parmi ces bêtes féroces, pour que vous puissiez enfin méditer sur ces leçons! » Après avoir parlé, le vieil homme fit un geste de la main. Sans même leur laisser le temps de réagir, il les projeta dans le brouillard.
+« Vous êtes tous les disciples centraux de ma Secte Éternelle, mais vous vous êtes reposés sur les pilules pour augmenter votre niveau de culture, et par conséquent, vous manquez de compréhension profonde des cieux, sans parler des lois du monde. La meilleure façon de comprendre le ciel est de traverser une crise de vie ou de mort. Aujourd'hui, votre Maître vous a amenés ici, parmi ces bêtes féroces, pour que vous puissiez enfin méditer sur ces leçons! » Après avoir parlé, le vieil homme fit un geste de la main. Sans même leur laisser le temps de réagir, il les projeta dans le brouillard.
 
 Le vieil homme s'assit et réfléchit en silence, tandis que son sens divin se déployait pour observer ses trois disciples. À moins qu'ils ne soient réellement face à la mort, il n'interviendrait pas.
 

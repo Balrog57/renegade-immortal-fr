@@ -44,7 +44,7 @@ Mo Zhi ramassa la bouteille et s'assit à son tour. Ses yeux étaient empreints 
 
 Wang Lin secoua la tête. Parfois, lorsque l'on frôle la compréhension sans toutefois la saisir, peu importe les efforts de réflexion, on a l'impression qu'un obstacle bloque le chemin. Malgré toute la volonté du monde, l'illumination refuse de venir.
 
-« La deuxième fois que j'ai rencontré le frère Wang dans la Tombe de Suzaku, je voulais initialement qu'il devienne le seigneur de la planète Suzaku, mais il semble que je l'aie sous-estimé. » Mo Zhi parut sincère en prenant une gorgée de vin. « Je ne m'attendais pas à ce que le frère Wang soit l'Empereur Divin Oiseau Vermillon lors de notre troisième rencontre. J'en suis très heureux pour vous. »
+« La deuxième fois que j'ai rencontré le frère Wang dans le Tombeau de Suzaku, je voulais initialement qu'il devienne le seigneur de la planète Suzaku, mais il semble que je l'aie sous-estimé. » Mo Zhi parut sincère en prenant une gorgée de vin. « Je ne m'attendais pas à ce que le frère Wang soit l'Empereur Divin Oiseau Vermillon lors de notre troisième rencontre. J'en suis très heureux pour vous. »
 
 Les deux hommes poursuivirent leur discussion en buvant du vin. Les souvenirs des mille dernières années furent partagés et le temps passa rapidement, comme s'ils étaient retournés dans ce temple par cette nuit de pluie.
 

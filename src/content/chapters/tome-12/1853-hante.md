@@ -74,7 +74,7 @@ Après avoir examiné ces composants, il sortit le jade antique contenant le sor
 
 Selon le jade, le nom de cet objet était la Voile Fantôme. Elle se divisait en plusieurs grades: débutant, intermédiaire, supérieur, extrême et absolu. Chaque grade correspondait à deux couches d'illusions.
 
-Dans la Secte de la Grande Âme, la plupart des disciples ne possédaient qu'une voile de grade débutant, et seuls les Anciens pouvaient atteindre le grade intermédiaire. Quelques disciples principaux favorisés par leur maître pouvaient se voir confier une Voile Fantôme de grade intermédiaire pour leur protection.
+Dans la Secte de la Grande Âme, la plupart des disciples ne possédaient qu'une voile de grade débutant, et seuls les Anciens pouvaient atteindre le grade intermédiaire. Quelques disciples centraux favorisés par leur maître pouvaient se voir confier une Voile Fantôme de grade intermédiaire pour leur protection.
 
 La Voile Fantôme de Fan Shanmeng était de grade intermédiaire, un cadeau de Yan Luan.
 

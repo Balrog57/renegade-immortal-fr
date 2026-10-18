@@ -36,13 +36,13 @@ Assis sur le dos de la créature, Wang Lin sortit la carte de jade et regarda ve
 
 « L'une des trois grandes sectes du pays de Pilu sur le continent de Suzaku doit posséder une abondance d'énergie spirituelle! »
 
-S'il avait choisi la Secte de l'Affinement de l'Âme, c'était en raison de sa nature singulière: elle ne comptait que quelques centaines de disciples principaux pour plus de dizaines de milliers de disciples extérieurs.
+S'il avait choisi la Secte de l'Affinement de l'Âme, c'était en raison de sa nature singulière: elle ne comptait que quelques centaines de disciples centraux pour plus de dizaines de milliers de disciples extérieurs.
 
-Comparée aux deux autres grandes sectes de Pilu, la Secte de l'Affinement de l'Âme possédait le plus petit nombre de disciples principaux, tout en restant leur égale. Réussir à rivaliser avec ces deux puissances avec seulement quelques centaines d'élites prouvait non seulement que les trésors de la secte étaient exceptionnels, mais aussi que la culture des disciples principaux était redoutable.
+Comparée aux deux autres grandes sectes de Pilu, la Secte de l'Affinement de l'Âme possédait le plus petit nombre de disciples centraux, tout en restant leur égale. Réussir à rivaliser avec ces deux puissances avec seulement quelques centaines d'élites prouvait non seulement que les trésors de la secte étaient exceptionnels, mais aussi que la culture des disciples centraux était redoutable.
 
-La Secte de l'Affinement de l'Âme ne recrutait jamais d'enfants mortels. Il n'existait qu'une seule voie pour devenir un disciple principal: il fallait d'abord intégrer la secte en tant que disciple extérieur.
+La Secte de l'Affinement de l'Âme ne recrutait jamais d'enfants mortels. Il n'existait qu'une seule voie pour devenir un disciple central: il fallait d'abord intégrer la secte en tant que disciple extérieur.
 
-Tous les trois ans, une compétition opposait les disciples extérieurs pour désigner un seul nouveau disciple principal. Les disciples principaux concouraient également tous les trois ans, mais l'enjeu était différent: l'un d'eux était expulsé. Cela signifiait que même un disciple principal pouvait perdre son statut.
+Tous les trois ans, une compétition opposait les disciples extérieurs pour désigner un seul nouveau disciple central. Les disciples centraux concouraient également tous les trois ans, mais l'enjeu était différent: l'un d'eux était expulsé. Cela signifiait que même un disciple central pouvait perdre son statut.
 
 Devenir un disciple extérieur était très simple; il suffisait de payer suffisamment de pierres spirituelles pour obtenir ce rang pendant une certaine période.
 
@@ -120,7 +120,7 @@ Alors que Wang Lin s'apprêtait à s'éloigner, l'homme demanda soudain: « Qu'a
 
 Wang Lin répondit honnêtement: « Une épée volante qu'un aîné m'a offerte autrefois. »
 
-« Pas étonnant que Cheveux-Rouge ait été si joyeux! Qing Mu, bien que tu sois au stade de l'Établissement des Fondations, ne sois pas présomptueux. S'il n'y a pas beaucoup de cultivateurs de ce niveau parmi les disciples extérieurs, ils ne sont pas inexistants. Dans six mois, la compétition des disciples extérieurs commencera. Si tu travailles dur, tu pourrais avoir une chance de devenir un disciple principal. » L'homme secoua la tête et retourna dans sa demeure.
+« Pas étonnant que Cheveux-Rouge ait été si joyeux! Qing Mu, bien que tu sois au stade de l'Établissement des Fondations, ne sois pas présomptueux. S'il n'y a pas beaucoup de cultivateurs de ce niveau parmi les disciples extérieurs, ils ne sont pas inexistants. Dans six mois, la compétition des disciples extérieurs commencera. Si tu travailles dur, tu pourrais avoir une chance de devenir un disciple central. » L'homme secoua la tête et retourna dans sa demeure.
 
 À cet instant précis, à 25 kilomètres de là, Liu Mei observait la Secte de l'Affinement de l'Âme depuis le sommet d'une montagne. Elle tenait un morceau de jade qui lui avait été envoyé par l'Ancêtre via un messager un mois plus tôt. Bien qu'il ne puisse pas localiser précisément Ceng Niu, il réagirait si celui-ci se trouvait dans un rayon de 50 kilomètres.
 

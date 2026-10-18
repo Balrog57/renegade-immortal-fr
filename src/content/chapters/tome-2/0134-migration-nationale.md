@@ -106,7 +106,7 @@ Le lettré d'âge moyen ne s'en sentit pas gêné. Il regarda la femme avec tend
 
 Voyant que le silence s'était installé, l'homme nommé Song dit: « Peu importe. J'espère que l'apparition des bêtes de feu ne fera pas céder les sceaux. Faisons ce que nous faisons d'ordinaire et scellons les volcans dont nous avons la charge. »
 
-La même scène se déroula à la Secte Lou He, à la Secte Démoniaque et à la Secte des Cadavres. Les résultats furent sensiblement les mêmes, et tous les cultivateurs de l'Âme Naissante de Huo Fen s'attelèrent au scellement des volcans.
+La même scène se déroula à la Secte Luo He, à la Secte Démoniaque et à la Secte des Cadavres. Les résultats furent sensiblement les mêmes, et tous les cultivateurs de l'Âme Naissante de Huo Fen s'attelèrent au scellement des volcans.
 
 Soudain, dans tout le pays de Huo Fen, on put voir divers cultivateurs de l'Âme Naissante de différentes sectes planer autour des volcans pour les sceller. Les fluctuations d'énergie spirituelle devinrent également plus violentes ces derniers jours.
 
@@ -168,7 +168,7 @@ Le démon n'attendit pas d'ordre et pénétra docilement dans l'épée volante. 
 
 Wang Lin ignorait que durant ses quelques jours de retraite, des changements sismiques s'étaient produits à Huo Fen.
 
-L'origine de ce bouleversement fut un volcan qu'un cultivateur de l'Âme Naissante de la Secte Lou He tentait de sceller. Un volcan qu'il venait tout juste de sceller entra soudainement en éruption, projetant de la lave jusqu'à près de mille pieds de hauteur.
+L'origine de ce bouleversement fut un volcan qu'un cultivateur de l'Âme Naissante de la Secte Luo He tentait de sceller. Un volcan qu'il venait tout juste de sceller entra soudainement en éruption, projetant de la lave jusqu'à près de mille pieds de hauteur.
 
 Simultanément, d'immenses nuages de fumée noire envahirent le ciel. Ce n'était pas cela qui terrifiait le cultivateur, mais la myriade de bêtes de feu qui jaillissaient avec la lave.
 

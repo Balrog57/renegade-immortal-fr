@@ -6,11 +6,11 @@ bookTitle: The Bloody Image of Cultivation
 en: Chapter 122 - Kill Him
 slug: tuez-le
 ---
-Parmi les dix membres du Temple du Dieu de la Guerre, hormis Mai Liang qui était parti quatre jours auparavant, seuls ces trois-là subsistaient. Zhou Zihong laissa échapper un soupir en contemplant les créatures étranges qui convergeaient vers eux. Elle ferma les yeux, accablée par le désespoir, et ne put s'empêcher de penser à Mai Liang.
+Parmi les dix membres du Temple du Dieu de la Guerre, hormis Ma Liang qui était parti quatre jours auparavant, seuls ces trois-là subsistaient. Zhou Zihong laissa échapper un soupir en contemplant les créatures étranges qui convergeaient vers eux. Elle ferma les yeux, accablée par le désespoir, et ne put s'empêcher de penser à Ma Liang.
 
-« Ce Mai Liang a toujours été aussi timide qu'une souris et craint la mort plus que tout, mais il se trouve qu'il a la peau épaisse, insensible aux coups comme aux reproches. La jeune apprentie sœur Tong n'en pouvait plus de ses importunités et avait imaginé un moyen de l'envoyer sur le champ de bataille étranger pour s'en débarrasser. Si je ne l'avais pas pris en pitié et ne l'avais pas aidé à maintes reprises, il serait déjà mort. Au moins, il possède une conscience. Il y a quelques jours, il m'a offert une pilule censée aider à préserver la jeunesse... Je me demande si c'est vrai... »
+« Ce Ma Liang a toujours été aussi timide qu'une souris et craint la mort plus que tout, mais il se trouve qu'il a la peau épaisse, insensible aux coups comme aux reproches. La jeune apprentie sœur Tong n'en pouvait plus de ses importunités et avait imaginé un moyen de l'envoyer sur le champ de bataille étranger pour s'en débarrasser. Si je ne l'avais pas pris en pitié et ne l'avais pas aidé à maintes reprises, il serait déjà mort. Au moins, il possède une conscience. Il y a quelques jours, il m'a offert une pilule censée aider à préserver la jeunesse... Je me demande si c'est vrai... »
 
-Son cœur était empreint de désolation. Elle sombrait peu à peu dans des pensées délirantes. C'est alors qu'elle entendit soudainement le cri du frère aîné Yang à ses côtés: « Mai Liang! Vite, fuis! »
+Son cœur était empreint de désolation. Elle sombrait peu à peu dans des pensées délirantes. C'est alors qu'elle entendit soudainement le cri du frère aîné Yang à ses côtés: « Ma Liang! Vite, fuis! »
 
 Zhou Zihong sursauta et ouvrit les yeux. Elle vit un jeune homme fondre sur eux. Il était très beau, mais son regard laissait transparaître une pointe de froideur et sa poitrine était tachée de sang.
 
@@ -24,7 +24,7 @@ Wang Lin laissa échapper un reniflement et projeta un message via son Sens Divi
 
 Plus de dix âmes errantes paniquèrent soudainement et s'enfuirent, disparaissant sans laisser de trace.
 
-Zhou Zihong resta pétrifiée devant cette scène. Elle ne comprenait pas pourquoi ces créatures terrifiantes s'étaient ainsi éclipsées. Elle tourna la tête vers Wang Lin alors qu'une pensée insensée lui traversait l'esprit: « Ces créatures effrayantes auraient-elles peur de Mai Liang? »
+Zhou Zihong resta pétrifiée devant cette scène. Elle ne comprenait pas pourquoi ces créatures terrifiantes s'étaient ainsi éclipsées. Elle tourna la tête vers Wang Lin alors qu'une pensée insensée lui traversait l'esprit: « Ces créatures effrayantes auraient-elles peur de Ma Liang? »
 
 Mais elle écarta rapidement cette conjecture. Les deux autres disciples du Temple du Dieu de la Guerre étaient tout aussi perplexes, mais le soulagement de survivre à un péril si imminent les frappa de plein fouet, et ils poussèrent un long soupir de soulagement.
 
@@ -32,11 +32,11 @@ Le frère aîné Yang était le plus ancien d'entre eux. Après avoir jeté un r
 
 Zhou Zihong frissonna et acquiesça, puis ajouta: « Jeune frère Mai, tu es le plus faible d'entre nous, alors ne laisse surtout rien de ces choses te toucher. Si elles t'atteignent, tu mourras! »
 
-L'autre disciple du Temple du Dieu de la Guerre s'exclama avec impatience: « De quoi discutez-vous encore? Si vous ne bougez pas, j'y vais seul! » Sur ce, il s'élança et chargea rapidement vers l'avant. Wang Lin savait, grâce aux souvenirs de Mai Liang, que cet homme se nommait Lin Tao.
+L'autre disciple du Temple du Dieu de la Guerre s'exclama avec impatience: « De quoi discutez-vous encore? Si vous ne bougez pas, j'y vais seul! » Sur ce, il s'élança et chargea rapidement vers l'avant. Wang Lin savait, grâce aux souvenirs de Ma Liang, que cet homme se nommait Lin Tao.
 
 Le frère aîné Yang partit également, refusant de rester sur place. Zhou Zihong hésita un instant avant de lancer: « Fais attention! », puis elle les suivit à son tour.
 
-Durant tout ce temps, Wang Lin n'avait pas encore pris la parole, se contentant de les suivre avec désinvolture. La raison pour laquelle il avait sauvé ces trois-là, outre ses propres desseins, était qu'il savait par les souvenirs de Mai Liang que celui-ci éprouvait une immense gratitude envers Zhou Zihong. Puisqu'il avait pris possession du corps de Mai Liang, il lui semblait juste d'accomplir quelques tâches pour son compte.
+Durant tout ce temps, Wang Lin n'avait pas encore pris la parole, se contentant de les suivre avec désinvolture. La raison pour laquelle il avait sauvé ces trois-là, outre ses propres desseins, était qu'il savait par les souvenirs de Ma Liang que celui-ci éprouvait une immense gratitude envers Zhou Zihong. Puisqu'il avait pris possession du corps de Ma Liang, il lui semblait juste d'accomplir quelques tâches pour son compte.
 
 Les trois individus volaient avec une prudence extrême, faisant preuve d'une vigilance accrue lorsqu'ils sortaient des pilules pour restaurer leur énergie spirituelle. Zhou Zihong sortit même une pilule supplémentaire et la tendit à Wang Lin. Il fixa l'objet, incapable de ne penser à sa perle défiant le ciel; le liquide dans lequel la perle trempait constituait le meilleur remède de récupération.
 
@@ -54,15 +54,15 @@ Il existait quatre grandes matrices de transfert dans le champ de bataille étra
 
 Quiconque pénétrait dans le champ de bataille recevait un morceau de jade. Outre la protection contre le vent d'acier, ce jade permettait également l'utilisation des matrices de transfert.
 
-Wang Lin ne possédant pas de jade de Zhao, il n'avait aucun moyen de retourner par la matrice. De plus, utilisant actuellement le corps de Mai Liang, il était préférable pour lui de regagner le pays d'origine de Mai Liang, Huo Fen.
+Wang Lin ne possédant pas de jade de Zhao, il n'avait aucun moyen de retourner par la matrice. De plus, utilisant actuellement le corps de Ma Liang, il était préférable pour lui de regagner le pays d'origine de Ma Liang, Huo Fen.
 
 C'était là l'autre raison pour laquelle il avait sauvé le groupe de Zhou Zihong: voler un jade.
 
 Bien sûr, s'il parvenait à trouver Xu Hao et Ge Yang, ce serait l'idéal.
 
-Wang Lin avait déjà fait d'eux des cibles à abattre à tout prix. Ce n'était pas par vengeance pour Mai Liang, mais parce que ces deux-là savaient que le vrai Mai Liang était déjà mort. Pour prévenir tout problème futur, ils devaient mourir.
+Wang Lin avait déjà fait d'eux des cibles à abattre à tout prix. Ce n'était pas par vengeance pour Ma Liang, mais parce que ces deux-là savaient que le vrai Ma Liang était déjà mort. Pour prévenir tout problème futur, ils devaient mourir.
 
-En chemin, s'appuyant sur les souvenirs de Mai Liang, Wang Lin avait contacté ses trois voisins pour qu'ils recherchent Xu Hao et Ge Yang à sa place. Toutes les âmes errantes du champ de bataille étaient devenues ses yeux et ses oreilles. Dès qu'il y aurait des nouvelles de ces deux individus, ses trois voisins l'en informeraient instantanément.
+En chemin, s'appuyant sur les souvenirs de Ma Liang, Wang Lin avait contacté ses trois voisins pour qu'ils recherchent Xu Hao et Ge Yang à sa place. Toutes les âmes errantes du champ de bataille étaient devenues ses yeux et ses oreilles. Dès qu'il y aurait des nouvelles de ces deux individus, ses trois voisins l'en informeraient instantanément.
 
 Si, au terme de leur périple, il n'avait toujours aucune nouvelle, cela signifierait que Xu Hao et Ge Yang étaient déjà morts.
 

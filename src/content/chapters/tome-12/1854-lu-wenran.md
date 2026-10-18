@@ -42,7 +42,7 @@ Sans hésiter, Wang Lin s'élança vers le Pic Fantôme.
 
 À l'extrémité nord de la Secte de la Grande Âme se trouvait une terre interdite entourée d'un brouillard infini. Peu de disciples s'y aventuraient. Ils n'y venaient qu'en cas de besoin d'une âme morte, accompagnés de leurs maîtres respectifs.
 
-Seuls les disciples principaux possédant un haut niveau de culture pouvaient s'y rendre seuls.
+Seuls les disciples centraux possédant un haut niveau de culture pouvaient s'y rendre seuls.
 
 La Secte de la Grande Âme y avait rassemblé d'immenses quantités d'âmes mortes. Bien que leur qualité fût médiocre, elles étaient faciles à obtenir. Après tout, la Secte de la Grande Âme était célèbre pour ses illusions, et sans le Pic Fantôme, la plupart des disciples ne pourraient achever leurs Voiles Fantômes.
 

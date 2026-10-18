@@ -72,11 +72,11 @@ Après un long moment, Wang Lin soupira intérieurement. Son Sens Divin se mouva
 
 Wang Lin savait que si le nombre de lignes noires dépassait un certain seuil, même lui ne pourrait y résister.
 
-Il ferma les yeux. Après une longue réflexion, il les rouvrit brusquement. Il sortit trois sacs de rangement et les fouilla. Outre le jade de transfert de Mai Liang, il en extrait plusieurs pierres spirituelles de qualité moyenne.
+Il ferma les yeux. Après une longue réflexion, il les rouvrit brusquement. Il sortit trois sacs de rangement et les fouilla. Outre le jade de transfert de Ma Liang, il en extrait plusieurs pierres spirituelles de qualité moyenne.
 
-Xu Hao et Ge Yang avaient été particulièrement malchanceux. Juste après avoir tué Mai Liang, ils tombèrent sur une multitude d'âmes errantes. Bien qu'ils aient réussi à s'échapper, les âmes semblaient les traquer sans relâche. Même lorsqu'elles chassaient d'autres proies, elles abandonnaient tout pour se lancer à leur poursuite. Une âme errante avait même recraché la moitié de l'âme qu'elle dévorait pour bondir sur eux.
+Xu Hao et Ge Yang avaient été particulièrement malchanceux. Juste après avoir tué Ma Liang, ils tombèrent sur une multitude d'âmes errantes. Bien qu'ils aient réussi à s'échapper, les âmes semblaient les traquer sans relâche. Même lorsqu'elles chassaient d'autres proies, elles abandonnaient tout pour se lancer à leur poursuite. Une âme errante avait même recraché la moitié de l'âme qu'elle dévorait pour bondir sur eux.
 
-Face à une telle détermination, leur survie était impossible. Ils furent rapidement dévorés. Comme ils n'avaient pas eu le temps de fouiller le sac de Mai Liang, cela signifiait au moins que son butin était intact.
+Face à une telle détermination, leur survie était impossible. Ils furent rapidement dévorés. Comme ils n'avaient pas eu le temps de fouiller le sac de Ma Liang, cela signifiait au moins que son butin était intact.
 
 En examinant les trois sacs de rangement, Wang Lin fut stupéfait. Pierres spirituelles, trésors magiques ou matériaux rares: tout y était. Il fallait dire que cela représentait cinquante ans de travail pour ces deux-là.
 

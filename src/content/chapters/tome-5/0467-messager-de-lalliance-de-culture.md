@@ -54,7 +54,7 @@ Cependant, il était trop tard; les innombrables fragments d'âme et les âmes p
 
 Le symbole noir fendit l'air comme un éclair et se brisa à une dizaine de mètres de Tuo Sen. Une onde noire apparut soudainement, semblant douée d'une intelligence propre; elle ne se propagea pas de manière aléatoire, mais chargea droit sur Tuo Sen.
 
-Un son fracassant, capable de déchirer les cieux, ébranla l'intégralité de la Tombe de Suzaku.
+Un son fracassant, capable de déchirer les cieux, ébranla l'intégralité du Tombeau de Suzaku.
 
 À cet instant, non seulement ceux qui se trouvaient dans la tombe, mais tous les êtres de la planète purent ressentir cette aura capable de détruire les firmaments.
 

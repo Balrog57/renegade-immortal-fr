@@ -10,7 +10,7 @@ Les yeux de Wang Lin s'illuminèrent. Tout en reculant, il leva l'épée célest
 
 L'énergie de la lame fondit sur lui et, dans un fracas retentissant, Wang Lin fut projeté en arrière. Utilisant l'élan de cette force, il continua sa retraite. La puissance de cette énergie de lame était comparable à une attaque de pleine puissance d'un cultivateur au stade avancé de la Transformation de l'Âme. Sans le drapeau des milliards d'âmes, Wang Lin n'aurait eu aucun moyen de rivaliser.
 
-Wang Lin recula rapidement. Il ne chercha pas à s'échapper par le chemin qu'il avait emprunté, mais prit la direction opposée; il s'enfonça plus profondément dans la Tombe de Suzaku.
+Wang Lin recula rapidement. Il ne chercha pas à s'échapper par le chemin qu'il avait emprunté, mais prit la direction opposée; il s'enfonça plus profondément dans le Tombeau de Suzaku.
 
 Des vagues de messages transmis par Sens Divin émanèrent de la lame. Elle ordonnait à toutes les épées du trésor de poursuivre Wang Lin.
 

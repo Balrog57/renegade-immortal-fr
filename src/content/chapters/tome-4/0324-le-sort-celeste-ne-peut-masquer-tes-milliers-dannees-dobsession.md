@@ -38,7 +38,7 @@ Bang! Bang! Bang!
 
 Les cristaux de sang explosèrent dans trois fracas assourdissants, et au cœur des détonations, un vortex noir apparut. Une main gigantesque surgit du vortex et se tendit pour saisir le vieil homme.
 
-Le visage du vieil homme se décomposa en voyant la main. Il cria: « Tian Yunzi, si tu m'empêches de saisir l'épée céleste, nos deux sectes connaîtront un bain de sang pendant mille ans à mon retour! »
+Le visage du vieil homme se décomposa en voyant la main. Il cria: « Omniscient, si tu m'empêches de saisir l'épée céleste, nos deux sectes connaîtront un bain de sang pendant mille ans à mon retour! »
 
 Aussitôt ses paroles prononcées, il esquiva sur le côté et chargea avec acharnement vers la femme en robe blanche.
 
@@ -46,7 +46,7 @@ La main le poursuivit sans relâche. Une voix très ancienne résonna depuis le 
 
 « Ling Tianhou, l'épée céleste appartient à ceux que le destin choisit. Si tu parviens à la saisir, c'est que ton destin l'a voulu. »
 
-« Tian Yunzi! » Le corps de Wang Lin trembla. Il fixait le vortex d'un regard mystérieux, plongé dans une profonde réflexion.
+« L'Omniscient! » Le corps de Wang Lin trembla. Il fixait le vortex d'un regard mystérieux, plongé dans une profonde réflexion.
 
 Le visage du vieil homme était sombre. Il se déplaça avec la rapidité de la foudre et, en un clin d'œil, apparut devant la femme vêtue de blanc. Il tendit brusquement la main vers l'épée céleste qui se matérialisait.
 
@@ -62,7 +62,7 @@ Cependant, alors qu'il s'apprêtait à la saisir, une autre personne surgit de l
 
 La femme en robe blanche ne cilla même pas. Elle pointa un autre dragon doré du doigt. Le dragon poussa un rugissement et se transforma en une épée courbe.
 
-Les yeux du vieil homme s'illuminèrent et il tendit la main vers l'arme, mais la main de Tian Yunzi était déjà plus proche.
+Les yeux du vieil homme s'illuminèrent et il tendit la main vers l'arme, mais la main de l'Omniscient était déjà plus proche.
 
 Le regard de la femme devint glacial alors qu'elle pointait le vieil homme. Ce dernier poussa un cri tandis que ses vêtements se déchiraient sur sa poitrine, là où une empreinte noire venait de se marquer.
 
@@ -76,7 +76,7 @@ Au moment où le vieil homme saisit l'arme, un orbe doré apparut et vola vers l
 
 La main qui le poursuivait s'arrêta soudainement et dévia sur le côté; elle ne le traquait plus. Au lieu de cela, elle saisit l'homme d'âge moyen qui avait combattu Wang Lin et Chi Hu, et le tira violemment dans le vortex. L'homme et la main disparurent instantanément.
 
-Dès sa disparition, la voix antique de Tian Yunzi résonna de nouveau:
+Dès sa disparition, la voix antique de l'Omniscient résonna de nouveau:
 
 « Ling Tianhou, recevoir une épée céleste est la volonté des cieux; je ne t'en empêcherai donc pas, mais connais tes limites... »
 

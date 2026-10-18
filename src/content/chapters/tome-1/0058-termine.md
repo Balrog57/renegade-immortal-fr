@@ -6,7 +6,7 @@ bookTitle: The Mediocre Youth
 en: Chapter 58 - Finished
 slug: termine
 ---
-L'Ancien Ouyang lança un regard méprisant à Wang Lin. Il déclara: « Tu n'es qu'un simple junior. De quel droit prétends-tu commercer avec moi? Si tu sors un trésor de la trempe de l'Épée de Lune Pourpre de la Secte Heng Yue, je pourrais peut-être accepter d'échanger une seule goutte de ce poison contre lui! »
+L'Ancien Ouyang lança un regard méprisant à Wang Lin. Il déclara: « Tu n'es qu'un simple junior. De quel droit prétends-tu commercer avec moi? Si tu sors un trésor de la trempe de l'Épée Zi Yue de la Secte Heng Yue, je pourrais peut-être accepter d'échanger une seule goutte de ce poison contre lui! »
 
 Wang Lin fronça les sourcils et ricana intérieurement. Puis, il activa sa technique d'attraction de toutes ses forces et tendit la main.
 
@@ -26,7 +26,7 @@ Les deux autres anciens serrèrent les dents. Faisant fi de leur statut, l'un d'
 
 Une intense vague de chaleur atteignit Wang Lin, mais son expression resta de marbre. Il créa une autre main par sa technique d'attraction, laquelle généra un tourbillon de vent autour de lui, faisant vaciller les flammes spectrales.
 
-Tout cela se produisit en un éclair. Huang Long poussa un rugissement de colère et traça un sceau de la main. Son épée volante, la Lune Pourpre, s'élança pour percuter le ruban multicolore.
+Tout cela se produisit en un éclair. Huang Long poussa un rugissement de colère et traça un sceau de la main. Son épée volante, la Zi Yue, s'élança pour percuter le ruban multicolore.
 
 Profitant de cet instant, Wang Lin se précipita vers le mille-pattes de mille pieds. Sa technique d'attraction maintenant la créature, celle-ci ne pouvait s'échapper malgré ses efforts désespérés. Wang Lin posa sa main droite sur la tête du mille-pattes et déchaîna son énergie spirituelle. La créature poussa un hurlement de douleur et recracha un liquide noir.
 

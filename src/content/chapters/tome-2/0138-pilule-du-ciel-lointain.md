@@ -6,7 +6,7 @@ bookTitle: The Bloody Image of Cultivation
 en: Chapter 138 - Distant Heaven Pill
 slug: pilule-du-ciel-lointain
 ---
-Un vieil homme extrêmement maigre sortit de la section de la Secte Lou He. Il portait une robe noire et son visage était profondément ridé. Ses yeux étaient ternes et il semblait sans aucune énergie. Il releva légèrement les paupières et déclara d'une voix rauque: « Celui qui tuera le plus d'ennemis chaque mois recevra une Pilule du Ciel Lointain. »
+Un vieil homme extrêmement maigre sortit de la section de la Secte Luo He. Il portait une robe noire et son visage était profondément ridé. Ses yeux étaient ternes et il semblait sans aucune énergie. Il releva légèrement les paupières et déclara d'une voix rauque: « Celui qui tuera le plus d'ennemis chaque mois recevra une Pilule du Ciel Lointain. »
 
 Dès que la Pilule du Ciel Lointain fut mentionnée, Wang Lin remarqua que tous les cultivateurs environnants devinrent tendus, leur respiration se faisant saccadée.
 

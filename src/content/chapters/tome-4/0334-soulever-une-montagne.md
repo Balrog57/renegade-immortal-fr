@@ -84,7 +84,7 @@ Tie Yan ayant déjà voyagé dans la Mer des Diables lorsqu'il était jeune, il 
 
 « Maître de Secte, l'enchère aura lieu dans sept jours. Voici l'invitation. » Tie Yan remit respectueusement le précieux document à Wang Lin.
 
-Pendant ces sept jours, Wang Lin et Li Muwan explorèrent la Cité des Rebelles Démoniaques. Li Muwan fut très heureuse durant cette période. En réalité, mis à part ses jours insouciants au sein de la Secte Lou He, c'était le moment où elle avait été la plus épanouie de sa vie.
+Pendant ces sept jours, Wang Lin et Li Muwan explorèrent la Cité des Rebelles Démoniaques. Li Muwan fut très heureuse durant cette période. En réalité, mis à part ses jours insouciants au sein de la Secte Luo He, c'était le moment où elle avait été la plus épanouie de sa vie.
 
 Au bout de sept jours, l'enchère décennale du Pavillon de Raffinage des Trésors commença.
 

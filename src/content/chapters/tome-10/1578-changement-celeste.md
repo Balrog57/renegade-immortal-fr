@@ -28,7 +28,7 @@ Wang Lin fixa le Champ de Bataille Extérieur. Il avait parcouru trop de planèt
 
 C'était comme si ce champ de bataille n'appartenait qu'à la planète Suzaku, et exclusivement aux cultivateurs de cette planète!
 
-Tout en réfléchissant silencieusement, Wang Lin fit un pas en avant. Après plus de 2 000 ans, il pénétrait dans le Champ de Bataille Extérieur qui lui avait offert une nouvelle vie! Il ne pouvait oublier le jour où il avait été tué par l'ancêtre de la famille Teng. Puis, grâce à la Perle Défiant le Ciel et à Situ Nan, son âme était retournée dans son corps. Il avait ensuite trouvé le cadavre de Mai Liang, marquant ainsi le début de sa nouvelle existence.
+Tout en réfléchissant silencieusement, Wang Lin fit un pas en avant. Après plus de 2 000 ans, il pénétrait dans le Champ de Bataille Extérieur qui lui avait offert une nouvelle vie! Il ne pouvait oublier le jour où il avait été tué par l'ancêtre de la famille Teng. Puis, grâce à la Perle Défiant le Ciel et à Situ Nan, son âme était retournée dans son corps. Il avait ensuite trouvé le cadavre de Ma Liang, marquant ainsi le début de sa nouvelle existence.
 
 Après un long moment, le sens divin de Wang Lin continua de s'étendre à travers le Champ de Bataille Extérieur. Il vit une profusion de cadavres et d'âmes errantes. Toutes ces âmes hurlaient et reculaient de peur. Pourtant, faute de pouvoir s'échapper, elles ne pouvaient que trembler devant son sens divin.
 

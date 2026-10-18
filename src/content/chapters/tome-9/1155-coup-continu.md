@@ -15,7 +15,7 @@ Cela expliquerait que Wang Lin provienne de ce continent sauvage. En ajoutant la
 
 Son visage se couvrit d'une expression d'indignation. Personne ne trouverait cela suspect; n'importe qui ressentirait cette indignation, mais ils seraient tout de même contraints de le suivre.
 
-Cependant, alors que les huit disciples principaux se rapprochaient et que Wang Lin ordonnait au singe noir de bouger comme s'il allait les suivre, une intention meurtrière brilla dans ses yeux! Il ne pouvait pas retourner sur le continent sauvage; y retourner signifierait la mort!
+Cependant, alors que les huit disciples centraux se rapprochaient et que Wang Lin ordonnait au singe noir de bouger comme s'il allait les suivre, une intention meurtrière brilla dans ses yeux! Il ne pouvait pas retourner sur le continent sauvage; y retourner signifierait la mort!
 
 Sur les dix-huit cultivateurs, celui qui menait se trouvait au stade de Briseur du Nirvana, mais le niveau de culture le plus élevé des dix-sept autres n'était que celui du début du stade de Purificateur du Nirvana!
 
@@ -67,7 +67,7 @@ Tout cela se produisit en quelques respirations. Tuer tous les cultivateurs pré
 
 « Si mon corps originel était ici, tuer cet homme serait plus facile », pensa Wang Lin. Alors qu'il parlait, sa main droite pointa vers le Sceau Céleste des 18 Enfers. Dans un éclat de lumière, les fragments d'âmes jaillirent des dix-huit couches de l'enfer. Les âmes les plus puissantes à l'intérieur étaient Maître Vide et celle issue de la fusion des deux avatars de l'Omniscient! Ils étaient les atouts de Wang Lin, et dès leur apparition, une énergie glaciale enveloppa la zone.
 
-L'expression de Noble Argent devint extrêmement laide. Il n'aurait jamais imaginé que ce jeune homme aux cheveux blancs puisse utiliser des sorts aussi puissants et éliminer tous les disciples principaux en si peu de temps. Et malgré ses propres attaques, il n'avait pas réussi à tuer cet individu! Ce qui le choquait davantage encore, c'étaient les âmes mortes invoquées par le sort du cultivateur. Les auras de deux d'entre elles lui infligèrent une crainte profonde. Cela révélait l'incroyable niveau de culture qu'ils possédaient de leur vivant. Même s'il ne s'agissait que d'âmes, et que leur force ne pouvait égaler celle de leurs incarnations passées, cela laissa Noble Argent sous le choc.
+L'expression de Noble Argent devint extrêmement laide. Il n'aurait jamais imaginé que ce jeune homme aux cheveux blancs puisse utiliser des sorts aussi puissants et éliminer tous les disciples centraux en si peu de temps. Et malgré ses propres attaques, il n'avait pas réussi à tuer cet individu! Ce qui le choquait davantage encore, c'étaient les âmes mortes invoquées par le sort du cultivateur. Les auras de deux d'entre elles lui infligèrent une crainte profonde. Cela révélait l'incroyable niveau de culture qu'ils possédaient de leur vivant. Même s'il ne s'agissait que d'âmes, et que leur force ne pouvait égaler celle de leurs incarnations passées, cela laissa Noble Argent sous le choc.
 
 Wang Lin pointa du doigt Maître Vide et l'âme de l'Omniscient qui chargèrent. Cependant, cela ne suffirait pas à achever rapidement ce combat. Si la bataille s'éternisait et que des renforts arrivaient, Wang Lin mourrait sans aucun doute!
 

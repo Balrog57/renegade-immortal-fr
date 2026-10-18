@@ -86,7 +86,7 @@ Le regard de cette femme était complexe; il était empreint de confusion, de do
 
 « Ascendant... Je me demande quand j'atteindrai ce stade! Pour l'instant, le sceau n'est pas levé, je n'ai donc même aucun espoir d'atteindre la Transformation de l'Âme... » Wang Lin soupira doucement.
 
-« Tian Yunzi m'a accepté comme disciple. Peut-être devrais-je le retrouver rapidement pour avoir une chance d'atteindre le stade Ascendant... Cependant, je suis réticent à abandonner ma voie de culture actuelle; Situ Nan n'est pas encore réveillé, et je n'ai pas obtenu le cristal planétaire qui peut aider mon Royaume Ji à progresser. De plus, il est probable que les cultivateurs de cette planète aient des niveaux élevés; si j'y vais alors que je suis trop faible, je n'attirerai pas l'attention de Tian Yunzi... » Wang Lin était plongé dans ses pensées lorsqu'il sembla soudain remarquer quelque chose. Il tourna la tête et vit la femme qui le fixait.
+« L'Omniscient m'a accepté comme disciple. Peut-être devrais-je le retrouver rapidement pour avoir une chance d'atteindre le stade Ascendant... Cependant, je suis réticent à abandonner ma voie de culture actuelle; Situ Nan n'est pas encore réveillé, et je n'ai pas obtenu le cristal planétaire qui peut aider mon Royaume Ji à progresser. De plus, il est probable que les cultivateurs de cette planète aient des niveaux élevés; si j'y vais alors que je suis trop faible, je n'attirerai pas l'attention de l'Omniscient... » Wang Lin était plongé dans ses pensées lorsqu'il sembla soudain remarquer quelque chose. Il tourna la tête et vit la femme qui le fixait.
 
 « Qui est cette femme? » Les yeux de Wang Lin s'illuminèrent et il plana vers la grotte de l'inconnue.
 

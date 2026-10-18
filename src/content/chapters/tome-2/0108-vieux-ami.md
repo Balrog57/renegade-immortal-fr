@@ -54,7 +54,7 @@ Wang Lin atteignit aisément Li Shan. Ce dernier était si terrifié qu'il n'osa
 
 Li Shan, prostré au sol, reconnut cette voix familière et prit son courage à deux mains pour lever les yeux. Soudain, il eut l'impression d'être frappé par la foudre et s'exclama: « Tu... Wang Lin! »
 
-Wang Lin fixa Li Shan. Cette vision terrifia tant le jeune homme qu'il en frissonna et se tut aussitôt, bien que son cœur fût en plein tumulte. Il faut dire que le nom de Wang Lin était devenu célèbre au sein de la Secte Xuan Dao. Wang Lin, qui avait fait une percée fulgurante lors des échanges entre la Secte Heng Yue et la Secte Xuan Dao, était devenu une cible pour de nombreux disciples principaux de la secte.
+Wang Lin fixa Li Shan. Cette vision terrifia tant le jeune homme qu'il en frissonna et se tut aussitôt, bien que son cœur fût en plein tumulte. Il faut dire que le nom de Wang Lin était devenu célèbre au sein de la Secte Xuan Dao. Wang Lin, qui avait fait une percée fulgurante lors des échanges entre la Secte Heng Yue et la Secte Xuan Dao, était devenu une cible pour de nombreux disciples centraux de la secte.
 
 Il était aussi celui que Li Shan désirait par-dessus tout surpasser, jusque dans ses rêves, surtout après l'incident de la bombe puante survenu des années plus tôt. La vie de Li Shan s'était durcie depuis cet événement; durant cette période, il maudissait Wang Lin presque chaque jour, d'innombrables fois.
 

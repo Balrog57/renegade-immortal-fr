@@ -72,7 +72,7 @@ Toutefois, alors que son corps volait en éclats, son âme originelle s'échappa
 
 Mais le danger n'était pas écarté. L'énergie de la lame qui avait pulvérisé son corps fonça droit sur son âme originelle, sur le point de la transpercer.
 
-L'homme en noir diffusa précipitamment un message par sens divin, empreint d'angoisse et d'horreur: « Seigneur Ancien Démon, je suis Lou Hou, le septième disciple du Suprême! »
+L'homme en noir diffusa précipitamment un message par sens divin, empreint d'angoisse et d'horreur: « Seigneur Ancien Démon, je suis Luo Hou, le septième disciple du Suprême! »
 
 Dès que l'homme en noir envoya ce message, l'énergie de la lame dévia soudainement sur le côté, contournant l'homme pour de nouveau poursuivre Wang Lin.
 

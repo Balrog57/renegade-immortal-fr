@@ -28,7 +28,7 @@ En repensant au jade que l'homme avait brisé, Wang Lin commença à analyser la
 
 « Les trésors magiques d'un pays de culture de rang 4 dépassent vraiment mon imagination », murmura Wang Lin pour lui-même. Il prit ensuite une profonde inspiration.
 
-En vérité, sa supposition était très exacte. Ce que l'homme avait utilisé était un jade de fuite confié à tous les disciples principaux de sa secte. Tant qu'ils se trouvaient dans un certain périmètre, ils pouvaient regagner leur secte en un instant.
+En vérité, sa supposition était très exacte. Ce que l'homme avait utilisé était un jade de fuite confié à tous les disciples centraux de sa secte. Tant qu'ils se trouvaient dans un certain périmètre, ils pouvaient regagner leur secte en un instant.
 
 Le messager était véritablement terrifié par Wang Lin. Selon ses connaissances, la technique employée par Wang Lin était celle du Clan des Démons Géants. La puissance d'une telle technique était terrifiante; même lui n'était pas certain de pouvoir la bloquer.
 

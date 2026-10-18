@@ -64,7 +64,7 @@ Ce jour-là, dans la portée du sens divin de Wang Lin, une faille spatiale appa
 
 ***
 
-Mai Liang avait repéré un objet magique. Il ressemblait énormément à la lueur noire qu'il avait vue auparavant; les deux pouvaient voler de manière autonome. Il l'avait poursuivi pendant trois jours et était totalement épuisé.
+Ma Liang avait repéré un objet magique. Il ressemblait énormément à la lueur noire qu'il avait vue auparavant; les deux pouvaient voler de manière autonome. Il l'avait poursuivi pendant trois jours et était totalement épuisé.
 
 Il adressa un sourire amer à l'épée violette devant lui, pensant secrètement que si sa navette ne lui avait pas été volée, il aurait facilement pu la rattraper sans être dans un tel état.
 
@@ -72,31 +72,31 @@ En repensant à la navette, ses pensées dérivèrent vers cette lueur noire. De
 
 Chaque fois qu'il y pensait, il ne pouvait que soupirer.
 
-Mai Liang marmonna pour lui-même: « Le tunnel de transfert pour sortir d'ici ne s'ouvre ni trop tôt, ni trop tard, mais précisément quand ma limite de cinquante ans est sur le point d'expirer. Mais quoi qu'il arrive, je pourrai enfin rentrer chez moi. Ces dernières années sont devenues bien trop dangereuses à cause de ces sens divins qui apparaissent partout. Une fois que j'aurai récupéré cette épée volante, je retournerai au point de rassemblement. Héhé, petite sœur apprentie, attends-moi! Surtout, n'accepte pas le frère aîné: c'est une bête à face humaine. Moi seul t'aime vraiment. »
+Ma Liang marmonna pour lui-même: « Le tunnel de transfert pour sortir d'ici ne s'ouvre ni trop tôt, ni trop tard, mais précisément quand ma limite de cinquante ans est sur le point d'expirer. Mais quoi qu'il arrive, je pourrai enfin rentrer chez moi. Ces dernières années sont devenues bien trop dangereuses à cause de ces sens divins qui apparaissent partout. Une fois que j'aurai récupéré cette épée volante, je retournerai au point de rassemblement. Héhé, petite sœur apprentie, attends-moi! Surtout, n'accepte pas le frère aîné: c'est une bête à face humaine. Moi seul t'aime vraiment. »
 
-« Mais cinquante ans se sont écoulés... À quoi ressemble ma petite sœur maintenant? Eh bien... elle pratique la méthode du Dieu de la Guerre et j'ai entendu dire qu'elle permet de rester jeune, alors elle doit avoir l'air d'une trentaine d'années. Si elle est devenue une vieille femme, alors autant que j'abandonne. Humph, sur les dizaines de personnes du Temple du Dieu de la Guerre venues ici, il n'en reste qu'une dizaine. À mon retour, le chef de secte concentrera ses ressources sur moi pour favoriser ma culture. Et le flacon de pilules que j'ai reçu est extrêmement puissant. Une seule pilule me maintiendra jeune. Même de retour, je ne ressemblerai qu'à un jeune homme d'une vingtaine d'années. Grâce à cela, je pourrai séduire toutes les femmes que je veux! » Mai Liang laissa échapper un sourire malicieux, soudainement revigoré; il lui sembla même aller un peu plus vite.
+« Mais cinquante ans se sont écoulés... À quoi ressemble ma petite sœur maintenant? Eh bien... elle pratique la méthode du Dieu de la Guerre et j'ai entendu dire qu'elle permet de rester jeune, alors elle doit avoir l'air d'une trentaine d'années. Si elle est devenue une vieille femme, alors autant que j'abandonne. Humph, sur les dizaines de personnes du Temple du Dieu de la Guerre venues ici, il n'en reste qu'une dizaine. À mon retour, le chef de secte concentrera ses ressources sur moi pour favoriser ma culture. Et le flacon de pilules que j'ai reçu est extrêmement puissant. Une seule pilule me maintiendra jeune. Même de retour, je ne ressemblerai qu'à un jeune homme d'une vingtaine d'années. Grâce à cela, je pourrai séduire toutes les femmes que je veux! » Ma Liang laissa échapper un sourire malicieux, soudainement revigoré; il lui sembla même aller un peu plus vite.
 
-Alors qu'il se complaisait dans sa fierté, deux rayons de lumière convergèrent brusquement vers lui. En un clin d'œil, ils furent à ses côtés. L'un des rayons le dépassa pour fondre sur l'épée violette, révélant un jeune homme d'environ trente ans. Son visage s'assombrit alors qu'il saisissait l'épée volante et la rangeait dans son sac de rangement sans dire un mot. Il se tourna ensuite pour fixer froidement Mai Liang.
+Alors qu'il se complaisait dans sa fierté, deux rayons de lumière convergèrent brusquement vers lui. En un clin d'œil, ils furent à ses côtés. L'un des rayons le dépassa pour fondre sur l'épée violette, révélant un jeune homme d'environ trente ans. Son visage s'assombrit alors qu'il saisissait l'épée volante et la rangeait dans son sac de rangement sans dire un mot. Il se tourna ensuite pour fixer froidement Ma Liang.
 
-L'autre rayon de lumière révéla un homme d'âge mûr vêtu de noir. Il se tint derrière Mai Liang et lui lança un sourire équivoque.
+L'autre rayon de lumière révéla un homme d'âge mûr vêtu de noir. Il se tint derrière Ma Liang et lui lança un sourire équivoque.
 
-Le visage de Mai Liang se décomposa: « Xu Hao, Ge Yang! » s'exclama-t-il malgré lui, se lamentant intérieurement. Il les avait déjà aperçus de loin; ces deux-là avaient une réputation sinistre, car ils aimaient tuer pour voler les trésors d'autrui.
+Le visage de Ma Liang se décomposa: « Xu Hao, Ge Yang! » s'exclama-t-il malgré lui, se lamentant intérieurement. Il les avait déjà aperçus de loin; ces deux-là avaient une réputation sinistre, car ils aimaient tuer pour voler les trésors d'autrui.
 
-Décidé, Mai Liang arracha son sac de rangement et le lança à Xu Hao. « Camarades cultivateurs, voici tout ce que j'ai trouvé durant mon séjour ici. Prenez tout. Je ne demande qu'une chose: ma vie! » implora-t-il.
+Décidé, Ma Liang arracha son sac de rangement et le lança à Xu Hao. « Camarades cultivateurs, voici tout ce que j'ai trouvé durant mon séjour ici. Prenez tout. Je ne demande qu'une chose: ma vie! » implora-t-il.
 
 Xu Hao fut surpris. Il saisit le sac et le scruta avec son sens divin. Il sourit et dit: « Tu es l'individu le plus lâche que j'aie jamais rencontré, mais aussi le plus pragmatique. Très bien, je te laisse passer cette fois. File! »
 
-Mai Liang se détendit et s'apprêtait à reculer quand son expression changea brusquement. Il cracha une bouffée de sang alors qu'une épée volante lui transperçait la poitrine. Son corps trembla tandis qu'il sentait sa vie s'échapper. Il força ses derniers mouvements pour se retourner vers Ge Yang et articula: « Toi... »
+Ma Liang se détendit et s'apprêtait à reculer quand son expression changea brusquement. Il cracha une bouffée de sang alors qu'une épée volante lui transperçait la poitrine. Son corps trembla tandis qu'il sentait sa vie s'échapper. Il força ses derniers mouvements pour se retourner vers Ge Yang et articula: « Toi... »
 
-Ge Yang fit un geste de la main. Alors que l'épée revenait vers lui, il déclara: « Je n'ai jamais dit que je te laisserais partir. » Sur ce, il s'éloigna sans même accorder un regard à Mai Liang.
+Ge Yang fit un geste de la main. Alors que l'épée revenait vers lui, il déclara: « Je n'ai jamais dit que je te laisserais partir. » Sur ce, il s'éloigna sans même accorder un regard à Ma Liang.
 
-Xu Hao claqua la langue et secoua la tête devant Mai Liang agonisant, puis il se leva pour suivre Ge Yang. Il savait que Ge Yang avait tué Mai Liang par pure frustration de ne pas avoir eu le sac en premier. Ils avaient un accord: le sac appartient au premier qui s'en saisit, et personne ne peut contester.
+Xu Hao claqua la langue et secoua la tête devant Ma Liang agonisant, puis il se leva pour suivre Ge Yang. Il savait que Ge Yang avait tué Ma Liang par pure frustration de ne pas avoir eu le sac en premier. Ils avaient un accord: le sac appartient au premier qui s'en saisit, et personne ne peut contester.
 
-Si Mai Liang avait donné le sac à Ge Yang, Xu Hao aurait agi de la même manière.
+Si Ma Liang avait donné le sac à Ge Yang, Xu Hao aurait agi de la même manière.
 
-La conscience de Mai Liang s'effaçait déjà alors qu'une image de sa petite sœur apprentie lui apparaissait en vision finale. Il ferma progressivement les yeux. À cet instant précis, une immense faille spatiale apparut près de lui et un sens divin colossal s'en échappa.
+La conscience de Ma Liang s'effaçait déjà alors qu'une image de sa petite sœur apprentie lui apparaissait en vision finale. Il ferma progressivement les yeux. À cet instant précis, une immense faille spatiale apparut près de lui et un sens divin colossal s'en échappa.
 
-Dès son apparition, ce sens divin marqua un temps d'arrêt avant de se précipiter violemment dans le corps de Mai Liang. Les yeux de ce dernier s'ouvrirent brusquement, deux éclairs de lumière perçante traversant ses pupilles.
+Dès son apparition, ce sens divin marqua un temps d'arrêt avant de se précipiter violemment dans le corps de Ma Liang. Les yeux de ce dernier s'ouvrirent brusquement, deux éclairs de lumière perçante traversant ses pupilles.
 
 La blessure à sa poitrine se referma à vue d'œil. Rapidement, il fut totalement rétabli. Une voix glaciale s'échappa de sa bouche:
 

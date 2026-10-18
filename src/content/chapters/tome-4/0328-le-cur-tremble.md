@@ -62,7 +62,7 @@ Ce souvenir était devenu son démon intérieur.
 
 Song Qing marqua une longue pause avant d'esquisser un sourire amer. « Ce cultivateur étranger a anéanti la Secte du Ciel Bleu il y a trois jours. Je me demande qui sera le prochain... »
 
-Liu Fei répondit amèrement: « Même le messager seigneurial a été mis en fuite par les techniques de cet individu. Le destin de notre Secte du Ciel Nuageux est déjà scellé. »
+Liu Fei répondit amèrement: « Même l'émissaire a été mis en fuite par les techniques de cet individu. Le destin de notre Secte du Ciel Nuageux est déjà scellé. »
 
 « Parmi les quatre Grands Anciens au stade avancé de l'Âme Naissante, l'Ancien Liu Chang est mort il y a trente ans lorsqu'il n'a pu atteindre la Formation de l'Âme, et maintenant, nul ne sait si l'Ancien Gong Sun vivra ou mourra... »
 

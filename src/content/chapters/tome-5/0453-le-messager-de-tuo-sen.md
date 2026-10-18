@@ -10,9 +10,9 @@ Dès qu'il saisit la goutte d'eau, il recula immédiatement, mais une faille dim
 
 Une sueur froide couvrit le front de Wang Lin alors qu'il évitait soigneusement les failles pour finalement quitter le canyon.
 
-Ce tremblement ne dura que dix respirations, mais après ces dix instants, la Tombe de Suzaku était plongée dans le chaos. D'innombrables failles étaient apparues dans le ciel et sur le sol, et bien des endroits étaient au bord de l'effondrement. La moindre fluctuation d'énergie spirituelle pouvait provoquer une catastrophe. Quiconque serait pris dans une faille mourrait.
+Ce tremblement ne dura que dix respirations, mais après ces dix instants, le Tombeau de Suzaku était plongé dans le chaos. D'innombrables failles étaient apparues dans le ciel et sur le sol, et bien des endroits étaient au bord de l'effondrement. La moindre fluctuation d'énergie spirituelle pouvait provoquer une catastrophe. Quiconque serait pris dans une faille mourrait.
 
-À cet instant, la Tombe de Suzaku était devenue bien plus périlleuse qu'auparavant.
+À cet instant, le Tombeau de Suzaku était devenu bien plus périlleux qu'auparavant.
 
 L'effondrement du Cristal de Planète de Culture ne se produisait pas instantanément, mais lentement au fil du temps. Tout cela était contrôlé par Zhu Quezi; c'était un jeu né de sa folie à l'approche de la mort, qu'il partageait avec Yun Quezi.
 
@@ -34,7 +34,7 @@ Le regard de Wang Lin devint glacial. Il laissa échapper un reniflement mépris
 
 Le vieil homme poussa un cri déchirant et tenta de reculer, mais il était trop tard. Son âme originelle entière fut engloutie par la faille en arc et, lorsque celle-ci disparut, l'âme du vieillard s'évanouit avec elle.
 
-Wang Lin s'arrêta brusquement. Il réfléchit en silence, puis leva la tête pour scruter l'horizon. Après ce cycle d'effondrement, la Tombe de Suzaku était devenue extrêmement instable. S'il commettait la moindre erreur, il pourrait mourir; il commença donc à hésiter.
+Wang Lin s'arrêta brusquement. Il réfléchit en silence, puis leva la tête pour scruter l'horizon. Après ce cycle d'effondrement, le Tombeau de Suzaku était devenu extrêmement instable. S'il commettait la moindre erreur, il pourrait mourir; il commença donc à hésiter.
 
 Un instant plus tard, Wang Lin poussa un soupir et s'envola vers le lointain.
 
@@ -96,13 +96,13 @@ Alors que Tuo Sen riait, des petits cris s'élevèrent de la mer de sang. Deux p
 
 Les yeux de ces deux créatures émettaient une lueur rouge démoniaque.
 
-À cet instant précis, dans la Tombe de Suzaku, les yeux du vieil homme au sourire effrayant brillèrent d'un éclat rouge. Les yeux du singe sur son épaule étaient encore plus écarlates.
+À cet instant précis, dans le Tombeau de Suzaku, les yeux du vieil homme au sourire effrayant brillèrent d'un éclat rouge. Les yeux du singe sur son épaule étaient encore plus écarlates.
 
 Lorsque le petit singe poussa un cri, le vieil homme marqua une pause et regarda au loin. Ses yeux s'illuminèrent de nouveau d'un rouge sanglant.
 
 « Il est là! » Le vieil homme s'apprêtait à bouger quand le singe sur son épaule laissa échapper un grognement.
 
-Mais le vieillard hésita un instant avant de faire demi-tour et de partir. Son objectif était le centre de la Tombe de Suzaku.
+Mais le vieillard hésita un instant avant de faire demi-tour et de partir. Son objectif était le centre du Tombeau de Suzaku.
 
 Tandis que le vieil homme s'éloignait, le petit singe scruta devant lui et ses yeux rougeoyèrent.
 
