@@ -20,7 +20,7 @@ Cent ans de raffinement, soutenus par assez de cristaux d'origine pour faire sai
 
 À mesure que l'énergie d'origine continuait de l'alimenter, l'état de la créature s'améliorait de plus en plus, jusqu'à ce qu'elle commence à se débattre et à rugir. Finalement, lorsqu'environ 70 % des cristaux du sac furent consommés, la bête moustique poussa un rugissement et jaillit de son cocon. Dès qu'elle s'élança, sa gueule acérée perça l'enveloppe pour en aspirer jusqu'à la dernière goutte.
 
-Le rugissement puissant résonna hors de la grotte. La bête moustique, d'un doré pâle, tournait joyeusement autour de Wang Lin. Sa grande gueule ne cessait de le lécher dans un état d'excitation manifeste.
+Le rugissement puissant résonna hors de la grotte. La bête moustique, d'un doré pâle, tournait joyeusement autour de Wang Lin. Sa grande gueule ne cessait de frotter contre lui, dans un état d'excitation manifeste.
 
 La taille de la créature avait changé; elle ne mesurait plus que trente pieds de long, mais elle dégageait désormais une aura rivalisant avec celle des cultivateurs du Purificateur du Nirvana.
 
@@ -84,7 +84,7 @@ En ressentant l'âme de l'Omniscient, Wang Lin perçut clairement son désir pou
 
 À cet instant précis, la brume tourbillonna et fut aspirée par la main de Wang Lin. Rapidement, tout le brouillard disparut, mais une nouvelle quantité émana des os de la bête, laquelle fut aussitôt absorbée à son tour.
 
-La brume pénétra l'énergie d'origine de Wang Lin pour se diriger directement vers le Sceau Céleste. L'âme de l'Omniscient commença à l'absorber avec frénésie; au fil de cette ingestion, elle semblait passer du stade d'illusion à celui de réalité, dotée de chair et de sang. Wang Lin eut l'impression de contempler le véritable Omniscient plutôt qu'une simple fusion d'âmes issues de ses avatars!
+La brume pénétra l'âme originelle de Wang Lin pour se diriger directement vers le Sceau Céleste. L'âme de l'Omniscient commença à l'absorber avec frénésie; au fil de cette ingestion, elle semblait passer du stade d'illusion à celui de réalité, dotée de chair et de sang. Wang Lin eut l'impression de contempler le véritable Omniscient plutôt qu'une simple fusion d'âmes issues de ses avatars!
 
 Le temps s'écoula lentement. Après quinze minutes, les os ne produisaient plus aucune brume. Tout ce qui avait pénétré le corps de Wang Lin fut absorbé par l'âme de l'Omniscient, qui s'assit alors pour digérer cette essence, comme en pleine culture. Le sentiment que Wang Lin détestait tant devint de plus en plus tangible.
 

@@ -14,17 +14,17 @@ Si l'on contemplait simplement ce symbole à trois traits, on n'y aurait vu rien
 
 Des vagues de lumière dorée jaillirent du symbole et illuminèrent les environs. Le gaz noir qui entourait la plateforme se dissipa lentement sous cette lueur radieuse.
 
-L'expression de Yao Xixue devint extrêmement complexe et choquante. Elle était venue ici à plusieurs reprises, mais chaque fois, elle s'efforçait de perdre le moins de temps possible en utilisant les sceaux de sang que son père lui avait donnés pour ne pas avoir à affronter ces entités. En quelque sorte, elle avait profité d'une faille dans le système.
+L'expression de Yao Xixue devint extrêmement complexe et choquante. Elle était venue ici à plusieurs reprises, mais chaque fois, elle s'efforçait de perdre le moins de temps possible en utilisant les sceaux de sang que son père lui avait donnés pour ne pas avoir à s'embarrasser de ces statues. En quelque sorte, elle avait profité d'une faille dans le système.
 
 Bien qu'elle eût remarqué ces symboles dorés et tenté de les tracer elle aussi, elle n'avait jamais pu absorber un symbole comme Wang Lin, car elle ne détruisait jamais les statues.
 
 Alors que l'énergie spirituelle céleste s'engouffrait dans le symbole, l'index de Wang Lin ne put s'empêcher de marquer une pause. Bien que son visage restât impassible, il avait la sensation fulgurante que s'il ne traçait pas le quatrième trait, la perfection de ce symbole serait ruinée, voire qu'il s'effondrerait totalement.
 
-Wang Lin ne pouvait pas tracer ce quatrième trait dans le vide. Ses yeux s'illuminèrent; il pointa le symbole du doigt et se retourna brusquement. D'un revers de main, il projeta le symbole, le faisant voler directement vers Yao Xixue.
+Wang Lin ne pouvait pas tracer ce quatrième trait dans le vide. Ses yeux s'illuminèrent; il pointa le symbole du doigt et se retourna brusquement. D'une chiquenaude, il projeta le symbole, le faisant voler directement vers Yao Xixue.
 
 Le visage de Yao Xixue changea et elle recula précipitamment. Simultanément, elle sortit plusieurs jades de sang et les écrasa un par un devant elle.
 
-Dans un éclat de lumière sanglante, des couches de sang enveloppèrent le symbole. Tout se passa extrêmement vite. Au contact du sang, le symbole se dissipa, mais cela suffit à faire vaciller sa lueur.
+Dans un éclat de lumière sanglante, des couches de sang enveloppèrent le symbole. Tout se passa extrêmement vite. Au contact du symbole, le sang se dissipa aussitôt, mais cela suffit à faire vaciller sa lueur.
 
 Yao Xixue continua de reculer, le front couvert d'une sueur parfumée. Elle s'acharna à briser les jades de sang dans sa main et, après sept respirations, la lumière dorée fut finalement totalement étouffée par le sang.
 
@@ -68,7 +68,7 @@ Ce jour-là, après avoir scellé la onzième statue et atteint la plateforme co
 
 Wang Lin acquiesça. La plateforme devant eux était radicalement différente des précédentes. Elle ne faisait que la moitié de la taille habituelle et, au centre, il n'y avait aucune statue de pierre, mais une porte de pierre gigantesque! De plus, il n'y avait aucun autre Chemin du Dragon Sacré que celui sur lequel ils se tenaient.
 
-Des caractères flous étaient gravés sur la porte de pierre. Lorsqu'ils se chevauchaient, ils évoquaient presque un visage humain.
+Des motifs flous étaient gravés sur la porte de pierre. Lorsqu'ils se chevauchaient, ils évoquaient presque un visage humain.
 
 Yao Xixue et Wang Lin atterrirent tous deux sur la plateforme. À cet instant précis, la porte de pierre s'ouvrit brusquement et une rafale de vent glacial s'en échappa. Dès l'apparition de ce vent, Yao Xixue fut enveloppée par une lumière couleur sang.
 

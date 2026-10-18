@@ -10,13 +10,13 @@ Mais, après avoir comparé l'eau spirituelle à l'eau de la source des montagne
 
 Si on la consommait régulièrement, on pourrait paraître jeune éternellement. Il n'en avait pris que quelques gouttes et en avait immédiatement remarqué l'effet. Cette révélation le plongea dans une immense excitation.
 
-Il faut dire que seule l'atteinte du stade de l'Âme Naissante permettait la longévité, mais à ce stade, des centaines, voire des milliers d'années s'étaient déjà écoulées.
+Il faut dire que seule l'atteinte du stade de l'Âme Naissante permettait de garder une apparence éternellement jeune, mais à ce stade, des centaines, voire des milliers d'années s'étaient déjà écoulées.
 
 Zhang Kuang savait que si cette eau spirituelle était proposée en échange auprès d'autres sectes, elles en deviendraient folles, en particulier les cultivatrices aux stades de l'Établissement des Fondations ou de la Formation du Noyau.
 
 Mais lorsqu'il retourna vérifier, Wang Lin avait déjà disparu. Il n'y avait que quelques dizaines de disciples internes au sein de la Secte Heng Yue. Il les inspecta tous, mais ne trouva aucun individu lui ressemblant.
 
-Il resta plongé dans la mélancolie pendant un long moment. Il avait également tenté de surveiller Wang Lin, mais après avoir découvert que celui-ci n'était qu'au 3ème niveau de culture, il s'était persuadé que ce n'était pas lui.
+Il resta plongé dans la mélancolie pendant un long moment. Il avait également tenté de surveiller Wang Lin, mais, ne voyant en lui qu'un simple déchet du 3ème niveau de culture, il ne croyait pas qu'il puisse posséder un tel trésor et l'avait écarté après un bref examen.
 
 Pourtant, à présent, il était sûr à 100 % que cet homme était Wang Lin. Cette certitude ne reposait sur aucune logique; elle était purement intuitive.
 
@@ -50,7 +50,7 @@ L'expression de l'Ancien Ouyang ressemblait à celle de Huang Long lorsque les d
 
 « Est-il... est-il vraiment un disciple interne de la Secte Heng Yue... a-t-il déjà atteint l'Établissement des Fondations? Comment se fait-il que je sois incapable de percevoir son véritable niveau de culture? »
 
-Les visages des deux autres anciens étaient également très pâles. Les trois affrontements de Zhou Peng leur avaient permis de mesurer la puissance de Wang Lin.
+Les visages des deux autres anciens étaient également très sombres. Les trois affrontements de Zhou Peng leur avaient permis de mesurer la puissance de Wang Lin.
 
 C'est alors qu'un des disciples de la Secte Xuan Dao murmura soudainement: « Quelle technique a-t-il utilisée? Pourquoi ai-je l'impression qu'il a employé une technique d'attraction? »
 
@@ -58,11 +58,11 @@ Un disciple à côté commença à analyser la situation avec un air sérieux: �
 
 « Pourtant, de ce que j'ai vu, cela ressemblait trait pour trait à la technique d'attraction. Je la pratique souvent moi-même. Je pourrais agiter ma main et faire voler des objets à ma guise... tout comme ce qui est arrivé au frère aîné », ajouta un autre disciple, bien que sa voix se fût affaiblie sur ces derniers mots.
 
-Un autre disciple, en se frottant le menton, déclara: « Laisse tomber. Essaie donc de faire ce que Wang Lin vient de faire. Ce ne peut pas être la technique d'attraction, c'est impossible! »
+Un autre disciple, en se frottant le menton, déclara: « Laisse tomber. Avec ton niveau, tu voudrais te comparer à Wang Lin? Ce ne peut pas être la technique d'attraction, c'est impossible! »
 
 Les autres disciples se mirent à débattre de la technique utilisée par Wang Lin. Certains allèrent même interroger directement les trois anciens.
 
-L'Ancien Ouyang et les deux autres lancèrent un rire amer. Il soupira et dit: « Ce n'est pas la technique d'attraction. Je n'ai jamais vu une technique d'attraction aussi puissante. D'après ce que j'ai observé, il doit s'agir de la légendaire Main de Capture du Dragon! »
+L'Ancien Ouyang et les deux autres lancèrent un rire amer. Il soupira et dit: « Ce n'est pas la technique d'attraction. Je n'ai jamais vu une technique d'attraction aussi puissante. D'après ce que j'ai observé, il doit s'agir de la Main de Capture du Dragon, une technique perdue depuis longtemps! »
 
 « La Main de Capture du Dragon! » Les deux autres anciens furent stupéfaits. Ils n'avaient jamais entendu parler de cette technique, mais ils étaient tout aussi incapables de percer le mystère de ce que Wang Lin avait utilisé, car cela ressemblait trop à la technique d'attraction.
 

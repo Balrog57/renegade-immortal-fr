@@ -24,7 +24,7 @@ Wang Lin observa la bête sous lui, en particulier ses proboscis. Même si elle 
 
 Fort de cette pensée, Wang Lin resta passif durant ce voyage. Il observait froidement, à distance, les combats de la bête contre d'autres créatures. Ce n'est que lors des instants critiques, entre la vie et la mort, qu'il intervenait pour sauver la bête moustique.
 
-Ainsi, malgré quelques retards, la force de la bête moustique ne cessait de croître.
+Ainsi, malgré quelques retards, l'agressivité de la bête moustique ne cessait de croître.
 
 Huit jours plus tard, Wang Lin arriva enfin à la ville.
 
@@ -68,7 +68,7 @@ Wang Lin observa la boutique un instant. Alors qu'il s'avançait vers elle, son 
 
 Le corps de Wang Lin se déplaça brusquement sur le côté pour l'éviter.
 
-Le jeune homme tituba et tomba au sol. Dans sa chute, un jade violet lui échappa des mains. Ce jade, de la taille d'un poing, était d'un violet translucide et cristallin.
+Le jeune homme tituba et tomba au sol. Dans sa chute, un jade violet tomba de sa tunique. Ce jade, de la taille d'un poing, était d'un violet translucide et cristallin.
 
 Le visage du jeune homme exprima l'horreur. Il se précipita pour saisir le jade et le serra contre lui.
 
@@ -116,7 +116,7 @@ Le jeune homme fixa le jade violet. Il s'empara précipitamment du bijou dans la
 
 Les spectateurs, sous le choc, quittèrent les lieux rapidement. Le vieil homme fronça les sourcils en voyant Wang Lin marcher sereinement vers la boutique et déclara: « Cette boutique n'est pas ouverte au public. Je demande au camarade cultivateur de partir. »
 
-Le visage de Wang Lin se durcit. Il pointa l'énergie spirituelle sur l'enseigne et demanda: « Si elle n'est pas publique, pourquoi cette marque est-elle ici? »
+Le visage de Wang Lin se durcit. Il désigna la marque de l'Âme Naissante sur l'enseigne et demanda: « Si elle n'est pas publique, pourquoi cette marque est-elle ici? »
 
 Le vieil homme fut stupéfait. Il devint instantanément respectueux: « Veuillez m'excuser, Senior. Entrez donc, nous discuterons à l'intérieur. »
 

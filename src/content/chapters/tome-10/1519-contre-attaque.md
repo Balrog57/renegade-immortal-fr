@@ -94,7 +94,7 @@ Au milieu de ce carnage, Wang Lin en avait oublié le nombre de victimes. De nom
 
 La Hache Brise-Ciel frappa soudainement le sol. Près de 5 000 cultivateurs furent déchiquetés et périrent misérablement!
 
-« Ling Dong, Zhou Jin, vous osez nous barrer la route? Vous êtes des cultivateurs du Royaume Extérieur, seriez-vous en train de devenir des traîtres?! » Le Maître Dong Dizi agita ses manches et repoussa, contre toute attente, Ling Dong et Zhou Jin. Non seulement cela, mais il disposait également d'assez de puissance pour tenter d'empêcher la Hache Brise-Ciel de retomber!
+« Ling Dong, Zhou Jin, vous osez nous barrer la route? Vous êtes des cultivateurs du Royaume Extérieur, seriez-vous en train de devenir des traîtres?! » Le Maître Dong Dizi agita ses manches et, seul, tint tête sans peine à Ling Dong et Zhou Jin. Non seulement cela, mais il disposait également d'assez de puissance pour tenter d'empêcher la Hache Brise-Ciel de retomber!
 
 Zhou Jin réfléchit silencieusement, affichant une expression complexe, mais il attaqua tout de même sans hésiter. Ling Dong, quant à lui, était de marbre. Les paroles de l'adversaire n'étaient pas en mesure de provoquer la moindre fluctuation dans son esprit!
 
@@ -104,13 +104,13 @@ L'ancêtre du Clan des Moineaux de Feu se retourna soudainement avec une express
 
 Il y avait également l'Estimé Nan Zhao. Ses yeux brillèrent alors qu'il affichait un sourire carnassier, chargeant Wang Lin aux côtés de l'ancêtre du Clan des Moineaux de Feu!
 
-Simultanément, l'homme chétif piégé par le jade du Seigneur du Royaume Scellé déploya son Sens Divin et lança une attaque frénétique. Des grondements tonitruants résonnèrent et aucun vainqueur ne semblait pouvoir s'imposer dans un futur proche!
+Simultanément, l'homme chétif piégé par le jade du Seigneur du Royaume Scellé déploya son Sens Divin et entra dans une lutte acharnée contre celui du Seigneur. Des grondements tonitruants résonnèrent, et aucun des deux ne pouvait encore détourner la moindre force!
 
 Cette guerre avait atteint son paroxysme dès le début!
 
 Grâce à la présence du Seigneur du Royaume Scellé, l'équilibre penchait en faveur du Royaume Intérieur! Cependant, cette guerre ne montrait aucun signe d'achèvement. Dans le Système Stellaire Antique, plus de dix clans s'étaient préparés depuis longtemps. À cet instant, l'ordre fut donné et ils furent téléportés via une matrice de transfert vers la brèche de la Formation de Scellement du Royaume!
 
-Parmi ces dix tribus se trouvaient 80 000 individus, dont deux cultivateurs du troisième stade. Ces deux derniers chargèrent vers l'ouverture!
+Parmi ces plus de dix tribus se trouvaient 80 000 individus, dont deux cultivateurs du troisième stade. Ces deux derniers chargèrent vers l'ouverture!
 
 L'ancêtre des Moineaux de Feu et l'Estimé Nan Zhao se rapprochèrent. Si Wang Lin n'avait eu affaire qu'à deux personnes du niveau de l'ancêtre du Clan des Moineaux de Feu, il aurait pu les retarder. Cependant, l'Estimé Nan Zhao était au stade du Vide Spirituel!
 

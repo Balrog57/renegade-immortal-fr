@@ -10,7 +10,7 @@ Le pavillon des trésors trônait à mi-hauteur de la montagne de la division po
 
 Le pavillon était édifié en dalles de jade vert. L'extérieur du bâtiment exhalait une aura antique, comme s'il avait été purifié d'innombrables fois par le passage du temps. Certaines dalles de jade avaient même viré au gris.
 
-Quelques lianes verdoyantes s'échappaient des fissures du jade et recouvraient une partie de l'édifice. Sur chaque section de vigne poussait une fleur pourpre qui exhalait un parfum capable de bouleverser les cœurs.
+Quelques lianes verdoyantes s'échappaient des fissures du jade et recouvraient une partie de l'édifice. Sur chaque section de vigne poussait une fleur pourpre qui exhalait un parfum qui pénétrait délicieusement les cœurs.
 
 Une formation gigantesque s'étendait sous le pavillon, couvrant toute la plateforme et plaçant le pavillon des trésors en son centre.
 
@@ -68,7 +68,7 @@ Wang Lin resta silencieux, agita la main et lança le jeton.
 
 Une fois le jeton reçu, Zhang Xiangfan recula respectueusement de quelques pas, examina le sol un instant, effectua quelques calculs du bout des doigts, puis pressa finalement le jeton contre le sol.
 
-Wang Lin vit clairement que Zhang Xiangfan n'avait appuyé le jeton que lorsque les trois auras se trouvaient au même endroit.
+Wang Lin vit clairement que Zhang Xiangfan n'avait appuyé le jeton que lorsque les trois traces blanches se croisaient.
 
 Dès que le jeton toucha la formation, les trois auras s'élancèrent vers lui. Dans un grondement assourdissant, Zhang Xiangfan ne put plus retenir l'objet et fut projeté en arrière de plusieurs pas.
 
@@ -106,7 +106,7 @@ Wang Lin fixa l'amas de jades qui croissait à vue d'œil et sentit sa gorge s'a
 
 Une fois terminé, il toucha son sac; il avait toujours l'impression que ce n'était pas réel.
 
-Il eut un sourire amer et secoua la tête. Ce n'était donc pas étonnant que l'on le traite de rustre; ses connaissances étaient encore insuffisantes. Ces quelque 100 000 jades suffisaient déjà à lui faire perdre la raison. Si quelqu'un avait tenté de l'arrêter, peu importe qui il eût été, Wang Lin aurait attaqué sans la moindre hésitation.
+Il eut un sourire amer et secoua la tête. Ce n'était donc pas étonnant qu'on le prenne pour un cultivateur natif de cette planète; ses connaissances étaient encore insuffisantes. Ces quelque 100 000 jades suffisaient déjà à lui faire perdre la raison. Si quelqu'un avait tenté de l'arrêter, peu importe qui il eût été, Wang Lin aurait attaqué sans la moindre hésitation.
 
 Il prit une profonde inspiration et ses yeux retrouvèrent leur clarté. Ce n'est qu'à ce moment-là qu'il se remit du choc provoqué par les jades célestes.
 

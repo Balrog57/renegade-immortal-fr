@@ -24,7 +24,7 @@ Les cris des êtres célestes avant leur trépas semblaient résonner à ses ore
 
 Fixant la statue effondrée, le motif d'éclair dans l'œil droit de Wang Lin continuait de scintiller. Après un long moment, il se retourna et vola vers la montagne entourée par la Restriction Temporelle!
 
-Lorsque Wang Lin absorba le motif d'éclair, le jeune homme portant la marque de l'éclair du Royaume Extérieur devint extrêmement pâle et son corps commença à trembler légèrement.
+Lorsque Wang Lin absorba le motif d'éclair, dans la brume lointaine, le jeune homme portant la marque de l'éclair du Royaume Extérieur devint extrêmement pâle et son corps commença à trembler légèrement.
 
 Il sentait clairement qu'une bataille de tonnerre venait de se jouer devant lui. D'un côté, cela semblait être le tonnerre de sa propre lignée, et de l'autre, c'était aussi du tonnerre, mais ce tonnerre avait secoué son esprit. Il avait presque perdu le contrôle du tonnerre en lui.
 

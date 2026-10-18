@@ -92,7 +92,7 @@ Dès l'apparition de la perle, les flammes dévorantes frappèrent. Mais avant q
 
 Les yeux de Wang Lin brillèrent intensément alors que la douleur disparaissait, remplacée par un confort indescriptible.
 
-Une fois les flammes absorbées, le symbole solaire sur la perle se mit à clignoter rapidement. Sa luminosité était une chose que seul Wang Lin pouvait percevoir.
+Une fois les flammes absorbées, le symbole solaire sur la perle se mit à clignoter rapidement. Seul Wang Lin pouvait voir la teinte destructrice de cette lueur.
 
 Au moment où la lumière jaillit de la Perle Défiant le Ciel, Ling Tianhou s'exclama et ferma les yeux. Il n'eut même pas le temps de se redresser qu'il dut reculer précipitamment.
 
@@ -116,7 +116,7 @@ Plus important encore, s'il ne s'agissait que de son expression, cela n'aurait p
 
 En tant que membre du groupe des Anciens de l'Alliance et seigneur de la planète Tian Yun, il était celui qui pouvait présager le monde, et ses complots étaient aussi profonds que l'océan. Ce choc était suffisant pour ébranler toute l'Alliance!
 
-Il inspira brusquement, l'incrédulité marquant son visage. Sa main droite bougea rapidement devant lui et un nuage aux sept couleurs apparut. Le nuage s'élança comme s'il tentait de résister à quelque chose.
+Il inspira brusquement, l'incrédulité marquant son visage. Ses deux mains bougèrent rapidement devant lui et un nuage aux sept couleurs apparut. Le nuage s'élança comme s'il tentait de résister à quelque chose.
 
 Cependant, lorsque le nuage aux sept couleurs flotta à moins de 1,65 mètre de lui, une force invisible sembla se refermer sur lui et le nuage s'effondra!
 

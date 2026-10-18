@@ -48,7 +48,7 @@ Il afficha un regard froid et déclara lentement: « Ce n'est pas que je ne vous
 
 Le vieillard fronça les sourcils: « Puisque ce vieil homme te l'a promis, il ne reviendra jamais sur sa parole. »
 
-Wang Lin ne bougea pas. Il secoua la tête et répondit: « Senior est un maître, et ce junior devrait vous croire, mais il s'agit ici d'une question de vie ou de mort. Si je ne peux en avoir la certitude absolue, même si nous concluons un accord, il me sera difficile de m'investir pleinement dans cette tâche. »
+Wang Lin ne bougea pas. Il secoua la tête et répondit: « Senior est un maître, et ce junior devrait vous croire, mais il s'agit ici d'une question de vie ou de mort. Si je ne peux en avoir la certitude absolue, même si j'accepte de sceller le maître, je garderai des réserves et il me sera difficile de donner toute ma mesure. »
 
 Dou Mu renifla, laissant poindre une intention meurtrière: « Cadet, tes manières de tourner autour du pot sont vraiment agaçantes. Je t'ai déjà donné ma parole. Si tu ne me crois pas, ne sois pas si difficile. Laisse-moi plutôt t'envoyer en enfer pour apaiser mon esprit! » Il agita soudainement sa main droite, créant dans les airs une main noire massive qui, une fois déployée, s'abattit violemment vers Wang Lin.
 
@@ -64,7 +64,7 @@ Le vieillard observa Wang Lin. Après une longue réflexion, il afficha un souri
 
 Sans dire un mot, Wang Lin sortit un autre sac de rangement, y plaça les dix instruments, puis rangea soigneusement le sac.
 
-Privé de la puissance des dix instruments, l'espace commença à se dissiper. L'homme âgé jeta un regard à Wang Lin et, d'un revers de main, ouvrit une faille spatiale d'une dizaine de mètres de long. Il recula de quelques pas pour s'effacer du passage.
+Privé de la lueur violette des dix instruments, l'espace commença à se dissiper. L'homme âgé jeta un regard à Wang Lin et, d'un geste de la main droite, ouvrit une faille spatiale d'une dizaine de mètres de long. Il recula de quelques pas pour s'effacer du passage.
 
 Wang Lin entra dans la faille, le visage serein.
 
@@ -84,7 +84,7 @@ Le regard de Wang Lin se posa sur l'homme situé au sommet du pilier céleste. L
 
 Les cultivateurs démoniaques trouvèrent leurs places respectives et fixèrent Wang Lin du regard. Ils étaient tous assis en tailleur, à l'exception de Wang Lin qui était le seul à flotter dans les airs.
 
-Wang Lin balaya la zone du regard. Il y avait au moins mille cultivateurs. Parmi eux, il reconnut Meng le Bossu, Duanmu Ji, Wang Qingyue, le Magicien Démon Céleste...
+Wang Lin balaya la zone du regard. Il y avait au moins mille cultivateurs. Parmi eux, il reconnut Bossu Meng, Duanmu Ji, Wang Qingyue, le Magicien Démon Céleste...
 
 Soudain, une faille apparut dans l'espace adjacent à l'homme aux cheveux rouges. Un homme aux longs cheveux en sortit. Dès son apparition, il regarda Wang Lin avec un air d'extase et dit à l'homme aux cheveux rouges: « Maître, c'est lui, le dévoreur d'âmes. » Puis, il s'installa sur un pilier voisin.
 
@@ -128,17 +128,17 @@ Sans un mot, son Sens Divin du Royaume Ji jaillit rapidement pour envelopper la 
 
 Wang Lin sentit nettement son Sens Divin croître de plusieurs fois.
 
-L'homme aux cheveux rouges réfléchit et ordonna lentement: « Âme Errante, continue. »
+L'homme aux cheveux rouges eut un léger étonnement, réfléchit un instant et ordonna lentement: « Âme Errante, continue. »
 
-L'Âme Errante laissa échapper un rire amer. Il n'aurait jamais cru qu'un dévoreur d'âmes puisse ne pas posséder de noyau d'âme. S'il l'avait su, il n'en aurait pas parlé à son maître, ce qui lui aurait évité d'en arriver à son état pitoyable actuel. De plus, ce dévoreur d'âmes était exceptionnel: même avec une seule sphère d'âme, cela ne semblait pas suffisant pour former un noyau complet.
+L'Âme Errante laissa échapper un rire amer. Il n'aurait jamais cru qu'un dévoreur d'âmes puisse ne pas posséder de noyau d'âme. S'il l'avait su, il n'en aurait pas parlé à son maître, ce qui lui aurait évité d'en arriver à son état pitoyable actuel. De plus, étrangement, l'énergie d'âme nécessaire à ce dévoreur d'âmes pour former son noyau était colossale: une seule sphère d'âme ne semblait pas suffisante pour former un noyau complet.
 
-Un noyau d'âme est un élément que les dévoreurs d'âmes forment progressivement en atteignant un certain stade et en consommant un nombre précis d'âmes. C'est le noyau même du dévoreur d'âmes, qui se forme naturellement à mesure qu'il absorbe davantage d'âmes errantes. En règle générale, la plupart des dévoreurs d'âmes consument des masses colossales d'âmes dès leur évolution pour former leur noyau le plus vite possible. Presque aucun ne patiente si longtemps.
+Un noyau d'âme est un élément que les dévoreurs d'âmes forment progressivement en atteignant un certain stade et en consommant de plus en plus d'âmes errantes. C'est le noyau même du dévoreur d'âmes, qui se forme naturellement à mesure qu'il absorbe davantage d'âmes errantes. En règle générale, la plupart des dévoreurs d'âmes consument une grande quantité d'âmes dès leur évolution pour former leur noyau le plus vite possible. Presque aucun ne patiente si longtemps.
 
 La différence fondamentale entre un dévoreur d'âmes doté ou non d'un noyau résidait dans sa capacité à créer des âmes errantes.
 
-L'Âme Errante eut un nouveau rire amer. Il pointa son front et une autre sphère apparut. Son corps s'effondra de nouveau. Cette fois, il ne put plus reprendre forme humaine. Après un long moment, une sphère rouge émergea de sa forme d'âme errante.
+L'Âme Errante eut un nouveau rire amer. Il pointa de nouveau son front, et son corps s'effondra avant même qu'une autre sphère n'apparaisse. Cette fois, il ne put plus reprendre forme humaine. Après un long moment, une sphère rouge émergea de sa forme d'âme errante.
 
-Sa respiration devint saccadée. Bien qu'il fût encore plus puissant qu'une âme errante ordinaire, la perte de puissance était immense.
+Son aura déclinait sans fin. Bien qu'il fût encore plus puissant qu'une âme errante ordinaire, la perte de puissance était immense.
 
 Les yeux de Wang Lin s'illuminèrent. Il projeta son Sens Divin pour envelopper la sphère et commença l'absorption. Cette fois, il sentit une différence majeure: son Sens Divin ne grandissait plus, mais à l'intérieur de celle-ci, une particule de la taille d'un grain de riz commençait à se condenser.
 
@@ -172,8 +172,8 @@ Parallèlement, pour compenser les lueurs dévorées, de nouvelles lumières rou
 
 Le dévoreur d'âmes, après avoir consommé plus de dix fragments supplémentaires, commença à luire d'un rouge vif; il devait manifestement prendre le temps de digérer et ne pouvait plus dévorer davantage.
 
-L'homme aux cheveux rouges afficha une expression de douleur intense en jetant un regard vers Wang Lin.
+L'homme aux cheveux rouges afficha une expression de douleur en jetant un regard vers Wang Lin.
 
 Wang Lin comprit enfin pourquoi deux dévoreurs d'âmes étaient nécessaires. Si un seul était présent, la Mer de Sang produirait de nouveaux fragments avant même que la digestion ne soit terminée. Ainsi, au lieu de lever le sceau, on ne ferait qu'augmenter le nombre de fragments.
 
-Il fallait un temps tampon. Mais serait-il possible de réussir en faisant alterner deux dévoreurs d'âmes? Même dans ce cas, les chances de succès restaient infimes.
+Il fallait un temps tampon. Mais serait-il possible de réussir en faisant alterner deux dévoreurs d'âmes ou plus? Même dans ce cas, les chances de succès restaient infimes.

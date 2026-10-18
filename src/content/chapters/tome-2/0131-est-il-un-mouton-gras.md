@@ -6,7 +6,7 @@ bookTitle: The Bloody Image of Cultivation
 en: Chapter 131 - Is He a Fat Sheep
 slug: est-il-un-mouton-gras
 ---
-Sun Youcai laissa échapper un rire en tendant la main pour saisir l'épaule de Wang Lin: « Ne parlons plus d'elle. Frère Ma, il y a une formation de transfert juste devant qui permet d'entrer dans le Ravin. »
+Sun Youcai laissa échapper un rire lubrique en tendant la main pour saisir l'épaule de Wang Lin: « Ne parlons plus d'elle. Frère Ma, il y a une formation de transfert juste devant qui permet d'entrer dans le Ravin. »
 
 L'épaule de Wang Lin s'écarta pour esquiver sa main. Il répondit: « C'est une bonne chose. Allons-y vite afin de pénétrer dans la vallée au plus tôt. » Sur ce, il s'élança en avant.
 
@@ -68,7 +68,7 @@ Sur ces mots, le corps de Wang Lin s'élança et son Sens Divin du Royaume Ji se
 
 Wang Lin rétracta le Sens Divin qu'il avait utilisé pour punir le démon et se concentra sur la poursuite de Sun Youcai. Il était très intrigué par la vitesse de ce dernier. Il savait que sa propre vélocité était inférieure à celle de Sun Youcai, tout comme celle de la jeune femme d'il y a deux jours, qui n'avait besoin que de quelques respirations pour parcourir mille kilomètres. Si un tel être voulait le tuer, il ne pourrait même pas fuir.
 
-Lorsque Sun Youcai l'avait rattrapé auparavant, il utilisait déjà sa vitesse maximale, ce qui prouvait ses capacités. C'est pourquoi Wang Lin ne l'avait pas tué; il avait décidé de le capturer vivant pour l'interroger sur ses motifs.
+Lorsque Sun Youcai l'avait rattrapé auparavant, Wang Lin avait déjà utilisé sa vitesse maximale, et l'autre l'avait rejoint sans effort, ce qui prouvait ses capacités. C'est pourquoi Wang Lin ne l'avait pas tué; il avait décidé de le capturer vivant pour l'interroger sur ses motifs.
 
 Sun Youcai était terrifié. Depuis qu'il avait commencé la culture il y a près de trente ans, alors qu'il n'était qu'un cultivateur de la Condensation de Qi au 15e niveau, il avait tué de nombreuses personnes. Mais il s'était toujours montré prudent, ne s'en prenant qu'à des individus isolés et plus faibles que lui. Il n'avait jamais osé défier plus fort que lui.
 

@@ -60,7 +60,7 @@ Wang Lin vit que tous les regards étaient braqués sur lui. Il réfléchit un i
 
 À l'instant même où ces mots furent prononcés, les trois hommes à ses côtés retinrent leur souffle. Ils savaient que Wang Lin était fort, mais ils ne s'attendaient pas à une telle puissance.
 
-La gorge de Lu Song se dessécha. Il eut un sourire empreint d'ironie: « Félicitations, grand frère Wang. Tu atteindras bientôt le stade de l'Établissement des Fondations. Le moment venu, ce sera moi qui devrai t'appeler "grand frère aîné". »
+La gorge de Lu Song se dessécha. Il eut un sourire empreint d'ironie: « Félicitations, grand frère Wang. Tu atteindras bientôt le stade de l'Établissement des Fondations. Le moment venu, ce sera moi qui devrai t'appeler « Ancien ». »
 
 Zhang Dekun lança à Wang Lin un regard profond et pensif avant de soupirer, tandis que les yeux de Huang Dashan s'illuminèrent d'admiration.
 

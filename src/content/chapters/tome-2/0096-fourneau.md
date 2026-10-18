@@ -20,11 +20,11 @@ Wang Lin se redressa. Il y avait déjà réfléchi avant de venir: l'affaire du 
 
 Après un instant de réflexion, Wang Lin raconta tout ce qu'il avait vu dans les ruines de la jungle.
 
-Ye Zizai écouta en silence, sans dire un mot. Une fois le récit terminé, il soupira, ferma les yeux et pensa: « Ce que dit ce Wang Lin doit être vrai. Lorsque mon frère Wu Yu est parti, il avait mentionné que sa marionnette de cadavre était sur le point d'évoluer, et les propos de Wang Lin concordent avec sa personnalité. Une marionnette de cadavre qui se rebelle... Hélas, mon frère cadet, comment une révolte de marionnette du stade intermédiaire de l'Établissement des Fondations pourrait-elle être aussi facile à gérer que tu le prétends? Même si j'y vais, je ne pourrai rien pour toi. »
+Ye Zizai écouta en silence, sans dire un mot. Une fois le récit terminé, il soupira, ferma les yeux et pensa: « Ce que dit ce Wang Lin doit être vrai. Lorsque mon frère Wu Yu est parti, il avait mentionné que sa marionnette de cadavre était sur le point d'évoluer, et les propos de Wang Lin concordent avec sa personnalité. Une marionnette de cadavre qui se rebelle... Hélas, mon frère cadet, comment une révolte de marionnette du stade intermédiaire de l'Établissement des Fondations pourrait-elle être aussi facile à gérer que tu le prétends? Même moi, je ne pourrais pas la vaincre. »
 
 « Puisque tu as chargé Wang Lin de transmettre ce message, c'est que tu as d'autres intentions... » Sur ces mots, Ye Zizai déploya son sens divin et poussa soudain un léger murmure de surprise. La méthode que cultivait ce Wang Lin était très proche de celle de la Secte des Cadavres; il était imprégné d'énergie Yin. Après un instant de réflexion, Ye Zizai comprit l'intention de Wu Yu.
 
-C'était la manière dont Wu Yu envoyait un appel au secours tout en introduisant un disciple au sein de la secte. Après avoir scruté Wang Lin, il posa son regard sur Adai. Après une courte réflexion, il saisit parfaitement les intentions de Wu Yu: le corps d'Adai était fait pour pratiquer les méthodes de culture de la Secte des Cadavres.
+C'était la manière dont Wu Yu envoyait un appel au secours tout en introduisant un disciple au sein de la secte. Après avoir scruté Wang Lin, il posa son regard sur Adai. Après une longue réflexion, il saisit parfaitement les intentions de Wu Yu: le corps d'Adai était fait pour pratiquer les méthodes de culture de la Secte des Cadavres.
 
 Une fois son regard détourné, Ye Zizai demanda lentement à Wang Lin: « Est-ce lui, Adai, qui a accompagné mon frère cadet durant toutes ces années? »
 

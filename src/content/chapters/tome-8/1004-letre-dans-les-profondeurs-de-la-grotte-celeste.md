@@ -30,7 +30,7 @@ Sans leur laisser le temps de réfléchir, Wang Lin fit un pas en avant et bondi
 
 Des éclairs de déduction traversèrent son regard alors qu'il poursuivait ses calculs. Toutes les restrictions de la zone des cent pas se dessinèrent lentement dans son esprit.
 
-Wang Lin avait étudié les restrictions dans la Terre de l'Ancien Dieu et les avait perfectionnées pendant plus de mille ans. Puis, à Luotian, il avait hérité de la restriction d'Annihilation!
+Wang Lin avait étudié les restrictions dans la Terre de l'Ancien Dieu et les avait perfectionnées pendant plus de mille ans. Puis, à Luotian, il avait hérité de la restriction d'Annihilation, déjà au stade de perfection!
 
 Bien que les restrictions fussent puissantes, Wang Lin n'était plus celui qu'il était autrefois. Si sa progression dans l'étude des restrictions n'avait pas été aussi fulgurante que sa culture, elle n'en demeurait pas moins extrêmement rapide. Wang Lin savait que son talent pour la culture était limité, mais il possédait une compréhension prodigieuse lorsqu'il s'agissait des restrictions.
 
@@ -72,7 +72,7 @@ Cette simple restriction était le fruit de calculs innombrables. Le temps, le l
 
 Bien que cela paraisse simple, ce n'était pas chose aisée pour un mortel ordinaire.
 
-Les yeux de Maître Fu Fengzi brillèrent tandis qu'il fixait Wang Lin. Il eut un souffle court, terrassé par ce qu'il observait. Il ne pouvait croire que Wang Lin, dont la culture n'était pas si ancienne, possède une telle maîtrise des restrictions.
+Les yeux de Maître Fu Fengzi brillèrent tandis qu'il fixait Wang Lin. Il eut un souffle court, terrassé par ce qu'il observait. Il ne pouvait croire que Wang Lin, qu'il jugeait incapable de grands accomplissements en matière de restrictions, possède une telle maîtrise des restrictions.
 
 « Son calme n'est pas une façade, il est véritablement serein. Je crains qu'il n'ait déjà tout déduit. Il ne va pas forcer le passage, il va utiliser les restrictions pour briser les restrictions! »
 
@@ -90,9 +90,9 @@ Tenant la boussole, Wang Lin se tint droit. Les vagues cinglaient ses vêtements
 
 La main gauche de Wang Lin devint une ombre tandis qu'il continuait son mouvement, ses yeux étincelant de détermination. Sans hésiter, il fit un pas de côté, se déplaça de plusieurs mètres en une seule enjambée et plongea dans les flots tumultueux.
 
-Cependant, au moment où il s'approcha des vagues, une lueur glaciale passa dans ses yeux. Il secoua la boussole et une quantité massive de restrictions jaillit.
+Cependant, au moment où il s'approcha des vagues, une lueur glaciale passa dans ses yeux. Il projeta la boussole devant lui et, ses deux mains formant des sceaux, une quantité massive de restrictions jaillit.
 
-« Brise! » hurla Wang Lin. La boussole libéra un éclat noir. Les restrictions environnantes grondèrent en se repoussant vers l'extérieur.
+« Brise! » hurla Wang Lin. La boussole qu'il avait lancée libéra un éclat noir. Les restrictions environnantes grondèrent en se repoussant vers l'extérieur.
 
 En un instant, les vagues furieuses s'effondrèrent, comme une peinture de vagues, se déchirant pouce par pouce devant lui jusqu'à disparaître entièrement.
 

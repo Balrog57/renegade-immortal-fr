@@ -44,7 +44,7 @@ Un craquement sinistre retentit et les pupilles de l'homme se rétractèrent. La
 
 L'homme était trop proche de Wang Lin pour pouvoir esquiver. Le poing de Wang Lin percuta sa poitrine avec un fracas retentissant.
 
-L'homme cracha un jet de sang, ses yeux écarquillés par l'incrédulité. Son corps explosa en une masse de chair et de sang, et son âme originelle s'échappa en hurlant. Il était pétrifié par la peur; il mourait de terreur!
+L'homme cracha un jet de sang, ses yeux écarquillés par l'incrédulité. Son corps explosa en une masse de chair et de sang, et son âme originelle s'échappa en hurlant. Il était saisi d'une peur intense!
 
 Il n'aurait jamais imaginé que l'homme devant lui ne soit pas blessé! Alors qu'il tentait de fuir, Wang Lin leva la main droite et une épée de fer apparut. Il trancha l'air sans l'ombre d'une hésitation!
 
@@ -106,7 +106,7 @@ Fixant le squelette de la bête, Wang Lin resta pensif un long moment avant de q
 
 Soudain, ses pas s'arrêtèrent, comme s'il venait de se souvenir de quelque chose. Il baissa les yeux vers le sol. Dans un coin, enfouie dans l'amas de chair et de sang, se trouvait une bague.
 
-Wang Lin se souvint qu'il s'agissait du trésor de bête de l'homme. C'était un objet provenant du Royaume aux Sept Couleurs, mais Wang Lin l'avait tué instantanément avant qu'il ne puisse s'en servir.
+Wang Lin se souvint qu'il s'agissait du meilleur trésor de l'homme. Celui-ci l'avait également obtenu dans le Royaume aux Sept Couleurs, mais Wang Lin l'avait tué instantanément avant qu'il ne puisse s'en servir.
 
 Sa main droite s'étira et la bague vola vers lui. Après l'avoir essuyée, Wang Lin l'examina avec son sens divin, et son expression changea légèrement.
 

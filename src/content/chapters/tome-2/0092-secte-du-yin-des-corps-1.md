@@ -12,7 +12,7 @@ La distance entre les deux se réduisit rapidement. En voyant Wang Lin charger, 
 
 Son regard se fit sérieux alors qu'il crachait quelques mots dans sa langue étrange, comme s'il tentait de communiquer quelque chose à Wang Lin.
 
-Wang Lin savait que les talismans portés par l'homme bleu étaient très singuliers. Même après avoir subi une blessure grave infligée par lui, l'homme bleu avait pu se remettre totalement avec un seul talisman. Depuis lors, Wang Lin était devenu très curieux de ces objets.
+Wang Lin savait que les neuf talismans portés par l'homme bleu étaient très singuliers. Même après avoir subi une blessure grave infligée par lui, l'homme bleu avait pu se remettre totalement avec un seul talisman. Depuis lors, Wang Lin était devenu très curieux de ces objets.
 
 À présent, l'étranger arracha un autre talisman jaune et sa force doubla instantanément.
 

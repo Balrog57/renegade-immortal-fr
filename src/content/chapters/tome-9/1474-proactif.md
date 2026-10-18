@@ -32,7 +32,7 @@ La femme en blanc connaissait bien ce Sens Divin. C’était celui qui l’exasp
 
 La femme en blanc réprima le choc de son esprit. Elle savait que ce n'était pas le moment de poser des questions. Elle chargea vers la faille et la traversa en un clin d'œil. Une fois à proximité de l'ouverture, elle se retourna et regarda en arrière de ses beaux yeux. Elle pouvait percevoir, faiblement, le Sens Divin de Wang Lin.
 
-Une expression complexe se dessina sur son visage, ressentant cette exaspération habituelle, comme si ce Sens Divin cherchait à lire en elle comme dans un livre ouvert. Elle se retourna et franchit la faille!
+Une expression complexe se dessina sur son visage, ressentant de nouveau cette gêne mêlée d'irritation, comme si ce Sens Divin cherchait à lire en elle comme dans un livre ouvert. Elle se retourna et franchit la faille!
 
 À l'instant même où elle sortit, la faille se contracta brusquement et disparut du Système Stellaire Antique!
 
@@ -40,7 +40,7 @@ Avant que son Sens Divin ne se retire, Wang Lin utilisa la volonté de la tombe 
 
 « Le Souverain n'est pas mort à cause du rugissement... Il savait que la femme en blanc était entrée, et s'il découvrait qu'elle est partie, deviendrait-il suspicieux... S'il devient réellement soupçonneux... alors je n'aurai pas fait tout cela pour rien... »
 
-À l'intérieur du palais, le Sens Divin de Wang Lin retourna vers le trône. Puisque son Sens Divin avait fusionné avec la tombe, il ne subit aucune force de rejet de la part du trône.
+À l'intérieur du palais, le Sens Divin de Wang Lin regagna son corps. Puisque son Sens Divin avait fusionné avec la tombe, il ne subit aucune force de rejet de la part du trône.
 
 Il restait assis là, l’expression calme. Ses yeux étincelaient comme des éclairs alors qu'il observait le réseau illusoire brisé et Tuo Sen, qui avait été repoussé par ce rugissement.
 
@@ -50,7 +50,7 @@ C'était une opportunité extrêmement rare: Tuo Sen était gravement blessé!
 
 Si n'importe qui d'autre avait été à sa place, il aurait attaqué sans hésiter, mais pas Wang Lin! Il était un Dieu Antique et Tuo Sen l'était aussi. Les Dieux Antiques devaient conserver leur dignité!
 
-S'il n'avait pas encore obtenu sa septième étoile, Wang Lin aurait attaqué sans la moindre hésitation, mais désormais, il voulait affronter Tuo Sen à pleine puissance! Et il y avait une raison bien plus importante à cela!
+S'il n'avait pas encore obtenu sa septième étoile, Wang Lin aurait attaqué sans la moindre hésitation, mais désormais, il voulait affronter un Tuo Sen intact! Et il y avait une raison bien plus importante à cela!
 
 « Vos étoiles de Dieu Antique se sont brisées à maintes reprises. Bien que vous ayez utilisé une méthode inconnue pour atteindre à nouveau les huit étoiles, elles ne sont pas aussi puissantes qu'auparavant. » Assis sur le trône, Wang Lin dominait la situation d'une aura impérieuse. Sa voix s'insinua lentement dans l'esprit de Tuo Sen.
 
@@ -62,7 +62,7 @@ Les sept étoiles entre les sourcils de Wang Lin tournaient rapidement, et une �
 
 Un tel avatar serait difficile à trouver n'importe où ailleurs. Pourtant, il pouvait en trouver un dans cette tombe, et plus précisément dans ce palais!
 
-Il restait encore quelques corps pétrifiés appartenant aux trois membres du Clan de l'Ordre Antique. Parmi eux se trouvait un démon ancien de dix mille pieds de haut, dont l'expression féroce semblait figée pour l'éternité. Il était particulièrement frappant parmi les autres cadavres!
+Il restait encore quelques corps pétrifiés appartenant aux trois membres du Clan de l'Ordre Antique. Parmi eux se trouvait un démon ancien de dix mille pieds de haut, qui conservait encore son expression féroce. Il était particulièrement frappant parmi les autres cadavres!
 
 Wang Lin leva la main droite et fit un geste. Le corps du démon ancien vola vers lui et atterrit devant ses pieds. Il pressa alors sa main droite sur le corps.
 
@@ -76,9 +76,9 @@ Outre sa propre fierté, la raison pour laquelle Wang Lin accordait ce répit à
 
 Wang Lin avait compris, par une intuition mystérieuse, que s'il se levait à ce moment-là, même en se rasseyant plus tard, il n'y aurait plus d'héritage possible. C'était une illumination qu'il avait acquise lors de la fusion de son Sens Divin avec la volonté de la tombe.
 
-C'est pourquoi il ne pouvait pas bouger! L'héritage nécessaire pour devenir un Dieu Antique à 7 étoiles ne lui suffisait pas!
+C'est pourquoi il ne pouvait pas bouger! Cet héritage l'avait fait devenir un Dieu Antique à 7 étoiles, mais il n'en était pas satisfait!
 
-Il en voulait plus! Il voulait que cette force de rejet réapparaisse! Ce n'est qu'alors que l'aura d'héritage serait décuplée et expulsée par le cœur battant de la troisième couche!
+Il en voulait plus! Il voulait que cette force de rejet réapparaisse! Ce n'est qu'alors que l'aura d'héritage serait multipliée plusieurs fois et expulsée par le cœur battant de la troisième couche!
 
 Il n'y avait qu'un seul moyen de faire ressurgir la force de rejet!
 

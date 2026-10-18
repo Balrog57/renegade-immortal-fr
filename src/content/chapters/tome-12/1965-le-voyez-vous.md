@@ -42,7 +42,7 @@ Continent Est, au sein de la Secte Yang Pourpre. Les yeux de l'homme d'âge moye
 
 « Le 17e palais... cet homme a réellement franchi le 17e palais. Il sera certainement disputé par les autres Grands Empyréens! Petit Ancêtre, tu dois diviner sa position, nous devons le trouver au plus vite! »
 
-Les deux petites filles à ses côtés clignèrent des yeux et se levèrent aussitôt. À trois, elles se transformèrent en une bourrasque de vent et disparurent. Cependant, juste au moment où elles s'évanouirent, une petite main apparut aux côtés de la joyeuse Cupidité.
+Les deux petites filles à ses côtés clignèrent des yeux et se levèrent aussitôt. À trois, ils se transformèrent en une bourrasque de vent et disparurent. Cependant, juste au moment où ils s'évanouirent, une petite main apparut aux côtés de la joyeuse Cupidité.
 
 « Ah, j'ai oublié d'emmener Petit Loup. Petit Loup, ne t'inquiète pas, nous ne t'oublierons pas. Ta performance était bonne tout à l'heure, alors viens avec nous. »
 
@@ -64,11 +64,11 @@ Le dragon marin regarda Liu Jinbiao avec hésitation, tordant son corps comme s'
 
 « Hé, tu veux raisonner ou pas? Je te préviens, si tu ne fais pas ça, je ne te ferai plus aucun massage! C'est un échange mutuel, tu sais! Et je peux te dire qu'il y a un autre gars qui suit le Maître, nommé Xu Liguo. Il est très vicieux, et si tu ne coopères pas, tu devras te méfier de lui quand il arrivera. » Les yeux de Liu Jinbiao étaient empreints d'effroi tandis qu'il parlait au dragon.
 
-Le dragon marin hésita un instant, partagé entre l'hésitation et la colère. Pendant ce temps, Liu Jinbiao avait réussi à lui inculquer l'idée que Xu Liguo était un être terrible qui aimait particulièrement tourmenter les dragons marins. La simple pensée de ce dénommé Xu Liguo, qu'il n'avait jamais rencontré, le rendait profondément malheureux.
+Le dragon marin hésita un instant, partagé entre l'hésitation et la colère. Pendant ce temps, Liu Jinbiao avait réussi à lui inculquer l'idée que Xu Liguo était un être terrible qui aimait particulièrement tourmenter les dragons marins. La simple pensée de ce dénommé Xu Liguo, qu'il n'avait jamais rencontré, lui inspirait une vive antipathie.
 
 Après un long moment, le dragon ouvrit la bouche et relâcha une bouffée d'essence originelle. Liu Jinbiao commença immédiatement à l'absorber, les yeux brillants d'une fierté cachée alors qu'il entamait sa culture.
 
-« Hmph, c'est toujours moi, Jin Biaozi, le plus fort. Ce dragon marin est si stupide et facile à duper. Avec son aide, je peux facilement augmenter mon niveau de culture, puis je l'entraînerai lentement à fixer Petit Xu du regard. Bientôt, même sans moi, le dragon marin le dominera. Haha, attends un peu, Petit Xu! »
+« Hmph, c'est toujours moi, Jin Biaozi, le plus fort. Ce dragon marin est si stupide et facile à duper. Avec son aide, je peux facilement augmenter mon niveau de culture, et nous sommes liés; je l'entraînerai lentement à fixer Petit Xu du regard. Bientôt, même sans moi, le dragon marin lui fera voir de toutes les couleurs. Haha, attends un peu, Petit Xu! »
 
 Tandis que Liu Jinbiao se délectait de sa propre prouesse, Wang Lin ouvrit les yeux, et ceux-ci s'illuminèrent. Cependant, en voyant Liu Jinbiao et le dragon marin, il fut un instant surpris.
 
@@ -108,11 +108,11 @@ L'autre était un jeune homme en rouge à l'allure ambitieuse qui, à cet instan
 
 « Bah, petit insolent qui n'est ni homme ni femme! Ton Grand-père Xu est sorti s'amuser hier soir. Pourquoi, tu veux venir avec moi? Viens, allons nous amuser ce soir! » Le jeune homme affichait un regard féroce.
 
-« Hmph, espèce de voleur sans honneur! » roula l'adolescent des yeux.
+« Hmph, espèce de sans-vergogne! » roula l'adolescent des yeux.
 
 « Moi, sans honneur? Ton Grand-père Xu est sans honneur? Tu devrais faire attention ce soir. Je passerai dans ta chambre et là, je serai vraiment sans honneur. Hehe, méfie-toi bien. » Le jeune homme nommé Xu sourit avec malveillance en regardant l'adolescent.
 
-« Ne vous disputez pas! Vous êtes si bruyants, à vous quereller sans fin. Petit Rouge, frappe à la porte. Que la famille Li sache quelle est la force de ce roi. Bon sang, oser me défier! »
+« Ne vous disputez pas! Vous êtes si bruyants, à vous quereller sans fin. Petit Rouge, frappe à la porte. Que la famille Li sache quelle est la force de ce roi. Bon sang, oser me malmener! »
 
 « Et toi, Petit Qing, souviens-toi: si les choses tournent mal, brise le jade pour que mon grand frère leur donne une leçon! » Le jeune homme en chemise fleurie renifla et pointa du doigt la demeure gigantesque devant eux.
 
@@ -120,9 +120,9 @@ Le manoir était immense et dégageait, de loin, une pression puissante. La port
 
 Manoir Li
 
-Ces deux mots dégageaient des auras d'épée si tranchantes qu'elles semblaient emplir le monde.
+Ces deux mots dégageaient des auras de flèche si tranchantes qu'elles semblaient emplir le monde.
 
-« Bien! » Le jeune homme nommé Xu s'anima, comme s'il adorait ce genre de divertissement. Il se précipita vers la porte pour lui asséner un coup de pied.
+« Bien! » Le jeune homme nommé Xu s'anima, comme s'il adorait ce genre de divertissement, bien à l'abri derrière la puissance d'autrui. Il se précipita vers la porte pour lui asséner un coup de pied.
 
 Un bruit sourd retentit, mais la porte ne bougea pas d'un iota. Cependant, le jeune homme nommé Xu n'en fut nullement affecté, comme s'il s'attendait à cela.
 

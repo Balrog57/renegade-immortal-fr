@@ -32,7 +32,7 @@ Cela provoqua des grondements tonitruants qui firent trembler l'espace lui-même
 
 Ce vortex géant tournait au-dessus de Wang Lin, et l'espace semblait pivoter avec lui.
 
-« Formation de la Vie et de la Mort, manifestez-vous! » Wang Lin mordit le bout de sa langue et cracha son sang essentiel de la troisième étape. Le sang se transforma en brume et fusionna avec le vortex.
+« Formation de la Vie et de la Mort, accomplie! » Wang Lin mordit le bout de sa langue et cracha son sang essentiel de la troisième étape. Le sang se transforma en brume et fusionna avec le vortex.
 
 Lors de la fusion, des craquements retentirent et le vortex géant cessa de tourner. Non seulement il s'arrêta, mais il commença à se solidifier.
 
@@ -50,9 +50,9 @@ Il traversa rapidement les continents qui s'effondraient sur son passage. Tous l
 
 C'était l'incarnation de la mort. L'odeur du sang autour de lui était si forte qu'on aurait dit qu'une pluie de sang allait s'abattre. Il avait les yeux rouges et le massacre emplissait tout son être. Après avoir massacré des milliers de cultivateurs du Royaume Extérieur sur un continent, il fit un pas en avant.
 
-Le nombre de têtes derrière Wang Lin atteignit progressivement des dizaines de milliers, mais son massacre ne faisait que commencer. Il agita la main droite et leva la paume. Des grondements tonitruants résonnèrent et de nombreux cultivateurs du Royaume Extérieur sur le continent devant lui tentèrent de fuir. Cependant, leurs corps tremblèrent et leur sang jaillit de toutes parts avant que leurs têtes ne volent vers Wang Lin.
+Le nombre de têtes derrière Wang Lin atteignit progressivement des dizaines de milliers, mais son massacre ne faisait que commencer. Il agita la main droite et abattit la paume. Des grondements tonitruants résonnèrent et de nombreux cultivateurs du Royaume Extérieur sur le continent devant lui tentèrent de fuir. Cependant, leurs corps tremblèrent et leur sang jaillit de toutes parts avant que leurs têtes ne volent vers Wang Lin.
 
-Cela ne prit pas longtemps. Tandis qu'il balayait le système stellaire, de plus en plus de cultivateurs du Royaume Extérieur mouraient. Un instant plus tard, une planète géante apparut devant lui. Cette planète était recouverte d'algues. Dès son arrivée, l'aura d'un cultivateur du troisième niveau jaillit de la planète.
+Cela ne prit pas longtemps. Tandis qu'il balayait le système stellaire, de plus en plus de cultivateurs du Royaume Extérieur mouraient. Un instant plus tard, une planète géante apparut devant lui. Cette planète était recouverte d'algues. Dès son arrivée, une aura de troisième étape jaillit de la planète.
 
 C'était là que se trouvait la femme. Lorsqu'elle remarqua Wang Lin, elle n'osa pas attaquer prématurément mais ne trouva aucun moyen de s'échapper. Elle ne pouvait qu'attendre que Wang Lin arrive pour l'affronter en utilisant cette planète!
 

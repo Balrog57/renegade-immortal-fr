@@ -64,7 +64,7 @@ Un disciple de la Secte Xuan Dao s'avança. Il avait environ 24 ou 25 ans, le te
 
 Huang Long ne convoqua aucun de ses disciples internes; il sortit plutôt un morceau de jade et le broya délicatement. À l'instant où le jade fut brisé, une lueur bleue jaillit sur la plateforme. Trois silhouettes émergèrent de cette lumière scintillante.
 
-Ces trois individus portaient des vêtements violets. Dès leur apparition, ils dégagèrent une aura puissante qui ragaillardit aussitôt tous les disciples internes. L'expression de l'Ancien Ouyang changea légèrement tandis qu'il les examinait avec attention.
+Ces trois individus portaient des vêtements pourpres. Dès leur apparition, ils dégagèrent une aura puissante qui ragaillardit aussitôt tous les disciples internes. L'expression de l'Ancien Ouyang changea légèrement tandis qu'il les examinait avec attention.
 
 L'homme d'âge moyen qui se tenait à l'arrière de la Secte Xuan Dao se tourna soudainement vers eux, ses yeux brillant d'une soif de combat.
 

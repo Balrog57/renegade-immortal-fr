@@ -32,7 +32,7 @@ Le temps passa lentement tandis que Wang Lin tentait de franchir l'étape de l'�
 
 Après une longue attente, Wang Lin ouvrit soudainement les yeux. Son regard brillait comme l'éclair et il remarqua immédiatement que ses méridiens étaient devenus presque translucides et au moins des dizaines de fois plus larges qu'auparavant. Même son corps principal n'avait pas connu une telle transformation lorsqu'il avait volé ses fondations à l'époque.
 
-Wang Lin réfléchit un instant. Il n'était pas certain que tout cela soit lié à la technique de l'Ancien Dieu. Après tout, cette technique consistait à absorber l'énergie spirituelle, et une pilule d'Établissement des Fondations n'était qu'une version bien plus puissante d'une pilule Pei Yuan.
+Wang Lin réfléchit un instant. Il n'était pas certain que tout cela soit lié à la technique de l'Ancien Dieu. Après tout, cette technique consistait à absorber l'énergie spirituelle, sa pratique dépendant entièrement de la quantité absorbée, et une pilule d'Établissement des Fondations n'était qu'une version bien plus puissante d'une pilule Pei Yuan.
 
 Une déferlante d'énergie spirituelle pour laver tout le corps afin de le rendre plus apte à la culture: tel était le véritable sens de l'Établissement des Fondations.
 

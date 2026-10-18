@@ -22,7 +22,7 @@ Lie Yunzi fronça les sourcils: « Bien que cet homme appartienne à mon Luotian
 
 Alors que l'homme en armure observait Lie Yunzi, son sourire semblait transparaître à travers l'armure elle-même. Il dit d'une voix lente: « Oh? Je me demande bien quel grief lie Wang Lin à vous et à Luotian. »
 
-L'inquiétude dans le cœur de Lie Yunzi s'accentua. Après une courte réflexion, il répondit: « Il entretient de nombreux liens avec le Temple Céleste du Tonnerre, mais il serait fastidieux de les énumérer un par un. Cependant, envers moi, il a dérobé un trésor précieux de ma famille; je dois donc naturellement le récupérer. »
+L'inquiétude dans le cœur de Lie Yunzi s'accentua. Après une courte réflexion, il répondit: « Il a de nombreux griefs avec le Temple Céleste du Tonnerre, mais il serait fastidieux de les énumérer un par un. Cependant, envers moi, il a dérobé un trésor précieux de ma famille; je dois donc naturellement le récupérer. »
 
 « Ainsi, c'est la raison pour laquelle vous voulez Wang Lin. C'est compréhensible. » L'homme en armure hocha la tête, mais les quatre anciens qui l'entouraient affichèrent des expressions étranges sans toutefois prendre la parole.
 
@@ -58,7 +58,7 @@ L'esprit de Lie Yunzi était encore en plein chaos, et ces paroles le firent cra
 
 « Je peux témoigner que Lie Yunzi a été le premier à se montrer déraisonnable en réclamant l'Empereur Divin Oiseau Vermillon! Mes paroles représentent le pays de Chu Yun! »
 
-Les yeux de la belle femme de la Secte des Cadavres s'illuminèrent et elle sourit. « Puisque ce petit fait aussi partie de l'histoire, je peux également attester que la requête de Senior Lie Yunzi était véritablement absurde. »
+Les yeux de la belle femme de la Secte des Cadavres s'illuminèrent et elle sourit. « Puisque j'ai moi aussi pris part à cette affaire, je peux également attester que la requête de Senior Lie Yunzi était véritablement absurde. »
 
 Lie Yunzi n'eut pas le temps de reprendre son souffle avant d'entendre les paroles de Mo Zhi et de la femme de la Secte des Cadavres. Il cracha davantage de sang, puis redressa brusquement la tête pour fixer Wang Lin.
 

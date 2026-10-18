@@ -8,7 +8,7 @@ slug: sceller-le-serpent-lunivore
 ---
 Le Dieu du Sang n'hésita pas à exploser en un vaste nuage de sang pour utiliser l'Évasion Sanguine, emportant avec lui l'ombre démoniaque qui se tenait derrière lui.
 
-À l'extérieur, tous les tentacules du Serpent aux yeux de lune se détachèrent pour se transformer en d'innombrables serpents plus petits. Ce spectacle fit haleter de stupeur tous les vieux monstres environnants.
+À l'extérieur, tous les tentacules du Serpent aux yeux de lune se détachèrent pour se transformer en d'innombrables serpents plus petits. Ce spectacle fit haleter de stupeur les six vieux monstres environnants.
 
 Les yeux de Maître Yan Leizi s'illuminèrent et ses mains formèrent des sceaux sans la moindre hésitation. Les innombrables fragments entourèrent immédiatement la zone. Au même instant, Maître Yan Leizi laissa échapper un rugissement tandis que des ondes de puissance mystérieuse se propageaient.
 

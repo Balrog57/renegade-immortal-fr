@@ -14,7 +14,7 @@ Par la suite, il sortit la mystérieuse perle et commença à réfléchir. Il y 
 
 Wang Lin avait pris conscience de sa puissance actuelle. Il se trouvait au 14ème niveau de Condensation de Qi. Cependant, il était curieux de savoir pourquoi il n'avait besoin d'aucun chant pour progresser ainsi par la culture. Il soupçonnait que cela avait un lien avec Situ Nan.
 
-Tout en tenant la perle, il entra dans l'espace de rêve. Au moment où il s'apprêtait à y pénétrer, il rangea rapidement l'objet.
+Tout en tenant la perle, il s'apprêta à entrer dans l'espace de rêve; au moment d'y pénétrer, il rangea rapidement l'objet.
 
 Dès qu'il entra dans l'espace de rêve, Situ Nan dit avec mécontentement: « Pourquoi n'as-tu pas tué ces gens lors de la compétition plus tôt? Si c'était moi, j'aurais tué tous les mâles et aspiré toute l'essence des femelles, puis j'aurais utilisé ce centipède pour faire du vin. Ce serait très nutritif. Mais une chose que tu as faite et qui a plu à mes goûts, c'est d'avoir tué ce Sun Dazhu. Pas mal. Tout comme moi dans ma jeunesse. Wang Lin, souviens-toi que le monde de la culture est un endroit cruel. Les forts dévorent les faibles. Si tu persistes dans ta naïveté, je crains que tu ne vives pas longtemps. »
 
@@ -30,7 +30,7 @@ Situ Nan soupira et dit: « Le stade du Mouvement Spirituel, qui correspond éga
 
 Wang Lin fut stupéfait: « La Méthode d'Ascension des Enfers? »
 
-Situ Nan dit fièrement: « Exactement. Hé hé, même dans mon pays d'origine, un pays de rang 6, c'est une méthode de qualité supérieure. Malheureusement, elle nécessite un lieu imprégné d'un grand élément Yin, sans quoi la culture sera trop lente, mais l'énergie spirituelle froide qu'elle génère est incroyablement puissante. Hmph, une fois que tu auras atteint le sommet de cette méthode, tu pourras même combattre des experts de pays de rang 7. Surtout, c'est avec cette méthode que le taux de réussite de la Formation du Noyau est le plus élevé. C'est décidé. Demain, tu iras à la bibliothèque des écritures de cette petite secte pour voir ce qu'ils proposent, mais dès que tu atteindras l'Établissement des Fondations, tu devras pratiquer la Méthode d'Ascension des Enfers. »
+Situ Nan dit fièrement: « Exactement. Hé hé, même dans mon pays d'origine, un pays de rang 6, c'est une méthode de qualité supérieure. Malheureusement, elle nécessite un lieu imprégné d'un grand élément Yin, sans quoi la culture sera trop lente, mais l'énergie spirituelle froide qu'elle génère est incroyablement puissante. Hmph, une fois que tu auras atteint le sommet de cette méthode, tu pourras même combattre des experts de pays de rang 7. C'est décidé. Demain, tu iras à la bibliothèque des écritures de cette petite secte pour voir ce qu'ils proposent, mais dès que tu atteindras l'Établissement des Fondations, tu devras pratiquer la Méthode d'Ascension des Enfers. »
 
 Wang Lin réfléchit un instant et hocha la tête.
 
@@ -50,7 +50,7 @@ Wang Lin acquiesça immédiatement.
 
 Huang Long prit une profonde inspiration. Il sortit un morceau de jade violet et le lança en l'air. Puis, formant un sceau de la main, il balaya l'air d'un geste et murmura: « Ouvre! »
 
-Le morceau de jade se mit rapidement à briller et un cercle commença à s'étendre à partir de lui, formant un passage circulaire assez large pour qu'une personne puisse le traverser.
+Le morceau de jade se mit rapidement à briller et un cercle commença à s'étendre à partir de lui, formant un passage en demi-cercle assez large pour qu'une personne puisse le traverser.
 
 Sans dire un mot, Huang Long entra. Wang Lin hésita un instant avant de le suivre.
 
@@ -64,7 +64,7 @@ Wang Lin se mit en alerte et dit respectueusement: « Le disciple Wang Lin salue
 
 L'expression de Huang Long changea brusquement et il grogna: « Comment? Ancien? C'est l'Ancêtre! »
 
-Wang Lin fut stupéfait. La voix reprit: « Ce n'est rien. Les coutumes de la secte n'ont aucune importance ici. Wang Lin, cette fois, tu as accompli un grand acte pour la secte; tu peux donc choisir la technique de ton choix dans cette bibliothèque des écritures. Cette bibliothèque est incomparable à celle de la cour. C'est ici que sont conservées les véritables techniques de la Secte Heng Yue. On y trouve plus de 10 000 techniques. Si l'on comparait cette bibliothèque à toutes les autres collections des sectes du pays de Zhao, aucune ne serait aussi vaste. Ne sois pas trop gourmand et choisis celle qui te convient! Huang Long, emmène-le maintenant. »
+Wang Lin fut stupéfait. La voix reprit: « Ce n'est rien. Les coutumes de la secte n'ont aucune importance ici. Wang Lin, cette fois, tu as accompli un grand acte pour la secte; tu peux donc choisir la technique de ton choix dans cette bibliothèque des écritures. Cette bibliothèque est incomparable à celle de la cour. C'est ici que sont conservées les véritables techniques de la Secte Heng Yue. On y trouve des techniques de toutes sortes. Si l'on comparait cette bibliothèque à toutes les autres collections des sectes du pays de Zhao, aucune ne serait aussi complète. Ne sois pas trop gourmand et choisis celle qui te convient! Huang Long, emmène-le maintenant. »
 
 Dans l'esprit de Wang Lin, Situ Nan ricana avec dédain: « Un simple stade de la Formation du Noyau pour Ancêtre? Quand j'étais jeune, tous les cultivateurs de la Formation du Noyau tentaient de me flatter, et certaines femmes de ce stade allaient même jusqu'à se mettre à nu pour tenter de coucher avec moi. »
 

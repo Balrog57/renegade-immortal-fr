@@ -16,7 +16,7 @@ Cependant, à cet instant précis, les yeux de Wang Lin brillèrent d'une lueur 
 
 Sa voix tonna comme un coup de tonnerre, résonnant à travers le monde tel le rugissement des cieux! Les mains de Maître Simo hésitèrent un instant tandis qu'il fixait Wang Lin.
 
-À cet instant même, Wang Lin fit un pas en avant. Il leva la main droite et pointa l'avant! Les cieux changèrent de couleur et les nuages se dispersèrent. La silhouette de Wang Lin disparut pour réapparaître aussitôt devant Maître Simo. Sa main droite pressa impitoyablement l'espace entre les sourcils de Maître Simo!
+À cet instant même, Wang Lin fit un pas en avant. Il leva la main droite et pointa l'avant! Les cieux changèrent de couleur et les nuages se dispersèrent. La silhouette de Wang Lin disparut pour réapparaître aussitôt devant Maître Simo. Son index droit, qui semblait masquer le ciel, pressa impitoyablement l'espace entre les sourcils de Maître Simo!
 
 L'expression de Maître Simo changea radicalement. À cause du rugissement de Wang Lin, il avait manqué la meilleure opportunité d'utiliser sa technique. N'ayant pas le temps de réfléchir, il abattit sa main droite dans un geste brusque. Un seul trait pour briser les cieux et la terre!
 
@@ -44,7 +44,7 @@ Le grondement tonitruant qui s'ensuivit fit trembler les cieux. L'encre formée 
 
 Les 40 millions de rayons d'énergie d'épée formèrent une tempête dont Wang Lin était le centre.
 
-Cette tempête, saturée d'énergie tranchante, dégageait une puissante aura d'épée. Un sifflement aigu et constant émanait de la rotation des rayons. De loin, on aurait dit des dizaines de milliers de serpents en plein vol; c'était un spectacle terrifiant!
+Cette tempête, saturée d'énergie tranchante, dégageait une puissante aura d'épée. Un sifflement aigu et constant émanait de la rotation des rayons. De loin, on aurait dit des dizaines de millions de serpents en plein vol; c'était un spectacle terrifiant!
 
 Tout cela se produisit en un instant. En un clin d'œil, le doigt chargé de 40 millions de rayons d'énergie frappa le corps de Maître Simo. Ce dernier cracha du sang et son corps fut projeté violemment. C'était comme si son être même était en train de se déchirer, mais ses mains formèrent rapidement un sceau! Ce n'était pas que son corps s'était effondré, mais il avait utilisé une méthode spéciale pour esquiver l'attaque mortelle de Wang Lin et réapparaître à 10 000 pieds de là.
 
@@ -72,9 +72,9 @@ Le Patriarche du Clan du Dragon Blindé détourna également son regard du ciel 
 
 « Il ignore ses propres limites. Maître Simo est un cultivateur du troisième niveau; même si ce n'est que son avatar, il reste un être avec lequel on ne peut rivaliser. Bien qu'il ait tué l'Ancien du Clan du Tonnerre Dispersé, il est impuissant face à Maître Simo! »
 
-« Cependant, le simple fait qu'il puisse blesser Maître Simo prouve qu'il n'est pas un être ordinaire. Heureusement, il n'a aucune chance de survie, sinon, s'il venait chercher les ennuis, il serait difficile de s'en défaire. »
+« Cependant, le simple fait qu'il puisse blesser Maître Simo prouve qu'il n'est pas un être ordinaire. Heureusement, il n'a aucune chance de survie, sinon, s'il venait se venger de notre clan pour notre aide, il serait difficile de s'en défaire. »
 
-Pourtant, alors que tous étaient convaincus que Wang Lin ne pourrait s'échapper, une opportunité surgit!
+Pourtant, alors que tous étaient convaincus que Wang Lin ne pourrait s'échapper, un revirement soudain se produisit!
 
 Une douleur intense lacéra le corps de Wang Lin et ses yeux devinrent injectés de sang. Les 40 millions de rayons d'énergie d'épée qui l'entouraient jaillirent vers le ciel!
 
@@ -92,7 +92,7 @@ Le monde s'effondra et se transforma en une onde de choc qui balaya toute la pla
 
 Wang Lin s'était libéré!
 
-Au moment où il brisa ses chaînes, le vieil homme du Clan des Moineaux de Feu ouvrit les yeux avec incrédulité et prit une inspiration saccadée.
+Au moment où il s'échappa, le vieil homme du Clan des Moineaux de Feu ouvrit les yeux avec incrédulité et prit une inspiration saccadée.
 
 Non seulement lui, mais même le jeune maître du Clan du Dragon Blindé était terrifié. Il recula inconsciemment en s'exclamant: « Ceci... ceci est... »
 

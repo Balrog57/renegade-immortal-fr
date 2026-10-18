@@ -10,13 +10,13 @@ Le maigre cultivateur avait débité un long discours, et tous ses mots étaient
 
 L'expression habituellement calme de Wang Lin se mua en un étrange sourire à l'écoute des paroles de ce cultivateur svelte.
 
-Ce dernier ne laissait transparaître aucune trace de fausseté, comme si tout ce qu'il venait de dire était naturel et vrai. Son expression rendait véritablement difficile pour Wang Lin d'attaquer et de gaspiller ainsi sa culture.
+Ce dernier ne laissait transparaître aucune trace de fausseté, comme si tout ce qu'il venait de dire était naturel et vrai. Son expression rendait véritablement difficile pour Wang Lin de le frapper et d'anéantir sa culture.
 
 Grâce à sa sagesse, Wang Lin avait naturellement percé à jour le plan du cultivateur. Ce dernier savait qu'il ne pouvait pas résister, et que c'était là son seul moyen de préserver sa culture.
 
 « Quel est ton nom? » Wang Lin atterrit au sol avec la légèreté d'une feuille de saule flottant dans le vent, se tenant désormais au centre de la place de la Secte du Tonnerre Céleste.
 
-« Pour répondre: mon nom est Zhong Grand Rouge. Zhong comme le petit Zhong, et Rouge comme le petit rouge. Ce junior n'a toujours respecté qu'une seule personne. Laissez-moi ouvrir la voie, laissez-moi... » Le cultivateur allait poursuivre, mais Wang Lin l'interrompit.
+« Pour répondre: mon nom est Zhong Grand Rouge. Zhong comme le petit Zhong, et Rouge comme le petit rouge. Ce junior a toujours été loyal et sincère envers tous, et ne veut que tailler les ronces et trancher les obstacles pour vous, sous les étoiles comme sous la lune. Laissez-moi ouvrir la voie, laissez-moi... » Le cultivateur allait poursuivre, mais Wang Lin l'interrompit.
 
 « Assez. Remets-moi tout ce que tu as rassemblé et qui peut être échangé contre des cristaux de tonnerre. »
 
@@ -24,7 +24,7 @@ Bien que Grand Rouge paraisse calme, il était mort de peur. Plus tôt, alors qu
 
 Cependant, cette colère s'était instantanément évaporée lorsqu'il avait aperçu Wang Lin, le laissant tremblant de peur. Il était au début du stade de la Formation de l'Âme et, bien qu'il ne cultivât pas de domaines comme les cultivateurs du Royaume Intérieur, sa marque était active à 30 %. De plus, grâce à son niveau de culture, il avait côtoyé d'autres experts, le plus puissant ayant atteint le stade Ascendant.
 
-Lorsqu'il avait perçu Wang Lin, il avait été terrifié au point d'avoir l'impression que le monde s'effondrait. Ce sentiment était plusieurs fois plus puissant que lorsqu'il avait rencontré le cultivateur Ascendant. Heureusement, il était extrêmement rusé et n'avait pas hésité à transformer cette terreur en une excitation feinte, suivie d'une rapide flatterie.
+Lorsqu'il avait perçu Wang Lin, il avait été terrifié au point d'avoir l'impression que le monde s'effondrait. Ce sentiment était d'innombrables fois plus puissant que lorsqu'il avait rencontré le cultivateur Ascendant. Heureusement, il était extrêmement rusé et n'avait pas hésité à transformer cette terreur en une excitation feinte, suivie d'une rapide flatterie.
 
 Il n'avait utilisé cette astuce que trois fois dans sa vie. La première fois, alors qu'il était au stade de l'Établissement des Fondations et devait surmonter une crise. La deuxième, au stade de l'Âme Naissante, où il s'était échappé du cultivateur Ascendant avec seulement une frayeur, en tirant même certains bénéfices. C'était la troisième fois qu'il déployait cet art invincible.
 
@@ -54,7 +54,7 @@ En entendant la voix de Xu Liguo, les yeux de Grand Rouge se plissèrent comme s
 
 L'expression de Wang Lin restait neutre, mais Grand Rouge sentit son cœur rater un battement. Ses pupilles se rétractèrent alors qu'il lançait à Xu Liguo un regard chargé d'hostilité. Il avait vaguement pressenti que Xu Liguo était un adversaire puissant, mais désormais c'était une évidence. Cet homme possédait le même art invincible que lui. Voir comment l'autre parvenait à incarner cet art en quelques mots seulement surpassait de loin son propre long discours!
 
-« Rival de toujours!! Cet homme doit être mon rival de toujours!! » Grand Rouge prit une profonde inspiration et commença à l'observer avec attention.
+« Un rival redoutable!! Cet homme est sans aucun doute mon rival redoutable!! » Grand Rouge prit une profonde inspiration et commença à l'observer avec attention.
 
 « Maître, ne renvoyez pas Petit Xu trop vite, compte tenu de la loyauté et du labeur dont il a fait preuve... » Xu Liguo afficha un air de tristesse mélancolique.
 
@@ -74,7 +74,7 @@ Wang Lin esquissa un sourire, hocha légèrement la tête et rangea l'épée vol
 
 Xu Liguo observa les alentours, puis fixa Grand Rouge. Il n'avait pas prêté attention à la foule auparavant, mais il sentit immédiatement que quelque chose clochait.
 
-« Cet individu dégage une légère odeur d'impudence... Cependant, il est loin de faire le poids face à votre Grand-père Xu. Le Grand-père Xu flatte ce démon depuis bien avant votre naissance! » Xu Liguo afficha un sourire bienveillant en regardant Grand Rouge. « Quel est ton nom, compagnon cultivateur? »
+« Cet individu dégage une légère odeur d'impudence... Cependant, il est loin de faire le poids face à votre Grand-père Xu. Quand le Grand-père Xu flattait ce démon, vous en étiez encore à téter! » Xu Liguo afficha un sourire bienveillant en regardant Grand Rouge. « Quel est ton nom, compagnon cultivateur? »
 
 Grand Rouge répondit avec le même sourire et joignit les mains: « Je suis Zhong Grand Rouge. Zhong comme le grand Zhong, et Rouge comme le grand rouge! »
 

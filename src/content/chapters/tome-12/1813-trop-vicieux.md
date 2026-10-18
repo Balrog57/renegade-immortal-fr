@@ -94,11 +94,11 @@ Elle était de nature à rendre fou quiconque la percevrait et la comprendrait!
 
 « Grand... Grand Empyréen... » Du sang coula du coin de la bouche de Du Qing alors qu'il reculait précipitamment. Le choc provoqué par l'empreinte avait blessé son âme originelle. Il comprit instantanément que cette empreinte était un sortilège condensé en trésor par un Grand Empyréen.
 
-La puissance intrinsèque de ce trésor était secondaire; sa véritable fonction était d'intimider. Elle pouvait ébranler n'importe qui! Oubliez Du Qing, même la Secte de la Grande Âme et toutes les puissantes sectes du Continent du Taureau Céleste trembleraient de peur en ressentant l'aura de cette empreinte dorée!
+La puissance intrinsèque de ce trésor était secondaire; sa véritable fonction était d'intimider. Elle pouvait ébranler n'importe qui! Oubliez Du Qing, même la Secte de la Grande Âme, la Secte Gui Yi et toutes les puissantes sectes du Continent du Taureau Céleste trembleraient de peur en ressentant l'aura de cette empreinte dorée!
 
 Car à moins qu'un Grand Empyréen n'ait personnellement remis ce trésor à quelqu'un, celui-ci s'effondrerait instantanément entre les mains d'autrui. C'était une vérité universelle sur le Continent Astral Immortel!
 
-Les Grands Empyréens offraient souvent de tels trésors à leurs disciples les plus proches. C'était leur manière de signifier au monde que nul ne pouvait toucher à cette personne!
+Ces trésors, qui n'auraient pas dû exister et ne se matérialisent qu'après avoir été façonnés par l'un des neuf Grands Empyréens des Neuf Soleils, étaient le plus souvent offerts par ceux-ci à leurs disciples les plus proches. C'était leur manière de signifier au monde que nul ne pouvait toucher à cette personne!
 
 Avec son niveau de culture, Du Qing était incapable de déterminer quel Grand Empyréen l'avait créé. Au cours des innombrables années de sa vie, il n'avait même pas eu la chance d'apercevoir un seul Grand Empyréen.
 

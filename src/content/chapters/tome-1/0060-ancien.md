@@ -6,7 +6,7 @@ bookTitle: The Mediocre Youth
 en: Chapter 60 - Elder
 slug: ancien
 ---
-Huang Long regarda les bouteilles et laissa échapper un reniflement. « L'eau de la rivière de la montagne arrière est interdite de sortie. Je vais prendre ces deux bouteilles. Tu peux aller te reposer. N'oublie pas de venir me voir demain; je t'emmènerai à la bibliothèque des écritures pour te trouver une technique de culture appropriée », dit-il.
+Huang Long regarda les bouteilles et laissa échapper un reniflement. « L'eau de la rivière de la montagne arrière est interdite de sortie. Je vais prendre ces deux bouteilles, mais que cela ne se reproduise pas. Tu peux aller te reposer. N'oublie pas de venir me voir demain à l'aube; je t'emmènerai à la bibliothèque des écritures pour te trouver une technique de culture appropriée », dit-il.
 
 En entendant cela, Wang Lin fut transporté par l'enthousiasme. En sortant, il prit congé avec respect. Bien que son niveau de culture fût déjà élevé, sa seule et unique technique était la technique d'attraction.
 
@@ -14,7 +14,7 @@ Une fois Wang Lin parti, Huang Long se retourna. Il s'inclina respectueusement e
 
 Un vieil homme chétif vêtu d'une robe bleue sortit dans la salle principale, le visage empreint d'une profonde sévérité. « Quelle part de vérité y a-t-il? Huang Long, ne vois-tu pas que ce petit gars n'a pas dit un seul mot de vrai? »
 
-Huang Long afficha une expression embarrassée. Cet homme était l'un des dix anciens de l'Établissement des Fondations. Dans le monde de la culture, seule la force importait. Le fait qu'il soit le chef de la secte et que ses frères d'armes soient des anciens n'était qu'une façade destinée au monde extérieur.
+Huang Long afficha une expression embarrassée. Cet homme était l'un des dix anciens de l'Établissement des Fondations. Dans le monde de la culture, seule la force importait. Le fait qu'il soit le chef de la secte et que ses pairs soient des anciens n'était qu'une façade destinée au monde extérieur.
 
 La règle de la Secte Heng Yue était la suivante: celui qui atteignait le stade de l'Établissement des Fondations pouvait devenir un ancien et jouir de ses privilèges. Si l'on atteignait la Formation du Noyau, on devenait l'un des véritables anciens de la Secte Heng Yue, et si l'on atteignait l'Âme Naissante, on était considéré comme un ancêtre de la secte.
 
@@ -34,11 +34,11 @@ L'Ancien Shangguan laissa échapper un reniflement glacial: « Toute technique, 
 
 Huang Long hocha rapidement la tête en signe d'assentiment.
 
-L'Ancien Shangguan réfléchit un moment, puis reprit: « La culture de cet enfant est bel et bien au 3ème niveau, mais il possède une énergie spirituelle trop abondante dans son corps pour que je puisse tout vérifier clairement. Je présume que sa puissance équivaut à celle du 14ème niveau de Condensation de Qi; il devrait donc pouvoir atteindre l'Établissement des Fondations sous peu. Il est acceptable qu'un disciple de ce genre garde ses secrets, car la secte traverse une période très périlleuse. Humph, la Secte Xuan Dao mérite vraiment son nom de petite secte. Envoyer des juniors en Condensation de Qi comme anciens et oser tenter de rallier Wang Lin devant nous par transmission vocale! »
+L'Ancien Shangguan réfléchit un moment, puis reprit: « La culture de cet enfant est bel et bien au 3ème niveau, mais il possède une énergie spirituelle trop abondante dans son corps pour que je puisse tout vérifier clairement. Je présume que sa puissance équivaut à celle du 14ème niveau de Condensation de Qi; il devrait donc pouvoir atteindre l'Établissement des Fondations sous peu. Il est acceptable qu'un disciple de ce genre garde ses secrets, car la secte traverse une période très périlleuse. Humph, la Secte Xuan Dao se pare vraiment du nom de « secte des anciens ». Envoyer des juniors en Condensation de Qi comme anciens et oser tenter de rallier Wang Lin devant nous par transmission vocale! »
 
 Huang Long fut stupéfait. Il ne posa pas de questions supplémentaires sur la transmission vocale, mais demanda: « Huang Long vous obéit. Ancien Shangguan, concernant les affaires des ancêtres... »
 
-L'Ancien Shangguan poussa un soupir, le visage contracté par une moue sombre. Il secoua la tête et dit: « Les ancêtres n'ont envoyé aucun message depuis trente ans, je crains que... Hélas, ce n'est pas une chose sur laquelle tu puisses agir. Si la Secte Xuan Dao veut réellement le Pic Heng Yue, nous ne pourrons rien faire. Le pays de Zhao est vaste et trouvera une place pour notre Secte Heng Yue. Une fois que nos deux véritables anciens auront percé le stade de l'Âme Naissante, humph, toute cette humiliation sera vengée. »
+L'Ancien Shangguan poussa un soupir, le visage contracté par une moue sombre. Il secoua la tête et dit: « Les ancêtres n'ont envoyé aucun message depuis plus de trois cents ans, je crains que... Hélas, ce n'est pas une chose sur laquelle tu puisses agir. Si la Secte Xuan Dao veut réellement le Pic Heng Yue, nous ne pourrons rien faire. Le pays de Zhao est vaste et trouvera une place pour notre Secte Heng Yue. Une fois que nos deux véritables anciens auront percé le stade de l'Âme Naissante, humph, toute cette humiliation sera vengée. »
 
 Huang Long esquissa un sourire amer et hocha silencieusement la tête.
 
@@ -46,7 +46,7 @@ Quant à Wang Lin, lorsqu'il sortit de la salle principale, tous les disciples i
 
 « La force... dans le monde de la culture, seule la force importe », pensa Wang Lin, ému, alors qu'il regagnait le jardin de Sun Dazhu.
 
-Dès son entrée, il vit immédiatement Sun Dazhu s'avancer vers lui, un sourire aux lèvres. « Bon disciple, ton maître t'attendait depuis longtemps. Tiens, bois ce thé de récupération de haute qualité que j'ai préparé pour toi. Tu te sentiras beaucoup mieux après l'avoir bu. »
+Dès son entrée, il vit immédiatement Sun Dazhu s'avancer vers lui, un sourire aux lèvres. « Bon disciple, ton maître t'attendait depuis longtemps. Tiens, bois ce thé médicinal de première qualité que j'ai préparé pour toi. Tu te sentiras beaucoup mieux après l'avoir bu. »
 
 Sur ces mots, il prit une tasse sur la table de pierre du jardin et la tendit à Wang Lin.
 
@@ -74,7 +74,7 @@ Wang Lin regarda le thé et lança: « Maître, buvez ce thé pour votre discipl
 
 L'expression de Sun Dazhu changea brusquement et il força un sourire. « Quoi? Si tu ne veux pas le boire, je vais simplement le jeter! » Sur ces mots, il projeta la tasse au sol et recula encore de quelques pas, jusqu'à atteindre le seuil de la porte.
 
-« Maître, buvez-le », ordonna Wang Lin d'un ton calme. Il activa sa technique d'attraction. La tasse qui tombait s'arrêta net dans les airs et flotta vers Sun Dazhu. Wang Lin soupira; il savait que Sun Dazhu avait des intentions hostiles. Le thé était bel et bien empoisonné.
+« Maître, buvez-le », ordonna Wang Lin d'un ton calme. Il activa sa technique d'attraction. La tasse qui tombait s'arrêta net dans les airs et flotta vers Sun Dazhu. Wang Lin soupira; il savait que Sun Dazhu avait des intentions hostiles. Le thé semblait bel et bien contenir un problème.
 
 L'expression de Sun Dazhu devint instable. Après une longue hésitation, il fronça soudainement les sourcils: « Wang Lin, il semble que tu aies encore des malentendus envers ton maître. Tu crois qu'il y a quelque chose de suspect dans ce thé? Très bien, je vais le boire. »
 

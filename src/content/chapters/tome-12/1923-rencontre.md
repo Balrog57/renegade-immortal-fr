@@ -84,7 +84,7 @@ Après une courte réflexion, la main droite de Wang Lin s'étendit vers le vide
 
 Le visage du vieil homme s'illumina de joie. Il la réceptionna prestement pour la ranger dans son espace de stockage. Il s'inclina devant Wang Lin, mais soupira intérieurement: chaque Exalté Empyréen qu'il avait rencontré était extrêmement avare. Les deux précédents l'étaient, et ce troisième ne faisait pas exception.
 
-Après avoir offert la graine et pris le jade, Wang Lin se tourna pour partir. Par réflexe dû à sa nature prudente, il déploya machinalement son sens divin sur toute la secte. Le dragon marin s'éleva alors de mille pieds.
+Après avoir offert la flamme et pris le jade, Wang Lin se tourna pour partir. Par réflexe dû à sa nature prudente, il déploya machinalement son sens divin sur toute la secte. Le dragon marin s'éleva alors de mille pieds.
 
 « Adieu, Senior! » L'Ancien Exalté Doré se détendit totalement et joignit les mains.
 

@@ -44,7 +44,7 @@ Bien que le Magicien Démon Céleste eût le cœur déchiré, aucune trace de m�
 
 « Qu'est-ce que c'est? » La voix de l'homme d'âge moyen était neutre, mais empreinte d'une dignité indescriptible. Il jeta un coup d'œil au cristal, sans parvenir à y déceler quoi que ce soit de spécial.
 
-Le Magicien Démon Céleste s'exécuta rapidement et respectueusement: « Seigneur Dou Mu, ce cristal de glace est issu de la culture de mon disciple, le Seigneur Démon des Six Désirs. La raison pour laquelle je l'ai pris pour disciple à l'époque était de prélever plus tard son cristal cérébral afin d'accroître ma culture. Si cela vous plaît, Seigneur, considérez-le comme un présent de votre subordonné. »
+Le Magicien Démon Céleste s'exécuta rapidement et respectueusement: « Seigneur Dou Mu, ce cristal de glace est issu de toute la culture de mon disciple, le Seigneur Démon des Six Désirs. La raison pour laquelle je l'ai pris pour disciple à l'époque était de prélever plus tard son cristal cérébral afin d'accroître ma culture. Si cela vous plaît, Seigneur, considérez-le comme un présent de votre subordonné. »
 
 L'homme d'âge moyen lança un regard au Magicien Démon Céleste, puis saisit le cristal entre deux doigts et dit d'un ton neutre: « Vraiment? » Tout en parlant, il exerça une légère pression. Le cristal de glace vola en éclats et se dissipa dans l'air environnant.
 

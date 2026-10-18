@@ -14,15 +14,15 @@ La vieille femme fronça les sourcils et demanda: « De quoi s'agit-il? »
 
 Wang Lin leva la tête et dit: « Le disciple souhaite sortir une fois. »
 
-La vieille femme refusa immédiatement. « Tu dois d'abord te concentrer sur l'Établissement des Fondations. Tu ne peux pas sortir. »
+La vieille femme refusa immédiatement. « Ta tâche principale est la culture. Tu ne peux pas sortir. »
 
 Wang Lin haussa un sourcil et répliqua: « Le disciple doit sortir pour une affaire précise. Une fois cela accompli, je pourrai me consacrer pleinement à la culture. »
 
 La vieille femme lança à Wang Lin un regard sévère et s'apprêtait à répliquer quand Liu Wenju la retint avec bienveillance en disant: « Ton ancêtre Wang s'inquiète de ta sécurité à l'extérieur. Peux-tu nous dire ce que tu comptes faire? »
 
-Wang Lin répondit honnêtement: « Le disciple n'a pas vu ses parents depuis de nombreuses années, et cette culture en isolement risque de durer très longtemps; je voudrais donc d'abord rentrer chez moi pour les voir. »
+Wang Lin répondit honnêtement: « Le disciple n'a pas vu ses parents depuis de nombreuses années, et cette culture en isolement risque de durer très longtemps, et il se pourrait que je ne revoie jamais mes parents de mon vivant; je voudrais donc d'abord rentrer chez moi pour les voir. »
 
-Liu Wenju réfléchit un instant. Lui et la vieille femme échangèrent un regard. Puis, il sortit un morceau de jade et dit: « D'accord, pars vite et reviens vite. Ce jade peut encaisser un coup d'un cultivateur au stade de la Formation du Noyau. Ne l'utilise que si ta vie est en danger. »
+Liu Wenju réfléchit un instant. Lui et la vieille femme échangèrent un regard. Puis, il sortit un morceau de jade et dit: « D'accord, pars vite et reviens vite. Une fois activé, ce jade peut porter un coup de toute la puissance d'un cultivateur au stade de la Formation du Noyau, mais une seule fois. Garde-le comme moyen de sauver ta vie en cas de crise. »
 
 Wang Lin fut surpris. Il s'en saisit rapidement pour le ranger dans son sac de rangement. Le nombre de trésors qu'il possédait était bien trop limité; les deux seuls dont il disposait étaient le talisman de Zhang Hu et ce morceau de jade.
 
@@ -34,11 +34,11 @@ Situ Nan dit à Wang Lin: « Tu pars enfin. Comptes-tu revenir? »
 
 Après une courte réflexion, Wang Lin répondit: « Je ne reviendrai pas de sitôt. Une fois mes affaires familiales réglées, j'ai mes propres projets. »
 
-Situ Nan ajouta: « Si ma supposition est correcte, une fois que tu auras donné à la Perle Défiant le Ciel suffisamment d'élément bois, sa capacité à ralentir le temps augmentera considérablement. Actuellement, elle multiplie le temps par dix, mais une fois l'élément bois comblé, elle pourrait atteindre cent fois. À ce moment-là, ta vitesse de culture sera décuplée. »
+Situ Nan ajouta: « Si ma supposition est correcte, une fois que tu auras donné à la Perle Défiant le Ciel suffisamment d'élément bois, sa capacité à ralentir le temps augmentera considérablement. Actuellement, elle multiplie le temps par dix, mais une fois l'élément bois comblé, elle pourrait atteindre cent fois. À ce moment-là, ta vitesse de culture augmentera nettement. »
 
 Tout en discutant, Wang Lin volait à une vitesse fulgurante, laissant derrière lui une traînée rouge.
 
-Après une journée de voyage, il pénétra dans la chaîne de montagnes méridionale de la Secte Heng Yue. Craignant d'attirer l'attention, il ralentit sa progression. Le deuxième jour, il atteignit le petit village.
+Après une journée de voyage, il pénétra dans l'ancien territoire de la Secte Heng Yue. Craignant d'attirer l'attention, il ralentit sa progression. Le deuxième jour, il atteignit le petit village.
 
 De loin, le village semblait identique à ses souvenirs. Seule sa propre maison avait changé: elle était passée d'une simple bâtisse à une demeure en trois corps de bâtiments autour d'une cour, arborant un immense panneau « Fortune » sur la porte principale. Bien que la lumière soit encore rare, on entendait le chant des coqs et les aboiements des chiens.
 
@@ -48,7 +48,7 @@ Wang Lin se tenait à l'entrée du village, fixant sa demeure. Cinq ans s'étaie
 
 Il n'était pas certain que les membres de la Secte Xuan Dao viendraient tuer ses parents par vengeance contre lui; ainsi, avant d'avoir réglé la situation, il ne voulait pas rentrer pour ne pas les inquiéter.
 
-Le temps passa lentement et, en un clin d'œil, Wang Lin séjourna à l'extérieur du village pendant un mois. Durant ce mois, il maintint son Sens Divin déployé en permanence. Un jour, une lueur froide traversa ses yeux. Il murmura: « Alors, ils sont finalement venus. »
+Le temps passa lentement et, en un clin d'œil, Wang Lin séjourna à l'extérieur du village pendant un mois. Durant ce mois, il maintint son Sens Divin déployé en permanence. Un jour, une lueur froide traversa ses yeux. Il pensa: « Alors, ils sont finalement venus. »
 
 Deux lueurs d'épée volèrent rapidement vers le village. Lorsqu'ils se posèrent, leurs silhouettes apparurent. L'un d'eux portait une cape noire couvrant tout son corps, rendant son identité impossible à distinguer, mais il dégageait une odeur répugnante.
 

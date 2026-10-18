@@ -26,11 +26,11 @@ Les cultivateurs qui l'affrontaient possédaient tous des cercueils. Ces dernier
 
 Bien que l'homme fût seul, la bataille était d'une férocité extrême. Plus de dix corps défunts flottaient aux alentours.
 
-Sept ou huit cultivateurs se tenaient en périphérie du combat; ils étaient également des disciples de la Secte des Cadavres. Un jeune homme vêtu de noir dirigeait le groupe et fixait intensément le vieil homme. D'un simple geste du doigt, il ordonnait aux marionnettes de cadavres de changer de formation.
+Sept ou huit cultivateurs se tenaient en périphérie du combat; ils étaient également des disciples de la Secte des Cadavres. Un jeune homme vêtu de noir dirigeait le groupe et fixait intensément le vieil homme. D'un simple geste de la main droite, il faisait changer de formation les disciples de la Secte des Cadavres qui encerclaient le vieil homme.
 
 L'apparition de Wang Lin attira immédiatement l'attention des deux camps. Lorsque le vieil homme vit Wang Lin, ses yeux brillèrent d'un rouge éclatant.
 
-Les membres de la Secte des Cadavres remarquèrent également Wang Lin, mais ils ignorèrent son identité. Le jeune homme en noir lança un regard glacial à Wang Lin et fit un signe de la main. Immédiatement, deux disciples de la Secte des Cadavres s'élancèrent vers lui.
+Les membres de la Secte des Cadavres remarquèrent également Wang Lin, mais ils ne connaissaient manifestement pas son ancienne identité. Le jeune homme en noir lança un regard glacial à Wang Lin et fit un signe de la main. Immédiatement, deux disciples de la Secte des Cadavres s'élancèrent vers lui.
 
 L'un d'eux joignit les mains et déclara: « Camarade cultivateur, ma Secte des Cadavres a été la première à combattre cet ancien raffineur de Qi. Veuillez vous retirer! »
 
@@ -40,7 +40,7 @@ Wang Lin resta calme; il hocha la tête et s'écarta pour continuer sa route. Vo
 
 « Je dois obtenir le corps et l'âme originelle de cet ancien cultivateur! »
 
-Wang Lin traversa le vide et vit une quantité incalculable de cultivateurs. Ils évoluaient par petits groupes de trois à cinq individus. Certains étaient seuls, comme s'ils étaient en quête de quelque chose.
+Wang Lin traversa le vide et vit une quantité incalculable de cultivateurs. Ils évoluaient par petits groupes de trois à cinq individus. Rares étaient ceux qui voyageaient seuls, et tous, filant comme des arcs-en-ciel dans ce vide sans fin, semblaient en quête de quelque chose.
 
 Il aperçut également certains des anciens cultivateurs issus de la mer de sang de Tuo Sen, tous encerclés par une multitude d'adversaires. Chaque fois que Wang Lin tentait de s'approcher, il se faisait repousser, tout comme avec la Secte des Cadavres. Bien que leurs avertissements fussent polis, un seul pas de trop aurait déclenché un conflit sanglant.
 
@@ -68,13 +68,13 @@ Les fluctuations de sorts déferlaient autour d'eux. Les deux combattants recul�
 
 Dès son apparition, le dragon développa huit autres têtes, devenant un dragon de sang à neuf têtes. Il poussa un cri qui ébranla les cieux et fondit sur Maître Yan Leizi.
 
-« Encore ce tour! » Maître Yan Leizi recula promptement, ses mains formant un sceau alors qu'il pressait son front. Une perle incandescente apparut entre ses sourcils. D'un geste du doigt, il transforma la perle en une mer de flammes qui s'élança vers le dragon à neuf têtes.
+« Encore ce tour! » Maître Yan Leizi recula promptement, ses mains formant un sceau alors qu'il pressait son front. Une perle incandescente jaillit du sommet de son crâne. D'un geste du doigt, il transforma la perle en une mer de flammes qui s'élança vers le dragon à neuf têtes.
 
 Tandis que les grondements tonnerre résonnaient, le vieil homme en rouge avança. Il se déplaça avec la rapidité de l'éclair à travers le dragon de sang et la mer de flammes pour surgir devant Maître Yan Leizi. Il leva alors sa main droite et frappa impitoyablement!
 
-Maître Yan Leizi était déjà sur ses gardes. Il recula une nouvelle fois et cracha un objet: un petit fragment qui grandit instantanément. C'était un fragment du Royaume Céleste.
+Maître Yan Leizi était déjà sur ses gardes. Il recula une nouvelle fois et cracha un objet: un fragment qui grandit instantanément. C'était un fragment du Royaume Céleste.
 
-Un choc fracassant retentit lorsque la main du vieil homme percuta le fragment, le repoussant en retour. Ce dernier lança un regard froid à Maître Yan Leizi et ses mains formèrent un sceau. En agitant la main, une expression de douleur apparut sur son visage: d'innombrables bulles de sang gonflèrent sur sa peau. Cette vision était si terrifiante qu'elle en glaçait le sang.
+Un choc fracassant retentit lorsque la main du vieil homme percuta le fragment. Repoussé par le contrecoup, il recula, lança un regard froid à Maître Yan Leizi et forma un sceau des deux mains. En agitant la main, une expression de douleur apparut sur son visage: d'innombrables bulles de sang gonflèrent sur sa peau. Cette vision était si terrifiante qu'elle en glaçait le sang.
 
 Maître Yan Leizi combattait cet ancien cultivateur depuis un jour déjà, et ils étaient toujours dans une impasse. Voyant la peau de son adversaire se métamorphoser ainsi, Maître Yan Leizi fut déconcerté et se mit immédiatement sur ses gardes. Sa main droite plongea dans le vide; une fissure s'ouvrit et un éventail en sortit.
 
@@ -106,8 +106,8 @@ Le vieil homme resta silencieux, plongé dans ses pensées. Après un long momen
 
 « Maître Wuji, que cherchez-vous donc à accomplir...? »
 
-Au même instant, au cœur de la mer de sang, sur le grand pilier de pierre, Tuo Sen se redressa. Il contempla le ciel rouge sang et afficha un sourire féroce.
+Au même instant, au cœur de la mer de sang, sur le grand bloc de pierre conique, Tuo Sen se redressa. Il contempla le ciel rouge sang et afficha un sourire féroce.
 
-« Cette fois, je pourrai en tuer suffisamment! » Dans un rire dément, Tuo Sen fit un pas et tendit sa main droite pour déchirer le firmament. Une immense brèche apparut dans la mer de sang, révélant le vide où se trouvaient la plupart des cultivateurs!
+« Cette fois, je pourrai en tuer suffisamment! » Dans un rire dément, Tuo Sen fit un pas et tendit sa main droite pour déchirer le firmament. Une immense brèche apparut dans le ciel écarlate, révélant le vide où se trouvaient la plupart des cultivateurs!
 
 Des centaines de cultivateurs qui reposaient au fond de la mer de sang ouvrirent les yeux et s'élancèrent dans les airs!

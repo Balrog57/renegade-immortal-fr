@@ -51,9 +51,9 @@ Wang Lin ne répondit pas. Il leva sa main droite et pressa une nouvelle fois le
 
 L'expression de Wang Lin resta impassible. Des cris misérables, inaudibles pour tout ce qui n'était pas le Sens Divin, résonnèrent tandis que les cinq fragments d'âme périssaient.
 
-Un gaz noir incessant jaillit du dos du garçon. Ce dernier sentit son flux sanguin s'inverser et son corps trembla violemment jusqu'à ce qu'il recrache une grosse masse de sang noir, laquelle fondit instantanément comme un morceau de glace.
+Un gaz noir incessant jaillit du dos du garçon. Ce dernier sentit son flux sanguin s'inverser et son corps trembla violemment jusqu'à ce qu'il recrache une grosse masse de sang noir, laquelle fondit instantanément comme un morceau de glace, en un brouillard noir et froid qui se dissipa.
 
-Tout cela ne prit que quelques respirations. Wang Lin retira sa main droite, fixa froidement le jeune homme en bleu et fit un pas en avant. L'expression de ce dernier changea radicalement. Sans son ordre, le membre du Clan des Démons Géants recula promptement, la terreur brillant dans ses yeux. Bien qu'il se sache légèrement plus fort que ses compagnons, il n'était en rien l'égal d'un être capable de tuer si aisément un semblable; sa volonté de combattre s'était évaporée.
+Tout cela ne prit que quelques respirations. Wang Lin retira sa main droite, fixa froidement le jeune homme en bleu et fit un pas en avant. L'expression de ce dernier changea radicalement. Sans son ordre, le membre du Clan des Démons Géants recula promptement, la terreur brillant dans ses yeux. Bien qu'il se sache légèrement plus fort que ses compagnons, il n'était en rien l'égal d'un être capable de tuer si aisément un semblable : face à lui, il n'avait pas la moindre chance de survie, et sa volonté de combattre s'était évaporée.
 
 Alors qu'il battait en retraite, le jeune homme en bleu, l'air sombre, cria: « Je suis un disciple interne de la Secte des Cadavres! Tout ceci est un malentendu, j'espère que vous ne poursuivrez pas cette affaire! » En parlant, il forma un sceau de la main droite et un gaz vert jaillit de son corps. Ce dernier s'engouffra dans sa main, qui fut instantanément enveloppée d'une lueur verdâtre.
 
@@ -79,4 +79,4 @@ L'explosion de l'âme créa une force destructrice qui affecta instantanément t
 
 « Peu importe qui vous êtes, je trouverai votre nom! Vous périrez pour avoir provoqué la Secte des Cadavres! » Sa silhouette disparut progressivement dans l'obscurité.
 
-Wang Lin resta calme. Au moment où la force de l'explosion déferla sur lui, il frappa son sac de rangement et la troisième Charrette de Guerre Divine, qu'il n'avait pas utilisée depuis longtemps, s'en échappa! Dans un fracas retentissant, elle se métamorphosa en un magnifique papillon.
+Wang Lin resta calme. Au moment où la force de l'explosion déferla sur lui, il frappa son sac de rangement et la troisième Charrette de Guerre Divine, qu'il n'avait pas utilisée depuis longtemps, s'en échappa! Dans un fracas retentissant, elle se métamorphosa en un magnifique papillon multicolore.

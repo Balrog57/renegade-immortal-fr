@@ -6,7 +6,7 @@ bookTitle: The Mediocre Youth
 en: Chapter 58 - Finished
 slug: termine
 ---
-L'Ancien Ouyang lança un regard méprisant à Wang Lin. Il déclara: « Tu n'es qu'un simple junior. De quel droit prétends-tu commercer avec moi? Si tu sors le trésor laissé par le fondateur de la Secte Heng Yue, je pourrais peut-être accepter d'échanger une seule goutte de ce poison contre lui! »
+L'Ancien Ouyang lança un regard méprisant à Wang Lin. Il déclara: « Tu n'es qu'un simple junior. De quel droit prétends-tu commercer avec moi? Si tu sors un trésor de la trempe de l'Épée de Lune Pourpre de la Secte Heng Yue, je pourrais peut-être accepter d'échanger une seule goutte de ce poison contre lui! »
 
 Wang Lin fronça les sourcils et ricana intérieurement. Puis, il activa sa technique d'attraction de toutes ses forces et tendit la main.
 
@@ -22,15 +22,15 @@ L'une des mains colossales saisit le cou du mille-pattes, tandis que l'autre s'�
 
 La trajectoire de l'épée ralentit jusqu'à être stoppée net en plein vol. Le visage de l'Ancien Ouyang devint tout rouge, empreint d'une profonde horreur.
 
-Les deux autres anciens serrèrent les dents. Faisant fi de leur statut, l'un d'eux cracha une lumière multicolore qui se mua en un ruban chatoyant, fonçant vers Wang Lin. Simultanément, l'autre ancien lança un morceau de jade, déclenchant l'apparition de huit boules de feu spectrales qui s'élancèrent vers le jeune homme.
+Les deux autres anciens serrèrent les dents. Faisant fi de leur statut, l'un d'eux cracha une lumière multicolore qui se mua en un ruban chatoyant, fonçant vers Wang Lin. Simultanément, l'autre ancien lança un morceau de jade, déclenchant l'apparition de sept ou huit boules de feu spectrales qui l'encerclèrent avant de fondre sur le jeune homme.
 
-Une intense vague de chaleur atteignit Wang Lin, mais son expression resta de marbre. Il créa une autre main par sa technique d'attraction, laquelle généra un tourbillon de vent autour de lui, dissipant les flammes spectrales.
+Une intense vague de chaleur atteignit Wang Lin, mais son expression resta de marbre. Il créa une autre main par sa technique d'attraction, laquelle généra un tourbillon de vent autour de lui, faisant vaciller les flammes spectrales.
 
 Tout cela se produisit en un éclair. Huang Long poussa un rugissement de colère et traça un sceau de la main. Son épée volante, la Lune Pourpre, s'élança pour percuter le ruban multicolore.
 
-Profitant de cet instant, Wang Lin se précipita vers le mille-pattes de mille pieds. Sa technique d'attraction maintenant la créature, celle-ci ne pouvait s'échapper malgré ses efforts désespérés. Wang Lin posa sa main droite sur la tête du mille-pattes et déchaîna son énergie spirituelle. La créature poussa un hurlement de douleur et recracha une brume noire.
+Profitant de cet instant, Wang Lin se précipita vers le mille-pattes de mille pieds. Sa technique d'attraction maintenant la créature, celle-ci ne pouvait s'échapper malgré ses efforts désespérés. Wang Lin posa sa main droite sur la tête du mille-pattes et déchaîna son énergie spirituelle. La créature poussa un hurlement de douleur et recracha un liquide noir.
 
-L'action ne dura que quelques secondes, si brèves que personne n'eut le temps de réagir. Les anciens des deux sectes se firent face, de chaque côté du mille-pattes, prêts au combat. Lorsque Dao Xu vit le mille-pattes cracher son poison, craignant que Wang Lin n'ait rien pour le recueillir, il agita sa manche et lança une fiole blanche en criant: « Disciple Wang Lin, utilise ceci pour contenir le poison! »
+L'action ne dura que quelques secondes, si brèves que personne n'eut le temps de réagir. Les anciens des deux sectes se firent face, de chaque côté du mille-pattes, prêts au combat. Lorsque Dao Xu vit le mille-pattes cracher son poison, craignant que Wang Lin n'ait rien pour le recueillir, il agita sa manche et lança une fiole blanche en criant: « Neveu-disciple Wang Lin, utilise ceci pour contenir le poison! »
 
 Aussitôt, il saisit son épée volante et engagea le combat contre l'Ancien de la Secte Xuan Dao qui avait lancé les feux spectraux.
 
@@ -46,7 +46,7 @@ Le visage de Wang Lin trahissait un certain regret. Le poison de ce mille-pattes
 
 L'Ancien Ouyang affichait un visage sombre. Il s'apprêtait à parler lorsqu'il scruta attentivement la fiole. Fronçant les sourcils, il demanda: « J'ai entendu dire qu'il y a 500 ans, plusieurs cultivateurs de l'Âme Naissante de la Secte Heng Yue avaient créé un terrain de culture dont l'énergie spirituelle était bien supérieure à la normale. Ce liquide provient-il de là? »
 
-Lorsque le bouchon fut retiré, une puissante aura d'énergie spirituelle s'en échappa. Huang Long jeta un regard à la fiole de jade, puis se frotta la barbe en disant: « Quel gamin... Il ose proposer une simple bouteille d'eau de rivière. »
+Dès que la fiole fut sortie, une puissante aura d'énergie spirituelle s'en échappa. Huang Long jeta un regard à la fiole de jade, puis se frotta la barbe en disant: « Quel gamin... Il ose proposer une simple bouteille d'eau de rivière. »
 
 L'Ancien Ouyang grogna. Il pesa la fiole dans sa main avant de déclarer: « Ami Huang Long, votre Secte Heng Yue possède un disciple exceptionnel. Adieu! »
 

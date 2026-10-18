@@ -64,7 +64,7 @@ Le jeune homme laissa échapper un reniflement glacial. S'il s'était moqué de 
 
 Sans cette femme, comment aurait-il pu manger dans un tel endroit compte tenu de son rang? En voyant son expression, il eut un ricanement méprisant, se retourna et fixa Wang Ping du regard.
 
-L'homme en pourpre reprit d'un ton feint: « Si son apparence était celle d'une femme, elle serait certainement une fille envoûtante. Hélas, c'est celle d'un homme, quel dommage... Mais s'il était un prostitué, il ferait merveilleusement l'affaire. »
+L'homme en pourpre reprit d'un ton posé: « Si son apparence était celle d'une femme, elle serait certainement une fille envoûtante. Hélas, c'est celle d'un homme, quel dommage... Mais s'il était un prostitué, il ferait merveilleusement l'affaire. »
 
 Ces provocations répétées poussèrent Wang Ping à poser ses baguettes. Il tourna la tête vers le jeune homme et répliqua: « Quel beau visage. S'il était né sur un être humain, il serait d'une élégante prestance. C'est bien dommage qu'il soit né sur une bête... quel dommage... »
 

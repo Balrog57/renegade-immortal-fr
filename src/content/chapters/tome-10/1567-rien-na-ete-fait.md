@@ -8,9 +8,9 @@ slug: rien-na-ete-fait
 ---
 Dans la partie nord-ouest de cette planète se dressait une chaîne de montagnes imprégnée d'une abondante énergie spirituelle. Ce massif était ceint d'une jungle dense qui semblait s'étendre à l'infini; la canopée si épaisse qu'elle empêchait tout rayon de soleil de pénétrer, maintenant la zone en contrebas dans une humidité constante.
 
-Au plus profond de cette jungle se dressait un pic solitaire. Haut et imposant, il était enveloppé d'une brume épaisse qui lui donnait une silhouette floue et incertaine.
+Au plus profond de cette jungle se dressait un pic solitaire. Il n'était pas haut, mais il était lui aussi enveloppé d'une brume épaisse qui lui donnait une silhouette floue et incertaine.
 
-Soudain, un éclat provenant d'une formation jaillit de la montagne et perça le brouillard. Cette lumière persista quelques respirations avant de s'estomper progressivement.
+Soudain, un éclat multicolore provenant d'une formation jaillit de la montagne et perça le brouillard. Cette lumière persista quelques respirations avant de s'estomper progressivement.
 
 À l'intérieur de la montagne se trouvait une grotte, sombre et dégageant une atmosphère sinistre. Un réseau de transfert s'y trouvait, et c'était de lui que provenait la lumière. À mesure que l'éclat faiblissait, trois silhouettes en sortirent: le fou et ses compagnons.
 
@@ -24,7 +24,7 @@ Liu Jinbiao sortit de la formation et agita ses manches pour faire voler un siè
 
 Liu Jinbiao massait avec vigueur, maîtrisant parfaitement sa force. Le fou, transporté par ce confort, ferma les yeux pour savourer l'instant.
 
-Un moment plus tard, Liu Jinbiao s'arrêta et se tint aux côtés du fou. Il prit alors un air respectueux, s'agenouilla, bras tendus, et baissa silencieusement la tête.
+Un moment plus tard, Liu Jinbiao s'arrêta et se tint aux côtés du fou. Il prit alors un air respectueux, tendit les deux mains, se courba et baissa silencieusement la tête.
 
 Le fou attendit un instant avant d'ouvrir les yeux avec perplexité. Il regarda Liu Jinbiao et pencha la tête: « C'est fini? Si vite? »
 
@@ -66,7 +66,7 @@ Devant une telle attitude, le fou se sentit redevable. Il extirpa sept ou huit g
 
 Le corps de ce dernier trembla, son excitation ne pouvant plus être contenue. Il rangea précipitamment le précieux liquide et s'inclina profondément devant le fou.
 
-C'est à ce moment que Xu Liguo sortit de la grotte. Il sourit et dit: « Majesté, cette petite fille est prête. Et si nous y allions maintenant? »
+C'est à ce moment que Xu Liguo surgit d'un recoin de la grotte. Il s'approcha du fou et sourit et dit: « Majesté, cette petite fille est prête. Et si nous y allions maintenant? »
 
 En entendant cela, le fou oublia instantanément sa peine. Il se leva avec enthousiasme et hocha la tête.
 
@@ -92,13 +92,13 @@ Liu Jinbiao sourit en secouant la tête: « Ce n'est pas un stratagème. Parmi c
 
 « Quant à ce fou, son esprit est d'une simplicité enfantine. Les ruses complexes sont inutiles contre lui; ce serait comme jouer de la harpe pour un bœuf. Cette fois, j'ai utilisé la méthode la plus simple. Bien que la faille soit évidente, elle est redoutablement efficace. »
 
-Xu Liguo rit et acquiesça: « Nous devons nous dépêcher. Nous avons encore plusieurs endroits à visiter, il faut en finir rapidement. Nous devons faire un travail impeccable, sinon, quand ce démon reviendra... » Xu Liguo frissonna, la peur le gagnant réellement. Il calcula le temps écoulé et écrasa une amulette de jade.
+Xu Liguo rit et acquiesça: « Nous devons nous dépêcher. Nous avons encore plusieurs endroits à visiter, il faut en finir rapidement. Nous devons faire un travail impeccable, sinon, quand ce démon reviendra... » Xu Liguo frissonna, la peur le gagnant réellement. Il calcula le temps écoulé et écrasa une tablette de jade.
 
 À l'instant où le jade fut brisé, le réseau de transfert de la grotte s'illumina à nouveau. Plus de dix cultivateurs apparurent, tous aux traits féroces. Leur chef était une femme au regard glacial. Ils chargèrent dans les profondeurs de la grotte.
 
 En rencontrant Xu Liguo et Liu Jinbiao, les deux groupes échangèrent des sourires. Xu Liguo se précipita vers la porte et poussa un cri déchirant.
 
-« Majesté, c'est une catastrophe! Le partenaire de Fa Huazi est arrivé! » Tout en parlant, il cracha une bouffée d'essence vitale, l'air totalement accablé, avant de s'effondrer sur le côté.
+« Majesté, c'est une catastrophe! La partenaire de Dao de Fa Huazi est arrivée! » Tout en parlant, il cracha une bouffée d'essence vitale, l'air totalement accablé, avant de s'effondrer sur le côté.
 
 Liu Jinbiao se frappa la poitrine de la main droite et cracha du sang.
 
@@ -118,7 +118,7 @@ Le jeune homme en noir, assis face au fou, afficha un air de honte. Il se leva e
 
 « Majesté, ne vous souciez pas de moi, fuyez! »
 
-Liu Jinbiao était lui aussi couvert de sang, mais en entendant les paroles de Xu Liguo, il jura intérieurement et poussa aussitôt un cri de douleur: « Majesté, nous sommes impliqués par votre faute! Vous êtes un homme de droiture, vous devez nous sauver... »
+Liu Jinbiao était lui aussi couvert de sang, mais en entendant les paroles de Xu Liguo, il jura intérieurement et poussa aussitôt un cri de douleur: « Majesté, nous sommes impliqués par votre faute! Vous êtes un homme généreux, vous devez nous sauver... »
 
 Nul ne savait que, tandis qu'ils jouaient la comédie, une silhouette vêtue de blanc au regard glacial venait d'apparaître derrière eux.
 

@@ -26,7 +26,7 @@ Cependant, cet homme n'avait même pas bougé. Il flottait aux côtés du tambou
 
 « Yu Sen a déployé des efforts considérables pour le faire résonner quatre fois, et cet homme l'a fait cinq fois d'un geste nonchalant... Cependant, Mo Fei en a fait résonner huit, et cet homme ne pourra certainement pas faire plus! » Des cris de stupeur incessants s'élevèrent de la foule.
 
-Ils n'ignoraient pas la silhouette de Wang Lin. Il y a quelques jours, il avait été le premier à blesser gravement un général démon, gravant ainsi son image dans l'esprit de tous.
+Ils n'ignoraient pas la silhouette de Wang Lin. Il y a quelques jours, au premier tour, il avait été le premier à blesser gravement un général démon, gravant ainsi son image dans l'esprit de tous.
 
 Cependant, ces ministres, ces dames et divers fonctionnaires de la Cité du Démon Céleste ne pensaient pas que Wang Lin était aussi puissant. À leurs yeux, la raison principale pour laquelle Ao Di avait perdu et avait été gravement blessé était qu'Ao Di était trop faible!
 
@@ -52,7 +52,7 @@ Sa protection inférieure était constituée de lames en forme de feuilles qui l
 
 Cette femme portait un casque qui lui couvrait le visage. Seuls ses yeux magnifiques étaient visibles, et ils brillaient intensément alors qu'elle fixait Wang Lin.
 
-Parmi les généraux démons, les yeux de Shi Xiao s'illuminèrent tandis qu'il observait attentivement Wang Lin. Chen Tao murmura doucement: « Je vous avais pourtant dit que cet homme était extrêmement fort! »
+Parmi les généraux démons, les yeux de Shi Xiao trahirent la surprise tandis qu'il observait attentivement Wang Lin. Chen Tao murmura doucement: « Je vous avais pourtant dit que cet homme était extrêmement fort! »
 
 Shi Xiao laissa échapper un reniflement froid et ne répondit rien, mais son expression s'assombrit.
 
@@ -108,7 +108,7 @@ Wang Lin secoua la tête et répondit calmement: « Je veux une de tes mains! »
 
 C'était parce que Wang Lin avait utilisé la puissance du huitième coup du tambour démoniaque pour affecter les cieux. Des rugissements tonitruants résonnèrent dans l'éther, comme si la voûte céleste était sur le point de s'effondrer. Parmi ces grondements assourdissants, cette phrase ne semblait pas avoir été prononcée par Wang Lin, mais par les cieux eux-mêmes! Par la Terre! C'était un rugissement du monde! Comme si Dieu avait ouvert ses yeux pour contempler la terre!
 
-Ce son représentait l'univers!
+Ce son représentait le ciel et la terre!
 
 Les cieux et la terre fusionnèrent avec le son du tambour pour forger cette sentence. Bien que cette phrase ne fût pas aussi bruyante que le tonnerre, elle en était plus saisissante!
 
@@ -118,7 +118,7 @@ Cette force inimaginable fit soudainement pâlir l'homme en armure dorée. Il re
 
 Les personnes aux alentours étaient toutes sous le choc. Ils n'avaient plus le courage de parler comme auparavant; la place entière était plongée dans un silence anormal!
 
-Hormis quelques individus privilégiés parmi les spectateurs, tous savaient sans aucun doute que si Wang Lin leur avait adressé ces mots à l'instant, ils se seraient tranché leurs propres bras.
+Hormis quelques individus parmi les spectateurs, tous savaient sans aucun doute que si Wang Lin leur avait adressé ces mots à l'instant, ils se seraient tranché leurs propres bras.
 
 Ce son était la puissance des cieux! Ce son était la Loi, les paroles majestueuses et dominantes émanant du firmament!
 

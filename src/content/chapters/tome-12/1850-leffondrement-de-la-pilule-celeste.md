@@ -66,7 +66,7 @@ Mais Wang Lin avait attendu longtemps et prévoyait toujours plusieurs coups d'a
 
 La restriction était entre les mains de Wang Lin. Sous son contrôle, les assaillants ne pouvaient fusionner avec elle; ils ne pouvaient que foncer vers lui. Pourtant, alors qu'ils approchaient, la restriction changea brusquement de nature: d'une barrière permettant l'entrée, elle devint une barrière n'autorisant que la sortie!
 
-La formation se contracta également, surgissant devant les centaines de cultivateurs en pleine chute. Ces derniers percutèrent la restriction et furent stoppés net. L'impact fit toutefois trembler la formation, qui montra des signes de rupture.
+La formation s'abaissa également sur une large zone, se dressant devant les centaines de cultivateurs en pleine chute. Ces derniers percutèrent la restriction et furent stoppés net. L'impact fit toutefois trembler la formation, qui montra des signes de rupture.
 
 Pourtant, Wang Lin ne cherchait pas à les piéger; il avait simplement besoin de temps. Le retard causé par la formation lui suffisait!
 
@@ -90,7 +90,7 @@ Mais précisément à cet instant, les 1 000 pieds d'eau libérèrent un grondem
 
 Yun Kong tituba, le regard empreint de désespoir!
 
-« Je ne te le pardonnerai pas! » rugit-il, tandis que l'eau des 1 000 pieds explosait soudainement. Le ciel se distordit, la terre trembla et une force de destruction indescriptible se propagea.
+« Je ne te ferai pas grâce! » rugit-il, tandis que l'eau des 1 000 pieds explosait soudainement. Le ciel se distordit, la terre trembla et une force de destruction indescriptible se propagea.
 
 La Pilule Céleste avait explosé prématurément!
 

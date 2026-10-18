@@ -8,7 +8,7 @@ slug: faire-preuve-de-sincerite
 ---
 Maître Yan Leizi ne lança pas la boule blanche de flammes, mais l'écrasa impitoyablement. La sphère de feu s'effondra et se métamorphosa en d'innombrables phénix qui poussèrent des cris stridents avant de foncer droit sur Ji Xiantian.
 
-Ji Xiantian agita les bras et laissa échapper un rire aigu. Les glaciers infinis qui s'étaient formés derrière lui se mirent à gronder alors qu'ils avançaient.
+Ji Xiantian agita les bras et laissa échapper un rire aigu. Les lames de glace infinies qui s'étaient formées derrière lui se mirent à gronder alors qu'elles avançaient.
 
 Les deux combattants ne cessèrent pas leur assaut, déchaînant divers sorts. L'énergie originelle fluctuait comme si le ciel et la terre étaient sur le point de s'inverser, et ces oscillations se propagèrent rapidement.
 

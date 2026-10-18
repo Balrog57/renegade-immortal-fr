@@ -70,7 +70,7 @@ Wang Lin s'efforça de rester calme et de ne plus penser à cela. Il se répéta
 
 Mais au moment même où il fermait les yeux, il les rouvrit brusquement. Ses yeux brillaient d'une lumière dorée monstrueuse et d'un choc profond!
 
-« Ce n'est pas possible!!! »
+« Ça ne va pas!!! »
 
 « J'ai rencontré cette Song Zhi à l'extérieur de la Ville de la Pierre Noire. À l'époque, cette femme ne dégageait absolument pas le même sentiment qu'au palais. Elle était très ordinaire, tout à fait ordinaire. Bien que sereine, elle ne ressemblait en rien à ce que j'ai ressenti au palais! »
 
@@ -84,7 +84,7 @@ Le corps de Wang Lin tremblait.
 
 « L'Empereur Dao Antique a cherché une concubine pendant des centaines d'années avant de la choisir. Song Zhi n'est pas une beauté absolue, alors pourquoi l'a-t-il choisie...? »
 
-« Quel genre de femme l'Empereur Dao Antique a-t-il traqué pendant des siècles... Pourquoi Song Zhi m'a-t-elle semblé si différente au palais?! »
+« Quel genre de femme l'Empereur Dao Antique a-t-il cherchée pendant des siècles... Pourquoi Song Zhi m'a-t-elle semblé si différente au palais?! »
 
 « Pourquoi ai-je ressenti une telle agitation en allant vers le palais et une fois arrivé? Pourquoi cette intention de tuer est-elle apparue face à l'Empereur Dao Antique? Et pourquoi a-t-elle disparu quand j'ai vu Song Zhi?! »
 
@@ -104,7 +104,7 @@ Il était le disciple de Xuan Luo, et Xuan Luo était le gardien du Dao Antique.
 
 Les yeux de Wang Lin s'illuminèrent et il leva la main droite. Un jade noir apparut soudainement dans sa paume!
 
-Ce jade dégageait une lueur sombre et spectrale, comme si un simple regard pouvait vous y emprisonner. Ce jade lui avait été offert par l'Estimé Taureau Vert au sein de la Secte de la Grande Âme. Il provenait du génie du clan Dao Wang qui avait tout orchestré pour obtenir la liberté des siens. Ce génie qui avait extrait son propre cerveau et son cœur pour s'agenouiller devant une statue de Wang Lin, l'air d'implorer le pardon, comme s'il pesait lui-même ce qui comptait le plus, sa conscience ou ses calculs, ou comme s'il interrogeait Wang Lin!
+Ce jade dégageait une lueur sombre et spectrale, comme si un simple regard pouvait vous y emprisonner. Ce jade lui avait été offert par l'Estimé Taureau Vert au sein de la Secte de la Grande Âme. Il provenait du génie du clan Dao Wang qui avait tout calculé pour son clan. Ce génie qui avait extrait son propre cerveau et son cœur pour s'agenouiller devant une statue de Wang Lin, l'air d'implorer le pardon, comme s'il pesait lui-même ce qui comptait le plus, sa conscience ou ses calculs, ou comme s'il interrogeait Wang Lin!
 
 « Ce jade peut vous aider à diviner l'avenir une fois... » Les paroles gravées dans le jade résonnèrent dans l'esprit de Wang Lin.
 
@@ -112,11 +112,11 @@ Sans hésiter, il broya le jade en murmurant quelques incantations. Il ouvrit la
 
 Au moment de cette inclination, l'esprit de Wang Lin fut secoué et il vit le monde de la grotte. Il vit une main cristalline arracher le fragment d'âme de Li Muwan au Dao Céleste!
 
-Dans une pièce, il aperçut une ombre vague baignée d'une lumière aux sept couleurs, tenant une perle dans sa main. Cette perle contenait le fragment d'âme de Li Muwan!
+Dans une chambre secrète, il aperçut une ombre vague baignée d'une lumière aux sept couleurs, pinçant une perle entre deux doigts. Cette perle contenait le fragment d'âme de Li Muwan, les yeux clos et tremblant!
 
 Il entendit l'ombre murmurer quelque chose qui stupéfia un homme vêtu d'une robe royale.
 
-Il vit la surprise sur le visage de cet homme, puis vit ce dernier s'emparer de l'âme. L'homme avait passé des centaines d'années à choisir une concubine pour fusionner avec cette âme, en vain. Finalement, Wang Lin vit une femme familière: c'était Song Zhi, et elle avait fusionné avec l'âme.
+Il vit la surprise et la joie sur le visage de cet homme, puis vit ce dernier s'emparer de l'âme. L'homme avait passé des centaines d'années à choisir une concubine pour fusionner avec cette âme, en vain. Finalement, Wang Lin vit une femme familière: c'était Song Zhi, et elle avait fusionné avec l'âme.
 
 Il vit l'homme en robe royale lui pincer la joue jusqu'à ce que la douleur fasse couler des larmes aux yeux de la femme inconsciente dans le palais.
 

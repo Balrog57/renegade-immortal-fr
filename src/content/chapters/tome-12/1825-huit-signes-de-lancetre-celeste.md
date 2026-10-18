@@ -24,7 +24,7 @@ L'ancêtre de la Secte de la Grande Âme, le Très Respecté Taureau Vert, poss�
 
 « Tout cela parce qu'il voulait former un véritable corps d'essence, une chose si difficile à créer que cela relève presque de la légende! » Le visage de la jeune femme pâlit et une froideur glaciale émana de ses yeux. Elle connaissait parfaitement les véritables corps d'essence pour en avoir rêvé elle-même. Elle comprit qu'une fois le véritable corps d'essence formé, la veine de feu terrestre s'effondrerait et disparaîtrait.
 
-« Je ne peux pas le laisser réussir! » La jeune femme serra les dents. Que ce soit par crainte de la destruction de la veine de feu terrestre ou par l'extrême jalousie qui lui rongeait le cœur, elle refusait de laisser ce véritable corps d'essence prendre forme. Elle cracha un jet de sang et fusionna son être avec lui. En un éclair, elle se déplaça dix fois plus vite qu'auparavant, fonçant vers le véritable corps d'essence de Wang Lin telle une ombre.
+« Je ne peux pas le laisser réussir! » La jeune femme serra les dents. Que ce soit par crainte de la destruction de la veine de feu terrestre ou par l'extrême jalousie qui lui rongeait le cœur, elle refusait de laisser ce véritable corps d'essence prendre forme. Elle cracha un jet de sang et fusionna son être avec lui. En un éclair, elle se déplaça plus de dix fois plus vite qu'auparavant, fonçant vers le véritable corps d'essence de Wang Lin telle une ombre.
 
 Après que le véritable corps d'essence de Wang Lin eut poussé ce rugissement de volonté, la volonté de l'âme du dragon s'effondra. La volonté de Wang Lin prit le contrôle et la dernière résistance de l'âme du dragon fut balayée!
 
@@ -60,7 +60,7 @@ Dès l'apparition de cette figure, l'espace lui-même trembla. Une énergie cél
 
 « Mais on racontait que le Taureau Céleste était d'élément feu, alors pourquoi est-il de glace? » Le cœur de Wang Lin tressaillit devant cette vision.
 
-Une fois la figure impériale apparue, le Taureau Céleste rugit à nouveau. Des craquements se firent entendre tandis que la glace se propageait rapidement sur lui.
+Une fois la figure impériale apparue, le Taureau Céleste rugit à nouveau. Des craquements se firent entendre tandis que la glace se propageait rapidement sur lui et sur tout le ciel étoilé.
 
 Aux yeux de Wang Lin, cette force terrifiante était telle que, sans parler de lui, même un Souverain Céleste aux Sept Couleurs, au sommet de sa puissance, ne pourrait y résister. Peut-être seul Xuan Luo pourrait tenter de l'affronter de plein fouet!
 

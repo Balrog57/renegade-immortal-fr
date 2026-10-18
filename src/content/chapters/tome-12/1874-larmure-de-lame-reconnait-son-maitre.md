@@ -85,7 +85,7 @@ Lu Wenran éclata d'un rire hystérique. Il s'attendait à la mort de Wang Lin. 
 
 « Tu n'es pas digne d'être mon ennemi! »
 
-Derrière lui, Yan Luan et Xu Dongde étaient arrivés trop tard pour secourir Wang Lin. Lu Wenran avait risqué des blessures graves en crachant son sang pour créer ces deux avatars afin de les freiner. Bien qu'ils ne dureraient que quelques respirations, il croyait que cela suffirait s'il utilisait toute sa puissance!
+Derrière lui, Yan Luan et Xu Dongde étaient arrivés trop tard pour secourir Wang Lin. Lu Wenran avait risqué des blessures graves en crachant deux gorgées de sang de son âme originelle pour créer ces deux avatars afin de les freiner. Bien qu'ils ne dureraient que quelques respirations, il croyait que cela suffirait s'il utilisait toute sa puissance!
 
 « Meurs! Une fois que tu seras mort, l'armure de l'âme sera mienne! » rugit Lu Wenran en ricanant, observant Wang Lin presser sa main contre l'engrenage et être repoussé. Le sang giclait de partout sous les rires démentiels de Lu Wenran.
 

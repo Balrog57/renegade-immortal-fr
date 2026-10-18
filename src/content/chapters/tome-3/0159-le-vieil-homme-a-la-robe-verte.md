@@ -16,7 +16,7 @@ Il ne chercha pas à l'arrêter, mais son regard était sombre. Il essuya le san
 
 « Ce petit gars est bien audacieux! » Après un long moment, il ouvrit les yeux et frappa la calebasse. Celle-ci rétrécit jusqu'à tenir dans la paume de sa main. Il la déboucha, la porta à ses lèvres et but une grande gorgée; un parfum de vin se répandit soudain alentour.
 
-Dans le pays de Huo Fen, bien que le fléau des bêtes de feu ait été éliminé par le pays de culture de rang 4, l'énergie spirituelle y était saturée d'un élément de feu, rendant toute culture impossible. S'ajoutant au fait que le sol était brûlant, le pays était largement recouvert de lave et de volcans en éruption constante, transformant les royaumes mortels en étendues de terres désolées.
+Dans le pays de Huo Fen, bien que le fléau des bêtes de feu ait été éliminé par le pays de culture de rang 4, l'énergie spirituelle y était saturée d'un élément de feu violent, rendant toute culture impossible. S'ajoutant au fait que le sol était brûlant, le pays était largement recouvert de lave et de volcans en éruption constante, transformant les royaumes mortels en ruines.
 
 L'ancienne cité impériale n'était plus qu'un amas de lave et tous les bâtiments avaient disparu. Plus aucune créature vivante ne subsistait à Huo Fen; le pays tout entier ressemblait à une tombe silencieuse.
 
@@ -46,7 +46,7 @@ Wang Lin dit d'une voix lente: « Merci pour ces quatre dernières années. J'ai
 
 Li Muwan afficha un regard complexe et demanda: « Aurons-nous la chance de nous revoir un jour? »
 
-Wang Lin réfléchit un instant avant de laisser échapper un soupir. Il ne répondit pas à la question, mais sortit un objet de son sac de rangement pour le tendre à Li Muwan. C'était le précieux fourneau spirituel des cent bêtes, d'une valeur considérable, qu'il avait récupéré après avoir tué Kun Sang.
+Wang Lin réfléchit un instant avant de laisser échapper un soupir. Il ne répondit pas à la question, mais sortit un objet de son sac de rangement pour le tendre à Li Muwan. C'était le précieux Four à Pilules des Cent Bêtes, d'une valeur considérable, qu'il avait récupéré après avoir tué Kun Sang.
 
 Li Muwan prit le fourneau. Après l'avoir observé un moment, elle leva la tête et dit: « Ce sont les pilules que j'ai fabriquées ces dernières années. Le jade contient une explication pour chacune d'elles. » Elle sortit alors plus de dix petites fioles qu'elle remit à Wang Lin, accompagnées d'un morceau de jade.
 
@@ -58,9 +58,9 @@ Wang Lin rattrapa le jade et l'examina. Le message que Li Muwan y avait laissé 
 
 « Frère aîné, Wan Er ne connaît pas votre nom car vous ne me l'avez jamais dit durant ces quatre années. Je crois que vous ignorez le mien également... Wan Er vous remercie pour les nombreuses fois où vous m'avez sauvé la vie. Le temps passé dans la Mer des Démons est une chose que je n'oublierai jamais... Puisque notre séparation est inévitable, et sachant que le frère aîné se retire souvent en culture fermée, Wan Er vous offre ce jade. Il est l'apogée de mes compétences en formations. Il contient la Grande Formation du Dragon de Bataille de la Secte de la Lutte contre le Mal, avec de légères modifications raffinées. »
 
-« Cette formation fusionne attaque et défense, mais par rapport à l'attaque, la défense en est le véritable dessein. Si elle peut protéger le frère aîné un moment face au danger, alors Wan Er sera satisfaite... »
+« Cette formation fusionne attaque et défense, mais par rapport à l'attaque, la défense en est le véritable dessein. Si elle peut protéger le frère aîné une ou deux fois face au danger, alors Wan Er sera satisfaite... »
 
-Tenant le jade, écoutant les paroles de Li Muwan et regardant sa silhouette s'effacer au loin, Wang Lin resta silencieux. Il rangea le jade, puis son corps toucha soudainement le sol. Après un seul pas, il disparut. S'étant éloigné, il se toucha le front et son corps s'évanouit dans un éclat de lumière.
+Tenant le jade, écoutant les paroles de Li Muwan et regardant sa silhouette s'effacer au loin, Wang Lin resta silencieux. Il rangea le jade, puis son corps toucha soudainement le sol. Après un seul pas, il disparut. S'étant éloigné, il se toucha le front et son corps s'évanouit dans un éclat de lumière sous terre.
 
 Il était entré dans la perle défiant le ciel; à cet instant, sa présence s'était volatilisée. Wang Lin avait déjà décidé d'entrer dans la perle après avoir ramené Li Muwan. L'ordre de mise à mort avait une durée de cent jours. Pour lui, ce n'étaient que quelques jours de culture supplémentaires à l'intérieur de la perle.
 
@@ -82,7 +82,7 @@ Yang Sen regarda le vieil homme avec méfiance, car il ne parvenait pas à perce
 
 Le vieil homme roula des yeux et répliqua: « Quel Daoïste? Dégagez, ou je m'emparerai de votre Âme Naissante pour raffiner des trésors. »
 
-L'expression de Yang Sen changea. Il eut un rictus et s'apprêtait à répliquer lorsque l'homme au visage rouge l'arrêta. Ses yeux en forme de cloches se fixèrent sur les sept fleurs de prunier dorées ornant les vêtements du vieil homme, et il demanda: « Votre excellence vient-elle de la Mer des Démons? »
+L'expression de Yang Sen changea. Il eut un rictus et s'apprêtait à répliquer lorsque l'homme au visage rouge l'arrêta. Ses yeux en forme de cloches se fixèrent sur les sept fleurs de prunier dorées ornant les vêtements du vieil homme, à trois pouces au-dessus du bas de sa robe, et il demanda: « Votre excellence vient-elle de la Mer des Démons? »
 
 Yang Sen et Feng Luan échangèrent un regard avant de fixer la fleur de prunier dorée sur la tunique du vieil homme.
 

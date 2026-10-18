@@ -22,7 +22,7 @@ L'apparition du fou était une chance immense, comparable à l'héritage qu'il a
 
 Et cette immense fortune n'était pas encore terminée!
 
-L'esprit de Wang Lin était clair, mais il restait incapable de bouger. Il ressentait silencieusement les changements en son sein. Cette sensation totalement inédite lui fit conjecturer plusieurs choses.
+L'esprit de Wang Lin était clair, mais il restait incapable de bouger. Il ressentait silencieusement les changements en son sein. Cette sensation totalement inédite lui fit deviner quelque chose.
 
 Le nouveau sang issu de sa moelle osseuse dégageait une aura extrêmement puissante. C'était de l'énergie spirituelle céleste! À mesure que le sang coulait dans ses veines, son âme originelle changeait rapidement!
 
@@ -70,7 +70,7 @@ Les gens ordinaires ne pouvaient comprendre la colère d'un fou. Plus il échoua
 
 Tout en tenant son propre bras, il ne daigna même pas le regarder. Il fixa Wang Lin et prononça des paroles que lui-même ne pouvait comprendre.
 
-D'un geste de la main droite, il fit retomber le bras arraché dans un fracas de tonnerre. Sa main s'agitait de plus en plus vite et le grondement devenait plus intense. Finalement, le fou bondit et se mit à injurier Wang Lin.
+D'un geste de la main droite, il fit retomber le bras arraché dans un fracas de tonnerre. Sa main s'agitait de plus en plus vite et le grondement devenait plus intense. Finalement, le fou bondit et se mit à injurier le cadavre de Wang Lin.
 
 Ces invectives durèrent plusieurs jours!
 
@@ -82,7 +82,7 @@ En observant le glyphe sur son bras gauche, le fou fut momentanément stupéfait
 
 « C'est ça, haha, c'est ça! » Le fou se lécha les lèvres et se frotta les mains. Il courut avec excitation vers Wang Lin. À ses yeux, ce cadavre était son jouet; il devait trouver de quoi s'amuser pour tromper l'ennui.
 
-Pourtant, une personne qui sombre dans la folie par pur divertissement est absolument terrifiante.
+Pourtant, une personne qui s'emballe follement pour son jouet est absolument terrifiante.
 
 « Comment ce roi aurait-il pu oublier les Trois Sceaux des Ancêtres Célestes? Haha, les Trois Sceaux des Ancêtres Célestes. Oui, c'est bien ça! » Le fou sentait son sang bouillir. Il regardait Wang Lin en ricanant, avant qu'une lueur de confusion ne traverse son regard.
 
@@ -98,7 +98,7 @@ Le glyphe circulaire qui était apparu sur la plaie de son bras gauche se manife
 
 « Au commencement du ciel et de la terre, l'Ancêtre Céleste descend ici-bas; trois sceaux changent les mondes et font l'âge d'or de notre clan céleste pour dix mille générations! Le premier sceau change le ciel! Le deuxième sceau change le Dao! Le troisième sceau change... Qu'est-ce qu'il change? Petite Rouge, que change le troisième sceau? » Le fou se figea et secoua la tête.
 
-« Oublié... Maudit soit-il, la mémoire de ce roi est trop bonne, je m'en souviendrai absolument! » murmura-t-il en frappant l'espace entre ses sourcils de sa main droite. Une aura jaillit, suivie d'une force indescriptiblement puissante qui emplit le monde à l'intérieur de la Bête des Limbes!
+« Oublié... Bon sang, la mémoire de ce roi est trop bonne, je m'en souviendrai absolument! » murmura-t-il en frappant l'espace entre ses sourcils de sa main droite. Une aura jaillit, suivie d'une force indescriptiblement puissante qui emplit le monde à l'intérieur de la Bête des Limbes!
 
 Dans un rugissement, la main droite du fou s'avança comme pour arracher le sceau entre ses propres sourcils. Il le pressa ensuite contre les étoiles divines antiques de Wang Lin!
 

@@ -52,11 +52,11 @@ Le visage de Qian Feng devint subitement livide. La destruction de la Formation 
 
 Après avoir projeté Qian Feng, la silhouette saisit l'épée de fer.
 
-Après un examen attentif, il se mit à rire follement: « C'est donc cela! Le sang sur cette épée appartient à un membre de mon clan de rang neuf étoiles. Parfait! Avec ceci et le Cristal de Planète de Culture, je suis certain à cent pour cent de pouvoir m'échapper! »
+Après un examen attentif, il se mit à rire follement: « C'est donc cela! Le sang sur cette épée appartient à un membre de mon clan de rang neuf étoiles. Parfait! Avec ceci et le Cristal de la Planète de Culture, je suis certain à cent pour cent de pouvoir m'échapper! »
 
-Wang Lin prit une profonde inspiration et tendit la main droite. Le Drapeau des Âmes d'un Milliard apparut dans sa paume et, d'un seul mouvement, tous les fragments d'âme environnants furent aspirés vers lui. La hache et les fourreaux volèrent également vers lui sous son commandement.
+Wang Lin prit une profonde inspiration et tendit la main droite. Le Drapeau des Âmes d'un Milliard apparut dans sa paume et, d'un seul mouvement, tous les fragments d'âme dans un rayon de cinq kilomètres furent aspirés vers lui. La hache et les fourreaux volèrent également vers lui sous son commandement.
 
-La silhouette regarda Wang Lin avec un sourire de prédateur et dit: « Petit morveux, attends que j'obtienne le Cristal de Planète de Culture, et je reviendrai régler tes comptes! »
+La silhouette regarda Wang Lin avec un sourire sinistre et dit: « Petit morveux, attends que j'obtienne le Cristal de la Planète de Culture, et je reviendrai régler tes comptes! »
 
 Sur ces mots, il passa sa main sur l'épée. La rouille commença à s'agiter comme si elle était vivante pour finir par former une goutte de sang rouge sombre.
 
@@ -80,13 +80,13 @@ Les yeux de Wang Lin s'illuminèrent et il murmura: « Fragment d'âme! »
 
 Le symbole violet gravé dans son esprit se mit immédiatement à briller, apparaissant entre lui et Qian Feng.
 
-*Pour extraire votre fragment d'âme du Cristal de Planète de Culture, vous devez sacrifier une vie en échange.*
+*Pour extraire votre fragment d'âme du Cristal de la Planète de Culture, vous devez sacrifier une vie en échange.*
 
 À cet instant précis, alors que Qian Feng était sur le point d'exploser, il poussa un cri déchirant et ses yeux s'éteignirent. Le symbole violet émit une lueur démoniaque et deux fragments d'âme apparurent à sa surface.
 
 L'un de ces fragments appartenait à Wang Lin, l'autre à Qian Feng.
 
-Le fragment de Qian Feng se brisa lentement, tandis que celui de Wang Lin se dissipa en poussière de lumière pour pénétrer son front.
+Le fragment de Qian Feng se brisa lentement, tandis que celui de Wang Lin se dissipa en une poussière de lumière, semblable à une voie lactée, pour pénétrer son front.
 
 Le corps de Wang Lin se mit à trembler. Il sentait une présence nouvelle en lui, le sentiment profond d'être enfin complet.
 
@@ -104,7 +104,7 @@ La haine dans les yeux de Zi Xin s'évanouit. Elle regarda le corps de Qian Feng
 
 « Qian Feng! » Les yeux de Zi Xin devinrent froids; elle s'assit rapidement et ses mains formèrent un sceau mystérieux. Simultanément, des éclairs de lumière jaillirent de son front et plusieurs cultivateurs-marionnettes apparurent pour assurer sa protection.
 
-« Un fourneau de culture... en fin de compte, qui est le fourneau de qui... Wang Lin, tu n'as toujours pas compris... En tuant Qian Feng, tu as exaucé le vœu de Zi Xin! Hélas, même moi, j'ignore quel genre de sort Yun Quezi a utilisé. Un tel sort est inouï... c'est tout simplement trop étrange. Même avec un fragment de l'héritage du Dragon Vert qui s'est éveillé en moi, je n'ai aucun souvenir d'une telle technique... » Zhou Wutai afficha une expression complexe en observant Zi Xin.
+« Un fourneau de culture... en fin de compte, qui est le fourneau de qui... Wang Lin, tu n'as toujours pas compris... En tuant Qian Feng, tu as permis à Zi Xin de s'accomplir! Hélas, même moi, j'ignore quel genre de sort Yun Quezi a utilisé. Un tel sort est inouï... c'est tout simplement trop étrange. Même avec un fragment de l'héritage du Dragon Vert qui s'est éveillé en moi, je n'ai aucun souvenir d'une telle technique... » Zhou Wutai afficha une expression complexe en observant Zi Xin.
 
 Zi Xin dégageait alors une lumière arc-en-ciel et une aura puissante emplissait son corps. Cette aura était très similaire à celle de Qian Feng.
 
@@ -126,7 +126,7 @@ En un clin d'œil, il rattrapa Wang Lin. Sa voix lugubre lui emboîta les mots:
 
 « Tu ne peux pas t'échapper, Wang Lin. J'ai attendu si longtemps pour dévorer ton héritage de mémoire... »
 
-Le visage de Wang Lin s'assombrit. Il agita la main et la hache apparut dans sa poigne. Il se retourna brusquement, concentra toute l'énergie spirituelle céleste de son corps sur l'arme et frappa violemment vers le bas.
+Le visage de Wang Lin s'assombrit. Il agita la main et la hache apparut dans sa poigne. Il se retourna brusquement, concentra toute l'énergie spirituelle céleste de son corps sur l'arme et frappa violemment.
 
 Un rayon d'énergie de hache, large d'une centaine de mètres ou plus et saturé d'énergie spirituelle céleste, jaillit. Cette attaque semblait capable de fendre les cieux eux-mêmes.
 

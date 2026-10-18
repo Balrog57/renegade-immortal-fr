@@ -6,9 +6,9 @@ bookTitle: The Bloody Image of Cultivation
 en: Chapter 70 - Returning Home
 slug: retour-au-foyer
 ---
-Trois jours plus tard, Wang Lin sortit de la grotte, couvert de sueur. Zhou Peng le suivit, les yeux embrumés.
+Trois jours plus tard, Wang Lin sortit du creux d'arbre, couvert de sueur. Zhou Peng le suivit, les yeux embrumés.
 
-« Zhou Peng, retourne à la Secte Xuan Dao. Suis mes instructions et élimine tous ceux qui chercheront à me nuire. Ensuite, protège mes parents. » La voix de Wang Lin était glaciale, empreinte d'une soif de sang.
+« Zhou Peng, retourne à la Secte Xuan Dao. Suis mes instructions et élimine en secret tous ceux qui chercheront à me nuire. Ensuite, protège mes parents. » La voix de Wang Lin était glaciale, empreinte d'une soif de sang.
 
 Zhou Peng hocha respectueusement la tête et se mit en route vers la Secte Xuan Dao.
 
@@ -16,7 +16,7 @@ Wang Lin regarda Zhou Peng. Après un long silence, il demanda: « Senior Situ, 
 
 Situ fut stupéfait. Il répondit précipitamment: « Qui a dit ça?! La première étape était indispensable. Sans elle, tu ne pouvais même pas entreprendre la seconde. »
 
-Après avoir lui-même fabriqué une marionnette, Wang Lin avait senti que quelque chose clochait. Il voulut en dire plus, mais demanda plutôt: « Pu Nanzi verra-t-il clair dans le jeu de Zhou Peng? »
+Après avoir lui-même fabriqué une marionnette, Wang Lin avait senti que quelque chose clochait. Il voulut en dire plus, mais demanda plutôt: « Pu Nanzi remarquera-t-il l'anomalie de Zhou Peng? »
 
 Situ hésita un instant avant de répondre: « Pour être honnête, lorsque tu fabriquais la marionnette, j'y ai injecté une partie de mon essence. Ainsi, si un cultivateur de l'Âme Naissante n'examine pas la chose avec une extrême attention, il ne devrait rien remarquer d'anormal. De plus, ce Pu Nanzi est probablement en méditation de retraite la plupart du temps; les chances qu'il découvre la vérité sont donc minimes. »
 
@@ -28,7 +28,7 @@ Avant même d'avoir franchi le seuil, une voix familière lui parvint de l'inté
 
 « Maître, le grand frère Tie Zhu est un immortel. Comment pourrais-je jamais me comparer à lui? Si je parviens ne serait-ce qu'à sa moitié, j'en serai satisfait. »
 
-En entendant cela, Wang Lin fut frappé de stupeur. Il projeta immédiatement son Sens Divin, puis un sourire étira ses lèvres. Il se souvenait de cet homme; c'était un camarade de jeu qui importunait souvent le père de Wang Lin pour qu'il lui apprenne la charpenterie.
+En entendant cela, Wang Lin fut frappé de stupeur. Il projeta immédiatement son Sens Divin, puis un sourire étira ses lèvres. Il se souvenait de cet homme; c'était un camarade de jeu qui harcelait souvent Wang Lin pour que celui-ci obtienne de son père des leçons de charpenterie.
 
 Il poussa doucement la porte et dit à la silhouette âgée dans la cour: « Père, Tie Zhu est de retour. »
 
@@ -66,7 +66,7 @@ Petit Six était le plus doué des apprentis; il maîtrisait déjà cinquante ou
 
 En entendant cela, Wang Lin sourit et dit: « Père, j'ai vu les sculptures que Petit Six a réalisées. Elles sont plutôt réussies, loin d'être aussi médiocres que tu le disais. »
 
-Le père de Wang Lin renifla: « Elles sont encore bien trop pauvres! Aucun d'eux ne t'arrive à la cheville. Quand je t'apprenais à sculpter, tu n'avais que huit ans et tu faisais déjà mieux que lui! »
+Le père de Wang Lin renifla: « Elles sont encore bien trop pauvres! Aucun d'eux ne t'arrive à la cheville. Quand je t'apprenais à sculpter, tu n'avais que huit ans et tu faisais déjà mieux qu'eux! »
 
 La mère de Tie Zhu regarda son fils avec tendresse et dit: « Oui, notre Tie Zhu a toujours été plus doué qu'eux. Je dois dire, Tie Zhu, que tu n'es plus un enfant. Ces cinq dernières années, de nombreuses familles ont envoyé des entremetteuses pour proposer un mariage. J'ai entendu dire que les immortels pouvaient aussi fonder une famille. Puisque tu es revenu, reste un peu et va les rencontrer avec moi. S'il y en a qui te plaisent, nous pourrons décider de la suite. »
 

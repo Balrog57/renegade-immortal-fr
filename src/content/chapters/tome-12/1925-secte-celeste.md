@@ -12,7 +12,7 @@ Tandis que le dragon de mer sous lui rugissait, ils quittèrent la Secte de la T
 
 « Situ, Qing Shui, Xu Liguo, Liu Jinbiao... Tant d'amis du passé. Je me demande s'ils sont quelque part... sous le même ciel. » Assis sur la tête du dragon de mer, Wang Lin leva les yeux vers l'azur avec un regard mélancolique.
 
-« Je me demande si Situ a pu commencer sa vie de roi. Je me demande où est parti le Senior Frère Qing Shui. Xu Liguo est rusé et insaisissable. Liu Jinbiao maîtrisait le dao de la tromperie, je me demande s'il l'étudie encore... »
+« Je me demande si Situ a pu commencer sa vie de prince. Je me demande où est parti le Senior Frère Qing Shui. Xu Liguo est rusé et insaisissable. Liu Jinbiao maîtrisait le dao de la tromperie, je me demande s'il l'étudie encore... »
 
 « Et aussi... Li Qianmei. » Après avoir rencontré le premier vieil ami réincarné, Wang Lin sentit des ondes de nostalgie résonner dans son cœur. Leurs visages si vivants défilèrent dans son esprit.
 
@@ -20,7 +20,7 @@ Sous les ordres de Wang Lin, le dragon de mer fonça vers la seconde puissance d
 
 Grâce au niveau de culture d'Exalté Empyréen de Wang Lin et à la puissance du dragon de mer d'Exalté Doré, le voyage se déroula sans encombre. La Secte Terre-Meng remit respectueusement la carte de jade, craignant de déplaire à Wang Lin.
 
-Wang Lin déploya également son Sens Divin sur tout le continent Terre-Meng. Bien que les chances fussent faibles, il souhaitait tenter de retrouver d'anciens amis.
+Wang Lin déploya également son Sens Divin dans la Secte Terre-Meng. Bien que les chances fussent faibles, il souhaitait tenter de retrouver d'anciens amis.
 
 Mais il ne trouva rien.
 
@@ -46,7 +46,7 @@ Une fois au sommet du pic enneigé, il laissa le vent faire flotter ses cheveux 
 
 « Je suis Wang Lin. Je demande à rencontrer l'Ancien Ancestral de la Secte Céleste sur le Pic Céleste! » Le Sens Divin de Wang Lin se propagea comme des millions d'éclairs explosifs. Le grondement qui en résulta, tel un tonnerre véritable, couvrit plus de la moitié du Continent Céleste en un instant.
 
-Sur tout le continent, les cultivateurs des branches de la Secte Céleste et des nombreuses sectes subordonnées tremblèrent lorsqu'ils ressentirent ce puissant Sens Divin balayer leur domaine. Même les nuages semblèrent s'effondrer. Sous la pression du Sens Divin, la brume se retira, rendant tout parfaitement clair dans un rayon de millions de kilomètres autour de Wang Lin!
+Sur tout le continent, les cultivateurs des branches de la Secte Céleste et des nombreuses sectes subordonnées tremblèrent lorsqu'ils ressentirent ce puissant Sens Divin balayer leur domaine. Même les nuages semblèrent s'effondrer. Sous la pression du Sens Divin, la brume se retira, rendant tout parfaitement clair dans un rayon de dizaines de millions de kilomètres autour de Wang Lin!
 
 Au cœur du Continent Céleste, alors que le Sens Divin de Wang Lin résonnait à travers les montagnes infinies, une aura fracassante éclata, modifiant la couleur même du monde. Les nuages se déchirèrent et un vieil homme aux cheveux blancs s'avança dans les airs.
 
@@ -56,7 +56,7 @@ Lorsqu'il réapparut, il se trouvait au sommet du Pic Céleste. Des ondulations 
 
 Un vide de dix mille pieds les séparait. Tandis que le vieil homme l'observait, Wang Lin leva les yeux et son regard brilla. Leurs yeux se rencontrèrent pour la première fois.
 
-Tout semblait silencieux, pourtant des grondements tonitruants résonnaient dans l'esprit de Wang Lin. Le regard du vieil homme était comme des centaines de milliers d'aiguilles s'enfonçant dans ses yeux, pareilles à des pointes prêtes à lui transpercer le corps.
+Tout semblait silencieux, pourtant des grondements tonitruants résonnaient dans l'esprit de Wang Lin. Le regard du vieil homme était comme des millions d'aiguilles s'enfonçant dans ses yeux, pareilles à des pointes prêtes à lui transpercer le corps.
 
 Le corps de Wang Lin trembla et la lumière dorée de son regard se fit plus intense. Le vieil homme aux cheveux blancs frémit à son tour. Il eut l'impression que les yeux de Wang Lin contenaient une épée dorée; une lame dégageant une énergie céleste extrêmement puissante, tranchante, et exerçant une pression écrasante. Lorsqu'elle pénétra dans son esprit, il eut la sensation que cette épée dorée lui transperçait le corps.
 
@@ -89,15 +89,15 @@ Séparés par des dizaines de milliers de pieds, les deux hommes joignirent les 
 
 Les deux lancèrent une offensive rapide depuis deux directions opposées. Les fracas furent tels que le cœur du dragon de mer en trembla; la créature recula, observant ces deux figures terrifiantes avant de s'éloigner encore davantage.
 
-La bataille dura sept jours. Wang Lin et le vieil homme s'affrontèrent vingt-trois fois! À chaque escarmouche, ils se séparaient pour restaurer leur culture et méditer sur l'échange précédent, tout en discutant ensemble. Ce type de combat entre Exaltés Empyréens ne comportait aucune haine; c'était une source d'enseignement précieuse pour chacun.
+La bataille dura sept jours. Wang Lin et le vieil homme s'affrontèrent vingt-trois fois! Toutes les quelques escarmouches, ils se séparaient pour restaurer leur culture et méditer sur l'échange précédent, tout en discutant ensemble. Ce type de combat entre Exaltés Empyréens ne comportait aucune haine; c'était une source d'enseignement précieuse pour chacun.
 
 « Camarade Wang, je vois que tu te retiens encore un peu. Nos forces de combat sont comparables, alors pourquoi ne pas tout donner? » À l'issue du vingt-troisième affrontement, le vieil homme rit à distance.
 
-« D'accord! » Wang Lin se leva et son Vrai Corps des Cinq Éléments apparut!
+« D'accord! » Wang Lin se leva et son Corps Véritable des Cinq Éléments apparut!
 
 Avec un seul avatar, la puissance de combat de Wang Lin décuplerait, lui permettant de rivaliser avec un Exalté Empyréen ayant fusionné dix-huit sorts!
 
-« Un Vrai Corps d'Essence! Et ce n'est pas un simple corps d'essence, mais un corps issu de la fusion de multiples essences! » Les pupilles du vieil homme se rétractèrent en contemplant la forme de Wang Lin.
+« Un Corps Véritable d'Essence! Et ce n'est pas un simple corps d'essence, mais un corps issu de la fusion de multiples essences! » Les pupilles du vieil homme se rétractèrent en contemplant la forme de Wang Lin.
 
 Ils attaquèrent simultanément, et le vieil homme ne se retint plus. Il déchaîna la puissance de la fusion de dix-sept sorts!
 

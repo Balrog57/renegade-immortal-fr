@@ -12,7 +12,7 @@ Les yeux de Zhou Peng se plissèrent. Il saisit Zhang Kuang par le cou et hurla:
 
 Zhang Kuang n'osa pas riposter. Son visage devint pourpre sous l'intensité de l'intention de meurtre qui émanait du regard de Zhou Peng. Il serra les dents et déclara: « Frère aîné, si tu ne me crois pas, utilise la technique de recherche d'âme. Ce que je dis est absolument vrai. Je n'ai rien révélé à quiconque. »
 
-Les yeux de Zhou Peng s'illuminèrent. Il laissa échapper un reniflement méprisant: « Je te croirai pour l'instant. Va, capture les parents de Wang Lin et tue-les. Je raffinerai leurs âmes pour en faire des bannières spirituelles. Nous les utiliserons pour traquer Wang Lin. Ensuite, en utilisant les âmes de ses propres parents pour l'attaquer, à moins qu'il n'ait atteint le stade de l'Établissement des Fondations, son âme sera brisée. »
+Les yeux de Zhou Peng s'illuminèrent. Il laissa échapper un reniflement méprisant: « Je te croirai pour l'instant. Va, capture les parents de Wang Lin et tue-les. Je raffinerai leurs âmes pour en faire une bannière spirituelle. Elle nous permettra de traquer Wang Lin. Ensuite, en utilisant les âmes de ses propres parents pour l'attirer, tant qu'il n'aura pas atteint le stade de l'Établissement des Fondations, nous pourrons capturer son âme. »
 
 Le corps de Zhang Kuang frissonna. Il n'avait jamais entendu parler d'une technique aussi vile et hésita un instant.
 
@@ -46,7 +46,7 @@ Dès que le fouet apparut, il dégagea une aura périlleuse. Zhang Kuang le proj
 
 Wang Lin eut un sourire moqueur. Il activa sa technique d'attraction qui enveloppa son corps tandis qu'il se déplaçait sur le côté. Il projeta deux mains invisibles grâce à cette technique: l'une intercepta l'épée, tandis que l'autre s'élança vers Zhang Kuang. Ce dernier sentit soudain une douleur atroce au cou, comme si une main invisible le serrait avec force. Son visage vira au violet. Il abandonna son incantation pour tenter de saisir sa gorge.
 
-L'intention de meurtre de Wang Lin était totale. Dans un craquement sinistre, le cou de Zhang Kuang se brisa sous l'effet de la pression. Ses yeux furent remplis de désespoir. Du sang jaillit de sa bouche et, une fois que Wang Lin relâcha sa technique, il s'effondra au sol. Son corps eut quelques tressaillements avant de devenir définitivement inerte.
+Une intention de meurtre traversa le regard de Wang Lin. Dans un craquement sinistre, le cou de Zhang Kuang se brisa sous l'effet de la pression. Ses yeux furent remplis de désespoir. Du sang jaillit de sa bouche et, une fois que Wang Lin relâcha sa technique, il s'effondra au sol. Son corps eut quelques tressaillements avant de devenir définitivement inerte.
 
 À l'instant où Zhang Kuang rendit l'âme, l'épée volante trembla et redevint un morceau de jade. Wang Lin le récupéra en plein vol.
 
@@ -54,7 +54,7 @@ Quant à son long fouet noir, il perdit sa forme sous l'effet de la perte d'éne
 
 Zhou Peng attendait depuis une demi-journée. Il maudissait intérieurement la lenteur de Zhang Kuang. Alors qu'il s'apprêtait à partir vérifier la situation, son expression changea brusquement. Il ressentit une fluctuation d'énergie spirituelle provenant du village. Mais avant même de pouvoir enquêter, il sentit une puissante intention de meurtre foncer vers lui à toute vitesse.
 
-Zhou Peng fut pétrifié. Il s'écria: « Qui a tué Zhang Kuang? Sa présence a totalement disparu... il est mort! » Avant qu'il ne puisse réfléchir davantage, Wang Lin apparut devant ses yeux.
+Zhou Peng fut pétrifié. Il pensa: « Qui a tué Zhang Kuang? Sa présence a totalement disparu... il est mort! » Avant qu'il ne puisse réfléchir davantage, Wang Lin apparut devant ses yeux.
 
 Le visage de Zhou Peng se décomposa. Sans dire un mot, il fit volte-face et s'enfuit, maudissant l'autre dans son cœur: « Zhang Kuang, ah, pauvre Zhang Kuang! Tu vas me faire tuer! Comment Wang Lin a-t-il pu revenir si soudainement? »
 
@@ -74,7 +74,7 @@ Le visage de Zhou Peng s'assombrit. Sans ralentir, il continua sa fuite sur son 
 
 Wang Lin commença à s'inquiéter. Sa technique d'attraction n'avait qu'une portée limitée et, une fois cette distance franchie, sa puissance diminuait considérablement. Il craignait de ne pas pouvoir rattraper Zhou Peng avant que celui-ci ne rejoigne la secte. Il savait qu'il ne pouvait laisser aucune chance à sa fuite, car cela mettrait non seulement sa propre vie en péril, mais aussi celle de ses parents.
 
-Il s'adressa immédiatement à Situ Nan: « Senior Situ, existe-t-il un moyen de le capturer instantanément? »
+Il s'adressa immédiatement à Situ Nan: « Senior Situ, existe-t-il un moyen de le rattraper instantanément? »
 
 Situ Nan répondit calmement: « Il y en a un... mais... »
 

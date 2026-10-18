@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 904 - Exploring the Immortal Graveyard
 slug: exploration-du-cimetiere-des-immortels
 ---
-Un vieil homme était assis près de l'immense fosse où le Clan des Immortels Délaissés avait autrefois été scellé sur la planète Suzaku. Ce vieil homme portait une robe rouge et une chevelure rousse. Une plante scintillait sur son front, déployant onze feuilles. Cependant, au sommet de la onzième feuille, une douzième demi-feuille s'épanouissait.
+Un vieil homme était assis près de l'immense fosse où le Clan des Immortels Délaissés avait autrefois été scellé sur la planète Suzaku. Ce vieil homme portait une robe rouge et des cheveux blancs. Une plante scintillait sur son front, déployant onze feuilles. Cependant, au sommet de la onzième feuille, une douzième demi-feuille s'épanouissait.
 
 Si cette demi-feuille s'ouvrait complètement, ce vieil homme deviendrait instantanément un membre du Clan des Immortels Délaissés à douze feuilles!
 
@@ -82,7 +82,7 @@ Au centre trônait une mare d'eau noire. Elle dégageait des ondes d'énergie Yi
 
 Yun Quezi resta silencieux un instant avant de déclarer: « À l'époque, seuls les ancêtres ayant atteint le stade des douze feuilles pouvaient entrer. Ces cercueils sont sans doute ceux d'ancêtres de mon Clan des Immortels Délaissés. La rumeur prétend que la dix-huitième couche renferme l'origine même de notre clan! Quant à la dix-neuvième, on dit qu'elle abrite les âmes résiduelles du premier ancêtre... Compagnon cultivateur Wang, si vous parvenez à forcer l'entrée de la dix-huitième couche, je vous prie de jeter un œil sur notre passé et de me permettre de comprendre l'origine de mon ancêtre. »
 
-Il regarda Wang Lin. Le petit garçon d'autrefois avait disparu, remplacé par un puissant cultivateur capable de faire trembler la planète Suzaku d'un simple pas.
+Il regarda Wang Lin. Le petit garçon d'autrefois avait disparu, remplacé par un puissant cultivateur capable de faire s'effondrer la planète Suzaku d'un simple piétinement.
 
 Durant ces derniers jours, il s'était demandé si ce puissant être existerait encore s'il n'avait pas aidé Wang Lin à atteindre le stade de la Formation de l'Âme...
 
@@ -106,12 +106,12 @@ Yun Quezi fut le premier à vaciller. Il recula instinctivement, le visage blêm
 
 Sous cette contrainte, Yun Quezi poussa un rugissement. Les veines de son visage saillirent alors qu'il luttait désespérément.
 
-Heureusement, le garçon n'avait pas pour cible Yun Quezi, ce qui lui permettait de lutter. Tandis que l'énergie originelle céleste du garçon circulait, il pointa sa propre tête. Celle-ci doubla instantanément de volume et des tendons rouges jaillirent, créant un impact titanesque sur la mare d'eau.
+Heureusement, le garçon n'avait pas pour cible Yun Quezi, ce qui lui permettait de lutter. Tandis que l'énergie originelle céleste du garçon circulait, il posa les deux mains sur ses oreilles. Sa tête doubla instantanément de volume et des tendons rouges jaillirent de ses sourcils, créant un impact titanesque sur la mare d'eau.
 
 Un fracas assourdissant retentit alors qu'une onde de choc secouait la mare, qui commença à tourner lentement.
 
 Les yeux de Wang Lin s'illuminèrent. Il vit clairement que le sceau de la mare montrait des signes de rupture sous l'assaut du garçon. Cependant, ces signes étaient ténus. Juste au moment où ils menaçaient de disparaître, les deux doigts de Wang Lin formèrent une épée. Soudain, un tonnerre déchaîné remplit son regard et le tonnerre des cieux sembla converger avec frénésie vers son doigt. Il fit un pas en avant et pointa la mare d'eau.
 
-Cela déclencha l'envoi d'innombrables éclairs depuis les doigts de Wang Lin, lesquels s'élancèrent tels des dragons vers la mare. Après une explosion fracassante, de nombreuses fissures apparurent sur le sol de la seizième couche. Une masse énorme d'énergie Yin jaillit des brèches et une vague gigantesque s'abattit dans la mare. Celle-ci s'éleva dans les airs et se métamorphosa en un tatouage noir au cœur du tonnerre en mouvement.
+Cela déclencha l'envoi d'innombrables éclairs depuis les doigts de Wang Lin, lesquels s'élancèrent tels des dragons vers la mare. Après une explosion fracassante, de nombreuses fissures apparurent sur le sol de la seizième couche. L'énergie Yin se répandit par les brèches et d'immenses vagues se levèrent dans la mare. Celle-ci s'éleva dans les airs et se métamorphosa en un tatouage noir au cœur du tonnerre en mouvement.
 
 Ce tatouage était d'une complexité telle et d'une densité telle qu'il était impossible d'en distinguer la forme. Mais Wang Lin se moquait de l'apparence du motif. Il ne cherchait pas l'approbation du sceau; il voulait le briser par la force!

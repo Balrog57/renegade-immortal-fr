@@ -26,7 +26,7 @@ Leur sang s'était rassemblé au Mont Lou Fu pour former une sphère de sang de 
 
 C'était là l'origine du Lou Fu. Par la suite, de nombreux anciens cultivateurs vinrent l'étudier. Bien qu'ils n'eussent pu en comprendre la cause, ils parvinrent à en saisir les principes. C'est ainsi que fut créé le sort de la sphère de sang Lou Fu.
 
-Toutefois, cette sphère de sang était trop maléfique et sa vitesse de formation était faible. Bien qu'elle possédât des pouvoirs mystérieux, elle ne pouvait être raffinée en masse.
+Toutefois, cette sphère de sang était trop maléfique et son taux de réussite à la fabrication était faible. Bien qu'elle possédât des pouvoirs mystérieux, elle ne pouvait être raffinée en masse.
 
 Le pouvoir des dix-huit Lou Fu résidait dans leur pression. Un seul Lou Fu exerçait une strate de pression; ainsi, dix-huit Lou Fu créaient un degré de compression inimaginable.
 
@@ -34,13 +34,13 @@ De plus, si un cultivateur y fusionnait une partie de son propre sang, non seule
 
 L'expression du Saint Démon Noir était sombre; il s'apprêtait à charger pour détruire les dix-huit Lou Fu. Cependant, à cet instant précis, le Dieu du Sang surgit du vide et bloqua le Saint Démon Noir dans un éclat de rire.
 
-Le visage de Maître Yan Leizi demeura impassible tandis qu'il pointait l'arrière. Ce geste semblait capable de percer le vide. Il déchira les fissures spatiales qui recouvraient la région ouest et pénétra le tunnel reliant au Système Stellaire de Luotian.
+Le visage de Maître Yan Leizi demeura impassible tandis qu'il pointait l'arrière. Ce geste semblait capable de percer le vide. Il déchira, depuis la région nord, les fissures spatiales qui recouvraient la région ouest et pénétra le tunnel reliant au Système Stellaire de Luotian.
 
 Dans le Système Stellaire de Luotian, plus de dix mille cultivateurs avaient activé leur culture. Un objet se dressait parmi eux!
 
 Cet objet était un morceau de bois. Cependant, ce bois mesurait cent mille pieds de long et dix mille pieds de large!
 
-Le Bois Perçant le Ciel! Il avait été découvert par le Temple Céleste du Tonnerre il y a trente mille ans. La rumeur prétendait qu'il s'agissait d'un arbre céleste qui soutenait l'Ancien Royaume Céleste. Seul le Royaume Céleste du Tonnerre avait pu préserver le sien relativement intact; les trois autres royaumes avaient perdu le leur lors de l'effondrement des Royaumes Célestes.
+Le Bois Perçant le Ciel! Il avait été découvert par le Temple Céleste du Tonnerre il y a trente mille ans. La rumeur prétendait qu'il s'agissait d'un arbre céleste qui soutenait l'Ancien Royaume Céleste. Seul Luotian avait pu préserver le sien relativement intact; les trois autres royaumes avaient perdu le leur lors de l'effondrement des Royaumes Célestes.
 
 Une puissante vague d'énergie spirituelle céleste surgit. Après sa découverte par le Temple Céleste du Tonnerre, ils l'avaient dissimulé. Désormais, il était déployé comme une méthode d'attaque redoutable contre l'Alliance.
 
@@ -88,7 +88,7 @@ Cette grande bataille commença dans les régions ouest et septentrionale avant 
 
 Des ondes de sorts se propagèrent, affectant d'innombrables zones!
 
-Au milieu de ce massacre intense, la moindre imprudence de la part d'un cultivateur de l'Alliance ou de Luotian signifiait une mort immédiate. Le Serpent aux yeux de lune, enragé, semblait capable de distinguer les deux camps. Il épargnait rarement les cultivateurs de Luotian, mais massacrait sans relâche ceux de l'Alliance.
+Au milieu de ce massacre intense, la moindre imprudence de la part d'un cultivateur de l'Alliance ou de Luotian signifiait une mort immédiate. Le Serpent aux yeux de lune, enragé, semblait capable de distinguer les deux camps. Il épargnait presque toujours les cultivateurs de Luotian, mais massacrait sans relâche ceux de l'Alliance.
 
 De ce fait, les cultivateurs de l'Alliance étaient immédiatement désavantagés!
 

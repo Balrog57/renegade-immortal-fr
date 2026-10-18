@@ -6,7 +6,7 @@ bookTitle: The Mediocre Youth
 en: Chapter 38 - Light Speck
 slug: etincelle-de-lumiere
 ---
-Après avoir analysé la situation en détail, il sentit que cela était lié à sa culture dans l'espace onirique. Il avait découvert de nombreux mystères de la perle au cours de ces quatre dernières années.
+Après avoir analysé la situation en détail, il sentit que cela était lié à sa culture dans l'espace onirique. Il avait pleinement éprouvé les merveilles de la perle au cours de ces quatre dernières années.
 
 Lorsqu'il cultivait dans l'espace onirique, il pouvait sentir que ces orbes lumineuses libéraient d'étranges étincelles de lumière qui pénétraient dans son corps. Quant à ces étincelles, il les avait étudiées pendant un certain temps, mais n'en avait toujours pas percé l'usage exact.
 
@@ -30,7 +30,7 @@ En entendant cela, Sun Dazhu hésita. Après une longue réflexion, il se souvin
 
 Wang Lin pénétra dans le jardin. Sun Dazhu l'examina et s'exclama: « Tu as réussi à atteindre le troisième niveau?! »
 
-Wang Lin hocha la tête et répondit humblement: « Le disciple s'est entraîné avec acharnement ces quatre dernières années et a eu la chance d'atteindre le troisième niveau. »
+Wang Lin hocha la tête et répondit humblement: « Le disciple s'est entraîné avec acharnement dans la vallée ces quatre dernières années et a eu la chance d'atteindre le troisième niveau. »
 
 Sun Dazhu cligna des yeux, plusieurs fois. Il sembla se rappeler la raison pour laquelle il avait accepté Wang Lin comme disciple. Il s'était souvenu vouloir attendre que ce disciple atteigne le premier niveau pour utiliser la technique de recherche d'âme, avant de renoncer par hésitation. Après tout, tant d'années avaient passé, et le contrecoup lié à l'abaissement de sa propre culture ne semblait pas en valoir la peine.
 
@@ -38,9 +38,9 @@ Sun Dazhu lança un regard à Wang Lin et dit: « Bien. Puisque tu as atteint le
 
 L'expression de Wang Lin resta impassible alors qu'il répondait: « Le disciple a pratiqué la technique d'attraction, mais il se sent encore très peu familier avec elle. »
 
-Sun Dazhu acquiesça: « C'est naturel. Pour être franc, ces techniques basiques ne sont qu'une question de pratique. Plus on s'exerce, plus on devient expert. Ton maître l'a pratiquée pendant près d'un an, ce qui est considéré comme le record de la secte, vois-tu. » Tout en parlant, il fit un mouvement de la main: une petite épée colorée apparut, tourbillonna dans la pièce avant de revenir se poser dans la main de Sun Dazhu.
+Sun Dazhu acquiesça: « C'est naturel. Pour être franc, ces techniques basiques ne sont qu'une question de pratique. Plus on s'exerce, plus on devient expert. Ton maître l'a pratiquée pendant près d'un an, ce qui est considéré comme le record de la secte, vois-tu. » Tout en parlant, il fit un mouvement de la main: une petite épée aux sept couleurs, dégageant une lueur glaciale, apparut, tourbillonna dans la pièce avant de revenir se poser dans la main de Sun Dazhu.
 
-« Après avoir maîtrisé la technique d'attraction et atteint le deuxième niveau, on peut commencer à pratiquer la technique de propulsion. C'est cette technique qui met l'épée en mouvement. Bien sûr, pour atteindre ce stade, il faut normalement avoir atteint au moins le quatrième niveau, mais la compétition approche et nous ne pouvons pas laisser la secte faire honte. Ta culture est faible, tes chances de participer aux combats sont donc minces, mais tu ne dois pas faire perdre la face à la secte. Une épée volante peut aussi être légèrement contrôlée par la technique d'attraction. Je vais te donner un jeton; va au sanctuaire des épées et choisis une belle épée volante à porter pour briller lors de la compétition. » Sur ces mots, Sun Dazhu lança un jeton vers Wang Lin.
+« Après avoir maîtrisé la technique d'attraction et atteint le deuxième niveau, on peut commencer à pratiquer la technique de propulsion. C'est cette technique qui met l'épée en mouvement. Bien sûr, pour atteindre ce stade, il faut normalement avoir atteint au moins le quatrième niveau, mais la compétition approche et nous ne pouvons pas laisser la secte faire honte. Ta culture est faible, tes chances de participer aux combats sont donc minces, mais tu ne dois pas faire perdre la face à la secte. Une épée volante peut aussi être légèrement contrôlée par la technique d'attraction. Je vais te donner un jeton; va au pavillon des épées et choisis une belle épée volante à porter pour briller lors de la compétition. » Sur ces mots, Sun Dazhu lança un jeton vers Wang Lin.
 
 L'expression de Wang Lin devint étrange. Il resta la bouche ouverte un long moment, sans savoir quoi répondre.
 

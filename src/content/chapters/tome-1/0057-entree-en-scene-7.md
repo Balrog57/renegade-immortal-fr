@@ -22,7 +22,7 @@ Tous les disciples de la Secte Heng Yue furent transportés par l'excitation et 
 
 Les disciples de la Secte Heng Yue devinrent encore plus turbulents, et le sourire de Huang Long s'élargissait sans cesse, jusqu'à ce qu'un des disciples de la Secte Xuan Dao, incapable de supporter davantage, finisse par hurler:
 
-« Wang Lin, tu es trop arrogant! C'est toi qui veux que nous venions tous! Frères de lutte, allons tous le battre! »
+« Wang Lin, tu es trop arrogant! C'est toi qui veux que nous venions tous, tu vas le regretter! Frères aînés, allons tous l'éliminer! »
 
 « C'est vrai! C'est sa propre requête, ce n'est donc pas contre les règles. Anciens, laissez-nous monter! »
 
@@ -30,7 +30,7 @@ Les disciples de la Secte Heng Yue devinrent encore plus turbulents, et le souri
 
 Les disciples de la Secte Xuan Dao demandèrent à monter un par un. L'Ancien Ouyang serra les dents et déclara: « Puisque la Secte Heng Yue le réclame, alors, quiconque veut y aller, allez-y! »
 
-À peine eut-il fini de parler que trois disciples sautèrent immédiatement sur l'estrade. Bientôt, sept ou huit autres rejoignirent la scène. Il y avait même quelques disciples féminins parmi eux. Sur un cri d'assaut, ils sortirent tous leurs trésors magiques et attaquèrent Wang Lin.
+À peine eut-il fini de parler que trois disciples sautèrent immédiatement sur l'estrade. Bientôt, sept ou huit autres rejoignirent la scène. À l'exception de quelques disciples féminins, la plupart des disciples de la Secte Xuan Dao se retrouvèrent sur l'estrade. Sur un cri d'assaut, ils sortirent tous leurs trésors magiques et attaquèrent Wang Lin.
 
 Wang Lin n'en fut nullement perturbé. Il activa sa technique d'attraction. Il créa plusieurs mains gigantesques qui balayèrent la foule. Soudain, plusieurs personnes furent projetées en arrière. Puis, il fit quelques pas de recul tandis que les mains géantes saisissaient les disciples de la Secte Xuan Dao comme s'ils n'étaient que des mouches, pour les rejeter au loin.
 
@@ -62,7 +62,7 @@ L'Ancien Ouyang renifla et répondit: « Votre Secte Heng Yue a la chance d'avoi
 
 Sur ces mots, il agita sa manche et un sac de rangement s'envola. Huang Long attrapa le sac d'un air pensif.
 
-L'Ancien Ouyang poussa un cri et, bientôt, un nuage noir apparut à son emplacement.
+L'Ancien Ouyang poussa un cri et, aussitôt, un nuage noir jaillit du mont Heng Yue pour arriver à cet endroit.
 
 Wang Lin regarda de plus près et découvrit qu'il s'agissait du mille-pattes géant.
 

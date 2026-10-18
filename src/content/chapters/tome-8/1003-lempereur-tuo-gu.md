@@ -22,7 +22,7 @@ L'homme d'âge moyen regarda les cruches et murmura: « Seigneur Bei Luo sait d�
 
 L'expression de Wang Lin resta neutre. Lorsque l'Empereur Démon était arrivé, il s'y était déjà attendu. Après tout, la Terre des Esprits Démoniaques était désormais gouvernée par Bei Luo. Chaque fois qu'il dévorait un autre esprit démoniaque, sa puissance se trouvait multipliée.
 
-Wang Lin vida le reste de la demi-cruche d'un seul trait.
+Wang Lin but une gorgée de la demi-cruche qui lui restait.
 
 « Si Frère Wang accepte de laisser une place libre pour entrer dans la cinquième grotte, quatre des neuf pays seront offerts à la Tribu du Raffinement des Âmes! De plus, Seigneur Bei Luo ne s'immiscera dans aucune affaire concernant le Raffinement des Âmes, pas même en ce qui concerne les vestiges du sens démoniaque du Démon des Nuages! »
 
@@ -46,9 +46,9 @@ Wang Lin laissa échapper un soupir. Lorsque l'Empereur Démon était arrivé la
 
 Bien que les habitants de la Terre des Esprits Démoniaques vivent plus longtemps que les cultivateurs ordinaires, ils n'en avaient pas moins une limite. Sans accident, il ne resterait pas plus de trente ans avant que l'Empereur Démon ne s'éteigne.
 
-En tant qu'une connaissance, Wang Lin n'avait aucune raison de refuser et acquiesça d'un signe de tête.
+En tant que connaissance, Wang Lin n'avait aucune raison de refuser et acquiesça d'un signe de tête.
 
-L'homme d'âge moyen sourit, un air de soulagement sur le visage. Il agita sa main droite et l'Épée Impériale se transforma en une jeune fille. Ses yeux étaient empreints de réticence. Si ce n'était pas pour le fait qu'un esprit d'épée ne pouvait verser de larmes, ses yeux seraient baignés de pleurs à cet instant.
+L'homme d'âge moyen sourit, le visage empreint d'une sérénité détachée. Il agita sa main droite et l'Épée Impériale se transforma en une jeune fille. Ses yeux étaient empreints de réticence. Si ce n'était pas pour le fait qu'un esprit d'épée ne pouvait verser de larmes, ses yeux seraient baignés de pleurs à cet instant.
 
 « Sois sage, et ne sois plus aussi obstinée... » L'homme d'âge moyen regarda la jeune fille avec tendresse, comme s'il ne contemplait pas un esprit d'épée, mais sa propre fille.
 
@@ -88,7 +88,7 @@ En voyant Wang Lin revenir, les yeux de Situ Nan s'illuminèrent et il éclata d
 
 Sur ces mots, il n'attendit même pas la réponse de Wang Lin. Il s'engouffra dans une forêt de bambous adjacente et disparut.
 
-Compte tenu du niveau de culture de Situ Nan, Wang Lin ne s'inquiétait pas pour lui. Quant au poison, ils avaient trouvé ensemble un moyen de le supprimer temporairement sans avoir recours à une cultivatrice. Dans le pire des cas, Situ Nan serait simplement piégé et Wang Lin pourrait venir le secourir plus tard. Sans s'arrêter, Wang Lin rejoignit Maître Fu Fengzi et regarda devant lui.
+Compte tenu du niveau de culture de Situ Nan, Wang Lin ne s'inquiétait pas pour lui. Quant au poison, ils avaient trouvé ensemble un moyen de le contenir temporairement sans avoir recours à une cultivatrice. Dans le pire des cas, Situ Nan serait simplement piégé et Wang Lin pourrait venir le secourir plus tard. Sans s'arrêter, Wang Lin rejoignit Maître Fu Fengzi et regarda devant lui.
 
 Une petite rivière coulait à cent pas de là, enveloppée d'une fine couche de brume. Un pont de pierre reliait les deux rives. Ce pont était l'unique entrée.
 

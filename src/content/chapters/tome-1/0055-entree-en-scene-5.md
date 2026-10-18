@@ -64,7 +64,7 @@ Les visages de Dao Xu, de l'Ancien au visage rouge et de quelques autres anciens
 
 Cependant, Huang Long les fixa d'un regard sévère et trancha: « Junior frère Dazhu, tu as rendu un immense service à la Secte Heng Yue! Ne t'inquiète pas, ton frère aîné réglera cette affaire pour toi! »
 
-Bien que Sun Dazhu parlât avec arrogance, il était intérieurement bouleversé et son regard laissait poindre une lueur froide.
+Bien que Sun Dazhu parlât avec arrogance, il était intérieurement rempli de soupçons et son regard laissait poindre une lueur froide.
 
 Sur l'estrade, Yang Yi n'eut même pas le temps de prêter attention aux provocations des disciples de l'autre secte. Il examinait attentivement Wang Lin, craignant que ce dernier ne refuse sa proposition.
 

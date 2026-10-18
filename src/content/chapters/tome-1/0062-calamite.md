@@ -8,13 +8,13 @@ slug: calamite
 ---
 À l'extérieur du bâtiment, Huang Long s'arrêta et murmura à Wang Lin: « Voici la bibliothèque des écritures. Tu peux y entrer. Au premier étage se trouvent principalement des techniques pour le stade de Condensation de Qi. Tu peux y jeter un œil, mais concentre ton attention sur le deuxième étage, car c'est là que se trouvent les techniques pour l'Établissement des Fondations. Je t'attendrai dehors. »
 
-Wang Lin était un peu nerveux. Il prit une profonde inspiration et entra dans le bâtiment. Cet édifice comptait quatre étages. Au premier étage, de nombreux morceaux de jade vert flottaient sur des étagères, émettant une lueur verdâtre.
+Wang Lin était un peu nerveux. Il prit une profonde inspiration et entra dans le bâtiment. Cet édifice comptait quatre étages. Au premier étage, de nombreux morceaux de jade flottaient, émettant une lueur blanc laiteux.
 
 Situ Nan se moqua: « Inutile de regarder. Que pourrait-il y avoir là-dedans? Ce ne sont que des techniques de piètre qualité. À mon époque, je n'aurais même pas pris la peine de les dévisager. »
 
 Wang Lin ne se précipita pas au deuxième étage et ne prêta aucune attention aux paroles de Situ Nan. Il s'approcha de chaque morceau de jade pour examiner les techniques qu'ils contenaient. Ses mains formèrent également des sceaux pour tester leurs effets.
 
-Wang Lin ramassa un morceau de jade et l'examina attentivement. « Technique de qualité supérieure — Dragon de Feu. »
+Wang Lin ramassa un morceau de jade et l'examina attentivement. « Technique de qualité supérieure — Nuage de Feu. »
 
 Situ Nan répliqua immédiatement: « Quelle daube, cette soi-disant technique de qualité supérieure! C'est clairement une technique de contrôle du feu de bas étage. Ma technique de flamme spirituelle est une véritable technique de qualité supérieure. »
 
@@ -28,13 +28,13 @@ Wang Lin fut stupéfait. Il reposa le jade et en saisit un autre.
 
 « Toujours de la daube! Je connais le Hurlement du Vent. Elle est cent fois plus puissante! »
 
-« Formation du Tonnerre des Neuf Cieux. »
+« Technique du Tonnerre des Neuf Cieux. »
 
 « Mais c'est quoi cette ordure? Ce n'est clairement qu'une médiocre technique de tonnerre. Pourquoi lui donner un nom aussi impressionnant? Quelle horreur! »
 
-« Transformation Immortelle. »
+« Invocation Immortelle. »
 
-« C'est un peu intéressant, mais ça reste de la camelote. Je connais la Grande Transformation Immortelle. Elle est cent fois plus puissante. »
+« C'est un peu intéressant, mais ça reste de la camelote. Je connais la Grande Invocation Immortelle. Elle est cent fois plus puissante. »
 
 Situ Nan tournait chaque technique en dérision l'une après l'autre, ce qui ne fit qu'accentuer les sourcils froncés de Wang Lin. Ce dernier finit par ne plus pouvoir le supporter et monta au deuxième étage.
 
@@ -54,7 +54,7 @@ L'expression de Wang Lin était étrange. Les moqueries de Situ Nan et les élog
 
 Huang Long fronça les sourcils, s'apprêtant à lui demander quelle technique il avait sélectionnée, quand soudain, tout le Pic des Pins se mit à trembler.
 
-« Je suis Pu Nanzi de la Secte Xuan Dao. Juniors de la Secte Heng Yue, puisque vous avez déjà perdu, quittez les lieux au plus vite! »
+« Je suis Pu Nanzi de la Secte Xuan Dao. Juniors de la Secte Heng Yue, venez vite me voir! »
 
 Le visage de Huang Long changea brusquement. À cet instant, plus d'une dizaine de silhouettes surgirent des bâtiments environnants. Les deux figures en tête étaient les plus remarquables. L'un était un vieillard aux cheveux blancs et au visage d'enfant, au regard étincelant.
 

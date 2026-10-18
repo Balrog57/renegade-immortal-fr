@@ -6,7 +6,7 @@ bookTitle: Clean Sweep
 en: Chapter 290 - No Name (1)
 slug: sans-nom-1
 ---
-Le vieil homme frappa la tortue-dragon, laquelle poussa un rugissement qui fit voler les débris des Étoiles Brisées du Chaos.
+Le vieil homme frappa la tortue-dragon, laquelle poussa un rugissement dont le son semblait pouvoir fendre les nuages et briser la pierre, en direction de l'anneau des Étoiles Brisées du Chaos.
 
 Bien que l'anneau fût silencieux, un vide d'une dizaine de mètres de profondeur s'y creusa et les débris furent écartés.
 
@@ -46,7 +46,7 @@ Le vieil homme regarda Wang Lin avec une expression surprise, mais sans dire un 
 
 Cette ligne dorée fendit l'air comme l'éclair. Un instant elle était loin, le suivant, elle se trouvait déjà devant lui.
 
-L'expression de Wang Lin resta imperturbable alors qu'il pointait sa main droite vers le ciel. Son domaine de la Vie et de la Mort s'activa immédiatement dans son âme. Ce domaine se concentrait sur le changement; après tout, la vie et la mort ne cessent de muter l'une en l'autre.
+L'expression de Wang Lin resta imperturbable alors qu'il pointait sa main droite dans le vide. Son domaine de la Vie et de la Mort s'activa immédiatement dans son âme. Ce domaine se concentrait sur le changement; après tout, la vie et la mort ne cessent de muter l'une en l'autre.
 
 La ligne dorée ralentit brusquement et devint très docile en s'enroulant autour du doigt de Wang Lin.
 
@@ -146,7 +146,7 @@ Les restrictions se posèrent une à une sur le drapeau et, après un temps ind�
 
 S'il s'arrêtait maintenant, bien que le drapeau de restriction soit faible, il ne se briserait pas; avec prudence, il pourrait encore servir.
 
-Après réflexion, ses yeux s'illuminèrent. Si ce drapeau n'atteignait pas le premier stade de complétion, il serait trop faible pour être utile dans le royaume céleste des pluies.
+Après réflexion, ses yeux s'illuminèrent. Si ce drapeau n'atteignait pas le premier stade de complétion, il serait trop faible pour être utile dans le Royaume Céleste.
 
 Il serra les dents tandis que sa main droite traçait la dernière restriction pour la poser sur le drapeau.
 
@@ -156,7 +156,7 @@ En conséquence, ce drapeau représentait une menace même pour les cultivateurs
 
 Toutes les restrictions s'étaient fusionnées en une seule; il pouvait désormais sacrifier neuf restrictions pour lancer une fois la technique de scellement de l'énergie spirituelle du drapeau.
 
-Cette technique permettait de contraindre toute l'énergie spirituelle céleste, ainsi que celle présente dans les cultivateurs, créant une zone de vide spirituel. Ainsi, à moins de posséder une énergie spirituelle céleste, quiconque se trouvait dans son rayon d'action perdait temporairement sa capacité à contrôler l'énergie spirituelle.
+Cette technique permettait de contraindre toute l'énergie spirituelle céleste, ainsi que celle présente dans les cultivateurs, créant une zone de vide spirituel. Ainsi, à moins d'avoir atteint le Qi Céleste, quiconque se trouvait dans son rayon d'action perdait temporairement sa capacité à contrôler l'énergie spirituelle.
 
 Les yeux de Wang Lin brillèrent alors qu'il serrait le drapeau. Sa confiance pour ce voyage vers le royaume céleste augmenta considérablement.
 

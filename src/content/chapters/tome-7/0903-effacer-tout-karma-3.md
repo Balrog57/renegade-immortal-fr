@@ -20,11 +20,11 @@ Cependant, il n'aurait jamais imaginé croiser la route de Wang Lin aujourd'hui!
 
 « Il ne devrait pas être capable de se souvenir de moi... », pensa l'homme, tout en espérant désespérément un miracle.
 
-« C'est toi! » Une lueur glaciale jaillit dans les yeux de Wang Lin. Grâce à son intelligence, il comprit immédiatement ce qui s'était produit. Cet homme était venu ici pour tuer le frère de Li Muwan, et leur querelle était très probablement liée aux événements d'autrefois.
+« C'est toi! » Une lueur glaciale jaillit dans les yeux de Wang Lin. Grâce à son intelligence, il comprit immédiatement, à partir d'une seule phrase de cet homme, ce qui s'était produit. Cet homme était venu ici pour tuer le frère de Li Muwan, et leur querelle était très probablement liée aux événements d'autrefois.
 
-Une intention meurtrière fulgura dans le regard de Wang Lin. D'un revers de main, il renvoya l'impact du nuage de sang créé par l'explosion des deux cultivateurs directement vers le vieil homme.
+Une intention meurtrière fulgura dans le regard de Wang Lin. D'un ample geste de manche, il renvoya l'impact du nuage de sang créé par l'explosion des deux cultivateurs directement vers le vieil homme.
 
-Terrifié, le vieil homme tenta de se téléporter, mais il était trop tard. Emporté par le nuage de sang, des hurlements déchirants s'élevèrent de la brume rouge. Wang Lin agita sa main droite!
+Terrifié, le vieil homme tenta de se téléporter, mais il était trop tard. Emporté par le nuage de sang, des hurlements déchirants s'élevèrent de la brume rouge. Wang Lin abattit sa main droite vers l'avant!
 
 Dans un fracas sourd, un nouveau nuage de sang apparut, avant que tout le sang ne se dissipe finalement dans le néant.
 
@@ -48,7 +48,7 @@ La planète trembla violemment. Un instant plus tard, une aura antique émana de
 
 Extraction de l'Âme Planétaire!
 
-Wang Lin ne l'exécuta pas totalement et s'arrêta après en avoir extrait un tiers. Bien que la perte d'un tiers de l'âme planétaire affecterait l'astre, cela ne serait pas trop radical.
+Wang Lin ne l'exécuta pas totalement et s'arrêta après en avoir extrait trois dixièmes. Bien que la perte de trois dixièmes de l'âme planétaire affecterait l'astre, cela ne serait pas trop radical.
 
 En chemin, Wang Lin extirpa les âmes de plusieurs planètes. Malgré sa culture, il ressentit de la fatigue. Malheureusement, le garçon à la grosse tête ne pouvait pas fusionner avec le monde; seul lui pouvait accomplir un tel exploit.
 
@@ -68,7 +68,7 @@ Parmi les mortels, une douce chaleur émana de la terre. Ils se sentirent revigo
 
 La troisième, la quatrième et la cinquième âme furent lancées par Wang Lin sur l'astre. À cet instant, le cri d'un phénix, que seuls quelques rares cultivateurs pouvaient percevoir, retentit depuis la planète Suzaku.
 
-C'était comme si Suzaku avait retrouvé sa pleine vitalité. Sous la terre, l'énergie spirituelle réapparaissait dans les veines asséchées. À cet instant précis, la densité de l'énergie spirituelle sur la planète atteignit un sommet!
+C'était comme si Suzaku avait retrouvé sa pleine vitalité. Sous la terre, l'énergie spirituelle réapparaissait dans les veines asséchées. À cet instant précis, la densité de l'énergie spirituelle sur la planète atteignit un niveau considérable!
 
 Non seulement cela, mais tous les cultivateurs sentirent l'énergie de la planète s'animer; cela provoqua même l'activation spontanée de l'énergie spirituelle au sein de leurs propres corps.
 
@@ -94,8 +94,8 @@ Dans le Système Stellaire de l'Alliance, il existait un système isolé où s'�
 
 Au centre se dressait une tour, haute de dizaines de milliers de pieds. Des chaînes noires parcouraient toute la structure, la reliant aux bâtiments environnants.
 
-L'Alliance des Cultivateurs était divisée en deux palais, quatre vénérables et huit domaines. Il s'agissait du domaine de l'Abattage!
+L'Alliance des Cultivateurs était divisée en deux temples, quatre saints et huit domaines. Il s'agissait du domaine de la Boucherie!
 
 Une silhouette fantomatique surgit du vide. Elle se déplaça avec la rapidité de l'éclair pour atterrir au-dessus d'un bâtiment. La figure s'agenouilla, révélant qu'il s'agissait d'un vieil homme. Il s'inclina vers la tour centrale et déclara: « Des traces du nouveau Céleste du Tonnerre de Luotian, Xu Mu, ont été découvertes! »
 
-« Duo des Tueurs d'Âmes, apportez-moi la tête de Xu Mu! Ce sera un présent pour les cultivateurs de Luotian, offert par le domaine de l'Abattage! » Une voix glaciale et sinistre résonna depuis la tour.
+« Duo des Tueurs d'Âmes, apportez-moi la tête de Xu Mu! Ce sera un présent pour les cultivateurs de Luotian, offert par le domaine de la Boucherie! » Une voix glaciale et sinistre résonna depuis la tour.

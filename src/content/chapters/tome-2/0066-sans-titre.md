@@ -10,7 +10,7 @@ Liu Wenju se leva et sortit un morceau de jade. Il le lança en l'air et forma r
 
 La vieille femme nommée Wang fit également apparaître un morceau de jade qui fusionna avec le premier. Le jade continuait de pivoter en dégageant une lumière arc-en-ciel. Les rayons colorés tombèrent sur le sol et recouvrirent tout dans un rayon de dix mètres autour du jade, jusqu'à former un disque lumineux.
 
-Liu Wenju regarda le groupe de quatre personnes composé de Wang Lin et dit: « Vous quatre, à l'exception de Wang Lin, serez chargés de protéger les autres disciples internes car de puissantes fluctuations vont se produire, alors faites attention à ne pas tomber. De plus, Huang Long, vous trois, vous serez responsables de deux disciples chacun. Shang Guan, vous deux et Wang Lin, vous devrez maintenir l'équilibre sur les côtés. »
+Liu Wenju regarda le groupe de quatre personnes composé de Wang Lin et dit: « Vous quatre, à l'exception de Wang Lin, serez chargés de protéger les autres disciples internes car de puissantes fluctuations vont se produire, alors faites attention à ne pas tomber. De plus, Huang Long, vous trois, vous serez responsables d'un disciple chacun. Shang Guan, vous deux et Wang Lin, vous devrez maintenir l'équilibre sur les côtés. »
 
 Sur ces mots, il monta sur le disque et la vieille femme le suivit.
 
@@ -50,9 +50,9 @@ Au moment où le disciple projeté arriva devant lui, Wang Lin vit l'effroi sur 
 
 Après cela, il expira longuement. Il savait que cette énergie froide provenait de Situ Nan. Juste au moment où il allait le remercier, une voix s'éleva du nuage sombre.
 
-« Camarades cultivateurs de la Secte Heng Yue, avez-vous rencontré l'ancêtre de notre Secte Xuan Dao, Pu Nanzi? »
+« Camarades cultivateurs de la Secte Heng Yue, je suis l'ancêtre Pu Nanzi de notre Secte Xuan Dao. Vous avez pu le constater! »
 
-Wang Lin tourna la tête. Il vit un centipède géant émerger du nuage noir. Devant lui se tenait l'Ancien Ouyang et, derrière lui, sept ou huit personnes qui les dévisageaient avec mépris.
+Wang Lin tourna la tête. Il vit un centipède géant émerger du nuage noir. Devant lui se tenait l'Ancien Ouyang et, à ses côtés, sept ou huit personnes qui les dévisageaient avec mépris.
 
 Trois d'entre eux dégageaient des auras puissantes et fixaient froidement Liu Wenju et la vieille femme nommée Wang.
 
@@ -76,7 +76,7 @@ Dès son entrée, Wang Lin balaya toute la caverne de son Sens Divin et constata
 
 Liu Wenju attendit que tout le monde soit installé pour dire, d'un ton solennel: « La plupart d'entre vous ont atteint un niveau de culture où la nourriture n'est plus nécessaire. Quant à ceux dont le niveau est trop bas et qui doivent encore manger, il y a des provisions dans la salle de pierre là-bas qui devraient suffire pour plusieurs années. Moi et votre ancêtre Wang allons entrer en retraite de méditation et ne nous occuperons de rien d'autre. Suivez les instructions des anciens pour vos arrangements. »
 
-La vieille femme nommée Wang ajouta d'une voix empreinte de gravité: « Ma Secte Heng Yue entrera en retraite de méditation pendant cent ans, afin d'effacer notre déshonneur. Désormais, si des disciples ont besoin des chants pour atteindre le niveau supérieur, ils pourront les obtenir auprès des anciens. Durant ce siècle, à moins d'un événement majeur, aucun disciple n'est autorisé à quitter les lieux. Vous trois, le groupe de Huang Long, vous devez également entrer en retraite et tenter d'atteindre l'Établissement des Fondations le plus vite possible. »
+La vieille femme nommée Wang ajouta d'une voix empreinte de gravité: « Ma Secte Heng Yue entrera en retraite de méditation pendant cent ans, afin d'effacer notre déshonneur. Désormais, si des disciples ont besoin des chants pour atteindre le niveau supérieur, ils pourront les obtenir auprès des anciens. Durant ce siècle, à moins d'un événement majeur, aucun disciple n'est autorisé à quitter les lieux. Vous trois, le groupe de Huang Long, vous devez également entrer en retraite et tenter d'atteindre l'Établissement des Fondations avant la fin de leur vie. »
 
 Le groupe de Huang Long acquiesça.
 

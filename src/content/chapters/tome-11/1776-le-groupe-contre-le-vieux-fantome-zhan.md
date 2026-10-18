@@ -14,15 +14,15 @@ Le rythme du cœur géant battait en synchronisation avec celui de Wang Lin. Ce 
 
 Finalement, Wang Lin n'entendait plus rien d'autre que le martèlement des cœurs. Ce son lui procurait un immense sentiment de confort, et la chaleur qui en émanait fit lentement dissiper la douleur lancinante qui lui transperçait le cœur.
 
-Une illumination envahit l'esprit de Wang Lin. Cette compréhension émanait des battements cardiaques. Dans la dernière couche de la Tombe Antique, Wang Lin avait eu la sensation que son cœur était transpercé et sur le point d'exploser.
+Une illumination envahit l'esprit de Wang Lin. Cette compréhension émanait des battements cardiaques. Dans la dernière couche de la Tombe Antique, Wang Lin avait eu la sensation que son cœur était transpercé et sur le point de s'effondrer.
 
-Alors qu'il retrouvait son calme, Wang Lin saisit vaguement cette méthode d'attaque, qui n'était ni un sort, ni une capacité, ni un Dao.
+Alors qu'il retrouvait son calme, Wang Lin saisit vaguement cette méthode d'attaque, qui n'était ni un sort, ni une capacité, ni une technique du Dao.
 
 « Affecter le rythme cardiaque d'autrui par le sien, modifier la cadence de leur cœur jusqu'à ce qu'il s'effondre... Ou encore faire battre leur cœur en synchronisation avec le sien pour en prendre le contrôle, puis le manipuler afin de générer une force mortelle... »
 
 « Ces méthodes sont très difficiles à contrer. Peut-être pourrais-je m'inspirer de cette intuition pour créer un nouveau sort qui m'appartienne! » Wang Lin ouvrit les yeux, lesquels brillaient intensément. Tout en absorbant l'aura du cœur, il déduisait la faisabilité de cette idée.
 
-« Le rythme cardiaque est comme un son, mais ce son a besoin d'un vecteur pour se propager... Mon origine tonnerre peut produire des grondements puissants et obtenir des effets similaires. Si je condense mon essence de tonnerre dans mon cœur pour amplifier mes battements d'innombrables fois et les propager hors de mon corps... » Les yeux de Wang Lin s'illuminèrent.
+« Le rythme cardiaque est comme un son, mais ce son a besoin d'un vecteur pour se propager... Mon essence de tonnerre peut produire des grondements puissants et obtenir des effets similaires. Si je condense mon essence de tonnerre dans mon cœur pour amplifier mes battements d'innombrables fois et les propager hors de mon corps... » Les yeux de Wang Lin s'illuminèrent.
 
 « Il faudra encore l'aide de mon Dao du Rêve. Le son de mon rythme cardiaque et le Dao du Rêve entreront en jeu simultanément. Cela provoquera des illusions à mesure que leur rythme cardiaque changera, permettant d'atteindre certains effets! » Le regard de Wang Lin devint plus éclatant encore.
 
@@ -36,7 +36,7 @@ Un fracas tonitruant retentit, assez puissant pour donner l'impression que le mo
 
 Une immense quantité de poussière fut soulevée. Le visage de Tang Shan était pâle alors qu'elle luttait pour se relever. Du sang coulait au coin de sa bouche; son cœur tremblait et elle était gravement blessée.
 
-Non loin d'elle, Yun Yifeng avait les yeux clos. Ses blessures étaient très graves. Lorsque le Vieux Fantôme Zhan avait agité la main, ses plaies s'étaient rouvertes et il avait frôlé la mort.
+Non loin d'elle, Yun Yifeng avait le visage blême et les yeux clos. Ses blessures étaient très graves. Lorsque le Vieux Fantôme Zhan avait agité la main, ses plaies s'étaient rouvertes et il avait frôlé la mort.
 
 Il y avait aussi Tuo Sen, qui se trouvait encerclé par trois caractères noirs signifiant « bataille », totalement scellé à l'intérieur.
 
@@ -46,7 +46,7 @@ Le Général Tortue Noire et le Général Oiseau Vermillon combattaient les deux
 
 Cependant, comparés à eux, le véritable combat se déroulait au loin.
 
-C'était là que se trouvait le Vieux Fantôme Zhan, et le Maître du Dao Rêve Bleu ainsi que le vieil homme nommé Ma luttaient contre lui!
+C'était là que se trouvait le Vieux Fantôme Zhan, et le Maître du Dao Rêve Bleu ainsi que le vieil homme nommé Ma l'encerclaient et le combattaient!
 
 L'expression du Maître du Dao Rêve Bleu était sombre et ses pas étaient instables. La plupart de ses sorts étaient défensifs, car il ne parvenait pas à approcher le Vieux Fantôme Zhan. Le vieil homme nommé Ma affichait un regard impuissant, mais ses attaques faisaient trembler le monde.
 
@@ -70,7 +70,7 @@ L'homme nommé Ma recula et pointa le ciel. Il était sur le point d'utiliser un
 
 Pourtant, que ce soit lui ou le Vieux Fantôme Zhan, ils avaient sous-estimé Rêve Bleu. Il était l'un des Cinq Maîtres du Système Stellaire Antique, un être que même le Souverain redoutait. Bien qu'il n'ait pas traversé les Tribulations Arcanes, il possédait ses propres méthodes!
 
-À cet instant, le Maître du Dao Rêve Bleu mordit la pointe de sa langue et cracha du sang. Son sang essentiel fusionna avec la lumière bleue défaillante pour former une cithare antique!
+À cet instant, le Maître du Dao Rêve Bleu mordit la pointe de sa langue et cracha du sang. Son sang fusionna avec la lumière bleue défaillante pour former une cithare antique!
 
 La cithare dégageait une aura millénaire, comme si elle avait existé depuis des éons. Elle était invisible, dissimulée dans le sang du Maître du Dao Rêve Bleu durant d'innombrables années. Maintenant qu'elle était révélée au monde, elle déployait toute sa puissance!
 
@@ -106,7 +106,7 @@ La musique de la cithare redoubla d'intensité, ses ondulations résistant à l'
 
 Le ciel doré gronda et une main de lumière s'élança vers lui. Peu après, une main d'ébène surgit de la terre noire. Avec la main dorée, l'une venant d'en haut et l'autre d'en bas, elles s'abattirent ensemble sur le Vieux Fantôme Zhan.
 
-Une lueur glaciale passa dans les yeux du Vieux Fantôme Zhan et, au moment où les sorts allaient l'atteindre, il toucha son front. Une ombre vague, semblable à une âme, apparut derrière lui. Cette silhouette portait une cape couvrant tout son corps sous les yeux, ne laissant apparaître qu'un regard ténébreux et de longs cheveux.
+Une lueur glaciale passa dans les yeux du Vieux Fantôme Zhan et, au moment où les sorts allaient l'atteindre, il toucha son front. Une ombre vague, semblable à une âme, apparut derrière lui. Cette silhouette portait une cape couvrant tout ce qui se trouve sous les yeux, ne laissant apparaître qu'un regard ténébreux et de longs cheveux.
 
 C'était l'âme du Souverain Céleste aux Sept Couleurs qui s'était détachée du corps du Vieux Fantôme Zhan!
 

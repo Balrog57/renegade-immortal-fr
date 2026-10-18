@@ -90,7 +90,7 @@ Le bruit des impacts se répandit dans tout le clan du Tonnerre Dispersé et ré
 
 « Brise-toi! Brise-toi! Brise-toi! » rugit Wang Lin. Il fit un pas en avant et la puissance de Dieu Antique en lui se condensa avec une intensité folle. Ses étoiles divines antiques tournaient si vite qu'elles devenaient invisibles alors qu'il poursuivait ses coups de poing.
 
-Le Miroir de Massacre de la Foudre pouvait répliquer tous les sorts, mais il ne pouvait pas répliquer la puissance des Dieux Antiques! Les Dieux Antiques étaient des êtres d'une ère primordiale; comment un simple trésor pourrait-il les reproduire? Comment un vulgaire objet osait-il prétendre le faire!
+Le Miroir de Massacre de la Foudre pouvait répliquer tous les sorts, mais il ne pouvait pas répliquer la puissance des Dieux Antiques! Les Dieux Antiques étaient des êtres d'une ère primordiale, des divinités immortelles de toutes choses; comment un simple trésor pourrait-il les reproduire? Comment un vulgaire objet osait-il prétendre le faire!
 
 Alors que Wang Lin avançait, le poing copié commença à reculer. Un sourire carnassier apparut sur le visage de Wang Lin. Il allait repousser ce poing dans le miroir et provoquer son effondrement!
 

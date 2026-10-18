@@ -8,7 +8,7 @@ slug: une-volonte-puissante
 ---
 Wang Lin évoluait dans le vide imprégné des lois du Continent Astral Immortel depuis six ans désormais. Sur le Continent Astral Immortel, tout était paisible et la guerre n'existait pas; les frictions entre les Races Anciennes et Célestes étaient minimes.
 
-Au cours de cette année, de nombreux génies brillèrent à travers les 72 continents célestes. L’un d’eux se nommait Yun Yifeng!
+Au cours de cette année, plusieurs génies brillèrent à travers les 72 continents célestes. L’un d’eux se nommait Yun Yifeng!
 
 Cette année-là, l’Empereur Céleste qui régnait sur les 72 continents sortit de sa culture en isolement après des dizaines de milliers d'années. La moitié des continents fut enveloppée d'une énergie céleste infinie.
 
@@ -34,7 +34,7 @@ Outre ces neuf sectes et treize factions, il existait des sectes plus modestes, 
 
 Le Continent du Taureau Céleste était sous l'influence de la Secte de la Grande Âme et de la Secte Gui Yi. La Secte des Sept Dao avait été fondée dans un recoin isolé du secteur du Taureau Céleste.
 
-Là se trouvait une chaîne de montagnes noires recouverte de forêts. Un voile de brume enveloppait les monts, où les bêtes se faisaient rares.
+Là se trouvait une chaîne de montagnes noires recouverte de forêts. Un voile de brume toxique enveloppait les monts, où oiseaux et bêtes se faisaient rares.
 
 Au cœur de cette chaîne montagneuse se dressait un pic solitaire. Les vapeurs noires y étaient les plus denses et ne s'étaient pas dissipées depuis des dizaines de milliers d'années. C'était là que se trouvait la Secte des Sept Dao. Lorsque le monde des grottes se referma, Su Dao scella la Secte des Sept Dao. De nombreuses années s'étaient écoulées, et la Secte des Sept Dao était tombée. Il n'y avait plus aucune créature vivante ici; l'endroit n'était que mort.
 
@@ -48,7 +48,7 @@ Ce jour-là, devant le pavillon niché dans la montagne brumeuse, une silhouette
 
 Il s'agissait de Xuan Luo.
 
-Xuan Luo contempla le pavillon de la Secte des Sept Dao dissimulé dans la brume et s'assit lentement.
+Xuan Luo contempla le pavillon de la Secte des Sept Dao dissimulé dans la brume et s'assit lentement, en tailleur.
 
 « Wang Lin, tous se sont réincarnés, mais je n'ai aucun contrôle sur le moment où ils réapparaîtront. Peut-être sera-ce dans quelques années, ou peut-être dans un millénaire... »
 
@@ -60,7 +60,7 @@ Dans le vide séparant les mondes des grottes du Continent Astral Immortel, le v
 
 Cette pression était déjà d'une puissance indescriptible; sans la bête moustique qui continuait d'avancer, Wang Lin aurait déjà succombé. Même le roi moustique se déplaçait beaucoup plus lentement et peinait sous la charge. Parfois, il laissait échapper un hurlement silencieux.
 
-Les yeux de Wang Lin étaient injectés de sang. Les essences de son corps étaient épuisées et il ne pouvait plus les régénérer. La seule façon de résister aux lois du Continent Astral Immortel était d'utiliser son corps de Dao Antique.
+Les yeux de Wang Lin étaient injectés de sang. Les essences de son corps étaient épuisées et ratatinées, sans possibilité de les régénérer. La seule façon de résister aux lois du Continent Astral Immortel était d'utiliser son corps de Dao Antique.
 
 Cela faisait plus d'un an qu'il n'avait pas vu de cadavre. Il semblait extrêmement rare que quelqu'un parvienne aussi loin.
 
@@ -100,9 +100,9 @@ La paume que Wang Lin avait posée sur le roi moustique contenait dix sceaux qui
 
 Ces blocages creusèrent l'écart entre eux. Peu importe la ténacité du roi moustique, il ne parvenait plus à retrouver son maître.
 
-Un cri mélancolique résonna dans le vide et se propagea au loin. Wang Lin peinait à progresser dans ce néant, mais le cri de la bête lui parvenait encore. Il jeta un bref regard en arrière avant de serrer les dents et de poursuivre sa course.
+Un cri mélancolique résonna dans le vide et se propagea au loin. Wang Lin peinait à progresser dans ce néant, mais le cri de la bête lui parvenait encore. Il jeta un long regard en arrière avant de serrer les dents et de poursuivre sa course.
 
-Après une longue poursuite, le roi moustique ne put toujours pas rattraper Wang Lin. Il trembla sous l'effet croissant de la pression et finit par s'arrêter. Cependant, il n'abandonna pas. Il se retourna brusquement vers les neuf autres bêtes moustiques. Il allait fusionner avec davantage d'aura locale pour évoluer rapidement vers sa forme ancestrale. Ce n'était qu'à ce prix qu'il pourrait voler assez vite pour retrouver son maître!
+Après une longue poursuite, le roi moustique ne put toujours pas rattraper Wang Lin. Il trembla sous l'effet croissant de la pression et finit par s'arrêter. Cependant, il n'abandonna pas. Il se retourna brusquement, emmena avec lui les neuf autres bêtes moustiques et s'élança vers l'arrière. Il allait fusionner avec davantage d'aura locale pour évoluer rapidement vers sa forme ancestrale. Ce n'était qu'à ce prix qu'il pourrait voler assez vite pour retrouver son maître!
 
 Nous étions maintenant dans la neuvième année!
 

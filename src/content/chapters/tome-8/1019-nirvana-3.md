@@ -66,7 +66,7 @@ Ming Hai fronça les sourcils et l'énergie céleste démoniaque dans son corps 
 
 Cette fois, il ne cherchait pas à blesser Ming Hai, mais à le désorienter pour saisir la moindre opportunité d'utiliser le sortilège « Arrête »!
 
-À l'annonce de ce seul mot, c'est comme si d'innombrables fils s'étaient enroulés autour de Ming Hai, le forçant à une pause inattendue. Si l'on ne comptait pas le corps d'Ancien Dieu de Wang Lin, celui-ci n'était qu'un cultivateur au sommet du stade intermédiaire du Scruteur du Nirvana. Utiliser le sort « Arrête » contre un être céleste au stade du Purificateur du Nirvana signifiait subir un contrecoup violent, mais il s'en moquait!
+À l'annonce de ce seul mot, c'est comme si d'innombrables fils s'étaient enroulés autour de Ming Hai, le forçant à une pause inattendue. Si l'on ne comptait pas le corps d'Ancien Dieu de Wang Lin, celui-ci n'était qu'un cultivateur au stade intermédiaire du Scruteur du Nirvana. Utiliser le sort « Arrête » contre un être céleste au stade du Purificateur du Nirvana signifiait subir un contrecoup violent, mais il s'en moquait!
 
 Dès que le corps de Ming Hai se figea, la tempête septicolore frappa. Elle n'attaqua pas son corps, mais, sous le contrôle de Wang Lin, elle se précipita dans la blessure située sur le sourcil droit de Ming Hai!
 
@@ -96,7 +96,7 @@ Après avoir été témoin de ce spectacle, Wang Lin resta pensif. Il avait une 
 
 Après un long moment, ses yeux s'illuminèrent et il frappa son sac de rangement. Les têtes qu'il avait collectées peu de temps auparavant flottèrent devant lui.
 
-Un éclat étrange passa dans le regard de Wang Lin qui murmura: « Je ne pensais pas que le sort céleste "Guide des Enfers" serait utile ici! »
+Un éclat étrange passa dans le regard de Wang Lin qui murmura: « Je ne pensais pas que le sort céleste "Guide des Enfers" que m'avait transmis le Senior Frère Qing Shui serait utile ici! »
 
 « Ces personnes possèdent toutes une énergie démoniaque. Si je l'utilise comme guide, je pourrai ouvrir un passage pour quitter cet endroit! »
 

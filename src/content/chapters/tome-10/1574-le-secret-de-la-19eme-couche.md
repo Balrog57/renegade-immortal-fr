@@ -7,7 +7,7 @@ en: Chapter 1574 - The Secret at the 19th Layer
 slug: le-secret-de-la-19eme-couche
 ---
 
-Le repaire du Clan du Tatouage n'avait guère changé après la reconstruction de la planète Suzaku. Au fil des années, il était devenu l'endroit le plus mystérieux de la planète. Les cultivateurs venaient souvent y explorer les profondeurs. Ces dernières décennies, alors que des cultivateurs étrangers arrivaient sur la planète Suzaku, beaucoup s'étaient aventurés dans ce gouffre profond, pour finalement n'y trouver rien. Personne ne parvenait à atteindre la couche la plus profonde.
+Le repaire du Clan du Tatouage n'avait guère disparu lors des bouleversements de la planète Suzaku. Au fil des années, il était devenu l'endroit le plus mystérieux de la planète. Les cultivateurs venaient souvent y explorer les profondeurs. Ces dernières décennies, alors que des cultivateurs étrangers arrivaient sur la planète Suzaku, beaucoup s'étaient aventurés dans ce gouffre profond, pour finalement n'y trouver rien. Personne ne parvenait à atteindre la couche la plus profonde.
 
 Wang Lin et le fou apparurent instantanément à l'extérieur du trou. Wang Lin regarda l'ouverture et s'apprêta à y pénétrer. Cependant, le fou derrière lui était réticent et se mit à rugir contre lui.
 
@@ -27,7 +27,7 @@ La 16ème couche abritait treize cercueils ornés de tatouages scintillants. Ces
 
 L'entrée de la 17ème couche se trouvait dans le bassin noir. Wang Lin scruta le bassin et repéra un sceau. Ce sceau ne pouvait être brisé que par des cultivateurs de niveau Yang Corporel ou supérieur. À l'époque, Wang Lin n'avait pu entrer lui-même et avait dû compter sur la force de Da Tou.
 
-Désormais, Wang Lin s'avança calmement. Lorsqu'il approcha du bassin, celui-ci ne put résister à la pression exercée par son corps. Le bassin s'effondra, révélant un vortex géant. Le vortex aspira l'eau noire et dévoila l'entrée de la couche suivante. Wang Lin y plongea et disparut.
+Désormais, Wang Lin s'avança calmement. Lorsqu'il approcha du bassin, le sceau ne put résister à la pression exercée par son corps. Le bassin s'effondra, révélant un vortex géant. Le vortex aspira l'eau noire et dévoila l'entrée de la couche suivante. Wang Lin y plongea et disparut.
 
 Lorsqu'il réapparut, il se trouvait dans la 17ème couche. Autrefois, d'innombrables chaînes remplissaient cet endroit; de nombreux cadavres célestes y étaient scellés pour servir de gardiens. Tout ce qui s'était passé était encore frais dans la mémoire de Wang Lin. Il avait déclenché ici une bataille féroce qui avait provoqué l'effondrement de la 17ème couche. En regardant autour de lui, il vit que la couche n'était plus que ruines; seul le vortex géant au centre subsistait. Ce vortex était l'entrée de la 18ème couche, apparue après l'effondrement de la précédente.
 

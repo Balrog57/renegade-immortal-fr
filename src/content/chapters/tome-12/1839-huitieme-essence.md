@@ -30,11 +30,11 @@ Wang Lin restait inquiet et jeta un regard au tatouage d'encre du roi des mousti
 
 Le roi des moustiques était la dernière couche de protection que Wang Lin avait préparée pour sa culture en isolement!
 
-Ce n'est qu'à ce moment-là que Wang Lin se détendit un peu. Il s'assit dans la grotte et contempla la goutte d'eau avec excitation. Il prit une profonde inspiration et pressa la goutte d'eau entre ses sourcils.
+Ce n'est qu'à ce moment-là que Wang Lin se détendit un peu. Il s'assit en tailleur dans la grotte et contempla la goutte d'eau avec excitation. Il prit une profonde inspiration et pressa la goutte d'eau entre ses sourcils.
 
 Dès que la goutte toucha la zone entre ses sourcils, le sang de son corps sembla bouillir. L'essence d'eau déjà présente en lui fusionna immédiatement avec la nouvelle goutte, provoquant un changement radical.
 
-Au cours de cette transformation, le corps de Wang Lin s'atrophia rapidement, comme si toute l'eau et tout le sang de son organisme convergeaient vers un seul point.
+Au cours de cette transformation, le corps de Wang Lin se dessécha rapidement, comme si toute l'eau et tout le sang de son organisme convergeaient vers un seul point.
 
 Son corps se dessécha à une vitesse fulgurante. En seulement une demi-encens de temps, il ressemblait à un squelette. Ses cheveux étaient secs et sa peau n'était plus que rides. Il paraissait être un cadavre desséché depuis des années!
 
@@ -50,13 +50,13 @@ Deux jours plus tard, le corps desséché de Wang Lin trembla et il ouvrit les y
 
 « Disperse-toi, essence d'eau... » Une voix rauque sortit de la bouche de Wang Lin tandis que sa main desséchée formait un sceau. La goutte d'essence d'eau qui avait atteint sa limite explosa soudainement. Le corps de Wang Lin trembla et il récupéra rapidement ses esprits.
 
-Cette régénération fut instantanée. Wang Lin n'était plus desséché et sa peau devint cristalline. Une lumière semblait circuler à l'intérieur comme à l'extérieur de son corps.
+Cette régénération fut instantanée, comme si sa jeunesse lui était rendue. Wang Lin n'était plus desséché et sa peau devint cristalline. Une lumière semblait circuler à l'intérieur comme à l'extérieur de son corps.
 
 Il resta dans cet état pendant neuf jours. Durant cette période, la goutte d'eau fusionnée avec lui tournait rapidement, et elle était visiblement un peu plus petite qu'il y a dix-huit jours.
 
 Il semblait que ces neuf jours de condensation et ces neuf jours de dispersion formaient un cycle. Une fois le premier cycle achevé, le second commençait immédiatement!
 
-Au dix-neuvième jour de sa culture en isolement, son corps changea de nouveau et s'atrophia instantanément pour redevenir un corps desséché. La goutte d'eau dans son corps scintillait frénétiquement.
+Au dix-neuvième jour de sa culture en isolement, son corps changea de nouveau et se dessécha instantanément pour redevenir un corps desséché. La goutte d'eau dans son corps scintillait frénétiquement.
 
 Ce processus se répéta de nombreuses fois. Wang Lin traversa sept cycles de dessèchement suivis de saturation. Après ces sept cycles, la goutte d'eau en lui ne représentait plus que moins de 20 % de sa taille initiale.
 
@@ -98,7 +98,7 @@ Pourtant, elle n'était manifestement pas aussi rapide que Yi Si. La marionnette
 
 Des grondements tonitruants résonnèrent à travers la secte. La plupart des membres de la Secte de la Grande Âme avaient reçu l'ordre de l'Ancien Ancêtre de ne pas s'approcher de la montagne de Wang Lin. À ce signal, tous tournèrent les regards.
 
-Yan Lu était en pleine culture lorsqu'elle ouvrit les yeux et son expression changea. Elle avait presque oublié qu'elle avait envoyé Fan Shanmeng maudire Wang Lin. Une trace de peur apparut dans ses yeux alors qu'elle se précipitait vers la montagne de Wang Lin.
+Yan Luan était en pleine culture lorsqu'elle ouvrit les yeux et son expression changea. Elle avait presque oublié qu'elle avait envoyé Fan Shanmeng maudire Wang Lin. Une trace de peur apparut dans ses yeux alors qu'elle se précipitait vers la montagne de Wang Lin.
 
 À l'intérieur de la grotte, Wang Lin vivait le neuvième et dernier cycle. Une fois réussi, son essence d'eau serait complète et son niveau de culture augmenterait.
 
@@ -106,8 +106,8 @@ Cependant, la goutte d'essence d'eau était totalement épuisée et son corps é
 
 « L'essence d'eau ne suffit pas pour achever le dernier cycle... Il m'en manque encore un peu! J'ai besoin d'une grande quantité d'eau! » L'apparence de Wang Lin était terrifiante à cet instant; son corps desséché ressemblait presque à un squelette.
 
-Tout en réfléchissant, il leva les yeux et perçut le tumulte à l'extérieur de la grotte, ainsi que l'aura de Yan Lu qui approchait.
+Tout en réfléchissant, il leva les yeux et perçut le tumulte à l'extérieur de la grotte, ainsi que l'aura de Yan Luan qui approchait.
 
-« Yi Si, reviens! » Alors que Yan Lu s'approchait du brouillard où se livraient combat Yi Si et Fan Shanmeng, la voix de Wang Lin résonna. Simultanément, Wang Lin quitta la grotte pour apparaître à l'extérieur.
+« Yi Si, reviens! » Alors que Yan Luan s'approchait du brouillard où se livraient combat Yi Si et Fan Shanmeng, la voix de Wang Lin résonna. Simultanément, Wang Lin quitta la grotte pour apparaître à l'extérieur.
 
-Son corps desséché et son apparence effrayante frappèrent Yan Lu, qui laissa échapper un cri de choc.
+Son corps desséché et son apparence effrayante frappèrent Yan Luan, qui laissa échapper un cri de choc.

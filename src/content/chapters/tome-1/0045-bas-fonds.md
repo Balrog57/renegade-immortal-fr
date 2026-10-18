@@ -50,7 +50,7 @@ En disant cela, Li Shan riait intérieurement: « Vous allez essayer plusieurs f
 
 Cependant, de nombreux disciples restaient prudents et n'achetaient rien.
 
-Après un moment, il ne restait plus que quelques bombes. Li Shan regarda avec fierté les disciples de la Secte Heng Yue en pensant: *« Bande d'idiots. Humph, si vous ne les utilisez pas lors de l'échange dans trois jours, vous aurez simplement été arnaqués par moi; mais si vous les utilisez, le spectacle sera mémorable. Ces bombes fétides sont entièrement sous mon contrôle. Personne d'autre ne pourrait les faire exploser, même en les frappant avec un poinçon! J'ai hâte d'être à l'échange dans trois jours. »*
+Après un moment, il ne restait plus que quelques bombes. Li Shan regarda avec fierté les disciples de la Secte Heng Yue en pensant: *« Bande d'idiots. Humph, si vous ne les utilisez pas lors de la compétition dans trois jours, vous aurez simplement été arnaqués par moi; mais si vous les utilisez, le spectacle sera mémorable. Ces bombes fétides sont entièrement sous mon contrôle. Personne d'autre ne pourrait les faire exploser, même en les frappant avec un poinçon! J'ai hâte d'être à la compétition dans trois jours. »*
 
 Son regard balaya les environs et il remarqua le léger sourire de Wang Lin. Il fut stupéfait. Ses yeux s'écarquillèrent et il dit: « Junior frère, pourquoi n'en achèteriez-vous pas quelques-unes pour vous amuser? Avec votre niveau de culture, elles vous conviendraient à merveille. Si quelqu'un vous importune, lancez-lui simplement une bombe! »
 
@@ -62,4 +62,4 @@ Wang Lin eut un léger sourire. Il hocha la tête et répondit: « D'accord, j'e
 
 Li Shan hésita pour la première fois. Il s'assura bien que Wang Lin n'était qu'au 3ème niveau avant de se détendre et de sortir trois bombes fétides. Il sourit: « Junior frère, votre Senior frère vous accorde cette faveur: va pour les talismans. Achetez-en deux, la troisième est offerte. Ces bombes fétides vous procureront une sensation extraordinaire, haha! »
 
-Tout en parlant, il songea: *« Je n'ai pas menti quand j'ai dit que ce serait une sensation extraordinaire. Tant que tu garderas ces bombes sur toi, même si tu ne les utilises pas pendant l'échange, si jamais je te recroise, je te ferai découvrir ce qu'est cette sensation... Quelque chose dont tu te souviendras toute ta vie, haha! »*
+Tout en parlant, il songea: *« Je n'ai pas menti quand j'ai dit que ce serait une sensation extraordinaire. Tant que tu garderas ces bombes sur toi, même si tu ne les utilises pas pendant la compétition, si jamais je te recroise, je te ferai découvrir ce qu'est cette sensation... Quelque chose dont tu te souviendras toute ta vie, haha! »*

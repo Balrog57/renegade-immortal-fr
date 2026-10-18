@@ -48,7 +48,7 @@ Zhou Wutai ne se retourna même pas et ricana: « Avec votre niveau de culture �
 
 Un autre homme vêtu de noir dit calmement: « Pas nécessairement. Bien que nous ne soyons qu'au stade avancé de l'Âme Naissante, si nous utilisons une formation, à moins qu'il ne soit au stade de la Formation de l'Âme, il mourra. »
 
-Zhou Wutai eut un ricanement méprisant. Il agita ses manches et répondit: « Si vous voulez y aller, allez-y. Je ne vous en empêcherai pas. Mais cet homme possède les sculptures des trois anciens de la Secte des Nuages Blancs, surtout celle de l'Oncle-Maître Qing Song, il doit donc cacher quelque chose de plus. Je ne cherche pas la mort. »
+Zhou Wutai eut un ricanement méprisant. Il agita ses manches et répondit: « Si vous voulez y aller, allez-y. Je ne vous en empêcherai pas. Mais cet homme possède les sculptures des trois anciens de la Secte Nuage Blanc, surtout celle de l'Oncle-Maître Qing Song, il doit donc cacher quelque chose de plus. Je ne cherche pas la mort. »
 
 Les quatre hommes en noir réfléchirent un instant. Ils échangèrent un regard, puis se dirigèrent vers la boutique de Wang Lin sans dire un mot.
 
@@ -72,15 +72,15 @@ Et cette fois ne faisait aucune exception!
 
 La main gauche de Wang Lin serrait la cruche de vin tandis qu'il buvait une gorgée. Il se leva et fit un pas, se retrouvant déjà devant la porte alors que les quatre hommes noirs approchaient.
 
-L'éclat froid dans les yeux de Wang Lin s'intensifia; l'homme âgé redevenait un démon. À cet instant, la tempête de neige redoubla de violence, mais comparée à l'intention meurtrière qui émanait de Wang Lin, elle n'était qu'une simple étincelle face au soleil.
+L'éclat froid dans les yeux de Wang Lin s'intensifia; l'homme âgé redevenait un démon. À cet instant, la tempête de neige redoubla de violence, mais comparée à l'intention meurtrière qui émanait de Wang Lin, elle n'était qu'un simple feu de camp face au soleil.
 
 Une épée froide ne sort pas facilement de son fourreau!
 
 Alors que les quatre hommes se rapprochaient, ils formèrent tous des sceaux complexes avec leurs mains. Simultanément, un grondement sourd s'éleva d'eux et quatre lueurs d'épées — verte, rouge, bleue et violette — jaillirent pour former un filet encerclant Wang Lin.
 
-Wang Lin prit une grande gorgée de vin et pointa son doigt vers le ciel. Le domaine temporel issu de la gravure du vieil homme en bleu commença soudainement à se propager, figeant les quatre lueurs d'épées.
+Wang Lin prit une grande gorgée de vin et pointa son doigt dans le vide. Le domaine temporel issu de la gravure du vieil homme en bleu commença soudainement à se propager, figeant les quatre lueurs d'épées.
 
-Profitant de ce délai, le corps de Wang Lin bougea de manière étrange et échappa prestement au filet. Lorsqu'il réapparut, il se tenait déjà devant l'un des hommes en noir.
+Profitant de ce délai, le corps de Wang Lin bougea de manière étrange et échappa prestement au filet. Lorsqu'il réapparut, il se tenait déjà derrière l'un des hommes en noir.
 
 Mais quand elle est dégainée, elle tue!
 

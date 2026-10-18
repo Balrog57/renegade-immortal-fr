@@ -6,7 +6,7 @@ bookTitle: The Mediocre Youth
 en: Chapter 64 - Secte Scatters
 slug: dispersion-de-la-secte
 ---
-Le dragon rugit contre Pu Nanzi et l'attaqua.
+Le dragon rugit, se retourna contre Pu Nanzi et l'attaqua.
 
 Pu Nanzi ricana. D'une chiquenaude sur l'épée, il lança: « Bête, maîtrise-toi! »
 
@@ -28,9 +28,7 @@ Parmi les dizaines de disciples intérieurs, seule une dizaine s'envola aux côt
 
 La jeune femme nommée Zhou hésita un instant, puis renonça également. Quant à celle nommée Xu, voyant que Wang Zhuo ne bougeait pas, elle fit marche arrière.
 
-Wang Hao, très affaibli, esquissa un sourire amer et dit à Wang Lin: « Frère Tie Zhu, je ne vais nulle part. Je compte rentrer chez moi pour aider mon père. Ne t'inquiète pas, frère Tie Zhu, je prendrai soin de ta famille. »
-
-Wang Lin remarqua alors que Wang Hao n'avait plus aucune trace de culture. « Wang Hao, où est passé ton niveau de culture? » demanda-t-il. Wang Hao eut un rire amer et secoua la tête: « Ne me pose pas la question, c'est une longue histoire. »
+Wang Hao, qui pouvait désormais marcher, esquissa un sourire amer et dit à Wang Lin: « Frère Tie Zhu, je ne vais nulle part. Je compte rentrer chez moi pour aider mon père. Ne t'inquiète pas, frère Tie Zhu, je prendrai soin de ta famille. »
 
 Wang Lin hésita. Il portait trop de secrets et, s'il rejoignait la Secte Xuan Dao, les dangers seraient trop imprévisibles. Après une réflexion, il se mit en mouvement.
 
@@ -68,9 +66,9 @@ L'autre ancien de l'Établissement des Fondations, un homme massif au visage lar
 
 Parmi les disciples intérieurs qui l'avaient suivi, Wang Lin ne connaissait pas les noms de ceux qui l'accompagnaient, hormis le frère Zhang et Lu Song, mais leurs visages lui semblaient familiers. Il y avait aussi un petit gros, celui qu'il avait rencontré devant le pavillon des épées.
 
-Liu Wenju prit une profonde inspiration et dit d'un ton sérieux: « Il ne sert à rien de ressasser le passé. Le plus important est de trouver un endroit où réinstaller notre secte. Il y a de nombreuses années, j'ai construit une demeure sur une montagne sinueuse à des milliers de kilomètres d'ici. Pour l'instant, allons nous y installer. »
+Liu Wenju prit une profonde inspiration et dit d'un ton sérieux: « Il ne sert à rien de ressasser le passé. Le plus important est de trouver un endroit où réinstaller notre secte. Il y a de nombreuses années, j'ai une demeure au mont Serpent-Éléphant, à des milliers de kilomètres d'ici. Pour l'instant, allons nous y installer. »
 
-La vieille femme réfléchit un instant, hocha la tête et dit: « C'est une bonne idée. Une fois arrivés, nous devrons entrer en méditation de retraite pour atteindre le stade de l'Âme Naissante d'ici cent ans. »
+La vieille femme réfléchit un instant, hocha la tête et dit: « C'est une bonne idée. Une fois arrivés, nous devrons entrer en méditation de retraite pour atteindre le stade de l'Âme Naissante d'ici cent ans, avant la fin de notre longévité. »
 
 Le regard de Liu Wenju se tourna vers les deux anciens de l'Établissement des Fondations. Il leur dit: « Shang Guan et Song Yu, vous deux, assurez la garde pendant que l'Ancêtre Wang et moi récupérons l'énergie spirituelle utilisée pour maintenir la formation. Nous pourrons ensuite vous transporter tous ensemble afin d'avancer plus vite. »
 

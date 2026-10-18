@@ -6,13 +6,13 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1918 - The Body is Dao!"
 slug: le-corps-est-le-dao
 ---
-Le sort de recherche d'âme était une technique extrêmement puissante. Cependant, pour un Exalté Doré, même si son âme originelle avait perdu toute volonté, sa puissante culture formait une barrière protectrice robuste au fil des millénaires. Cela rendait la recherche d'âme très difficile.
+Le sort de recherche d'âme était une technique extrêmement puissante. Cependant, pour un Exalté Doré, même si son âme originelle avait perdu toutes ses défenses, sa puissante culture formait une barrière protectrice robuste au fil des millénaires. Cela rendait la recherche d'âme très difficile.
 
 Même lors d'une recherche forcée, on ne pouvait obtenir que quelques fragments, et non l'intégralité des souvenirs. Peut-être que si le niveau de culture était bien supérieur à celui d'un Exalté Doré, une extraction parfaite des souvenirs serait alors possible.
 
 Bien que Wang Lin puisse vaincre des Exaltés Dorés, cela était dû à la fusion de son corps de Dao Antique et de sa culture, lui permettant d'atteindre une telle puissance de combat. En réalité, son niveau de culture n'était qu'au début du stade Tribulation du Vide.
 
-Pendant que l'âme originelle du Maître de la Secte du Dao Démoniaque était raffinée en une Veine Magique dans le corps de Wang Lin, celui-ci tenta de sonder son âme. Cependant, il ne put trouver aucun souvenir crucial, tel que le secret derrière la guerre avec le Continent du Taureau Céleste. Il ne trouva que quelques pensées concernant l'ancêtre Exalté du Dao Démoniaque.
+Pendant que l'âme originelle du Maître de la Secte du Dao Démoniaque était raffinée en une Veine Magique dans le corps de Wang Lin, celui-ci tenta de sonder son âme. Cependant, il ne put trouver aucun souvenir crucial, tel que le secret de la guerre entre le Continent du Taureau Céleste et le Continent du Démon Vert. Il ne trouva que quelques pensées concernant l'ancêtre Exalté du Dao Démoniaque.
 
 « L'ancêtre Exalté du Dao Démoniaque, un Exalté sous les ordres du Grand Empyréen Dao Yi... » Le soleil était haut dans le ciel et inondait la terre de sa lumière. Wang Lin ouvrit les yeux, et son regard s'illumina.
 
@@ -66,7 +66,7 @@ Qu'elle soit vraie ou non, il le saurait lorsqu'il aurait atteint ce stade!
 
 « Les essences spéciales et les essences éthérées sont difficiles à obtenir. Cependant, les éléments Métal et Bois devraient être plus simples. » Tandis que Wang Lin réfléchissait, le soleil de l'après-midi brillait dans le ciel, mais un faible grondement de tonnerre retentit au loin.
 
-Wang Lin leva la tête vers l'horizon et se leva lentement. Une brise fit flotter ses cheveux et ses vêtements; avec les ruines en arrière-plan, il dégageait une aura singulière.
+Wang Lin leva la tête vers l'horizon et se leva lentement. Une brise fit flotter ses cheveux blancs et ses vêtements; avec les ruines en arrière-plan, il dégageait une aura singulière.
 
 « Le voilà qui arrive! » Les yeux de Wang Lin furent soudainement emplis d'une intention de combat!
 
@@ -76,7 +76,7 @@ Wang Lin leva la tête vers l'horizon et se leva lentement. Une brise fit flotte
 
 « Cette bataille est le commencement!! »
 
-Alors que le grondement tonitruant se propageait dans le ciel, il enveloppa le monde entier. Une puissante intention meurtrière s'étala tandis qu'un rayon de lumière, semblant fendre le ciel en deux, s'engouffra sur le Continent du Démon Vert.
+Alors que le grondement tonitruant se propageait dans le ciel, il enveloppa le monde entier. Une puissante intention meurtrière s'étala tandis qu'un rayon de lumière, semblant fendre le ciel en deux, fonça vers les ruines de la Secte du Dao Démoniaque.
 
 Un homme aux cheveux roux se trouvait au cœur de cette lumière!
 
@@ -118,4 +118,4 @@ Le monde se distordit. Alors que ses cheveux blancs flottaient, Wang Lin ne recu
 
 Il n'activa pas immédiatement l'armure d'âme du Taureau Céleste, préférant tester sa propre puissance. Il voulait voir comment il se mesurerait à un Exalté Empyréen sans cette protection!
 
-À cet instant, des grondements déchirèrent le silence et la terre commença à se briser strate après strate sous l'impact de leurs coups. Tout s'effondra, mais la distorsion empêcha la destruction de se propager loin, la matière n'ayant d'autre choix que d'être projetée dans les airs!
+À cet instant, des grondements déchirèrent le silence et la terre commença à se briser strate après strate sous l'impact de leurs coups. Tout s'effondra, mais la distorsion empêcha la destruction de se propager loin, la matière n'ayant d'autre choix que d'être projetée dans les airs, formant une tempête de poussière!

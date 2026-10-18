@@ -42,7 +42,7 @@ Un rire s'éleva de la brume rouge, qui se dissipa pour révéler l'homme d'âge
 
 « Xu Mu, ne cherche plus à cacher ton niveau de culture! Pour traverser sans dommage un tel nombre de cultivateurs Yin Illusoire, Yang Corporel et Scruteur du Nirvana, tu dois être un cultivateur du Purificateur du Nirvana! »
 
-Les yeux de Wang Lin s'illuminèrent. Il se demandait pourquoi aucun cultivateur du Purificateur du Nirvana ne se trouvait dans le Royaume de la Boucherie. Cependant, son Sens Divin n'étant qu'au stade de Scruteur du Nirvana, il ne pouvait les détecter.
+Les yeux de Wang Lin s'illuminèrent. Il se demandait pourquoi aucun cultivateur du Purificateur du Nirvana ne se trouvait dans le Royaume de la Boucherie. Cependant, son Sens Divin n'étant qu'au stade initial du Scruteur du Nirvana, il ne pouvait les détecter.
 
 Pourtant, après avoir vu cet homme, Wang Lin sentit une aura plus faible que celle des vieux monstres du Briseur du Nirvana, mais bien plus puissante que celle des cultivateurs Scruteurs du Nirvana!
 
@@ -66,7 +66,7 @@ C'était là la puissance des Purificateurs du Nirvana. Grâce à cette faculté
 
 L'homme d'âge moyen pointa son doigt et cria: « Sable Désolé de Hongze! » Les éclats de lumière rassemblés de toutes les directions se transformèrent en sable noir. Ce n'était pas un sable ordinaire, mais du Sable Désolé formé par un sort utilisant l'énergie originelle.
 
-Chaque grain de sable contenait une immense quantité d'énergie originelle ainsi que de puissantes restrictions.
+Chaque grain de sable contenait une immense quantité d'énergie originelle ainsi que de puissantes formations. Là où se trouvait ce sable, s'étendait une vaste zone de Hongze.
 
 Wang Lin avança, le poing droit tendu. Les étoiles du Dieu Ancien sous son troisième œil tournèrent rapidement, puis il lança un coup de poing impitoyable!
 

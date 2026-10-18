@@ -90,7 +90,7 @@ La pression exercée par l'âme et l'esprit était suffisante pour faire tremble
 
 La femme Ancien Dieu demeurait un Ancien Dieu après avoir donné le sang du cœur de Ye Mo, ce qui signifiait qu'elle possédait encore une part du sang ordinaire de Ye Mo dans son corps!
 
-Sous cette pression, la femme Ancien Dieu pâlit. Elle s'agenouilla lentement et resta immobile.
+Sous cette pression, la femme Ancien Dieu pâlit. Elle se prosterna lentement et resta immobile.
 
 Xuan Luo regarda l'âme de Ye Mo derrière Wang Lin avec une pointe de pitié et soupira.
 
@@ -110,6 +110,6 @@ Ses yeux étaient aussi profonds que les étoiles. L'âme originelle de Ye Mo s'
 
 Les blessures de Wang Lin étaient totalement guéries. Cette goutte de sang et l'âme originelle de Ye Mo avaient eu un effet prodigieux. Autrement, il lui aurait fallu plusieurs mois, voire plus, pour se remettre.
 
-À cet instant, l'héritage de l'Ancien Dao de Wang Lin était presque complet. Les seules choses manquantes étaient l'œil gauche et le cœur enfouis dans la Tombe Antique!
+À cet instant, l'héritage de l'Ancien Dao de Wang Lin était accompli pour plus de la moitié. Il lui restait encore l'œil gauche et le cœur enfouis dans la Tombe Antique!
 
 Ou encore la main gauche.

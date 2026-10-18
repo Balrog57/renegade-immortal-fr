@@ -14,7 +14,7 @@ Le Doigt de la Mort absorbe la force vitale pour la convertir en destruction. Au
 
 Sous la force de l'éclair rouge, la lumière noire du Doigt de la Mort se dissipa rapidement jusqu'à disparaître totalement. L'éclair rouge continua sa descente, bien que sa couleur fût légèrement plus terne qu'auparavant!
 
-Les cheveux de Wang Lin flottaient au vent tandis qu'il fixait l'éclair rouge d'un regard inflexible. Il décida de lever tous les sceaux de vie qui le protégeaient pour les transformer en plus de 3 700 brins d'énergie de massacre. Sa main droite pointa vers le ciel, et cette énergie de massacre convergea vers sa paume.
+Les cheveux de Wang Lin flottaient au vent tandis qu'il fixait l'éclair rouge d'un regard inflexible. Il décida de lever tous les sceaux de vie qui le protégeaient pour les transformer en plus de 3 700 brins d'énergie de massacre. Sa main droite pointa vers le ciel, et cette énergie de massacre fusa de sa paume.
 
 Plus de 3 700 brins d'énergie de massacre jaillirent telle une tempête. Alors que Wang Lin se tenait au cœur de ce tumulte, ses yeux brillaient d'une intention meurtrière surpuissante.
 

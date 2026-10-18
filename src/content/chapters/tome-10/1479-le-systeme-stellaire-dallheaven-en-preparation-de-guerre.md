@@ -42,7 +42,7 @@ Maître Yan Leizi du Temple Céleste du Tonnerre; Lie Yunzi, qui avait été gra
 
 Outre ces trois-là, le dernier était Xiang Yundong!
 
-Xiang Yundong était celui qui avait conduit Wang Lin sur la planète Dong Lin et qui avait permis à l'ancêtre de la famille Xiang de tromper ce dernier, lui aspirant ainsi presque toute sa force vitale!
+Xiang Yundong était celui qui avait conduit Wang Lin sur la planète Dong Lin et qui l'avait fait passer par le sortilège Qixi, grâce auquel l'ancêtre de la famille Xiang avait trompé ce dernier, lui aspirant ainsi presque toute sa force vitale!
 
 Maître Yan Leizi suivait Maître Lu Fu depuis le plus longtemps. En voyant l'expression du vieil homme changer, il fut stupéfait. Après une brève hésitation, il joignit les mains et demanda respectueusement: « Senior, que se passe-t-il? »
 

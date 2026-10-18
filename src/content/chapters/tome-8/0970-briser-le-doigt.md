@@ -6,7 +6,7 @@ bookTitle: "Alliance's Secret"
 en: Chapter 970 - Break the Finger
 slug: briser-le-doigt
 ---
-Alors que le doigt chutait, la terre s'effondra dans un fracas assourdissant. Le point de rupture se situait précisément dans la vallée où se trouvait Wang Lin. Des grondements de tonnerre résonnèrent et d'immenses fissures déchirèrent le sol. Les crevasses continuèrent de s'étendre jusqu'à ce que la vallée soit pulvérisée!
+Alors que le doigt chutait, la terre s'effondra en forme de cuvette dans un fracas assourdissant. Le point de rupture se situait précisément dans la vallée où se trouvait Wang Lin. Des grondements de tonnerre résonnèrent et d'immenses fissures déchirèrent le sol. Les crevasses continuèrent de s'étendre jusqu'à ce que la vallée soit déchirée en morceaux!
 
 De nouvelles brèches apparurent et, en un instant, la vallée s'effondra totalement. D'innombrables fragments de roche explosèrent, se transformant en poussière sous l'effet de la pression.
 
@@ -46,7 +46,7 @@ Wang Lin leva les yeux vers le doigt qui grandissait et se rapprochait, jusqu'à
 
 Le fantôme de Qing Shui leva la main droite et forma un sceau. Puis, il pointa le cristal devant Wang Lin. L'artefact trembla et tourna frénétiquement avant qu'un éclat de lumière fulgurant ne soit projeté vers le doigt géant qui descendait sur lui!
 
-En approchant du doigt, le cristal libéra une explosion de lumière inimaginable. Cette clarté était si intense que, si un mortel la regardait, ses yeux se seraient liquéfiés, entraînant sa mort immédiate. Même pour un cultivateur, elle était aveuglante; si sa culture était insuffisante, son corps se dissiperait purement et simplement.
+En approchant du doigt, le cristal libéra une explosion de lumière inimaginable. Cette clarté était si intense que, si un mortel la regardait, ses yeux se seraient ulcérés, entraînant sa mort immédiate. Même pour un cultivateur, elle était aveuglante; si sa culture était insuffisante, son corps se dissiperait purement et simplement.
 
 Malgré son corps de Dieu Ancien, Wang Lin ressentit une douleur oculaire face à cette lumière. Heureusement, celle-ci disparut en un éclair.
 
@@ -110,6 +110,6 @@ Le doigt se retira pour mieux frapper, et juste au moment où il allait s'abattr
 
 Le doigt géant fut transpercé par ces lueurs rouges. Il fut criblé de trous, provoquant la dissipation rapide de la vaste énergie originelle qu'il renfermait.
 
-À mesure que le doigt remontait, le nombre de lueurs rouges augmentait. Le doigt colossal trembla, semblant sur le point de se désintégrer.
+À cet instant précis, le corps de Wang Lin pénétra dans le fragment du Royaume Céleste et apparut au-dessus de celui-ci. Ses yeux étaient d'une froideur absolue alors que sa main droite se serrait en un poing, et il lança un coup de poing vers le doigt.
 
-À cet instant précis, le corps de Wang Lin pénétra dans le fragment du Royaume Céleste et apparut au-dessus de celui-ci. Ses yeux étaient d'une froideur absolue alors que sa main droite se serrait en un poing, prêt à lancer son coup.
+Alors que le doigt remontait, le nombre de lueurs rouges augmentait. Le doigt colossal trembla, semblant sur le point de se désintégrer.

@@ -98,7 +98,7 @@ Wang Lin laissa échapper un rire amer.
 
 Le vieil homme reprit: « Pour passer du stade de la Formation de l'Âme à celui de la Transformation de l'Âme, à moins de posséder la rare Pilule de Transformation de l'Âme, il est impératif d'absorber suffisamment de ce Qi Céleste pour franchir le seuil. »
 
-« Dans l'Antiquité, une fois que l'on atteignait la Formation de l'Âme, on ascendait naturellement vers le Royaume Céleste. Une fois là-haut, il fallait absorber ce Qi Céleste. Il n'y avait pas d'autre issue. »
+« Dans l'Antiquité, une fois que l'on atteignait la Formation de l'Âme, on ascendait naturellement vers le Royaume Céleste. Une fois là-haut, il fallait absorber ce Qi Céleste. Aujourd'hui, en revanche, il n'y a d'autre choix que de risquer le voyage vers le Royaume Céleste. »
 
 Wang Lin réfléchit un instant, puis sourit faiblement: « Cela signifie que ce Chaudron de Pluie est une proie véritablement convoitée, surtout pour les cultivateurs de la Formation de l'Âme. Que ce soit pour élever leur propre niveau ou pour accroître le rang de leur pays, c'est un indispensable. Les trois autres types de chaudrons apparaîtront-ils également? »
 

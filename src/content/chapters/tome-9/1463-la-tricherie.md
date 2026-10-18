@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1463 - Cheating
 slug: la-tricherie
 ---
-Le regard de Wang Lin devint sérieux alors qu'il fixait la brume devant lui. Celle-ci disparut progressivement, emportant la jeune fille avec elle.
+Le regard de Wang Lin devint sérieux alors qu'il fixait la brume devant lui. Celle-ci disparut progressivement, emportant la jeune fille vers une destination inconnue.
 
 « Intéressant… » murmura Wang Lin pour lui-même. Il regarda ensuite le symbole numérique qu'il avait pris sur elle. Il écarta la marque sur le côté et laissa la plateforme s'élancer vers l'avant. Après un long moment, il sortit une autre âme de diable ancien et la broya pour en extraire la puissance de diable ancien. Puis, il puisa davantage de puissance de démon ancien dans sa gourde et la fusionna avec sa propre puissance de dieu ancien. Sans hésiter, il porta ensuite sa main sur son propre front.
 
@@ -60,7 +60,7 @@ Une plateforme de rang 7!
 
 Cette plateforme de 70 000 pieds était absolument stupéfiante. On aurait dit qu'un petit continent venait d'apparaître dans la brume. Dans son mouvement, elle générait un vent puissant qui interdisait à la brume de s'en approcher.
 
-Des éclats de lumière dorée jaillirent de la plateforme, forçant la brume à reculer davantage. Certaines zones de brouillard, trop lentes à se retirer, furent frappées par la lumière dorée et se dissipèrent instantanément, comme évaporées.
+Des éclats de lumière dorée, aussi brillants que le soleil, jaillirent de la plateforme, forçant la brume à reculer davantage. Certaines zones de brouillard, trop lentes à se retirer, furent frappées par la lumière dorée et se dissipèrent instantanément, comme évaporées.
 
 Une autre partie de la carte apparut dans l'esprit de Wang Lin! Cependant, son attention ne se porta pas sur la carte, mais sur la voix qui résonna dans sa tête pour la troisième fois!
 
@@ -68,19 +68,19 @@ Une autre partie de la carte apparut dans l'esprit de Wang Lin! Cependant, son a
 
 « Ces trois âmes, de leur vivant, étaient toutes des figures illustres… »
 
-La voix se dissipa. L'esprit de Wang Lin trembla: il comprenait enfin ce que signifiait le palais terrestre mentionné la première fois! Il avait également obtenu quelques indices concernant l'Épée Renhe.
+La voix se dissipa. L'esprit de Wang Lin trembla: il comprenait enfin ce que signifiait le palais terrestre mentionné la première fois! Il avait également une hypothèse au sujet de l'Épée Renhe.
 
 Au moment où la plateforme de Wang Lin atteignit le rang 7, le Maître Démon Neuf Cieux, qui se trouvait dans la huitième carte et venait lui aussi d'atteindre le rang 7, se redressa. Il ouvrit les yeux et regarda en arrière.
 
 « Qui est ce maudit individu? Comment a-t-il atteint le rang 7? Il y avait six personnes au total ayant atteint le rang 5, et l'une d'elles a été absorbée par lui pour lui permettre de passer au rang 6. Comment a-t-il pu atteindre le rang 7 en si peu de temps… » Le Maître Démon Neuf Cieux était sombre et perplexe.
 
-« J'ai utilisé de nombreux avatars pour tuer des gens dans la région extérieure afin d'obtenir des runes pour ma plateforme. Je suppose qu'il doit utiliser une méthode similaire… Rang 7… Je ne considère pas cela comme une prouesse. Ma plateforme atteindra bientôt le rang 8, voyons lequel de nous sera le plus rapide! » Le Maître Démon Neuf Cieux se rassit.
+« J'ai utilisé de nombreux avatars pour tuer des gens dans la région extérieure afin d'obtenir des runes pour ma plateforme. J'ai moi aussi une méthode semblable à la sienne… Rang 7… Je ne considère pas cela comme une prouesse. Ma plateforme atteindra bientôt le rang 8, voyons lequel de nous sera le plus rapide! » Le Maître Démon Neuf Cieux se rassit.
 
 Il y avait une autre plateforme dans la huitième carte, mais au lieu d'être immergée dans la brume, une plateforme sur le point d'atteindre le rang 7 volait au-dessus de celle-ci. Une femme en blanc y était assise, les sourcils froncés par la perplexité.
 
 Elle avait également remarqué cette scène étrange, mais ne parvenait pas à en trouver la cause.
 
-« Qui est-ce…? Je possède un sort secret qui me permet d'absorber les runes dispersées dans le Tombeau de l'Ordre Antique pour augmenter le rang de ma plateforme. Comment a-t-il fait… Qui diable est-il? » Alors que la femme en blanc se massait les tempes, la plateforme sous elle trembla. Elle venait d'absorber suffisamment de runes pour atteindre le rang 7!
+« Qui est-ce…? Je possède un sort secret qui me permet d'absorber les runes dispersées dans le Tombeau de l'Ordre Antique pour augmenter le rang de ma plateforme. Comment a-t-il fait pour grimper de deux rangs en si peu de temps… Qui diable est-il? » Alors que la femme en blanc se massait les tempes, la plateforme sous elle trembla. Elle venait d'absorber suffisamment de runes pour atteindre le rang 7!
 
 Ce changement interrompit ses pensées.
 

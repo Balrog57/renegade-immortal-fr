@@ -12,7 +12,7 @@ Si Maître Fu Fengzi pensait que Wang Lin avait conçu son propre sort, c'était
 
 Ce manque de maîtrise ne provenait pas du fait que l'utilisateur n'était pas familier avec la technique, mais du sort lui-même. C’est comme un jade qui vient d'être poli: il semble très lisse, mais si vous le touchez, vous constaterez qu'il est encore un peu rugueux.
 
-Cela conduisit Maître Fu Fengzi à poser sa question hésitante après avoir longuement réfléchi.
+Cela conduisit Maître Fu Fengzi à poser, d'une voix rauque, sa question hésitante après avoir longuement réfléchi.
 
 Wang Lin regarda calmement Maître Fu Fengzi et hocha la tête.
 
@@ -40,21 +40,21 @@ Maître Fu Fengzi, terrifié, endurait la douleur pour se relever et battre en r
 
 Wang Lin agita la main droite et la lumière dorée se dissipa.
 
-Maître Fu Fengzi poussa un soupir et dit respectueusement: « Je me souviendrai de la clémence du Compagnon Cultivateur Wang! J'ai été imprudent cette fois, et la perte de mon bras droit est un rappel cinglant de mon erreur. Moi, Maître Fu Fengzi, je jure par mon Dao que cela ne se reproduira pas une seconde fois! »
+Maître Fu Fengzi poussa un soupir et dit respectueusement: « Je me souviendrai de la clémence du Compagnon Cultivateur Wang! J'ai été imprudent en nourrissant l'espoir vain d'un peu de chance, et la perte de mon bras droit m'a fait voir clair en toute chose. Moi, Maître Fu Fengzi, je jure par mon Dao que cela ne se reproduira pas une seconde fois! »
 
 Bien qu'il ait admis sa défaite face à Wang Lin, il nourrissait toujours une rancœur. À l'origine, il avait décidé de se rebeller dans la Terre des Esprits Démoniaques.
 
-Cependant, après avoir constaté la puissance de la Nuit Brisée et appris qu'il s'agissait d'un sort auto-créé, il renonça à ces pensées. Il allait désormais se concentrer sur son évasion de la Terre des Esprits Démoniaques pour retrouver sa liberté.
+Cependant, après avoir constaté la puissance de la Nuit Brisée et appris qu'il s'agissait d'un sort auto-créé, ses paroles venaient du fond du cœur : il renonça à ces pensées. Il allait désormais se concentrer sur son évasion de la Terre des Esprits Démoniaques pour retrouver sa liberté.
 
 Quant à savoir si ce sort avait réellement été créé par Wang Lin, il ne s'en soucia pas outre mesure. Avec sa culture et son expérience, il pouvait en deviner les indices; il estimait que 80 % des paroles de Wang Lin étaient vraies.
 
-Toutefois, que ce soit vrai ou faux n'avait plus d'importance. Le choc provoqué par le sort l'avait poussé à abandonner toute idée de rébellion. D'une certaine manière, il s'en sentait soulagé, n'ayant plus à porter ce poids.
+Toutefois, que ce soit vrai ou faux n'avait plus d'importance. Le choc provoqué par le sort l'avait poussé à abandonner toute idée de rébellion. D'une certaine manière, il s'en sentait soulagé, n'ayant plus à porter ce poids, et il décida de ne plus penser à rien d'autre.
 
 De plus, après avoir reçu la clémence deux fois, Maître Fu Fengzi savait qu'il n'y aurait pas de troisième chance!
 
 Wang Lin regarda calmement Maître Fu Fengzi. Ils étaient tous deux des hommes sensés, il n'était donc pas nécessaire de multiplier les avertissements. Il se contenta de hocher la tête et laissa l'affaire derrière lui.
 
-« Compagnon Cultivateur Wang, d'après ce que je sais des vieux monstres de la planète Tian Yun, la Terre des Esprits Démoniaques devrait bientôt s'ouvrir. Cela pourrait arriver dans quelques mois, ou au plus tard dans une demi-année. Je suis gravement blessé et dois me retirer en culture fermée; je ne vous dérangerai donc pas davantage. » Désormais résolu à aider Wang Lin, Maître Fu Fengzi commença progressivement à envisager ce qui pourrait se passer dans la Terre des Esprits Démoniaques.
+« Compagnon Cultivateur Wang, d'après ce que je sais des vieux monstres de la planète Tian Yun, la Terre des Esprits Démoniaques devrait bientôt s'ouvrir. Cela pourrait arriver dans quelques mois, ou au plus tard dans une demi-année. Nous n'avons pas beaucoup de temps. Je suis gravement blessé et dois me retirer en culture fermée; je ne vous dérangerai donc pas davantage. » Désormais résolu à aider Wang Lin, Maître Fu Fengzi commença progressivement à envisager ce qui pourrait se passer dans la Terre des Esprits Démoniaques.
 
 Après avoir salué Wang Lin, Maître Fu Fengzi retourna à son palais pour commencer sa culture.
 
@@ -70,7 +70,7 @@ Les yeux de Wang Lin s'illuminèrent; il agita la main droite, et son énergie o
 
 En un clin d'œil, le jour passa et la nuit revint. Wang Lin resta assis dans son palais, réfléchissant jusque tard dans la nuit. Ce n'est qu'à l'approche de l'aube que ses yeux s'illuminèrent; il se leva et sortit.
 
-Son corps disparut soudainement pour réapparaître au sommet même où il avait compris la Nuit Brisée!
+Son corps disparut soudainement pour réapparaître au sommet même où il avait passé plus de deux mois à comprendre la Nuit Brisée!
 
 La brise marine soufflait, jetant des rafales de froid sur lui. Mais Wang Lin n'en fut nullement perturbé, le regard fixé sur le soleil levant au loin. La compréhension acquise lors de l'usage de la Nuit Brisée emplissait son corps avant de migrer vers sa main droite.
 
@@ -84,7 +84,7 @@ Une illumination divine apparut dans les yeux de Wang Lin. D'une simple pensée,
 
 « C'était donc cela! Mon réservoir d'énergie originelle est insuffisant pour utiliser ce sort auto-créé si dévastateur. Je ne peux qu'emprunter la puissance du lever du soleil... » Wang Lin médita longuement avant de secouer la tête. Il fit un pas et disparut.
 
-« Bien qu'il y ait une limite, si quelqu'un combat contre moi lors du lever du soleil, alors, avec mon troisième œil et le Char de Guerre de l'Extermination Divine, je devrais avoir la puissance nécessaire pour affronter un cultivateur au début du stade Briseur du Nirvana! »
+« Bien qu'il y ait une limite, si quelqu'un combat contre moi lors du lever du soleil, alors, avec mon troisième œil et le Char de Guerre de l'Extermination Divine, je devrais pouvoir tenir tête à un cultivateur au début du stade Briseur du Nirvana! »
 
 « Le moment où le soleil dépasse l'horizon est celui où je suis à mon apogée! »
 
@@ -96,22 +96,22 @@ Tandis que les restrictions envahissaient la zone, le palais fut totalement scel
 
 Malgré cela, Wang Lin restait un peu inquiet. Il frappa son sac de rangement et une boussole apparut dans sa main! Cette boussole n'était l'apanage que de l'héritier de la Restriction d'Annihilation!
 
-Après y avoir insufflé de l'énergie originelle, l'aiguille se mit à tournoyer. La boussole s'éleva et grandit jusqu'à atteindre une trentaine de mètres de large. Elle flotta au-dessus de Wang Lin; quand celui-ci sauta, la boussole descendit pour s'enfoncer dans le sol, et Wang Lin s'assit en son centre.
+Après y avoir insufflé de l'énergie originelle, l'aiguille se mit à tournoyer. La boussole s'éleva et grandit jusqu'à atteindre une trentaine de mètres de large. Elle flotta au-dessus de Wang Lin; quand celui-ci se leva, la boussole descendit pour se poser sur le sol, et Wang Lin s'assit en son centre.
 
-« Cela devrait suffire! » Wang Lin frappa à nouveau son sac de rangement et le cadavre argenté apparut devant lui. En l'observant, il réfléchit un instant avant de presser impitoyablement le point entre ses sourcils!
+« Cela devrait suffire! » Wang Lin frappa à nouveau son sac de rangement et le cadavre argenté apparut devant lui. En l'observant, il régula sa respiration un instant avant de presser impitoyablement le point entre ses sourcils!
 
-À cet instant, le cadavre féminin ouvrit brusquement les yeux, lançant un regard glacial à Wang Lin. Un vortex apparut entre ses sourcils, stoppant le doigt de l'homme à environ trois centimètres de sa peau.
+À cet instant, le cadavre féminin ouvrit brusquement les yeux, lançant un regard glacial à Wang Lin. Un vortex tournoyant apparut entre ses sourcils, stoppant le doigt de l'homme à environ trois centimètres de sa peau.
 
-Un regard féroce traversa les yeux du cadavre et elle recula. Cependant, au moment même de son retrait, la boussole sous elle trembla et pivota. Des restrictions jaillirent de la boussole pour se lier parfaitement à toutes les autres présentes dans la pièce. Si elle en déclenchait une seule, ce serait comme si elle les déclenchait toutes!
+Un regard féroce traversa les yeux du cadavre et elle recula. Cependant, au moment même de son retrait, la boussole sous elle émit un gémissement et se mit à tourner. Des restrictions jaillirent de la boussole pour se lier parfaitement à toutes les autres présentes dans la pièce. Quelle que soit la sortie qu'elle emprunte, elle toucherait une restriction, et en déclencher une seule revenait à toutes les déclencher!
 
-Il y avait dans ses yeux une lueur de malveillance, mais aussi une intelligence inattendue. Elle ralentit sa retraite et chargea directement Wang Lin!
+Il y avait dans ses yeux une lueur de malveillance, mais aussi une intelligence inattendue. Elle suspendit sa retraite et fonça sur Wang Lin en une traînée argentée!
 
-Le cadavre féminin était gravement blessé et, bien que son niveau de culture ait chuté, sa férocité était restée intacte. Elle se précipita sur Wang Lin pour le griffer sans pitié.
+Le cadavre féminin était gravement blessé et, bien que son niveau de culture ait chuté, sa férocité n'avait rien perdu, bien au contraire elle s'était intensifiée. Elle se précipita sur Wang Lin pour le griffer sans pitié.
 
 L'expression de Wang Lin resta sereine et, alors que les griffes approchaient, un rayon de lumière bleue jaillit de son œil droit. La main de la créature toucha immédiatement cette lueur.
 
-Après avoir poussé un cri déchirant, la femme recula promptement. Malgré la rapidité de son retrait, ses mouvements étaient légers et elle parvint, contre toute attente, à ne toucher aucune des restrictions. Elle s'arrêta à une dizaine de mètres de Wang Lin. Une pointe d'intelligence brilla dans son regard alors qu'elle montrait les dents devant lui en poussant un rugissement.
+Après avoir poussé un cri déchirant, la femme recula promptement. Malgré la rapidité de son retrait, ses mouvements étaient légers et elle parvint, contre toute attente, à ne toucher aucune des restrictions. Elle s'arrêta à une dizaine de mètres de Wang Lin. Une pointe d'intelligence brilla dans son regard alors qu'elle montrait les dents devant lui en poussant un grondement sourd.
 
 Ce cadavre féminin était déjà magnifique; ainsi, loin d'inspirer le danger, ce geste lui donnait l'allure d'un chat à cause de ses deux canines saillantes.
 
-Les deux chaînes qui ornaient son corps cliquetèrent lors de ses mouvements, et le son résonna dans tout le palais.
+Les chaînes de fer rivées à ses omoplates et à son bassin cliquetèrent lors de son recul, et le son résonna dans tout le palais.

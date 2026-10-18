@@ -20,7 +20,7 @@ Deux autres piliers de jade se brisèrent et deux autres anciens s'effondrèrent
 
 Sur les huit piliers blancs, il n'en restait plus que quatre. Hormis les deux anciens de la Formation du Noyau, les visages des deux anciens de l'Établissement des Fondations étaient livides et leurs corps tremblaient; ils avaient manifestement atteint leurs limites.
 
-Huang Long avait déjà rassemblé tous les disciples internes. Leurs visages étaient empreints de choc et de terreur. Wang Lin était parmi eux et regardait Pu Nanzi dans le ciel, hébété, le cœur saisi d'effroi. Wang Hao figurait également parmi eux. Son teint restait pâle et il était très affaibli. En voyant Wang Lin, il poussa un léger soupir et s'approcha de lui.
+Huang Long avait déjà rassemblé tous les disciples internes. Leurs visages étaient empreints de choc et de terreur. Wang Lin était parmi eux. Wang Hao figurait également parmi eux. Son teint restait pâle, mais il allait bien mieux qu'auparavant. En voyant Wang Lin, il s'approcha aussitôt de lui et, hébété, contempla la scène dans le ciel sans pouvoir dire un mot.
 
 Le visage de Pu Nanzi était sombre alors qu'il planait dans les airs. La puissance de cette formation défensive dépassait ses attentes. Il savait que la formation n'était pas à son plein potentiel; si un cultivateur de l'Âme Naissante en avait le contrôle, elle serait bien plus redoutable.
 
@@ -46,7 +46,7 @@ La montagne descendit encore de 3,3 cm, et le dernier ancien de l'Établissement
 
 Le pont de pierre relié à la Secte Heng Yue se brisa en deux et bascula dans le précipice.
 
-Simultanément, la formation défensive de la Secte Heng Yue ne put plus tenir; elle vola en éclats et disparut.
+Simultanément, la formation défensive de la Secte Heng Yue ne put plus tenir; elle vola en éclats dans un bruit de miroir brisé et disparut.
 
 Les deux derniers piliers de jade blanc se brisèrent, et Liu Wenju ainsi que la vieille femme tombèrent au sol, l'expression amère, incapables de dire un mot.
 

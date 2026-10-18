@@ -32,7 +32,7 @@ Certains cultivateurs plus faibles, bien qu'ayant échappé aux rochers enflamm�
 
 Des cris de désespoir résonnèrent à travers la nébuleuse!
 
-Cependant, ce n'était pas encore fini. La montagne qui projetait la fumée noire et les flammes trembla une nouvelle fois. Des vagues de lave commencèrent à déferler vers le sommet, et une chaleur intense envahit la zone. Puis, une aura capable de détruire tout ce qui existe au monde apparut.
+Cependant, ce n'était pas encore fini. La montagne qui projetait la fumée noire et les flammes trembla une nouvelle fois. Des vagues de lave commencèrent à déferler depuis le sommet, et une chaleur intense envahit la zone. Puis, une aura capable de détruire tout ce qui existe au monde apparut.
 
 Lorsque la lave se propagea, sept cultivateurs se trouvèrent trop près; alors qu'ils tentaient de fuir, deux d'entre eux furent encerclés par la fumée noire et moururent dans des souffrances atroces.
 
@@ -42,7 +42,7 @@ Ils étaient les chanceux. Bien qu'ils n'aient pas échappé à la mort, leur do
 
 Ces squelettes ne durèrent qu'un demi-souffle avant de s'effondrer en tas de cendres... Quant à leurs âmes originelles, elles furent consumées par la lave jusqu'au néant.
 
-Les plus douloureux furent les combattants possédant les niveaux de culture les plus élevés. Ils ne périrent pas lors de la première vague de lave, mais ne purent s'en extirper. Ils ne purent que lutter désespérément à l'intérieur. Malgré l'usage de divers sorts et trésors, il leur était impossible d'échapper à cette calamité!
+Les plus douloureux furent les combattants dont le niveau de culture était légèrement supérieur. Ils ne périrent pas lors de la première vague de lave, mais ne purent s'en extirper. Ils ne purent que lutter désespérément à l'intérieur. Malgré l'usage de divers sorts et trésors, il leur était impossible d'échapper à cette calamité!
 
 Au loin, la bête moustique utilisa sa vitesse fulgurante pour revenir. Ses yeux étaient empreints de froideur alors qu'elle s'engouffrait dans la Montagne qui s'effondre, là où se trouvaient ses congénères. Le sort de Wang Lin avait détruit toutes les forces de scellement, et il n'y avait plus de flammes pour entraver les bêtes moustiques.
 
@@ -56,7 +56,7 @@ Tout cela se produisit en un instant. Sous le pouvoir de la Montagne qui s'effon
 
 L'autre Ancien en pourpre était tout aussi pâle; il esquivait la fumée noire et fonçait vers la formation, faisant totalement abstraction de la vie de ses disciples. Il était terrifié, le cœur rempli de regret et de haine. Il regrettait sa cupidité et haïssait les trois disciples qui avaient attiré ces bêtes moustiques géantes, causant ce désastre.
 
-Les yeux de Wang Lin étaient calmes, mais il ne montra aucune pitié envers ces gens. Ils avaient osé songer à voler les bêtes moustiques, ils devaient donc en payer le prix! Il ouvrit les bras et cria: « Montagne, premier effondrement! »
+Les yeux de Wang Lin étaient calmes, mais il ne montra aucune pitié envers ces gens. Ils avaient osé songer à voler les bêtes moustiques, ils devaient donc en payer le prix! Il ouvrit les bras, les poussa vers le haut et cria: « Montagne, premier effondrement! »
 
 À la suite de ce cri, la montagne trembla une nouvelle fois et une masse colossale de roches tomba dans la lave. La lave environnante jaillit soudainement dans les airs, remplissant la nébuleuse d'une force inimaginable. Certains des cultivateurs restants furent touchés par cette lave et se transformèrent en cendres noires dans un ultime hurlement.
 

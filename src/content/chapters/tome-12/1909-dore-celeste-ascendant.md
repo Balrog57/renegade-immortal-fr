@@ -32,11 +32,11 @@ Depuis la naissance du Continent du Taureau Céleste, les étrangers ne connaiss
 
 Exalté Doré, Exalté Empyréen, Ascendant Empyréen, Grand Empyréen. Ces quatre titres représentaient quatre sommets de puissance distincts!
 
-La Secte de la Grande Âme possédait l'Ancêtre du Taureau Vert et un Ascendant Empyréen nommé Luo Yunhai qui avait osé défier un Grand Empyréen. Bien que cela remontât à une époque lointaine, sa renommée subsistait encore aujourd'hui. L'estimé Taureau Vert était un Exalté Doré possédant un corps véritable d'essence. Grâce aux sorts mystérieux de la Secte de la Grande Âme, celui-ci comptait parmi les neuf sectes et treize factions, occupant un rang très élevé.
+La Secte de la Grande Âme possédait l'Ancêtre du Taureau Vert et un Ascendant Empyréen nommé Luo Yunhai qui avait osé défier un Grand Empyréen. Bien que cela remontât à une époque lointaine, sa renommée subsistait encore aujourd'hui. L'estimé Taureau Vert était un Exalté Doré possédant un corps véritable d'essence. Grâce aux sorts mystérieux de la Secte de la Grande Âme, celui-ci figurait parmi les treize factions, où il occupait un rang très élevé.
 
 Quant à la Secte Gui Yi, ils ne possédaient aucun Exalté Doré. Même leur maître de secte n'était qu'un cultivateur au stade avancé de la Tribulation du Vide. Un gouffre céleste le séparait d'un véritable expert au sommet de ce stade!
 
-Malgré cela, la Secte Gui Yi comptait plus de cinq individus au stade avancé de la Tribulation du Vide occupant des postes de premier plan.
+Malgré cela, la Secte Gui Yi comptait pas moins de cinq individus au stade avancé de la Tribulation du Vide occupant des postes de premier plan.
 
 La secte avait également hérité d'une célèbre armure antique. Un Exalté au stade avancé de la Tribulation du Vide portant cette armure pouvait accroître considérablement sa puissance. En sacrifiant leur force vitale, ils pouvaient libérer une énergie capable de rivaliser avec un Exalté Doré!
 
@@ -74,7 +74,7 @@ L'ensemble de la Secte du Dao Démoniaque se trouvait dans ce brouillard, bâti 
 
 Ils avaient transformé les pierres obtenues en dalles pour les disposer sur le marais, permettant aux disciples de marcher sur l'eau comme s'il s'agissait d'un sol plat.
 
-La Secte du Dao Démoniaque était immense. De loin, on ne pouvait en percevoir les limites. Les montagnes et les pavillons formaient une formation entourant le cœur de la secte.
+La Secte du Dao Démoniaque était immense. De loin, on ne pouvait en percevoir les limites. Les montagnes et les pavillons formaient une formation en Huit Trigrammes entourant le cœur de la secte.
 
 Le centre n'était pas un marais, mais un lac à l'eau cristalline, si limpide que l'on pouvait en voir le fond. Des ondulations y parcouraient la surface, comme si une créature céleste y résidait.
 

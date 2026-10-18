@@ -20,7 +20,7 @@ Alors que cette lumière obscure recouvrait la région, une clarté argentée é
 
 « La Restriction des 18 Fleurs de Prunier! »
 
-Cette restriction n'était pas là depuis longtemps; elle avait été placée il y a seulement un jour. Apparemment, la vieille femme en vert en était l'auteur. La Restriction des 18 Fleurs de Prunier était dérivée de l'une des quatre grandes restrictions anciennes: la Restriction de l'Annihilation. Si Wang Lin n'était pas allé à Luotian, il n'aurait pas pu la briser.
+Cette restriction n'était pas là depuis longtemps; elle avait été placée il y a seulement un jour. Apparemment, la vieille femme en vert en était l'auteur. La Restriction des 18 Fleurs de Prunier était une restriction d'un très haut niveau, dérivée de l'une des quatre grandes restrictions anciennes: la Restriction de l'Annihilation. Si Wang Lin n'était pas allé à Luotian, il n'aurait pas pu la briser.
 
 Cependant, lors de son passage à Luotian, Wang Lin avait hérité de l'une des quatre grandes restrictions anciennes, la Restriction de l'Annihilation. Cette restriction des 18 Fleurs de Prunier étant issue de celle-ci, il ne lui serait pas difficile de la briser.
 
@@ -28,17 +28,17 @@ Cependant, lors de son passage à Luotian, Wang Lin avait hérité de l'une des 
 
 Il avait le vague sentiment que les choses n'étaient pas aussi simples qu'elles en avaient l'air.
 
-Wang Lin déploya son Sens Divin et scanna méticuleusement l'herbe, centimètre par centimètre. Son expression devint progressivement grave, d'autant plus lorsqu'il aperçut la lumière noire non loin de la restriction. Il pensa immédiatement au gaz noir que la vieille femme avait utilisé pour absorber la vitalité du dragon et pénétrer dans la Formation de Scellement Céleste en Neuf Étapes.
+Wang Lin déploya son Sens Divin et scanna méticuleusement l'herbe, centimètre par centimètre. Son expression devint progressivement grave, d'autant plus lorsqu'il aperçut, au centre de la restriction non loin de là, une lueur noire à peine perceptible. Il pensa immédiatement au gaz noir que la vieille femme avait utilisé pour absorber le sang et la chair du dragon et pénétrer dans la Formation de Scellement Céleste en Neuf Étapes.
 
 Lorsqu'il avait vu la restriction de la vieille femme, il l'avait trouvée étrange, mais ne pouvant l'observer trop près, il n'avait pu percer son mystère. Cependant, face à cette restriction, sa réflexion lui apporta une illumination.
 
-« Transformer la vitalité de tous les êtres en une restriction de mort... cette méthode est similaire à l'une des quatre grandes restrictions anciennes, la Restriction de la Vie et de la Mort... » Wang Lin médita un instant en s'accroupissant. Sa main droite s'activa et il arracha lentement quelques brins d'herbe du sol. Ses yeux se plissèrent.
+« Transformer la vitalité de tous les êtres en une restriction de mort... cette méthode est similaire à l'une des quatre grandes restrictions anciennes, la Restriction de la Vie et de la Mort... » Wang Lin médita un instant en s'accroupissant. Sa main droite, parcourue d'une lueur sombre, se posa lentement près d'une touffe d'herbe et écarta un peu de terre. Ses yeux se plissèrent.
 
 Les racines de l'herbe étaient déjà en décomposition; il n'en restait que peu de vitalité. Dans quelques heures seulement, elle serait totalement épuisée et la restriction s'activerait pleinement.
 
 « La vieille femme en vert n'a pas eu le temps d'agir avec précision en présence de Maître Pin Cendré. Elle a simplement laissé une restriction capable d'absorber la vitalité de la végétation. Une fois toute la vitalité consommée, la restriction se déclenchera », murmura Wang Lin pour lui-même. Il devint alors extrêmement vigilant envers la vieille femme en vert.
 
-« Pour l'instant, cette restriction est à moitié achevée. Ce n'est pas que je ne puisse pas la briser, à moins que... » Wang Lin esquissa un sourire et recula de quelques pas. Ses mains formèrent un sceau qu'il pointa vers l'avant. La lumière noire issue du Cœur de la Restriction de l'Annihilation s'effondra soudainement en une multitude d'éclats sombres qui se déposèrent sur cette parcelle d'herbe.
+« Pour l'instant, cette restriction est à moitié achevée. Ce n'est pas que je ne puisse pas la briser, à moins que... » Wang Lin eut un sourire froid et recula de quelques pas. Ses mains formèrent un sceau qu'il pointa vers l'avant. La lumière noire issue du Cœur de la Restriction de l'Annihilation s'effondra soudainement en une multitude d'éclats sombres qui se déposèrent sur cette parcelle d'herbe.
 
 « Je ne vais pas briser cette restriction. Au lieu de cela, je vais y imprimer ma propre marque et ma propre restriction avant qu'elle ne s'active totalement. De la sorte, je prendrai le contrôle de cette restriction à l'insu de la vieille femme... Avec ma Restriction de l'Annihilation et la Restriction de la Vie et de la Mort, j'aurai deux des quatre grandes restrictions anciennes. Même si Maître Pin Cendré y pénétrait par inadvertance, il serait gravement blessé! » Wang Lin progressa prudemment à travers le champ, ne se détendant qu'une fois entré dans la vallée.
 
@@ -52,11 +52,11 @@ Sans perdre un instant, Wang Lin grimpa la montagne avec la rapidité de l'écla
 
 Wang Lin commença à méditer tout en gravissant la montagne.
 
-« Lorsque j'ai quitté le système stellaire de Luotian, Li Yuan a dit que si l'on parvenait à maîtriser les quatre grandes restrictions anciennes et à les fusionner, on pourrait comprendre le royaume Abstrait... L'Abstrait est le sommet des restrictions! Pourtant, depuis les innombrables années où la loi des restrictions s'est détachée de la naissance du monde, personne n'a pu atteindre ce royaume. » Wang Lin poussa un soupir et cessa d'y songer. Il se concentra plutôt sur la traque de la piste laissée par Maître Pin Cendré.
+« Lorsque j'ai quitté le système stellaire de Luotian, Li Yuan a dit que si l'on parvenait à maîtriser les quatre grandes restrictions anciennes et à les fusionner, on pourrait, grâce à une immense sagesse, comprendre le royaume Abstrait... L'Abstrait est le sommet des restrictions! Pourtant, depuis les innombrables années où la loi des restrictions s'est détachée de la naissance du monde, personne n'a pu atteindre ce royaume. » Wang Lin poussa un soupir et cessa d'y songer. Il se concentra plutôt sur la traque de la piste laissée par Maître Pin Cendré.
 
 Une demi-journée s'écoula. Wang Lin se tenait au sommet de la montagne, baigné par une lumière aux sept couleurs. Cette aura l'enveloppait, le faisant ressembler, vu de loin, à un dieu céleste.
 
-Cette chaîne de montagnes en forme de mur agissait comme un anneau séparant l'intérieur de l'extérieur. Le lieu était noyé dans une brume dense qui rendait toute visibilité impossible. C'était comme une mer noire dont les dangers commençaient à poindre.
+Cette chaîne de montagnes en forme de mur agissait comme un anneau séparant l'intérieur de l'extérieur. Le lieu était noyé dans une brume dense qui rendait toute visibilité impossible. C'était comme une mer noire dont les flots semblaient s'agiter sourdement.
 
 En regardant devant lui, Wang Lin sentait distinctement que Maître Pin Cendré se trouvait dans la brume. Le regard de Wang Lin devint glacial alors qu'il dévalait la montagne pour disparaître au loin.
 
@@ -84,7 +84,7 @@ Il s'agissait d'un rocher colossal d'environ mille pieds de haut, dans lequel é
 
 « Éveillé, toute vie doit avancer éternellement pour résoudre l'ère moderne. Échappez à la volonté céleste et obtenez la voie de la vie. Attendez le chemin de la culture... »
 
-« Éveillé, scellez la volonté des cieux. Gravez les jours sombres. Toute vie ignore le véritable Dao. L'abîme amer déforme éternellement le véritable Dao. Attendez le chemin de la culture... »
+« Éveillé, scellez la volonté des cieux. Gravez les jours sombres. Ceux des êtres qui n'atteignent pas le véritable Dao sombrent sans fin dans la mer d'amertume et perdent à jamais le véritable Dao. Attendez le chemin de la culture... »
 
 Ce passage sinistre résonnait à travers la brume, emplissant l'espace.
 

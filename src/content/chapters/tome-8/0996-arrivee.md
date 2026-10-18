@@ -8,7 +8,7 @@ slug: arrivee
 ---
 D'innombrables cultivateurs s'étaient rassemblés aux abords de la Mer des Esprits Démoniaques de l'Est, dans l'attente de son ouverture.
 
-Lorsque Ling Tianhou entendit l'homme en pourpre, un éclair d'extase brilla dans ses yeux. Cependant, il n'en demanda pas davantage. Dès qu'il fut à proximité, il prit place et fixa le vortex qui s'agitait sous lui.
+Juché sur un qilin rouge feu, Ling Tianhou entendit l'homme en pourpre, et un éclair d'extase brilla dans ses yeux. Cependant, il n'en demanda pas davantage. Dès qu'il fut à proximité, il prit place et fixa le vortex qui s'agitait sous lui.
 
 Voyant que plus personne n'arrivait, Ling Tianhou fronça les sourcils. Il détourna son regard pour scruter l'horizon. Il n'était pas le seul; même le vieil homme sur la gourde fronça les sourcils, scrutant le vide comme s'il attendait quelque chose. Seul l'Omniscient demeurait impassible, attendant silencieusement.
 
@@ -26,7 +26,7 @@ Après l'homme en pourpre vinrent le tour de Ling Tianhou, du vieil homme sur la
 
 Un étrange sifflement retentit au loin, captant progressivement l'attention de tous. Un instant plus tard, les cultivateurs poussèrent un cri de stupeur devant la scène ahurissante qui se déroulait sous leurs yeux.
 
-Un géant d'environ 330 mètres de haut fonçait vers eux!
+Un géant d'environ 330 mètres de haut, galopant sur ses quatre membres, fonçait vers eux!
 
 « Une monture du Clan des Démons Géants! » s'exclama quelqu'un dans la foule, reconnaissant immédiatement la créature.
 
@@ -72,7 +72,7 @@ Cependant, non loin derrière la femme d'argent, la silhouette insolente de Situ
 
 « Je connais cet homme. Il est devenu célèbre récemment sur la planète Tian Yun. C'est le Seigneur du Palais Rose, Situ Nan! »
 
-La belle femme fronça les sourcils avec dégoût. Bien qu'elle ne vécût pas sur la planète Tian Yun, elle avait entendu parler de sa mauvaise réputation. Elle ne comprenait pas pourquoi un puissant Purificateur du Nirvana puisse agir ainsi.
+La belle femme fronça les sourcils avec dégoût. Bien qu'elle ne vécût pas sur la planète Tian Yun, elle avait entendu parler de sa mauvaise réputation. Elle ne comprenait pas pourquoi un puissant Purificateur du Nirvana pouvait s'abaisser à une telle bassesse.
 
 L'Omniscient restait calme en observant les cavaliers; il était impossible de deviner ses pensées. Le choc provoqué par ces trois Purificateurs du Nirvana était bien plus immense que celui causé par les quatre Scruteurs du Nirvana!
 
@@ -80,7 +80,7 @@ L'Omniscient restait calme en observant les cavaliers; il était impossible de d
 
 Lei Ji ralentit légèrement avant que la silhouette de Wang Lin n'apparaisse devant tous!
 
-Il portait une robe d'un blanc immaculé, ses cheveux flottaient au vent et son regard était empreint d'indifférence. Ses yeux semblaient contenir le soleil et la lune tandis qu'il se tenait calmement au milieu de la foule. Tous les regards des cultivateurs étaient rivés sur lui.
+Il portait une robe d'un blanc immaculé, ses cheveux flottaient au vent et son regard était empreint d'indifférence. Ses yeux semblaient contenir le soleil et la lune tandis qu'il se tenait calmement au milieu des cavaliers. Tous les regards des cultivateurs étaient rivés sur lui.
 
 Au moment où Wang Lin apparut, le Blaireau Marqué d'Étoiles sur l'épaule de l'homme en pourpre redressa soudain la tête, une lueur étrange dans ses yeux intelligents. Son corps trembla et, juste au moment où il allait bouger, Wang Lin lui adressa un sourire nonchalant tout en joignant les mains en signe de salut vers l'homme en pourpre.
 
@@ -104,6 +104,6 @@ Ce n'était pas une ouverture ordinaire de la Mer des Esprits Démoniaques de l'
 
 Ce vortex s'étendit rapidement, ouvrant un trou noir. L'aura de la Terre des Esprits Démoniaques, si familière à Wang Lin, en émana.
 
-« Ce n'est qu'une fois les quatre grottes célestes ouvertes que la cinquième pourra s'ouvrir! Ce vieil homme y va le premier et attendra les bonnes nouvelles de vous tous! » Enveloppé d'une lueur aux sept couleurs, l'Omniscient s'élança dans le trou noir, debout sur son trident.
+« Ce n'est qu'une fois les quatre grottes célestes ouvertes que la cinquième pourra s'ouvrir! Ce vieil homme y va le premier et attendra les bonnes nouvelles de vous tous! » Enveloppé d'une lueur aux sept couleurs, l'Omniscient s'élança dans le trou noir, emportant son trident.
 
 Le regard de Wang Lin parcourut l'arme. Il avait déjà remarqué le trident; l'aura familière qui s'en dégageait lui confirmait qu'il s'agissait d'un trésor raffiné par Tu Si!

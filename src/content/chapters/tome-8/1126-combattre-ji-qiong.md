@@ -16,7 +16,7 @@ Après avoir reconnu cette créature, une sueur froide perla sur le front de Wan
 
 Il y avait même des bêtes si redoutables que même un Ancien Dieu à 8 étoiles ne voudrait pas les provoquer! Comme l'essaim de bêtes moustiques ou l'autre souvenir dont Wang Lin venait de se remémorer.
 
-C'était un vide ténébreux; même les étoiles ne pouvaient éclairer cette zone. Une planète violette se trouvait au loin.
+C'était un vide ténébreux; même les nébuleuses scintillantes ne pouvaient éclairer cette zone. Une planète violette se trouvait au loin.
 
 Une silhouette haute de plusieurs centaines de pieds s'éleva lentement. Cette forme n'était pas particulièrement massive, mais elle possédait 36 branches auxquelles étaient attachées 36 grandes têtes. Si l'on regardait de plus près, on verrait que chaque branche mesurait 10 000 pieds de long!
 
@@ -60,7 +60,7 @@ Il ne pouvait pas utiliser la Courbure Spatiale dans la Terre de l'Ancien Dieu, 
 
 Cependant, dès qu'il disparut, le Ji Qiong qui le poursuivait disparut également.
 
-Lorsque Wang Lin réapparut dans le vide, son expression changea et il esquiva rapidement sur le côté. Un bang retentit et une énergie d'épée longue de cent pieds passa près de lui.
+Lorsque Wang Lin réapparut dans le vide, son expression changea et il esquiva rapidement sur le côté. Un fracas retentit et une énergie d'épée longue de cent pieds passa près de lui.
 
 Une bourrasque souffla sur son visage et Wang Lin regarda immédiatement en arrière. Le Ji Qiong s'était également téléporté pour le poursuivre, et l'énergie d'épée était sortie de l'une de ses bouches.
 
@@ -80,15 +80,15 @@ Wang Lin avait voulu se téléporter; son expression devint encore plus sombre e
 
 Il le plaça sur sa poitrine sans hésiter; le vent l'enveloppa et Wang Lin s'élança. Sa vitesse augmenta considérablement alors qu'il disparaissait sous la forme d'une lumière noire.
 
-Les 18 têtes du Ji Qiong parurent surprises, mais elles poussèrent immédiatement un rugissement unifié. L'une des têtes, celle d'une jeune fille, poussa un cri féroce et un vent noir apparut autour de la bête. Ce vent créa une tempête qui chargea avec le Ji Qiong. Un grondement retentit alors que la bête poursuivait à nouveau Wang Lin.
+Les 18 têtes du Ji Qiong parurent surprises, mais elles poussèrent immédiatement un rugissement unifié. L'une des têtes, celle d'une jeune fille au visage charmeur, poussa un cri féroce et un vent noir apparut autour de la bête. Ce vent créa une tempête qui chargea avec le Ji Qiong. Un grondement retentit alors que la bête poursuivait à nouveau Wang Lin.
 
 Au même moment, des incantations sortirent de quatre autres têtes et d'innombrables sceaux noirs apparurent. Ils se pressèrent autour de la tempête, puis convergèrent et s'imprimèrent sur elle.
 
-En conséquence, la vitesse de la tempête fut multipliée par plusieurs. La distance que Wang Lin avait gagnée fut instantanément comblée.
+En conséquence, la vitesse de la tempête fut multipliée d'innombrables fois. La distance que Wang Lin avait gagnée fut instantanément comblée.
 
 À cet instant, Wang Lin était déjà très proche de l'entrée de la zone suivante. Il pouvait vaguement apercevoir un gigantesque vortex devant lui.
 
-Wang Lin savait qu'une fois entré dans le vortex, il pourrait quitter le vide et échapper à la terrifiante bête. Cependant, il n'avait pas le temps. Bien que la tempête semblât lointaine, elle se trouvait déjà à moins de mille pieds de lui!
+Wang Lin savait qu'une fois entré dans le vortex, il pourrait quitter le vide et échapper à la terrifiante bête. Cependant, il n'avait pas le temps. Bien que le hurlement semblât lointain, la tempête se trouvait déjà à moins de mille pieds de lui!
 
 Si cela continuait, le Ji Qiong le rattraperait avant qu'il ne puisse entrer dans le vortex!
 
@@ -96,7 +96,7 @@ En ce moment de crise, une lueur de froideur passa dans les yeux de Wang Lin. Sa
 
 Instantanément, des grondements tonitruants résonnèrent dans le vide et une foudre infinie jaillit de la main de Wang Lin. La foudre forma un filet qui s'abattit sur les flammes.
 
-À cet instant précis, la tempête noire entourant le Ji Qiong percuta la mer de flammes. Un fracas déchirant retentit et les flammes se dissipèrent aussitôt.
+À cet instant précis, la tempête noire entourant le Ji Qiong percuta la mer de flammes. Un fracas déchirant retentit et les flammes se brisèrent aussitôt en d'innombrables étincelles, telles des flammes célestes ravageant la plaine.
 
 La tempête noire marqua également une pause à cause de la mer de flammes, mais le Ji Qiong aux 18 têtes jaillit du vent noir et vola vers Wang Lin. Les différentes têtes affichaient toutes des expressions féroces, particulièrement l'homme d'âge moyen, transi d'excitation à l'idée de dévorer de la chair vive.
 

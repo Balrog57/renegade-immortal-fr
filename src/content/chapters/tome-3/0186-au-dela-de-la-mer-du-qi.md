@@ -34,7 +34,7 @@ Une fois terminé, il pointa son doigt vers son front et cracha une bouffée de 
 
 Le corps entier des épines trembla et se mit à tourbillonner, entraîné par les cercles illusoires.
 
-Peu après, Wang Lin s'engagea sans hésiter dans le réseau de transfert. À l'instant où son corps y pénétra, un rayon de lumière rouge jaillit sur le côté pour recouvrir l'intégralité du dispositif.
+Peu après, Wang Lin s'engagea sans hésiter dans le réseau de transfert. À l'instant où son corps y pénétra, un rideau de lumière rouge s'éleva du bord pour envelopper l'intégralité du dispositif.
 
 « Le temps mis pour franchir les trois premiers essais a dépassé la limite prévue, mais vous avez obtenu le titre de Compréhenseur. En conséquence, vous êtes envoyé au-delà de la Mer du Qi. »
 
@@ -70,7 +70,7 @@ Avant le troisième essai, Wang Lin nourrissait encore l'espoir d'atteindre ce l
 
 Surtout après avoir vu ces démons tels que le Bossu Meng à la sortie du troisième essai; cela lui avait laissé un poids oppressant sur le cœur. Wang Lin pressentait qu'il venait d'entrer dans un lieu où il n'était pas censé mettre les pieds.
 
-En particulier l'extase pure et nue dans les yeux de ces démons lorsqu'ils le regardaient. Wang Lin était trop intelligent: il n'eut besoin que d'un peu d'analyse pour faire le lien avec le cri de cette puissante âme errante sur le point de devenir un dévoreur d'âmes.
+En particulier l'extase pure et nue dans les yeux de ces démons lorsqu'ils le regardaient. Avec son intelligence, Wang Lin n'eut besoin que d'un peu d'analyse pour faire le lien avec le cri de cette puissante âme errante sur le point de devenir un dévoreur d'âmes.
 
 « Auparavant, seul le Bossu Meng était apparu, mais au moment de partir, ils ont surgi en grand nombre au même endroit. Ils me traquent sûrement. Cela doit avoir un lien avec la prise de conscience par cette grande âme de mon identité de dévoreur d'âmes. »
 

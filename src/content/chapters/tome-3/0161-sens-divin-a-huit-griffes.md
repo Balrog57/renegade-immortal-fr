@@ -6,11 +6,11 @@ bookTitle: Famous in the Sea of Devils
 en: Chapter 161 - Eight Clawed Divine Sense
 slug: sens-divin-a-huit-griffes
 ---
-Un corps principal et trois avatars. Leurs sens divins étaient liés entre eux, verrouillant complètement Xuan Wu.
+Un corps principal et trois avatars, postés aux quatre points cardinaux. Leurs sens divins étaient liés entre eux, verrouillant complètement Xuan Wu.
 
 Tout cultivateur entrant ou sortant de Xuan Wu devait passer par ce périmètre de sens divins. De cette façon, le Seigneur Démon des Huit Extrêmes en garderait le contrôle total.
 
-Ce vieil homme avait été contraint à cette extrémité. Il avait poursuivi Wang Lin depuis la Mer des Démons, traversé Huo Fen, et s'était frayé un chemin jusqu'à Xuan Wu, pour que soudainement la présence de Wang Lin disparaisse totalement.
+Ce vieil homme avait été poussé à bout par Wang Lin. Il avait poursuivi Wang Lin depuis la Mer des Démons, traversé Huo Fen, et s'était frayé un chemin jusqu'à Xuan Wu, pour que soudainement la présence de Wang Lin disparaisse totalement.
 
 Malgré sa puissance, il ne parvenait toujours pas à le débusquer. Il avait pensé que Wang Lin se cachait profondément sous terre, mais même après avoir scanné les profondeurs, il n'avait rien trouvé.
 
@@ -32,7 +32,7 @@ Durant ces deux années, Xuan Wu et l'Union Huo Fen s'étaient habitués à êtr
 
 Presque tout le monde connaissait la source de ce phénomène. Les aînés de leurs sectes les avaient tous gravement avertis de ne jamais aller explorer les quatre directions d'où émanaient les sens divins.
 
-Le Seigneur Démon des Huit Extrêmes devenait de plus en plus nerveux, car l'endroit allait s'ouvrir dans seulement un an; s'il arrivait trop tard, les conséquences seraient inimaginables. Dans l'urgence, il décida d'attendre encore six mois. Si, après ce délai, il ne trouvait toujours pas le garçon, il n'hésiterait pas à offenser le pays de culture de rang 4 et raffinerait le pays tout entier, quitte à le réduire en scories, pour retrouver ce petit morveux.
+Le Seigneur Démon des Huit Extrêmes devenait de plus en plus nerveux, car l'endroit allait s'ouvrir dans seulement un an; s'il arrivait trop tard, les conséquences seraient inimaginables. Dans sa colère, il décida d'attendre encore six mois. Si, après ce délai, il ne trouvait toujours pas le garçon, il n'hésiterait pas à offenser le pays de culture de rang 4 et raffinerait le pays tout entier, quitte à le réduire en scories, pour retrouver ce petit morveux.
 
 Le temps passa lentement. Un mois, deux mois... jusqu'à ce que cinq mois s'écoulent. Au fil des jours, le teint du Seigneur Démon des Huit Extrêmes s'assombrissait et l'hostilité sur son visage croissait progressivement.
 
@@ -78,11 +78,11 @@ Le vieil homme jeta le reptile au sol et ordonna froidement: « Utilise ton sort
 
 Dès que le python toucha terre, il se recroquevilla avant de bondir vers Wang Lin, la gueule grande ouverte. Wang Lin baissa les yeux sur l'animal. Des éclairs rouges traversèrent son regard alors qu'il murmurait: « Meurs! »
 
-La cible de Wang Lin n'était pas le python, mais le vieil homme. Cette fois, il utilisa son royaume du *ji* à son paroxysme.
+La cible de Wang Lin n'était pas le python, mais le vieil homme. Cette fois, il utilisa son Royaume Ji à son paroxysme.
 
 Au moment où il prononça ce mot, Wang Lin recula brusquement. Le vieil homme sentit son esprit vaciller lorsqu'un rayon d'éclair rouge perça son océan de conscience. Dans son océan de conscience, l'eau était déjà asséchée et il n'y restait qu'un poulpe à huit griffes, allongé sur le ventre. Dès que l'éclair rouge y pénétra, le poulpe ouvrit la gueule, créant une puissante force d'aspiration qui engloutit immédiatement l'éclair.
 
-Mais la puissance du royaume du *ji* était au-delà de toute imagination. Bien que le niveau de culture du vieil homme fût extrêmement élevé, le poulpe frissonna après avoir aspiré l'éclair rouge.
+Mais la puissance du Royaume Ji était au-delà de toute imagination. Bien que le niveau de culture du vieil homme fût extrêmement élevé, le poulpe frissonna après avoir aspiré l'éclair rouge.
 
 Ce frisson provoqua une réaction en chaîne qui fit trembler sa conscience même, forçant son corps à s'immobiliser un instant.
 
@@ -108,8 +108,8 @@ Une fois à l'air libre, il ne marqua aucune pause et continua sa fuite effrén�
 
 Sentant l'onde de choc sous ses pieds, la rage du vieil homme s'apaisa tandis qu'il murmurait pour lui-même: « Cette attaque a réussi à plonger même moi, un instant, dans l'hébétude. La rumeur dit que le sort de la mort se concentre sur l'entraînement du sens divin pour l'utiliser comme arme d'attaque. Suivant cette logique, ce petit morveux maîtrise réellement le sort de la mort. »
 
-Sur cette pensée, son corps disparut. Wang Lin ressentit une douleur lancinante dans sa poitrine et sortit précipitamment une des pilules que Li Muwan lui avait données pour soigner ses blessures. Soudain, il perçut des fluctuations d'énergie spirituelle devant lui. Ayant souvent affronté des cultivateurs de l'Âme Naissante, il reconnut immédiatement le signe d'une téléportation. Sans hésiter, il fit volte-face et s'élança dans la direction opposée.
+Sur cette pensée, son corps disparut. Wang Lin ressentit une douleur lancinante dans sa poitrine et sortit précipitamment une des pilules que Li Muwan lui avait données pour soigner ses blessures et en avala une. Soudain, il perçut des fluctuations d'énergie spirituelle devant lui. Ayant souvent affronté des cultivateurs de l'Âme Naissante, il reconnut immédiatement le signe d'une téléportation. Sans hésiter, il fit volte-face et s'élança dans la direction opposée.
 
 À cet instant précis, le vieil homme apparut là où les fluctuations d'énergie venaient de se manifester.
 
-« Petit ami, ce vieux ne veut pas te blesser. Et si tu m'écoutais d'abord? »
+« Petit ami, ce vieux ne veut pas te blesser. Accepterais-tu de m'écouter jusqu'au bout? »

@@ -92,7 +92,7 @@ Il serra les dents. « Aîné, vous devez me promettre que je ne mourrai pas dur
 
 Wang Lin répondit avec calme: « Tant que je ne meurs pas, tu ne mourras pas! »
 
-Cao Yidou s'inclina respectueusement et rapidement: « Très bien, Cao Yidou salue son Maître! » Il allait tenter le tout pour le tout. Un cultivateur de la Transformation de l'Âme n'avait aucune raison de le tromper. Il comprit aussi que si Wang Lin faisait une offre aussi tentante, c'est qu'il serait d'une grande utilité. Cependant, pour obtenir une telle récompense, il fallait prendre des risques, et il était prêt à les assumer pour un corps de la Transformation de l'Âme.
+Cao Yidou s'inclina respectueusement et rapidement: « Très bien, Cao Yidou salue son Maître! » Il allait tenter le tout pour le tout. Un cultivateur de la Transformation de l'Âme n'avait aucune raison de le tromper. Il comprit aussi que si Wang Lin faisait une offre aussi tentante, c'est qu'il avait de grandes visées. Cependant, pour obtenir une telle récompense, il fallait prendre des risques, et il était prêt à les assumer pour un corps de la Transformation de l'Âme.
 
 « Très bien. Ne t'inquiète pas, je ne te demande rien de dangereux. Je veux seulement tes connaissances sur la planète Tian Yun. Que sais-tu de cette planète? » Tout en parlant, Wang Lin fit un geste de la main et Li Qingping s'évanouit.
 

@@ -6,15 +6,15 @@ bookTitle: "Alliance's Secret"
 en: "Chapter 944 - Heaven Defying Bead Reappears!"
 slug: la-perle-defiant-les-cieux-reapparait
 ---
-La voix triste de Lou Chen résonna à travers le vide pour atteindre les oreilles de Wang Lin. L'esprit de Wang Lin trembla et il ressentit une forme de résonance!
+La voix triste de Luo Chen résonna à travers le vide pour atteindre les oreilles de Wang Lin. L'esprit de Wang Lin trembla et il ressentit une forme de résonance!
 
-Lou Chen avait osé défier les cieux, sans crainte du ciel ni de la terre. Cependant, il n'avait pu inverser son propre destin: le Serpent aux yeux de lune!
+Luo Chen avait osé défier les cieux, sans crainte du ciel ni de la terre. Cependant, il n'avait pu inverser son propre destin: le Serpent aux yeux de lune!
 
 Il avait été assimilé par le Serpent aux yeux de lune et la majeure partie de son pouvoir d'Ancien Dieu en avait été absorbée. Cela l'avait contraint à régresser, passant du sommet d'un Ancien Dieu à 8 étoiles à une forme enfantine. Tout cela était un destin qu'il ne pouvait changer. Il avait été piégé à l'intérieur du Serpent aux yeux de lune pendant des dizaines de milliers d'années, vivant une existence pire que la mort. Fort de la fierté des Anciens Dieux, l'humiliation qu'il avait subie dans son cœur révélait sa désolation.
 
-Le clan des Anciens Dieux était un clan extrêmement fier, et cette fierté refusait de laisser quoi que ce soit les piétiner. Tu Si en était tout aussi sujet, et Lou Chen également.
+Le clan des Anciens Dieux était un clan extrêmement fier, et cette fierté refusait de laisser quoi que ce soit les piétiner. Tu Si en était tout aussi sujet, et Luo Chen également.
 
-Wang Lin médita en silence, le cœur lourd de douleur. Pourtant, son regard exprimait du respect; il respectait l'Ancien Dieu Lou Chen!
+Wang Lin médita en silence, le cœur lourd de douleur. Pourtant, son regard exprimait du respect; il respectait l'Ancien Dieu Luo Chen!
 
 À cet instant, un sifflement déchira le vide alors que les deux étoiles d'Ancien Dieu fonçaient à une vitesse extrême vers Wang Lin. Wang Lin saisit les deux étoiles et, à cet instant, elles fusionnèrent avec lui.
 
@@ -24,11 +24,11 @@ Toutes les veines de son corps boursouflèrent, comme si une puissance intérieu
 
 Ce rugissement se mua en d'incessantes ondes de choc qui s'élancèrent vers l'avant. Il contenait également la majesté d'un Ancien Dieu royal, ce qui fit hésiter la main géante dorée qui s'approchait de lui.
 
-Wang Lin sentait clairement le pouvoir des Anciens Dieux provenant des deux étoiles que Lou Chen lui avait lancées déferler dans tout son corps.
+Wang Lin sentait clairement le pouvoir des Anciens Dieux provenant des deux étoiles que Luo Chen lui avait lancées déferler dans tout son corps.
 
-Ce pouvoir était équivalent à l'énergie spirituelle qu'un être aurait absorbée sur d'innombrables planètes pendant des dizaines de milliers d'années. C'était comme si son corps allait s'effondrer sous le poids de sa propre puissance.
+Ce pouvoir était comparable à celui que le corps véritable de Wang Lin aurait absorbé sur d'innombrables planètes pendant des dizaines de milliers d'années. C'était comme si son corps allait s'effondrer sous le poids de sa propre puissance.
 
-La sensation de son corps en train de se déchirer le rendait presque fou, alors il rugit pour évacuer cette tension. Une trace de pression violente imprégnait ces hurlements!
+La sensation de son corps en train de se déchirer le rendait presque fou, alors il rugit pour évacuer cette tension. Une trace de brutalité imprégnait ces hurlements!
 
 Les étoiles tournèrent rapidement entre ses sourcils jusqu'à ce qu'il soit impossible de distinguer leur nombre. Wang Lin poussa un nouveau rugissement, fit un pas et lança un coup de poing impitoyable.
 
@@ -72,7 +72,7 @@ La silhouette de Wang Lin ne subsistait plus dans le vide; seule restait l'énor
 
 Le rire du vieil homme était empreint d'exultation. Il n'aurait jamais cru rencontrer une telle fortune aujourd'hui.
 
-« Après avoir dévoré cet Ancien Dieu royal, ce vieillard aura le niveau de culture nécessaire pour occuper un poste au conseil des Anciens! » Le vieil homme se précipita vers le filet, sa main droite s'étendant pour saisir la marque lunaire.
+« Après avoir dévoré cet Ancien Dieu royal, ce vieillard aura le niveau de culture d'Ascendant nécessaire pour occuper un poste au conseil des Anciens! » Le vieil homme se précipita vers le filet, sa main droite s'étendant pour saisir la marque lunaire.
 
 Il avait déjà imaginé comment il gagnerait le respect du conseil après avoir dévoré l'Ancien Dieu royal, et comment il s'élèverait au-dessus de tous au sein de sa secte!
 

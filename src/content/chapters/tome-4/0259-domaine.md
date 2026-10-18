@@ -18,7 +18,7 @@ Lorsque le vieil homme mit le chapeau, une lumière dorée l'enveloppa. Quand Wa
 
 Wang Lin prit une profonde inspiration. Le désir de s'approprier le chapeau de paille devint encore plus impérieux alors qu'il se le posait silencieusement sur la tête.
 
-Le vieil homme regarda Wang Lin tandis que sa main droite traçait un sceau singulier avant de pointer le ciel. Soudain, un spectre gigantesque apparut dans les airs. À son apparition, l'énergie spirituelle environnante fut violemment aspirée vers lui.
+Le vieil homme regarda Wang Lin tandis que sa main droite traçait un sceau singulier avant de pointer le vide lointain. Soudain, un spectre gigantesque apparut dans les airs. À son apparition, l'énergie spirituelle environnante fut violemment aspirée vers lui.
 
 Presque instantanément, le fantôme se matérialisa en un géant revêtu d'une armure dorée et brandissant une épée. Le visage du colosse était sévère, semblable à celui d'un dieu maléfique dégageant une aura de violence pure. Il fixa avec colère l'endroit que le vieil homme avait désigné.
 
@@ -50,7 +50,7 @@ Wang Lin sentit clairement que lorsque leurs sens divins balayaient leur positio
 
 Quant au vieil homme, il forma un sceau et la lumière dorée prit la forme du spectre d'un grand Peng aux ailes d'or. D'un battement d'ailes, celui-ci balaya tous les sens divins qui tentaient de l'approcher.
 
-Soudain, quelques cultivateurs poussèrent des gémissements; leurs corps s'affaissèrent et leurs visages se décomposèrent.
+Soudain, quelques cultivateurs poussèrent des gémissements; leurs corps vacillèrent et leurs visages s'assombrirent.
 
 Un homme d'âge moyen vêtu d'une robe bleue s'avança hors du groupe. Son visage était pâle et ses yeux semblaient dépourvus de vie, bien qu'ils possédaient cette distinction nette entre le noir et le blanc que Wang Lin avait lui-même, dégageant une lumière extraordinaire.
 

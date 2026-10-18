@@ -6,7 +6,7 @@ bookTitle: "Alliance's Secret"
 en: Chapter 927 - Lord Doesnt Know Me
 slug: le-seigneur-ne-me-connait-pas
 ---
-Les yeux de Wang Lin s'illuminèrent et il ricana intérieurement, mais il chargea d'abord vers la femme vêtue d'une robe bleue. Xu Ting, le visage sombre, l'imita. Tous deux foncèrent vers l'horizon.
+Les yeux de Wang Lin s'illuminèrent et il ricana intérieurement, mais il chargea d'abord vers la femme vêtue d'une robe bleue. Xu Ting, le visage sombre, l'imita. Tous deux foncèrent vers l'horizon, filant comme des poissons.
 
 De nombreux cultivateurs s'entretuaient tandis que toutes sortes de trésors magiques volaient dans les airs. Xu Ting était assoiffé de sang; dès qu'il croisait quelqu'un d'un niveau de culture inférieur, il attaquait immédiatement. En conséquence, sa progression était quelque peu ralentie.
 

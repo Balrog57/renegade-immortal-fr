@@ -12,7 +12,7 @@ Le maître de la Secte Éternelle remarqua l'expression de Wang Lin et sourit. �
 
 Alors qu'il se rapprochait de la montagne, il sentit vaguement les étoiles de l'Ancien Dieu cachées entre ses sourcils tourner rapidement.
 
-« Ce nom a été donné par le premier maître de notre Secte Éternelle. Il passa ses dernières années sur cette montagne et comprit le Dao du Rêve. Dans son rêve, il vit une épée gigantesque tomber et se transformer en montagne. Il entendit également une voix puissante faire résonner ces deux mots: "Lu Su!" » C'était le Grand Ancien qui expliquait cela, et ses yeux étaient empreints de respect.
+« Ce nom a été donné par Zhou Yunsong, le premier maître de notre Secte Éternelle. Il passa ses dernières années sur cette montagne et comprit le Dao du Rêve. Dans son rêve, il vit une épée gigantesque tomber et se transformer en montagne. Il entendit également une voix puissante faire résonner ces deux mots: "Lu Su!" » C'était le Grand Ancien qui expliquait cela, et ses yeux étaient empreints de respect.
 
 « Lu Su... Lu Su... LU SU! » La lueur étrange dans les yeux de Wang Lin se calma progressivement, mais le choc dans son esprit était dix fois, cent fois, mille fois plus intense!
 
@@ -60,11 +60,11 @@ Ce n'était pas que les deux hommes doutaient des intentions de Wang Lin, mais l
 
 Par conséquent, même s'ils nourrissaient des doutes, ceux-ci n'étaient pas trop profonds. Ils avaient vu les sorts de Wang Lin et le trouvaient très mystérieux; peut-être que des pilules ne suffiraient pas à guérir quelqu'un de son rang.
 
-Le maître de la secte réfléchit encore et dit lentement: « Qu'importe. Depuis que la Secte Divine a distribué ces âmes Yin extrêmes, il ne les a jamais réclamées, et un stock considérable s'est accumulé. Il ne devrait pas poser de problème d'en offrir quelques-unes au camarade cultivateur Lu. »
+Le maître de la secte réfléchit encore et dit lentement: « Qu'importe. Depuis que la Secte Divine a distribué ces âmes Yin extrêmes, il ne les a jamais réclamées, et un stock considérable s'est accumulé. Il ne devrait pas poser de problème d'en offrir quelques-unes au camarade cultivateur Lu, et la Secte Divine n'en saura rien. »
 
 Par ses paroles, il signifiait à Wang Lin que sa demande n'était pas anodine: il était en train de lui céder un tribut destiné à la Secte Divine.
 
-Bien que le ton ne fût pas aussi grave que ses mots le suggéraient, c'était la vérité.
+Bien que la chose ne fût pas aussi grave que ses mots le suggéraient, c'était la vérité.
 
 Wang Lin afficha une expression reconnaissante et joignit les mains en signe de gratitude. « Pour m'aider à guérir, vous êtes prêts à céder le tribut de la Secte Divine. Je vous en remercie et je donnerai mon maximum lors de la compétition entre les sectes de rang 8! »
 

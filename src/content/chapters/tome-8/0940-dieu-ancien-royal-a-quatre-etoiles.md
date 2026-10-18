@@ -50,9 +50,9 @@ Le visage de l'homme d'âge moyen changea radicalement. Ses mains formèrent un 
 
 Alors qu'il rugissait, les cinq talismans au-dessus de sa tête brillèrent de concert et se mirent à bouger sans l'aide du vent. Soudain, une mer bleue apparut et s'abattit sur Wang Lin.
 
-Cette mer était l'Eau Tributaire; elle portait en elle la force d'une armée entière et avançait dans un fracas assourdissant. Pourtant, elle ne put rien contre le coup de poing de l'Ancien Dieu à quatre étoiles!
+Cette mer était l'Eau Tributaire; elle portait en elle une force écrasante et avançait dans un fracas assourdissant. Pourtant, elle ne put rien contre le coup de poing de l'Ancien Dieu à quatre étoiles!
 
-Dès que l'océan atteignit sa cible, il s'effondra en d'innombrables gouttelettes et fut repoussé. Cette mer possédait certes la puissance d'une armée, mais le coup de Wang Lin était plusieurs fois supérieur; comment aurait-elle pu résister?
+Dès que l'océan atteignit sa cible, il s'effondra en d'innombrables gouttelettes et fut repoussé. Cette mer possédait certes une force écrasante, mais le coup de Wang Lin était plusieurs fois supérieur; comment aurait-elle pu résister?
 
 Au moment où l'Eau Tributaire se désintégra, une lueur dorée jaillit: l'épée formée par les écailles de dragon fut projetée vers Wang Lin.
 
@@ -72,7 +72,7 @@ Après avoir pulvérisé les cinq éléments, ce coup de poing atteignit directe
 
 Tout cela s'était produit en un éclair. Aux yeux de Yi Muzi et des autres, le corps géant de Wang Lin avait simplement fait un pas, porté un coup, et l'homme en robe de dragon avait été expulsé.
 
-Des craquements retentirent dans le corps de l'adversaire et une grande quantité de sang jaillit de lui. S'ils avaient été à l'extérieur et si sa culture n'avait pas été scellée, il aurait été extrêmement difficile pour Wang Lin de le blesser!
+Des craquements retentirent dans le corps de l'adversaire et une grande quantité de sang jaillit de lui. S'il avait été à l'extérieur et si sa culture n'avait pas été scellée, il aurait été extrêmement difficile pour Wang Lin de le blesser!
 
 Cependant, ici, Wang Lin détenait tous les avantages. L'homme en robe de dragon avait la majeure partie de sa puissance scellée et n'avait d'autre choix que de reculer.
 

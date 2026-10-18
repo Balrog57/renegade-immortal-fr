@@ -28,7 +28,7 @@ Ce changement colossal attira l'attention de tous les autres Célestes. Cependan
 
 « C'est réellement l'arc Li Guang!! »
 
-Alarmés, les Célestes qui chargeaient reculèrent comme des déments. Ils voulaient regagner le Royaume Céleste Antique. Rencontrer quelqu'un possédant l'arc Li Guang capable de le bander dès leur sortie était un véritable cauchemar.
+Alarmés, les Célestes qui venaient de sortir reculèrent comme des déments. Ils voulaient regagner le Royaume Céleste Antique. Rencontrer quelqu'un possédant l'arc Li Guang capable de le bander dès leur sortie était un véritable cauchemar.
 
 Pourtant, malgré leur rapidité, ils n'étaient pas assez véloces pour échapper à l'arc Li Guang. Le Souverain n'y était pas parvenu, et eux non plus n'en étaient pas dignes!
 
@@ -80,7 +80,7 @@ Au même moment, la septième concubine était livide. Elle tituba en arrière, 
 
 Le Maître Dao Miao Yin et le Maître Démon Neuf Cieux fonçaient à travers le système stellaire. Leur haine pour Wang Lin n'était en rien inférieure à celle du Souverain ou de la septième concubine. Bien qu'ils fussent blessés, cela n'émoussait en rien leur intention meurtrière. À cet instant, ils convergeaient vers Wang Lin, qu'ils avaient verrouillé comme cible!
 
-« Avec tant de gens qui te traquent, je ne crois pas que tu puisses ressortir vivant! » sourit le Maître Dao Miao Yin.
+« Avec tant de gens qui te traquent, je ne crois pas que tu puisses ressortir vivant! » ricana le Maître Dao Miao Yin.
 
 « Ce vieil homme va extraire un fragment de ton âme pour alimenter la Lanterne Céleste pendant dix mille ans. Ce n'est qu'en écoutant tes souffrances durant dix mille ans que ma haine pourra s'éteindre! » La haine brûlait dans les yeux du Maître Démon Neuf Cieux.
 
@@ -108,10 +108,10 @@ Les bruits semblaient s'éloigner de plus en plus. Wang Lin ne pouvait mesurer l
 
 Le Royaume Céleste Antique de l'Extérieur et celui de l'Intérieur étaient connectés de manière mystérieuse. Les quatre généraux affichaient des expressions solennelles, teintées d'une pointe de terreur, en observant le ciel tourmenté devant eux. Le ciel agissait comme un miroir, révélant une scène floue mais terrifiante de ce qui se passait dans le Royaume de l'Extérieur!
 
-« Cet enfant... cet enfant... il vaut mieux ne pas s'attirer ses foudres... » Après un long silence, le général Dragon Azure prit une profonde inspiration, l'effroi brillant dans ses yeux.
+« Cet enfant... cet enfant... il vaut mieux ne pas s'attirer ses foudres... » Après un long silence, le général Dragon Azure prit une profonde inspiration, la crainte brillant dans ses yeux.
 
 Le général Tortue Noire médita silencieusement un instant avant de déclarer: « Il n'a certainement pas que deux flèches en réserve. Il n'est pas stupide et son esprit est aussi rusé qu'un démon. Comment laisserait-il les autres découvrir ses limites si facilement? Je parie qu'il en a au moins trois autres! »
 
 Les quatre se regardèrent et acquiescèrent d'un signe de tête.
 
-Après que Wang Lin eut tiré deux fois, un rire résonna à travers le Système Stellaire Antique. Le Souverain apparut, imprégné d'une intention meurtrière, marchant résolument vers Wang Lin.
+Après que Wang Lin eut tiré deux fois, un rire résonna derrière lui à travers le Système Stellaire Antique. Le Souverain apparut, imprégné d'une intention meurtrière, marchant résolument vers Wang Lin.

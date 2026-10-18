@@ -12,7 +12,7 @@ Cependant, il ne s'agissait que de transformer l'illusion en réalité — ils n
 
 Song Tian en était incapable. Dans ses souvenirs, seul le Grand Empyréen Gu Dao en était capable: lorsqu'il était allé lui rendre visite, il avait personnellement observé une scène similaire.
 
-« C'est impossible! » Le démon ancien, qui contenait une parcelle du Sens Divin de Song Tian, afficha un regard d'incrédulité. Il ne pouvait croire ce qu'il voyait: que Wang Lin, qu'il considérait comme indigne de son attention, puisse contrôler les lois du monde après être sorti de sa retraite de culture.
+« C'est impossible! » Le démon ancien, qui contenait une parcelle du Sens Divin de Song Tian, afficha un regard d'incrédulité. Il ne pouvait croire ce qu'il voyait: que Wang Lin, qu'il ne jugeait pas digne d'inquiétude, puisse contrôler les lois du monde après être sorti de sa retraite de culture.
 
 Au moment où le démon ancien sortit de la faille, il fut totalement stupéfait. Son esprit devint un vide absolu, et il ne put penser qu'à une seule chose: Wang Lin tendant la main vers le ciel tandis que toutes les lois convergeaient vers lui.
 
@@ -20,7 +20,7 @@ Wang Lin ne se souciait guère de l'apparition du démon ancien et ne lui jeta m
 
 Les fragments fondus étaient entièrement absorbés par son soleil de Grand Empyréen. La lumière dorée devenait de plus en plus éclatante et le soleil tricolore du Grand Empyréen dégageait une lueur étrange.
 
-La tête de l'Ancêtre Céleste rétrécissait rapidement sous la pénétration de la lumière dorée. Un instant plus tard, il ne restait qu'une infime portion de la tête; elle ne ressemblait plus à une tête, mais à une masse de lumière dorée.
+La tête de l'Ancêtre Céleste rétrécissait rapidement sous la pénétration de la lumière dorée. Un instant plus tard, il n'en restait plus qu'à peu près la moitié; elle ne ressemblait plus à une tête, mais à une masse de lumière dorée.
 
 À mesure qu'elle diminuait, le soleil tricolore de Wang Lin devenait plus brillant et plus solide. Une fois que la tête serait totalement fondue et absorbée par le soleil tricolore, celui-ci deviendrait un véritable soleil de Grand Empyréen, et Wang Lin deviendrait un véritable Grand Empyréen!
 
@@ -44,7 +44,7 @@ Wang Lin avait spéculé depuis longtemps que le sort « Arrêt » était lié a
 
 Ce qui fut stoppé par le regard de Wang Lin n'était pas seulement le démon ancien, mais aussi le Sens Divin de Song Tian. Ce dernier trembla et ne put plus bouger d'un iota.
 
-Simultanément, au loin, sur la Montagne d'Origine, Song Tian était assis quand il ouvrit soudainement les yeux. Son visage était pâle, marqué par une trace de peur. Son Sens Divin avait été gelé, ce qui avait failli affecter son âme originelle.
+Simultanément, au loin, sur la Montagne d'Origine, hors de la capitale impériale du clan Ancien Shi, Song Tian était assis quand il ouvrit soudainement les yeux. Son visage était pâle, marqué par une trace de peur. Son Sens Divin avait été gelé, ce qui avait failli affecter son âme originelle.
 
 « Activez le Dispositif d'Origine! » Song Tian n'hésita pas et poussa un rugissement immédiat. Tandis que l'écho de son cri se propageait, tous les êtres puissants qui suivaient Song Tian furent surpris et s'envolèrent rapidement pour mettre en place la formation.
 
@@ -58,13 +58,13 @@ Cette hache était couverte de rouille et n'avait rien de gracieux. Pourtant, lo
 
 Alors que Song Tian s'apprêtait à se donner corps et âme, dans le pays de Luo Hou, Wang Lin poussa un long hurlement vers les cieux.
 
-À ce cri, les couleurs du ciel changèrent. La tête de l'Ancêtre Céleste, qui avait presque totalement fondu pour devenir une sphère de lumière dorée, entama sa phase finale de fusion.
+À ce cri, les couleurs du ciel changèrent. La tête de l'Ancêtre Céleste, réduite à environ la moitié et devenue une sphère de lumière dorée, entama sa phase finale de fusion.
 
 Elle rétrécissait sans cesse. Un instant plus tard, elle n'était plus que de la taille d'un poing. Le soleil de Grand Empyréen devint alors plus solide que les soleils des autres Grands Empyréens.
 
-Fixant cette lueur dorée de la taille d'un poing, les yeux de Wang Lin brillèrent intensément. Il leva sa main droite vers le palais en contrebas. Les essences de Vie et de Mort, de Karma, ainsi que de Vérité et de Fausseté de Wang Lin s'échappèrent de la chambre secrète pour pénétrer dans son corps.
+Fixant cette lueur dorée de la taille d'un poing, les yeux de Wang Lin brillèrent intensément. Il leva la main droite et saisit le vide au-dessus du palais en contrebas. Les essences de Vie et de Mort, de Karma, ainsi que de Vérité et de Fausseté de Wang Lin s'échappèrent de la chambre secrète pour pénétrer dans son corps.
 
-À cet instant, alors que toutes ses essences lui revenaient, un grondement tonnerre résonna en lui. Ses cheveux ondulaient sans vent et il dégageait une aura terrifiante. Wang Lin regarda la tête de l'Ancêtre Céleste en pleine fusion et cracha un filet d'aura d'essence.
+À cet instant, alors que toutes ses essences lui revenaient, un grondement de tonnerre résonna en lui. Ses cheveux ondulaient sans vent et il dégageait une aura terrifiante. Wang Lin regarda la tête de l'Ancêtre Céleste en pleine fusion et cracha un filet d'aura d'essence.
 
 Cette aura était invisible, seul Wang Lin pouvait la ressentir. Dès qu'elle toucha la tête, celle-ci trembla soudainement et fondit complètement!
 
@@ -72,7 +72,7 @@ Elle fut intégralement absorbée par le soleil tricolore de Wang Lin. Après ce
 
 Wang Lin acheva son soleil de Grand Empyréen et l'envoya dans le ciel du Continent Astral Immortel pour qu'il devienne le dixième soleil. C'était le symbole de sa véritable ascension en tant que Grand Empyréen. Auparavant, Wang Lin ne pouvait être considéré comme un véritable Grand Empyréen!
 
-Une fois son soleil de Grand Empyréen totalement formé, Wang Lin leva la tête vers les cieux. Ce soleil tricolore semblait soutenu par une force invisible et s'éleva lentement dans l'azur.
+Une fois son soleil de Grand Empyréen totalement formé, Wang Lin leva les deux mains et le regard vers les cieux. Ce soleil tricolore semblait soutenu par une force invisible et s'éleva lentement dans l'azur.
 
 En voyant son propre soleil foncer vers le point le plus haut du firmament, Wang Lin se souvint soudain de l'époque où une trace de son Sens Divin était entrée sur le Continent Astral Immortel et avait découvert cette étrange scène de neuf soleils dans le ciel.
 
@@ -80,7 +80,7 @@ En voyant son propre soleil foncer vers le point le plus haut du firmament, Wang
 
 À cet instant, alors que Wang Lin propulsait son soleil dans les cieux, cela affecta les soleils de tous les autres Grands Empyréens!
 
-Au sein du Clan Céleste, dans la Secte Dao Yi, sur le Continent Nordique, dans la Secte Yang Pourpre et au Mont Empereur, chaque soleil de Grand Empyréen respectif s'éleva et brilla intensément.
+Au sein du Clan Céleste, dans la Secte Dao Yi, sur le Continent Nord, dans la Secte Yang Pourpre et au Mont Empereur, chaque soleil de Grand Empyréen respectif s'éleva et brilla intensément.
 
 Peu après, à l'intérieur de la cité ancestrale, un soleil doré apparut, formant le cinquième soleil du Clan Céleste!
 
@@ -100,4 +100,4 @@ Il existait une différence de taille flagrante entre les dix soleils. Le plus i
 
 Le deuxième plus grand était le soleil tricolore de Wang Lin. Bien qu'il ne fût pas aussi vaste que celui de Gu Dao, il en représentait presque la moitié! Il rayonnait une lumière non moins intense que celle du Grand Empyréen Gu Dao.
 
-« Parrain... Grand Empyréen... » Dans le pays de Luo Hou, le Prince Ji Du laissa éclater un enthousiasme sans précédent et éclata de rire.
+« Parrain... Grand Empyréen... » Dans le pays de Luo Hou, le Prince Ji Du resta interdit, puis laissa éclater un enthousiasme sans précédent et éclata de rire.

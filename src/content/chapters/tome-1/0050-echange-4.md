@@ -76,7 +76,7 @@ Ayant échappé au désastre, Xu Mu saisit vivement le papier jaune et se retira
 
 Le visage de Huang Long s'assombrit. Il cria: « Secte Xuan Dao, ne dépassez pas les bornes! » Les Anciens à ses côtés étaient également furieux. Certains, plus impétueux, sortirent déjà leurs trésors, prêts au combat.
 
-Les disciples internes, qui avaient pour la plupart compris la manœuvre, bouillonnaient de colère. Les deux autres disciples vêtus de violet, l'air grave, tournèrent leur regard vers l'homme d'âge mûr debout à l'arrière de la Secte Xuan Dao.
+Les disciples internes, qui avaient pour la plupart compris la manœuvre, bouillonnaient de colère. Les deux autres disciples vêtus de pourpre, l'air grave, tournèrent leur regard vers l'homme d'âge mûr debout à l'arrière de la Secte Xuan Dao.
 
 C'était lui qui avait poussé ce reniflement glacial plus tôt.
 

@@ -72,9 +72,9 @@ Cela faisait des années que Wang Lin n'avait pas vu la Bête du Tonnerre, et il
 
 Ce geste accentua le sentiment d'injustice de la Bête du Tonnerre, qui laissa échapper un grondement sourd.
 
-Wang Lin esquissa un sourire amer et dit doucement: « Ces dernières années ont été rudes pour toi. » Il vit la Bête continuer à grogner, comme si elle voulait lui dépeindre toute sa misère.
+Wang Lin esquissa un sourire amer et dit doucement: « Ces années, tu as été bien injustement traitée. » Il vit la Bête continuer à grogner, comme si elle voulait lui dépeindre toute sa misère.
 
-Se frottant le nez, Wang Lin tapota la tête de la créature en disant: « En réalité, tu es très beau! »
+Se frottant le nez, Wang Lin tapota la tête de la créature en disant: « En réalité, tu es très bien comme ça! »
 
 C'était une tentative de réconfort, mais dès qu'il eut prononcé ces mots, la Bête du Tonnerre cessa brusquement de grogner. Elle tourna la tête avec vivacité, faisant tinter la chaîne autour de son cou. Les talismans en papier sur son corps s'agitèrent tandis qu'elle fixait Wang Lin d'un regard dubitatif.
 

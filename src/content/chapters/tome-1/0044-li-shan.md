@@ -8,15 +8,15 @@ slug: li-shan
 ---
 Wang Lin réfléchit un instant et dit: « Quels sont tes projets? As-tu besoin de mon aide pour quoi que ce soit? »
 
-Wang Hao soupira et répondit: « Tu n'es qu'au 3ème niveau de Condensation de Qi. Tu ne peux rien faire pour moi, car Lu Yunjie est déjà au 6ème niveau. De plus, comme il sait fabriquer des pilules, les Anciens l'apprécient énormément. J'ai déjà perdu tout espoir. Wang Lin, durant ces quelques années à la Secte Heng Yue, tu as été mon seul ami et mon grand frère. Si tu deviens plus fort à l'avenir, tu devras venger mon humiliation! » Wang Hao serra les poings après avoir fini de parler.
+Wang Hao soupira et répondit: « Tu n'es qu'au 3ème niveau de Condensation de Qi. Tu ne peux rien faire pour moi, car Lu Yunjie est déjà au 6ème niveau. De plus, comme il sait fabriquer des pilules, les Anciens l'apprécient énormément. J'ai déjà perdu tout espoir. Wang Lin, durant ces quelques années à la Secte Heng Yue, tu as été mon seul ami et mon grand frère. Si tu deviens plus fort à l'avenir, tu devras tuer Lu Yunjie pour me venger! » Wang Hao serra les poings après avoir fini de parler.
 
 Wang Lin fixa Wang Hao et hocha la tête.
 
 Wang Hao eut un sourire amer et dit: « Frère Tie Zhu, avais-tu besoin de moi pour quelque chose? Tant que je suis en vie, je t'aiderai autant que possible. Veux-tu des pilules de rassemblement de Qi? J'en ai beaucoup en réserve. »
 
-Wang Lin regarda Wang Hao. Il renonça à lui demander les matériaux dont il avait besoin et secoua la tête. Il voulait aider Wang Hao, mais l'ennemi était déjà au 6ème niveau; Wang Lin n'avait aucune confiance en ses chances.
+Wang Lin regarda Wang Hao. Il garda pour lui son projet de décoction de remède populaire et secoua la tête. Il voulait aider Wang Hao, mais l'ennemi était déjà au 6ème niveau; Wang Lin n'avait aucune confiance en ses chances.
 
-Bien que son Sens Divin fût différent de celui des autres et qu'il eût pratiqué la technique d'attraction pendant plus de vingt ans, il n'avait jamais combattu d'autre humain; il ne pouvait donc pas dire avec certitude quelle était sa véritable force.
+Bien que son Sens Divin fût différent de celui des autres et qu'il eût pratiqué la technique d'attraction pendant plus de vingt ans, il n'avait jamais combattu d'autre cultivateur; il ne pouvait donc pas dire avec certitude quelle était sa véritable force.
 
 Voyant que Wang Lin restait silencieux, Wang Hao tapota amèrement ses vêtements et dit: « Frère Tie Zhu, tu possèdes bien plus de talent que moi. Repenser à l'époque où nous passions nos tests... on dirait un rêve. Le temps passe trop vite... » Wang Hao soupira et s'en alla, l'expression sombre. Il disparut lentement de la vue de Wang Lin.
 
@@ -24,7 +24,7 @@ Voyant que Wang Lin restait silencieux, Wang Hao tapota amèrement ses vêtement
 
 À cet instant, Wang Lin eut une épiphanie.
 
-Cette prétendue épiphanie n'était pas une compréhension soudaine qui aurait fait progresser sa culture de manière fulgurante, mais ressemblait plutôt à un flux de connaissances déversé dans son esprit. Ce qui s'était accru ici n'était ni sa culture, ni son âme, mais sa compréhension des lois du ciel et de la terre.
+Cette prétendue épiphanie n'était pas une compréhension soudaine qui aurait fait progresser sa culture de manière fulgurante, mais ressemblait plutôt à un flux de connaissances déversé dans son esprit. Ce qui s'était accru ici n'était ni sa culture, ni son Sens Divin, mais sa compréhension des lois du ciel et de la terre.
 
 Réaliser la nature cruelle du monde de la culture fut son épiphanie. Pour être un cultivateur, il fallait posséder l'état d'esprit d'un cultivateur.
 
@@ -36,7 +36,7 @@ Alors qu'il regagnait le jardin d'herbes, l'expression de Wang Lin changea souda
 
 Avant même d'entrer, une voix exubérante retentit de l'intérieur.
 
-« Je dois vous le dire, frères de la Secte Heng Yue, cette épée volante que je possède est l'un des trésors incomparables de la Secte Xuan Dao! Elle s'appelle l'Épée aux Pièces d'Or Zi Wu. Vous pouvez vous renseigner! J'ai eu toutes les peines du monde à la dérober cette fois-ci. Si l'un d'entre vous souhaite l'obtenir en échange, il devra jurer d'un serment solennel de ne pas la sortir lors de l'échange dans trois jours, sinon je refuse la vente! »
+« Je dois vous le dire, frères de la Secte Heng Yue, cette épée volante que je possède est l'un des trésors incomparables de la Secte Xuan Dao! Elle s'appelle l'Épée aux Pièces d'Or Zi Wu. Vous pouvez vous renseigner! J'ai eu toutes les peines du monde à la dérober cette fois-ci. Si l'un d'entre vous souhaite l'obtenir en échange, il devra jurer d'un serment solennel de ne pas la sortir lors de la compétition dans trois jours, sinon je refuse la vente! »
 
 Quelqu'un demanda aussitôt, dubitatif: « Ce trésor est-il vraiment aussi incroyable que tu le prétends? »
 
@@ -56,7 +56,7 @@ Le disciple de la Secte Heng Yue qui avait acquis l'épée rit et dit: « Frère
 
 Li Shan ne s'en offusqua pas et dit en souriant: « Puisque tu l'as déjà achetée, je me fiche de ce que tu en feras. Bien! J'ai un autre trésor. Il s'appelle la Bombe de Foudre Noire et Nauséabonde Invincible! C'est une véritable merveille, je ne mens pas. Nous pouvons même faire une démonstration en direct! »
 
-Sur ces mots, il sortit une sphère noire et la lança contre un mur. Dans un fracas sourd, des fissures apparurent sur la paroi. Une brume sombre envahit l'endroit de l'impact, dégageant une odeur fétide.
+Sur ces mots, il sortit une sphère noire et la lança contre un mur. Dans un fracas sourd, des fissures en forme de toile d'araignée apparurent sur la paroi. Une brume sombre envahit l'endroit de l'impact, dégageant une odeur fétide.
 
 Li Shan déclara, le visage fier et souriant: « Alors, qu'en dites-vous? Cette Bombe de Foudre Noire et Nauséabonde Invincible est mon arme secrète personnelle! Bien que sa puissance soit limitée, si elle atteint quelqu'un, cette cendre noire est une substance que même moi, je ne peux pas laver. Quant à l'odeur, c'est un mélange que j'ai concocté après avoir rassemblé les humeurs de dizaines de bêtes. N'importe qui en serait écœuré! »
 
@@ -66,4 +66,4 @@ Les disciples de la Secte Xuan Dao se sentaient tous extrêmement mal à l'aise,
 
 Cette Bombe de Foudre Noire et Nauséabonde Invincible était extrêmement célèbre au sein de la Secte Xuan Dao; en secret, elle pouvait presque rivaliser avec plusieurs des véritables trésors de la secte.
 
-« Alors, qu'en avez-vous pensé? Cette fois, je vous montre mon atout caché! Mais je maintiens ce que j'ai dit précédemment: vous ne pouvez pas l'utiliser lors de l'échange dans trois jours, sinon je refuse de vous la vendre! » Li Shan afficha un air sérieux, tout en riant intérieurement: « Espèces d'imbéciles, plus je vous interdis de l'utiliser, plus vous serez tentés de le faire lors de l'échange. Hé hé, quel spectacle cela va être! Les Anciens me féliciteront certainement et me donneront même quelques trésors magiques en récompense! »
+« Alors, qu'en avez-vous pensé? Cette fois, je vous montre mon atout caché! Mais je maintiens ce que j'ai dit précédemment: vous ne pouvez pas l'utiliser lors de la compétition dans trois jours, sinon je refuse de vous la vendre! » Li Shan afficha un air sérieux, tout en riant intérieurement: « Espèces d'imbéciles, plus je vous interdis de l'utiliser, plus vous serez tentés de le faire lors de la compétition. Hé hé, quel spectacle cela va être! Les Anciens me féliciteront certainement et me donneront même quelques trésors magiques en récompense! »

@@ -184,4 +184,4 @@ Il fit monter Tie Zhu dans la calèche, fouetta le cheval et s'élança. Les par
 
 « Tie Zhu n'est jamais parti seul... Va-t-il se faire maltraiter? » demanda la mère en se mordant la lèvre, le cœur serré.
 
-« Il a grandi, il doit désormais forger son propre destin. » Le père de Tie Zhu reprit sa pipe et aspira profondément. De nouvelles rides creusèrent son visage.
+« Il a grandi, il aura sa propre bonne fortune. » Le père de Tie Zhu reprit sa pipe et aspira profondément. De nouvelles rides creusèrent son visage.

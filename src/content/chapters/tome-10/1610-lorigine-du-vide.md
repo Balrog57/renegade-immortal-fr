@@ -34,7 +34,7 @@ Wang Lin observait le monde avec un sourire insaisissable. Durant ces années, i
 
 Le temps passa, et en un clin d'œil, sept ans s'étaient écoulés. Durant ces sept années, Wang Lin apprit énormément et comprit le monde.
 
-Au cours de cette période, la secte de Li Muwan finit par trouver Wang Lin, et les Anciens de la secte vinrent peu à peu le voir. En découvrant l'état de Wang Lin et en entendant ses murmures occasionnels, ils furent frappés de stupeur.
+Au cours de cette période, la secte de Li Muwan finit par trouver Wang Lin, et les Anciens de la secte vinrent peu à peu le voir. En découvrant l'état de Wang Lin et en entendant ses murmures occasionnels, ils furent profondément émus.
 
 À un certain moment, Wang Lin ne fut plus le seul sur cette montagne. Bientôt, des cultivateurs commencèrent à s'asseoir autour de lui.
 
@@ -110,11 +110,11 @@ De plus en plus de cultivateurs convergèrent vers la montagne jusqu'à ce que t
 
 Le temps sembla s'étirer à l'infini. On ignorait combien de temps passait alors que Wang Lin tenait Li Muwan dans ses bras. Ils restèrent là, observant ensemble les levers et couchers de soleil, comptant les années l'un avec l'autre.
 
-« Le karma ne peut être tranché car il est le vide... Le karma est le karma. Le destin se rassemble pour mieux se disperser dans le vide. » La voix de Wang Lin résonna à travers le monde, se transformant en d'innombrables feuilles de saule. On ne savait ni d'où elles venaient, ni où elles allaient.
+« Le karma ne peut être tranché car il est le vide... Le karma est le karma. Le destin se rassemble pour mieux se disperser dans le vide. » La voix de Wang Lin résonna à travers le monde, se transformant en d'innombrables flocons de saule. On ne savait ni d'où elles venaient, ni où elles allaient.
 
 Elles flottaient lentement dans les cieux avant de retomber sur les cultivateurs environnants, comme si elles portaient l'enregistrement de leurs propres vies.
 
-Deux feuilles de saule, collées l'une à l'autre, tombèrent doucement devant Wang Lin et Li Muwan, comme si leurs mains étaient jointes pour l'éternité.
+Deux flocons de saule, collés l'un à l'autre, tombèrent doucement devant Wang Lin et Li Muwan, comme si leurs mains étaient jointes pour l'éternité.
 
 « Ton visage triste, ce jour-là, s'est imprimé dans mon cœur dès que j'ai fermé les yeux... Dans ce rêve, je t'accompagnerai, je te regarderai partir, je te regarderai t'éveiller... Je resterai dans le rêve, à t'attendre... » Li Muwan regarda Wang Lin avec tendresse. Elle caressa son visage ridé et murmura doucement.
 

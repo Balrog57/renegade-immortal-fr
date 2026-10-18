@@ -54,7 +54,7 @@ Huang Long soupira. Wang Lin n'était qu'au 3e niveau et passait normalement ina
 
 Voyant que Wang Lin ne répondait pas, Zhou Peng ricana: « Sur les quatre combats, il n'en reste plus qu'un. La Secte Heng Yue est une si grande institution et pourtant personne n'ose se lever. Je suis profondément déçu! Aucun de vos disciples internes n'a le courage d'affronter l'adversité? »
 
-L'Ancien Xu, debout aux côtés de Huang Long, déclara: « Pardonne-moi, junior frère Sun. Wang Lin, monte! »
+L'Ancien Dao Xu, debout aux côtés de Huang Long, déclara: « Pardonne-moi, junior frère Sun. Wang Lin, monte! »
 
 Sun Dazhu fut stupéfait et comprit immédiatement la situation. Il s'exclama avec colère: « Dao Xu, bien que tu sois mon frère aîné, tu ne peux pas m'humilier ainsi! Mon disciple n'est qu'au 3e niveau! Le faire monter ne fera que me faire perdre la face! Ne crois pas que j'ignore tes intentions! Leur disciple principal est trop fort, et vous avez tous peur que vos propres disciples soient vaincus, humiliés et blessés; alors vous envoyez mon disciple en bouc émissaire. Mon disciple a toujours été considéré comme un moins que rien à l'école, ainsi, même s'il perd, vous pourrez trouver une excuse. Je refuse de cautionner une telle ignominie! »
 
@@ -76,7 +76,7 @@ Tous les disciples de la Secte Xuan Dao se mirent à le railler bruyamment.
 
 « Notre frère aîné n'a même pas besoin de s'occuper de ce moins que rien! Je pourrais le tuer d'un simple pouce! »
 
-« Frère martial, ils ont déjà abandonné. Envoie quelqu'un d'autre pour finir le travail. Il est vraiment pitoyable. Sois clément et achève-le sans le blesser inutilement. »
+« Frère martial, ils ont déjà abandonné. Ils ont envoyé ce pion pour servir de chair à canon. Il est vraiment pitoyable. Sois clément et laisse-le descendre avec un peu de dignité. »
 
 L'Ancien Ouyang regarda les deux anciens avec dédain. Il rit et dit: « Je découvre enfin la véritable nature de Huang Long et de la Secte Heng Yue! »
 

@@ -6,7 +6,7 @@ bookTitle: "Alliance's Secret"
 en: Chapter 950 - Slaughter Realm
 slug: le-royaume-de-la-boucherie
 ---
-L'Alliance de Culture comptait deux temples, quatre Vénérables et huit royaumes. Le Royaume de la Boucherie avait érigé son propre monde pour servir de base. Il y a d'innombrables années, le fondateur du Royaume de la Boucherie s'était emparé d'une faille résiduelle de l'effondrement du Royaume Céleste de la Pluie. Il avait également rassemblé une immense quantité de métaux célestes pour forger les 99 Épées Élévatrices du Ciel!
+L'Alliance de Culture comptait deux temples, quatre Vénérables et huit royaumes. Le Royaume de la Boucherie avait érigé son propre monde pour servir de base. Il y a d'innombrables années, le fondateur du Royaume de la Boucherie s'était emparé d'une faille résiduelle de l'effondrement du Royaume Céleste de la Pluie. Il avait également rassemblé une immense quantité de fer raffiné pour forger les 99 Épées Élévatrices du Ciel!
 
 Ces 99 Épées Élévatrices du Ciel étaient devenues des édifices uniques au Royaume de la Boucherie.
 
@@ -26,7 +26,7 @@ En plus de ces 99, il y avait le Maître du Royaume et le Vice-Maître du Royaum
 
 On pourrait dire que le Royaume de la Boucherie était une secte de culture, mais elle était bien plus puissante que la plupart des sectes existantes. Peu de gens osaient provoquer le Royaume de la Boucherie au sein de l'Alliance!
 
-Même certains cultivateurs puissants se trouvaient des maux de tête face à eux. Non seulement ces individus étaient cruels, mais ils excellaient également dans l'art de la furtivité. S'ils échouaient dans leur mission, ils pouvaient immédiatement battre en retraite et effacer toute trace de leur passage.
+Même certains cultivateurs puissants se trouvaient des maux de tête face à eux. Non seulement ces individus étaient cruels, mais ils excellaient également dans l'art de la furtivité. S'ils échouaient dans leur mission, ils pouvaient immédiatement battre en retraite sur mille li et effacer toute trace de leur passage.
 
 Depuis la fondation du Royaume de la Boucherie, personne n'avait jamais réussi à se frayer un chemin jusqu'à leur base par le massacre. S'il fallait en citer un, ce que Wang Lin avait fait ce jour-là pouvait tout juste compter.
 
@@ -38,9 +38,9 @@ Des rugissements éclatèrent et, en un instant, une multitude d'ombres jaillire
 
 « Xu Mu, peux-tu m'aider à gérer ces sbires? » D'un pas assuré, Qing Shui dépassa les cultivateurs en robes noires. Sa voix était comme une bourrasque d'air glacial.
 
-Avec la ruse qui le caractérisait, Wang Lin comprit naturellement que Qing Shui lui offrait une opportunité providentielle. Bien qu'ils fussent nombreux, il possédait le corps d'un Dieu Ancien; les éliminer ne serait donc pas une tâche difficile!
+Avec la perspicacité qui le caractérisait, Wang Lin comprit naturellement que Qing Shui lui offrait une opportunité providentielle. Bien qu'ils fussent nombreux, il possédait le corps d'un Dieu Ancien; les éliminer ne serait donc pas une tâche difficile!
 
-« Rassurez-vous, Frère Aîné! » Tandis qu'il parlait, Wang Lin fit un pas en avant et lança soudainement un coup de poing!
+« Rassurez-vous, Senior Frère! » Tandis qu'il parlait, Wang Lin fit un pas en avant et lança soudainement un coup de poing!
 
 Un fracas capable de faire trembler le ciel retentit, suivi d'un bang supersonique devant lui. Le vide se brisa et des fissures s'élancèrent vers l'avant.
 
@@ -82,7 +82,7 @@ Le cultivateur poussa un gémissement étouffé, le visage livide. Cette épée 
 
 Cependant, une panique indicible surpassait tout le reste.
 
-« Être capable de s'emparer si facilement de mon trésor... Cet homme... Quel est donc son niveau de culture!?! » Ce cultivateur du stade intermédiaire Scruteur du Nirvana était célèbre même au sein du Royaume de la Boucherie; sa renommée surpassait celle du Tueur Yu Fei.
+« Être capable de s'emparer si facilement de mon trésor... Cet homme... Quel est donc son niveau de culture!?! » Ce cultivateur du stade intermédiaire Scruteur du Nirvana était célèbre même au sein du Royaume de la Boucherie; sa renommée surpassait celle du Tueur Yu Fei, et son rang était un peu plus élevé.
 
 Pourtant, à cet instant, il était terrifié, d'autant plus qu'il se souvenait comment Yu Fei, bien qu'ayant réussi à s'échapper vers le Royaume de la Boucherie, avait été tué par une main gigantesque semblable à celle de tout à l'heure. Ce souvenir lui glaçait le sang.
 

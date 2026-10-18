@@ -122,7 +122,7 @@ Si les sorts d'évasion de Murong Zhuo étaient aussi prodigieux que ceux du pet
 
 Ce jour-là, avec l'aide de Murong Zhuo, ils travaillèrent de concert et atteignirent enfin la partie médiane inférieure de l'Abîme des Marées. Le cœur de Wang Lin trembla, mais il réprima aussitôt ce sentiment. Même le cristal de Bei Luo ne pouvait voir au-delà de cette profondeur.
 
-Cependant, la cible de Wang Lin était très proche. Selon l'Ancien Démon Bei Luo, il sentait Zhou Yi dans les parages. Pourtant, même avec le pouvoir de Bei Luo, il ne pouvait localiser précisément sa position.
+Cependant, la cible de Wang Lin était très proche. Selon l'Ancien Démon Bei Luo, le corps véritable de Zhou Yi se trouvait ici même. Pourtant, même avec le pouvoir de Bei Luo, il ne pouvait localiser précisément sa position.
 
 Wang Lin joignit les mains. « Frère Murong, j'ai d'autres impératifs, je ne vous suivrai pas plus bas. » Il réfléchit un instant avant de regarder le visage serein de Murong Zhuo et ajouta: « Je suis heureux d'avoir croisé votre chemin lors de cette descente dans l'Abîme des Marées. Si vous avez besoin de moi à l'avenir, n'hésitez pas! »
 
@@ -134,7 +134,7 @@ Wang Lin réfléchit un instant puis envoya une transmission vocale à Murong Zh
 
 Murong Zhuo ne regarda pas les deux femmes et n'eut aucun geste suggérant qu'il avait entendu Wang Lin. Il continua sa descente, mais nul ne remarqua que ses yeux brillèrent un instant et qu'il devint plus vigilant.
 
-Il avait entendu parler de la Secte des Cadavres. Cette secte était bien plus puissante que la plupart des pays de culture. Presque chaque pays possédait une branche de la Secte des Cadavres. Leur puissance était tout simplement écrasante!
+Il avait entendu parler de la Secte des Cadavres. Cette secte était bien plus puissante que la plupart des pays de culture. Presque chaque planète de culture possédait une branche de la Secte des Cadavres. Leur puissance était tout simplement écrasante!
 
 Les deux femmes prirent également congé et s'envolèrent. Cependant, Xu Fei joua distraitement avec ses cheveux. Un cheveu se détacha et vint se fixer sur la falaise.
 

@@ -8,7 +8,7 @@ slug: la-cigale-mue-sa-cuticule
 ---
 À la lisière de la Prairie du Ciel Extrême, la cultivatrice au stade initial de la Tribulation du Vide, entourée de milliers de cultivateurs, ouvrit les yeux. La boussole illusoire devant elle révélait clairement la position de Wang Lin.
 
-Elle vit le point représentant Wang Lin disparaître, puis réapparaître au loin. Elle informa immédiatement les cultivateurs qui le poursuivaient.
+Elle avait déjà vu le point représentant Wang Lin disparaître, puis réapparaître au loin. Elle informa immédiatement les cultivateurs qui le poursuivaient.
 
 À cet instant, le même phénomène se produisit une nouvelle fois. Cela donna à la femme un mauvais pressentiment. Une fois était acceptable, mais deux fois signifiaient qu'une troisième ou quatrième occurrence était possible. Cela rendrait l'élimination de Wang Lin extrêmement difficile!
 
@@ -20,11 +20,11 @@ Sous son regard, elle fut terrifiée de voir la lumière représentant Wang Lin 
 
 À ce moment précis, des cris déchirants retentirent là où se trouvait Wang Lin. Plus d'une douzaine de cultivateurs du Continent du Démon Vert se trouvaient ici, encerclés par la brume. Les hurlements s'estompèrent rapidement et la brume se mua en Wang Lin.
 
-Le visage de Wang Lin n'était plus pâle, mais légèrement rougi. Lors de son combat contre Xu Decai, il avait été gravement blessé; il avait donc choisi la même méthode qu'il avait utilisée dans le monde des grottes: dévorer des cultivateurs pour se guérir.
+Le visage de Wang Lin n'était plus pâle, mais légèrement rougi. Lors de son combat contre Xu Decai, il avait été gravement blessé; il avait donc choisi la même méthode qu'il avait utilisée dans le monde des grottes: dévorer la chair et les âmes originelles de cultivateurs pour se guérir.
 
 Après avoir dévoré deux groupes consécutifs de cultivateurs du Continent du Démon Vert, les yeux de Wang Lin s'illuminèrent et il disparut. Après l'équivalent du temps d'un bâton d'encens, le troisième groupe de cultivateurs mourut à son tour, devenant une partie intégrante du processus de guérison de Wang Lin.
 
-À ce stade, il ne restait plus que deux vieux monstres au stade intermédiaire de la Tribulation du Vide et deux cultivateurs au stade initial! Ces quatre individus étaient très prudents et ne se dispersèrent pas. Chaque expert du stade intermédiaire resta aux côtés d'un cultivateur du stade initial alors qu'ils convergeaient vers Wang Lin.
+À ce stade, au centre de la prairie, il ne restait plus que deux vieux monstres au stade intermédiaire de la Tribulation du Vide et deux cultivateurs au stade initial! Ces quatre individus étaient très prudents et ne se dispersèrent pas. Chaque expert du stade intermédiaire resta aux côtés d'un cultivateur du stade initial alors qu'ils convergeaient vers Wang Lin.
 
 Tout cela était observé par Wang Lin. Il regarda la boussole, un éclat de froideur traversant son regard. Sa cible était le cultivateur du stade initial capable de lancer des sorts rapidement; ce type de sort l'intriguait.
 
@@ -72,11 +72,11 @@ Assis au cœur de la Pierre Spatiale, les yeux de Wang Lin brillèrent alors qu'
 
 D'un nouveau geste, il fit apparaître la gourde contenant les 30 millions d'âmes Dao. Elle fusionna avec la terre, provoquant des tremblements, tandis que des ondes d'aura de mort émanaient du sol.
 
-Après une courte réflexion, Wang Lin leva la main droite et l'empreinte dorée que Xuan Luo lui avait donnée apparut. Il souffla dessus, ce qui fit briller l'emblème, puis il le lança vers les cieux. L'empreinte devint alors le soleil.
+Après une courte réflexion, Wang Lin leva la main droite et l'empreinte dorée que Xuan Luo lui avait donnée apparut. Il souffla dessus, ce qui fit jaillir de l'emblème une immense lumière dorée, puis il le lança vers les cieux. L'empreinte devint alors le soleil.
 
 Puis, Wang Lin sortit la Voile Fantôme qu'il avait fabriquée. La voile se dispersa pour devenir les nuages de ce monde. Ces nuages semblaient simples, mais ils pouvaient prendre n'importe quelle forme.
 
-Les derniers éléments qu'il fit apparaître furent Yi Si et le Roi des Moustiques. Le Roi des Moustiques modifia sa taille et se fondit dans les nuages blancs. Quant à Yi Si, elle fusionna avec la terre, dissimulée par l'aura terrestre émanant des 30 millions d'âmes Dao enfouies dans le sol.
+Les derniers éléments qu'il fit apparaître furent Yi Si et le Roi des Moustiques. Le Roi des Moustiques modifia sa taille et se fondit dans les nuages blancs. Quant à Yi Si, elle fusionna avec la terre, dissimulée par l'aura de mort émanant des 30 millions d'âmes Dao enfouies dans le sol.
 
 « Ce monde manque de karma... » murmura Wang Lin en restant assis. Un vortex apparut entre ses sourcils, puis son essence karmique se condensa en une longue épée avant de disparaître dans l'univers qu'il venait de créer.
 

@@ -38,7 +38,7 @@ Maître Hong Shan et Maître Nan Yunzi restèrent silencieux après avoir entend
 
 « Cette Bête des Limbes semble un peu différente de mes souvenirs. Elle a dévoré la tempête dorée, vous devriez donc l'observer de plus près. Cette cloche dorée avait manifestement été envoyée par le Royaume Céleste Antique pour cette bataille, mais elle a été détruite par le Shui Daozi! »
 
-« De plus, il y a les Royaumes aux Sept Couleurs mentionnés par Maître Lu Fu. Puisque vous posez la question, vous pouvez vous occuper de celui qui se trouve au siège de l'Alliance dans le Système Stellaire du Vide Brillant. Quant aux autres, nous les rechercherons méticuleusement pour les détruire! » ajouta Maître Nan Yunzi d'un ton grave.
+« De plus, il y a les Royaumes aux Sept Couleurs mentionnés par Maître Lu Fu. Puisque vous en faites vous-même la demande, vous pouvez vous occuper de celui qui se trouve au siège de l'Alliance dans le Système Stellaire du Vide Brillant. Quant aux autres, nous les rechercherons méticuleusement pour les détruire! » ajouta Maître Nan Yunzi d'un ton grave.
 
 « Quant à Tai Aluo, la moitié de votre sceau peut être levée. Une fois la guerre contre le Royaume Extérieur terminée, l'autre moitié pourra l'être! » Le regard de Maître Hong Shan se posa sur l'homme pieds nus.
 
@@ -68,7 +68,7 @@ Cependant, à cet instant précis, un changement fracassant se produisit dans le
 
 Lorsqu'ils levèrent la tête, l'énergie de l'épée explosa, enveloppant toute la zone. Une voix antique résonna à travers le monde:
 
-« Le Conseil Souverain convoque tous les membres du Clan de la Lune pour se rassembler dans la partie orientale de la Formation de Scellement du Royaume pour la première bataille contre le Royaume Intérieur! »
+« Le Conseil Souverain convoque tous les membres du Clan de la Lune, en y engageant toutes leurs forces, pour se rassembler dans la partie orientale de la Formation de Scellement du Royaume pour la première bataille contre le Royaume Intérieur! »
 
 Tous les cultivateurs du Clan de la Lune furent ébranlés. Après un instant de silence, un rugissement parcourut tout le clan. Ils avaient attendu ce jour depuis bien trop longtemps!
 
@@ -92,7 +92,7 @@ Plus de dix clans du Système Stellaire Antique reçurent la convocation du Cons
 
 Cette dernière phrase résonna dans tout le Système Stellaire Antique, parvenant aux oreilles de chaque cultivateur. Cela plongea l'univers entier dans une fureur guerrière.
 
-« Forcez votre passage vers le Royaume Intérieur et massacrez tout être vivant à l'intérieur! Faites connaître la puissance du Dao céleste de l'Antique à ces fourmis du Royaume Intérieur! Que ces cultivateurs-fourmis comprennent le véritable sens de l'Antique! »
+« Forcez votre passage vers le Royaume Intérieur et massacrez tout être vivant à l'intérieur, sans laisser un brin d'herbe! Faites connaître la puissance du Dao céleste de l'Antique à ces fourmis du Royaume Intérieur! Que ces cultivateurs-fourmis comprennent le véritable sens de l'Antique! »
 
 « Les cultivateurs du Royaume Intérieur sont des fourmis extrêmement cruelles et sans espoir. Nous devons utiliser le massacre pour les éveiller à la vérité! »
 
@@ -130,6 +130,8 @@ Près d'eux se trouvait l'ancêtre lugubre du Clan des Moineaux de Feu, fixant l
 
 Devant les trois autres se tenait une femme vêtue de soie nuageuse, la tête baissée. C'était le Grand Maître Yun Luo. Ses mains s'activaient rapidement comme si elle pratiquait la divination, et une lueur d'inquiétude traversait son regard.
 
-« Je dois remercier le Grand Maître Yun Luo d'avoir découvert que les cultivateurs du troisième pas du Royaume Intérieur ont eu vent des Royaumes aux Sept Couleurs mis en place par le Souverain. Cependant, comment ces fourmis du Royaume Intérieur auraient-elles pu découvrir le véritable plan du Souverain? » sourit Maître Dong Dizi.
+« Je dois remercier le Grand Maître Yun Luo d'avoir découvert que les cultivateurs du Royaume Intérieur ont eu vent des Royaumes aux Sept Couleurs mis en place par le Souverain. Cependant, comment ces fourmis du Royaume Intérieur auraient-elles pu découvrir le véritable plan du Souverain? » sourit Maître Dong Dizi.
 
 Le Grand Maître Yun Luo leva sa main élégante et déclara lentement: « Le but de cette bataille n'est pas la mise à mort, mais l'installation de ce réseau de transfert, gardez cela à l'esprit! En outre, Wang Lin doit être tué le plus rapidement possible; il ne doit pas survivre! »
+
+La guerre entre le Royaume Intérieur et le Royaume Extérieur commence!

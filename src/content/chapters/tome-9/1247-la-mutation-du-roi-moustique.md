@@ -60,7 +60,7 @@ Le roi moustique de Wang Lin faisait preuve d'une agilité extrême en esquivant
 
 La bête de Wang Lin afficha un regard féroce et cessa de l'esquiver. Son corps irradiait d'une lueur dorée tandis qu'il chargeait, porté par la pression d'un roi moustique!
 
-Un grondement tonitruant retentit. Wang Lin ne ressentit qu'un léger tremblement sous ses pieds. La bête violette fut simplement repoussée sans être blessée. Elle devint plus féroce encore alors que l'énergie spirituelle céleste se rassemblait devant elle, tel un cultivateur s'apprêtant à lancer un sortilège.
+Un grondement tonitruant retentit. Wang Lin ne ressentit qu'un léger tremblement sous ses pieds. La bête violette fut simplement repoussée de plusieurs centaines de pieds, sans être blessée. Elle devint plus féroce encore alors que l'énergie spirituelle céleste se rassemblait devant elle, tel un cultivateur s'apprêtant à lancer un sortilège.
 
 Le roi moustique de Wang Lin portait de nombreuses blessures, notamment une entaille sur sa gueule. La douleur le rendit plus impétueux encore; ses poils dorés se hérissèrent et il chargea une nouvelle fois.
 
@@ -74,7 +74,7 @@ Son corps d'Ancien Dieu se manifesta, et à cet instant, une aura unique aux die
 
 Un fracas assourdissant ébranla l'univers. Le trident gigantesque, tel un dragon, fonça vers la faille spatiale recouverte d'une multitude de bêtes moustiques!
 
-L'arme portait la puissance de l'Ancien Dieu et l'Étoile de la Loi. Au moment du lancer, le tonnerre du monde convergea pour former une sphère de foudre qui grondait sans fin.
+L'arme portait la puissance de l'Ancien Dieu et l'Étoile de la Loi. Au moment du lancer, le tonnerre du monde convergea pour former d'innombrables sphères de foudre qui grondaient sans fin.
 
 Une mer de feu bleu s'étendit. La chaleur était telle que même les moustiques violets durent l'éviter. Plus incroyable encore, l'énergie originelle injectée par Wang Lin se transforma en sorts célestes de Bai Fan. À cet instant, cela ressemblait à l'apocalypse.
 

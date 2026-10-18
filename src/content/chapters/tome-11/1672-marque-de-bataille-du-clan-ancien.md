@@ -14,7 +14,7 @@ Ses cinq doigts féroces et ses griffes acérées dégageaient une aura puissant
 
 C'était un bras gauche!
 
-Des grondements tonitruants résonnèrent lorsqu'un autre bras rouge, tout aussi féroce, apparut d'un second cercueil qui explosa. Les poils rouges ondulaient et les veines du bras gonflaient, créant un spectacle saisissant.
+Des grondements tonitruants résonnèrent lorsqu'un autre bras rouge, tout aussi féroce, apparut d'un second cercueil qui explosa. Les poils rouges ondulaient et les veines gonflées du bras se tordaient lentement, créant un spectacle saisissant.
 
 Peu de temps après, deux jambes dégageant une aura ancienne émergèrent des cercueils fracassés. La scène était terrifiante, et tandis que Wang Lin observait, la gravité dans son regard s'intensifia.
 
@@ -46,7 +46,7 @@ Dans son œil gauche brillaient trois étoiles de Démon Ancien. Dans son œil d
 
 Cependant, l'aura émanant de cet homme était d'une pureté extrême. C'était une véritable aura ancienne!
 
-Bien que Wang Lin possédât sa propre aura ancienne, celle-ci provenait d'un héritage. Bien qu'il puisse créer la sienne en fusionnant le pouvoir des trois clans anciens, ce n'était pas l'aura de Ye Mo.
+Bien que Wang Lin possédât sa propre aura ancienne, celle-ci provenait d'un héritage, fondu avec son propre être. Bien qu'elle fût une aura ancienne, ce n'était pas celle de Ye Mo.
 
 Pourtant, l'aura que dégageait cet homme appartenait bien à Ye Mo!
 
@@ -72,7 +72,7 @@ Bien que la bataille entre les Royaumes Intérieur et Extérieur se soit étendu
 
 Sept étoiles de Dieu Ancien tournaient entre ses sourcils. Ses yeux clos s'ouvrirent soudainement pour scruter le lointain.
 
-« Je sens l'aura de la lignée de mon père... » Après réflexion, la femme pointa sa main droite vers l'espace entre ses sourcils. Les sept étoiles se mirent à tourner si vite qu'elles devinrent floues, avant de fusionner pour ne former qu'une seule marque de sang.
+« Je sens l'aura de la lignée de mon père et de mes ancêtres... » Après réflexion, la femme pointa sa main droite vers l'espace entre ses sourcils. Les sept étoiles se mirent à tourner si vite qu'elles devinrent floues, avant de fusionner pour ne former qu'une seule marque de sang.
 
 Cette marque dégageait un éclat rouge démoniaque entre ses sourcils.
 
@@ -102,7 +102,7 @@ Wang Lin réfléchit silencieusement un instant, puis son intention de combat ja
 
 Dès qu'il eut fait ce geste, l'homme d'âge moyen poussa un rugissement. Son corps de 10 000 pieds avança comme un géant vers la formation.
 
-Des craquements retentirent dans le corps de Wang Lin tandis qu'il avançait. Sa stature gonfla follement: 10 pieds, 100 pieds, 1 000 pieds... jusqu'à devenir lui aussi un géant de 10 000 pieds!
+Des craquements retentirent dans le corps de Wang Lin tandis qu'il avançait. Sa stature gonfla follement: 100 pieds, 1 000 pieds, plusieurs milliers de pieds... jusqu'à devenir lui aussi un géant de 10 000 pieds!
 
 D'un pas, Wang Lin sortit de la formation pour la première fois et se tint dans le Système Stellaire Antique. Tandis que l'homme d'âge moyen rugissait, un tonnerre de colère retentit également de la part de Wang Lin.
 

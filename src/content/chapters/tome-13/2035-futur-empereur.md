@@ -8,7 +8,7 @@ slug: futur-empereur
 ---
 L'arrêt soudain de Wang Lin dans les airs attira l'attention des membres du Dao Antique, et Ye Wei leva également les yeux vers lui.
 
-C'était un homme costaud ordinaire qui ne se distinguait guère de la foule. Son niveau de culture n'était que celui d'un dieu antique 8 étoiles, et il n'avait pas encore atteint le rang de seigneur.
+C'était un homme costaud ordinaire qui ne se distinguait guère de la foule. Son niveau de culture n'était que celui d'un dieu antique 8 étoiles, et il n'avait pas encore atteint le rang de Saint.
 
 Il y avait une multitude de personnes comme lui au sein du Dao Antique. Normalement, personne ne prêterait attention à un tel individu; s'il n'avait pas été transporté ici par les innombrables réseaux de transfert, il serait passé totalement inaperçu.
 
@@ -28,7 +28,7 @@ Wang Lin se tint devant Luo Chen et contempla ce visage familier.
 
 « Toi... Quand t'es-tu séparé du Serpent aux yeux de lune? » demanda Wang Lin.
 
-« Après avoir suivi Seigneur Xuan ici, ce dernier m'a aidé à me séparer du Serpent aux yeux de lune », répondit calmement l'homme en fixant Wang Lin. Il se rappelait sa première rencontre avec le jeune homme et la faiblesse dont il faisait alors preuve. Désormais, Wang Lin était devenu un Grand Empyréen et avait même tué l'Empereur du Dao Antique. L'Empereur Saint du Dao Antique n'avait pu que regarder Wang Lin partir.
+« Après avoir suivi Seigneur Xuan ici, ce dernier m'a aidé à me séparer du Serpent aux yeux de lune », répondit calmement l'homme en fixant Wang Lin. Il se rappelait sa première rencontre avec le jeune homme et la faiblesse dont il faisait alors preuve. Désormais, Wang Lin était devenu un Grand Empyréen et avait même tué l'Empereur du Dao Antique. L'Empereur Saint du Dao Antique n'avait pu que lui ouvrir la grande formation pour le laisser partir.
 
 La mer bleue se transformant en champs de mûriers — c'était une expression utilisée pour décrire un changement radical de paysage, mais en cet instant, c'était précisément ce que ressentait Luo Chen.
 
@@ -50,7 +50,7 @@ Luo Chen hocha la tête. À son arrivée dans le Dao Antique, il avait tout appr
 
 « Aide-moi à prendre soin des descendants de Ye Mo. » Wang Lin leva les yeux vers l'horizon de la cité impériale.
 
-« À vos ordres. Je réside actuellement dans le manoir du Seigneur Ye Mo », répondit promptement Luo Chen. Lorsqu'il était arrivé, il n'avait point de foyer; il avait choisi de ne pas loger au Temple du Dao Antique pour suivre sa lignée vers les descendants de Ye Mo. Bien que ceux-ci fassent partie de la famille royale, ils avaient décliné et ne possédaient plus qu'un seul manoir.
+« À vos ordres. Je réside actuellement dans le manoir du Seigneur Ye Mo », répondit promptement Luo Chen. Lorsqu'il était arrivé, il n'avait point de foyer; il n'avait pas choisi de rester dans cette montagne, mais avait suivi son sang jusqu'aux descendants de Ye Mo. Bien que ceux-ci fassent partie de la famille royale, ils avaient décliné et ne possédaient plus qu'un seul manoir.
 
 Les descendants de Ye Mo avaient néanmoins accepté de l'accueillir.
 
@@ -62,7 +62,7 @@ Le corps de Luo Chen trembla sous l'éclat d'une lumière argentée aveuglante. 
 
 Les yeux de Xuan Luo se plissèrent également. Il observa Wang Lin et Luo Chen, affichant une expression complexe avant de laisser échapper un soupir.
 
-Le corps de Luo Chen frémit; il sentit un flux brûlant émaner de Wang Lin pour pénétrer sa lignée, la rendant d'une pureté incomparable. Il possédait déjà une trace de sang royal, mais à mesure que celle-ci se purifiait, il dégagea une pression de lignée comparable à celle de l'ancien Empereur du Dao Antique!
+Le corps de Luo Chen frémit; il sentit un flux tiède émaner de Wang Lin pour pénétrer sa lignée, la rendant d'une pureté incomparable. Il possédait déjà une trace de sang royal, mais à mesure que celle-ci se purifiait, il dégagea une pression de lignée comparable à celle de l'ancien Empereur du Dao Antique!
 
 Après un long moment, Wang Lin retira sa main. Il avait infusé une partie de son sang de l'âme en Luo Chen, permettant à la lignée de ce dernier d'atteindre un niveau suffisant pour prétendre au titre d'Empereur du Dao Antique.
 
@@ -84,7 +84,7 @@ Ye Wei manifesta une certaine hésitation face à Luo Chen, puis, après un long
 
 Jusqu'ici, le Grand Empyréen Gu Dao n'était jamais apparu. Même ses messagers restaient absents, comme s'ils évitaient délibérément la situation.
 
-Malgré l'appel de l'Empereur du Dao Antique, le Grand Empyréen Gu Dao, gardien des familles royales, n'avait toujours pas agi. Les membres du Dao Antique ne parlaient pas de ce silence, enterrant leur doute au plus profond de leurs cœurs.
+Malgré la mort de l'Empereur du Dao Antique, le Grand Empyréen Gu Dao, gardien des familles royales, n'avait toujours pas agi. Les membres du Dao Antique ne parlaient pas de ce silence, enterrant leur doute au plus profond de leurs cœurs.
 
 Wang Lin lui-même s'interrogeait sur cette absence. Il s'était préparé au pire: si le Grand Empyréen Gu Dao était apparu, il aurait tout donné pour invoquer son avatar dans le vide afin de l'affronter!
 

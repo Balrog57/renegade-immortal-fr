@@ -58,7 +58,7 @@ Gu Dao observa le phénomène et dit: « Lorsque toute l'eau aura été aspirée
 
 « Tous deux ont payé le prix de la mort pour poursuivre la réponse et, ce faisant, ils ont jeté les bases de l'héritage du clan Céleste et du clan Antique. Peut-être était-ce pour les protéger, » marmonna Gu Dao.
 
-Les alentours grondaient sans relâche et le vortex continuait sa voracité jusqu'à ce qu'il ne reste plus que la moitié de la tempête marine. L'eau de mer avait totalement disparu dans le vortex, son destin étant inconnu.
+Les alentours grondaient sans relâche et le vortex continuait sa voracité jusqu'à ce qu'il ne reste plus que moins de la moitié de la tempête marine. Une grande quantité d'eau de mer avait disparu dans le vortex, on ignorait où elle était.
 
 Il ne fallut pas longtemps pour que l'océan soit entièrement englouti.
 
@@ -98,7 +98,7 @@ Lorsque le continent Astral Immortel reprit ses droits, les neuf piliers du bass
 
 Une fois la porte disparue, le vortex résiduel gronda sans fin. L'océan infini qui avait été englouti se déversa à nouveau dans le bassin. L'eau retomba dans un fracas de tonnerre. Plusieurs heures plus tard, le vaste bassin redevint une mer infinie où les vagues s'entrechoquaient. Les grondements cessèrent, remplacés par le murmure régulier de l'océan.
 
-Tout revint à la normale. Le clan Céleste et le clan Antique retrouvèrent leur état initial. Tout reprit son cours, y compris pour les deux silhouettes se trouvant dans une cour élégante de la ville de Pierre Noire, au sein du clan Antique.
+Tout revint à la normale. Le clan Céleste et le clan Antique retrouvèrent leur état initial. Tout reprit son cours, y compris pour les deux silhouettes se trouvant dans une cour élégante de la ville de Pierre Noire, au sein du clan Shi Antique.
 
 La demeure n'était pas vaste et l'intérieur restait simple, mais elle dégageait une atmosphère chaleureuse. Sur le lit reposait une vieille femme. Son visage était sillonné de rides, mais on devinait encore la beauté de sa jeunesse.
 
@@ -112,8 +112,8 @@ Song Zhi n'était qu'un membre ordinaire du clan Antique; cinq cents ans étaien
 
 La vieille femme regarda la jeune fille qui avait grandi à ses côtés et murmura: « Je sais qu'il y a une histoire en toi... Je t'ai vue contempler le ciel d'un air absent et pleurer bien des fois... Je me souviens même que lorsque je te racontais ce qui s'était passé dans la cité impériale du Dao Antique, ou l'histoire de Wang Lin et Li Muwan, tu te forçais à sourire. »
 
-« Dong Mei... Promets-moi que si tu ne peux pas oublier, tu ne t'en voudras pas trop. »
+« Dong Mei... Promets-moi que si tu ne peux pas oublier, tu ne te forceras pas à souffrir. »
 
-Elle se souviendrait toujours de la première fois où elle avait prononcé le nom « Wang Lin » devant Dong Mei — de l'expression de stupeur et d'émotion qui avait saisi la jeune femme. Elle se souvenait aussi qu'il y a cinq cents ans, lorsque Wang Lin l'avait ramenée, il ne lui avait pas seulement conté l'histoire de Li Muwan, mais aussi celle d'une femme nommée Li Qianmei.
+Elle se souviendrait toujours de la première fois où elle avait prononcé le nom « Wang Lin » devant Dong Mei — de l'expression de stupeur et de mélancolie qui avait saisi la jeune femme. Elle se souvenait aussi qu'il y a cinq cents ans, lorsque Wang Lin l'avait ramenée, il ne lui avait pas seulement conté l'histoire de Li Muwan, mais aussi celle d'une femme nommée Li Qianmei.
 
 « Une personne réincarnée... Dong Mei et Li Qianmei sont-elles la même personne? » La vieille femme ne prononça pas ces mots, mais elle fixa la belle femme devant elle avant de fermer lentement les yeux.

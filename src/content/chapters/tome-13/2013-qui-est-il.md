@@ -22,15 +22,15 @@ Une mer de brume et une grotte à l'apparence ordinaire. Un homme était assis �
 
 La femme se tenait devant l'entrée. Bien que consumée par la peur, ses yeux brillaient de détermination. Devant elle, de nombreux cultivateurs déployaient des sorts, tentant de briser la formation pour pénétrer dans la grotte.
 
-Elle serra les dents et maintint la formation avec acharnement jusqu'à épuisement de ses forces. Son corps devint flasque, mais elle sentit soudain s'appuyer contre une poitrine chaude.
+Elle serra les dents et modifia sans cesse la formation pour résister, jusqu'à épuisement de ses forces. Son corps devint flasque, mais elle sentit soudain s'appuyer contre une poitrine chaude.
 
 « Je t'emmène tuer des gens! »
 
-Cette phrase sembla percer le firmament et scella ainsi le destin de ces deux amants pour l'éternité...
+Cette phrase sembla percer le firmament et lia ainsi ces deux amants pour toute une vie...
 
 « Qui est-elle, qui est-il... Qui suis-je... »
 
-Toujours sous ce ciel bleu, se dressait une secte aussi familière qu'inconnue. La femme était assise en silence devant un pavillon, tenant une cithare. Les mélodies mélancoliques de l'instrument résonnaient. Elle allait se marier.
+Toujours sous ce ciel bleu, se dressait une secte aussi familière qu'inconnue. La femme était assise en silence dans un pavillon, tenant une cithare. Les mélodies mélancoliques de l'instrument résonnaient. Elle allait se marier.
 
 Cependant, lorsqu'elle sortit du pavillon pour affronter la réalité, un homme à la culture suprême apparut et se tint devant elle.
 
@@ -38,7 +38,7 @@ Son sourire empreint de douceur la déconcerta.
 
 Elle voulait savoir qui il était, qui elle était, et ce qu'elle était réellement...
 
-Un rayon de lumière chaleureux illumina une vallée paisible. Là se trouvait une maison en bois d'où émanait le chant joyeux d'une femme jouant de la cithare. Elle regarda l'homme qui s'appuyait contre elle et lui adressa un regard tendre.
+Un rayon de lumière chaleureux illumina une vallée paisible. Là se trouvait une maison en bois d'où émanait le chant joyeux d'une femme jouant de la cithare. Blottie contre lui, elle regarda l'homme à ses côtés et lui adressa un regard tendre.
 
 Elle semblait si heureuse... Pourtant, qui était-elle, qui était cet homme, et qui... suis-je?
 
@@ -88,7 +88,7 @@ Une douleur fulgurante frappa de nouveau son esprit. La femme ferma les yeux et 
 
 L'homme en robe impériale s'assombrit instantanément et ordonna: « Dis-moi la raison! »
 
-Des ondulations se formèrent derrière lui lorsqu'un vieil homme apparut et s'inclina sur un genou. « Votre Majesté, Song... Après que l'Impératrice a fusionné avec cette âme, son corps est devenu faible. Elle possède déjà sa propre âme, et la fusion a provoqué un désordre dans ses souvenirs. »
+Des ondulations se formèrent derrière lui lorsqu'un vieil homme apparut et s'inclina sur un genou. « Votre Majesté, Song... Après que l'Impératrice a fusionné avec cette âme, son corps est devenu faible. Son âme propre s'est déjà entremêlée au fragment d'âme de Votre Majesté pendant la fusion, ce qui a provoqué un désordre dans ses souvenirs. »
 
 « Mais cela n'est pas grave. L'Impératrice doit simplement se reposer quelque temps pour récupérer, bien que sa mémoire demeure perturbée. Cependant, c'est une opportunité: Votre Majesté peut lui insuffler de nouveaux souvenirs pour combler progressivement son esprit et les transformer en ses véritables souvenirs. »
 
@@ -114,7 +114,7 @@ Tout en murmurant, il leva la main droite et caressa doucement son visage avec u
 
 Le corps de la femme tressaillit comme si elle ressentait la douleur même dans son coma, et des larmes coulèrent au coin de ses yeux.
 
-« Si elle n'avait pas dû être vierge pour porter le titre d'impératrice, je voudrais vraiment la briser dès maintenant. Mais rien ne presse. Une fois la cérémonie terminée, je prendrai tout mon temps pour savourer cette âme. » L'homme se leva avec un sourire et, d'un geste de sa manche, quitta la pièce.
+« Si elle n'avait pas dû être vierge pour porter le titre d'impératrice, je voudrais vraiment en faire une femme dès maintenant. Mais rien ne presse. Une fois la cérémonie terminée, je prendrai tout mon temps pour savourer cette âme. » L'homme se leva avec un sourire et, d'un geste de sa manche, quitta la pièce.
 
 Tandis que les larmes de la femme coulaient, loin de là, au pied du Mont Gu Dao, Wang Lin levait les yeux vers le sommet avec froideur.
 
@@ -132,7 +132,7 @@ Lorsqu'il s'arrêta, Wang Lin se trouvait à la 39e marche. Une pression écrasa
 
 Avec un reniflement méprisant, la silhouette du soleil du Grand Empyréen derrière lui brilla plus intensément encore. D'un bond, il s'élança à nouveau.
 
-La 42e marche, la 57e, la 69e, la 83e... Des grondements tonitruants résonnaient dans ses oreilles alors qu'il affrontait cette pression titanesque pour atteindre la 99e marche. Il leva le pied droit et s'engagea sans pitié sur la 100e marche!
+La 42e marche, la 57e, la 69e, la 83e... Des grondements tonitruants résonnaient dans ses oreilles alors qu'il affrontait cette pression titanesque pour atteindre la 99e marche. Il leva le pied droit et posa le pied avec violence sur la 100e marche!
 
 À l'instant où son pied toucha le sol, le monde entier trembla et le Mont Gu Dao sembla vaciller. Une pression monumentale bombarda Wang Lin, faisant vibrer son esprit et lui arrachant un filet de sang au coin de la bouche.
 

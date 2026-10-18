@@ -6,9 +6,9 @@ bookTitle: "Alliance's Secret"
 en: Chapter 1092 - Wang Lins Plan
 slug: le-plan-de-wang-lin
 ---
-Les deux vieux cultivateurs au stade avancé de la Purification du Nirvana se regardèrent, avant de porter leur attention sur le vieil homme au stade initial du Briseur du Nirvana. Ils suivaient manifestement ses ordres.
+Les deux vieux cultivateurs au stade avancé du Purificateur du Nirvana se regardèrent, avant de porter leur attention sur le vieil homme au stade initial du Briseur du Nirvana. Ils suivaient manifestement ses ordres.
 
-Ce dernier fixa Wang Lin. Bien que son expression fût sereine, son esprit était bouleversé. Il aurait pu tuer Ren Tao avec deux mouvements tout aussi bien, mais lui était un cultivateur du Briseur du Nirvana, tandis que Wang Lin n'était qu'au sommet du stade du Scruteur du Nirvana.
+Ce dernier fixa Wang Lin. Bien que son expression fût sereine, son esprit était bouleversé. Il aurait pu tuer Ren Tao de deux doigts tout aussi bien, mais lui était un cultivateur du Briseur du Nirvana, tandis que Wang Lin n'était qu'au sommet du stade du Scruteur du Nirvana.
 
 En tenant compte de cela, il devait accorder une importance capitale à l'individu qui se tenait devant lui. Plus important encore...
 
@@ -30,13 +30,13 @@ Le premier était Ta Shan. Il ne s'était pas avancé pour saluer Wang Lin, pré
 
 Son expression était empreinte d'une grande amertume; après un long moment, il laissa échapper un soupir avant de fermer les yeux pour poursuivre sa culture. Cependant, son esprit ne parvint nullement à s'apaiser.
 
-Un autre homme partageait ce même sentiment. Assis sur le mur d'une cité et entouré de cruches de vin, il en saisit une et prit une grande gorgée, le visage marqué par la tristesse.
+Un autre homme partageait ce même sentiment. Assis sur le mur d'une cité et entouré de sept ou huit cruches de vin, il en saisit une et prit une grande gorgée, le visage marqué par la tristesse.
 
-Contrastant avec l'effervescence qui entourait Wang Lin, ce vieil homme paraissait très morne. Derrière lui, Ling Er l'accompagnait en silence.
+Contrastant avec l'effervescence qui entourait Wang Lin, ce vieil homme paraissait très morne, comme indifférent à tout. Derrière lui, Ling Er l'accompagnait en silence.
 
 Outre Ta Shan et Maître Yi Chen, une autre personne était habitée par des sentiments contradictoires: Xu Liguo. Enveloppé de flammes, il continuait de maudire sans jamais se lasser.
 
-« Espèce de meurtrier, Wang Lin! Pourquoi n'as-tu pas encore laissé ton Grand-père Xu sortir?! Attends un peu, attends seulement! »
+« Maudit Wang Lin! Pourquoi n'as-tu pas encore laissé ton Grand-père Xu sortir?! Attends un peu, attends seulement! »
 
 Au cours des deux jours suivants, les anciens des trois autres Sectes Divines vinrent féliciter Wang Lin pour son accession au titre d'Empereur Divin de l'Oiseau Vermillon. La Secte Divine de l'Oiseau Vermillon était en pleine effervescence. Wang Lin se montra très poli envers les anciens des trois autres sectes. Après tout, les Quatre Sectes Divines partageaient un destin commun, et la majorité des anciens présents étaient allés à la Terre des Esprits Démoniaques. Ayant été témoins des sorts de Wang Lin, ils ne pouvaient naturellement ressentir de dédain face au fait qu'il n'était qu'un cultivateur du stade Scruteur du Nirvana.
 
@@ -46,11 +46,11 @@ En particulier, les trois Grands Anciens de la Secte Divine du Dragon Azure se m
 
 Une cérémonie grandiose était nécessaire pour l'ascension d'un nouvel Empereur Divin. C'était une tradition des Quatre Sectes Divines que Wang Lin ne pouvait ignorer. La cérémonie fut fixée au sixième jour.
 
-Wang Lin serait normalement très occupé et n'aurait guère le temps de se reposer. Il y avait de nombreux aspects de la Secte Divine de l'Oiseau Vermillon qu'il devait apprivoiser. De plus, tous les anciens de la secte ne reconnaissaient pas encore son autorité; ils n'avaient accepté sa position que sur ordre du vieil Empereur Divin.
+Wang Lin serait normalement très occupé et n'aurait guère le temps de se reposer. Il y avait de nombreux aspects de la Secte Divine de l'Oiseau Vermillon qu'il devait apprendre à connaître. De plus, tous les anciens de la secte ne reconnaissaient pas encore son autorité; ils n'avaient accepté sa position que sur ordre du vieil Empereur Divin.
 
 Cependant, Wang Lin ne s'attarda pas sur ces formalités. Lorsqu'il accepta de devenir l'Empereur Divin de l'Oiseau Vermillon, ce n'était qu'un accord passé avec le précédent souverain.
 
-Durant les trois années suivantes, le vieil Empereur Divin l'avait beaucoup aidé. Bien que cela fît partie du marché, Wang Lin se sentait tenu de lui rendre cette faveur.
+Durant les trois années suivantes, le vieil Empereur Divin lui avait transmis sans réserve tout ce qu'il possédait. Bien que cela fît partie du marché, Wang Lin se sentait tenu de lui rendre cette faveur.
 
 Pourtant, Wang Lin savait qu'en raison de sa situation actuelle, il ne pourrait pas rester en un lieu trop longtemps. Durant ces trois années, il s'était souvent réveillé de sa culture l'esprit agité, comme saisi d'une sourde angoisse qui lui faisait battre le cœur.
 
@@ -76,7 +76,7 @@ Wang Lin s'était cultivé pendant plus de mille ans; il n'était plus le petit 
 
 « Si l'Empereur Céleste Qing Lin peut être ressuscité, je me demande comment il se comporterait face à Tuo Sen... » Les yeux de Wang Lin s'illuminèrent tandis qu'il contemplait la montagne. Toutes les planètes de la Secte Divine de l'Oiseau Vermillon étaient perpétuellement embrasées, paraissant d'un rouge éclatant au premier regard.
 
-« Je sauverai l'Empereur Divin du Dragon Azure en guise de reconnaissance temporaire pour l'aide de l'ancien Empereur Divin. Si je parviens à échapper au massacre de Tuo Sen et à acquérir la puissance nécessaire pour le vaincre, alors je reviendrai pour assurer la prospérité de la Secte Divine de l'Oiseau Vermillon... Mais si je meurs des mains de Tuo Sen... » Wang Lin regarda silencieusement le ciel et esquissa un sourire amer.
+« Je sauverai l'Empereur Divin du Dragon Azure en guise de reconnaissance temporaire pour l'aide de l'ancien Empereur Divin. Si je parviens à échapper à la traque de Tuo Sen et à acquérir la puissance nécessaire pour le vaincre, alors je reviendrai pour rendre toute sa gratitude à l'ancien Empereur Divin, préserver la paix de la Secte Divine de l'Oiseau Vermillon et faire renaître sa prospérité d'antan... Mais si je meurs des mains de Tuo Sen... » Wang Lin regarda silencieusement le ciel et esquissa un sourire amer.
 
 « Tuo Sen... Je ne te laisserai pas t'échapper si facilement. Ce monde est imprégné d'avidité. Je me demande combien de personnes seront attirées par la promesse d'un Ancien Dieu à huit étoiles... » Wang Lin afficha un sourire sinistre.
 
@@ -106,15 +106,15 @@ La salle arrière de la Secte Divine de l'Oiseau Vermillon était entièrement b
 
 À cet instant, deux hommes et une femme étaient assis à l'intérieur de la salle.
 
-La femme était d'une grande beauté. Elle portait une robe de soie bleue qui dévoilait partiellement sa poitrine. Ses yeux étaient magnifiques, empreints d'une pointe de coquetterie. Elle observait attentivement ses deux compagnons: l'un était un vieillard et l'autre un jeune homme chauve.
+La femme était d'une grande beauté. Elle portait une robe de soie bleue qui dévoilait partiellement sa poitrine. Ses yeux étaient magnifiques, empreints d'une pointe de coquetterie. Elle observait attentivement ses deux compagnons: l'un était un vieillard et l'autre un homme chauve.
 
 Le vieil homme portait une robe rouge et dégageait une aura de majesté. Bien que ses yeux fussent clos, des distorsions de l'espace dansaient autour de lui, comme s'il n'appartenait pas à ce monde. Cela témoignait d'un niveau de culture terrifiant.
 
-Quant au jeune homme chauve, il paraissait très ordinaire sous sa robe verte. Il semblait calme, bien qu'une lueur de confusion traverse parfois son regard avant de s'effacer rapidement.
+Quant à l'homme chauve, il paraissait très ordinaire sous sa robe verte. Il semblait calme, bien qu'une lueur de confusion traverse parfois son regard avant de s'effacer rapidement.
 
 Toutefois, la femme remarqua immédiatement que dès que cette confusion apparaissait dans ses yeux, l'énergie originelle environnante semblait marquer un temps d'arrêt.
 
-Si Wang Lin avait été présent, il aurait instantanément reconnu le vieil homme et le jeune chauve, car il les connaissait.
+Si Wang Lin avait été présent, il aurait instantanément reconnu le vieil homme et le chauve, car il les connaissait.
 
 À ce moment-là, un junior de la Secte Divine de l'Oiseau Vermillon entra pour apporter des fruits et du thé. Après les avoir déposés, il se retira aussitôt.
 

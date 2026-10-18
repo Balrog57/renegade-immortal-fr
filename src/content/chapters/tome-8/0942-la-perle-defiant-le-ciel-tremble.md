@@ -34,7 +34,7 @@ Lorsqu'il frappa, les cinq étoiles apparurent sur son poing. Elles tournèrent 
 
 « Il semble que Luo Chen n'ait pas remarqué l'anomalie. C'est pourtant un Dieu Ancien à 5 étoiles! Comment a-t-il pu ignorer cela? C'est Qing Shui qui l'a détectée! »
 
-Wang Lin ressentit une immense appréhension face aux deux lueurs fantomatiques sous le filet. À ce moment précis, le poing droit de Luo Chen fendit l'air. La main de Wang Lin s'élança immédiatement en avant, déchaînant la puissance d'un Dieu Ancien à 4 étoiles. Il utilisa cette force pour changer de trajectoire et s'éloigner du filet.
+Wang Lin ressentit une immense appréhension face aux deux lueurs fantomatiques sous le filet. À ce moment précis, le poing droit de Luo Chen fendit l'air. Les deux mains de Wang Lin s'élancèrent immédiatement en avant, déchaînant la puissance d'un Dieu Ancien à 4 étoiles. Il utilisa cette force pour changer de trajectoire et s'éloigner du filet.
 
 « Je l'ai remarqué grâce au pouvoir mystérieux de la Perle Défiant le Ciel. Qing Shui doit posséder son propre secret pour être capable de la détecter. Mais qu'est-ce qui se cache donc réellement dans ce vide? »
 
@@ -100,7 +100,7 @@ Le corps massif du Serpent aux yeux de lune trembla soudainement et il poussa un
 
 Le filet, le plus proche du serpent, se déchira brusquement. À l'instant même de la déchirure, l'ouverture s'élargit pour révéler une immensité vertigineuse!
 
-C'était comme si le sceau de ce vide avait été arraché, laissant jaillir les deux lueurs fantomatiques.
+C'était comme si la grande formation de ce vide avait été entrouverte par une fissure, laissant jaillir les deux lueurs fantomatiques.
 
 Au moment où ces lueurs chargèrent, Wang Lin, Qing Shui et Luo Chen furent tous saisis de stupeur!
 
@@ -108,7 +108,7 @@ Au moment où ces lueurs chargèrent, Wang Lin, Qing Shui et Luo Chen furent tou
 
 « Tuo Sen!! » haleta Wang Lin. Son cuir chevelu était engourdi par la terreur et il s'apprêtait à fuir.
 
-« Ancêtre!! » Luo Chen fixa l'entité qui surgissait de la fissure, terrifié.
+« Ancêtre!! » Luo Chen fixa l'entité qui surgissait de la fissure, stupéfait.
 
 Les trois voyaient des choses différentes. Un gaz aux sept couleurs jaillit de la brèche. Ce gaz était extrêmement dense et enveloppa le Serpent aux yeux de lune avant de l'entraîner sans pitié vers la faille.
 

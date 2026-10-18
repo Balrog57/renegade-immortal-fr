@@ -16,7 +16,7 @@ Le Serpent aux yeux de lune était furieux!
 
 Bien que le sceau octogonal n'enchaînât que lui, des sceaux octogonaux apparurent également autour de tous les petits Serpents aux yeux de lune, les entravant temporairement.
 
-La rage emplissait le corps du Serpent aux yeux de lune. Il ne se souvenait même plus depuis combien d'années il était scellé. Il se déchaîna à l'intérieur du sceau octogonal, le faisant trembler violemment.
+La rage emplissait le corps du Serpent aux yeux de lune. Il ne se souvenait même plus depuis combien d'années il était scellé. Il se déchaîna à l'intérieur du sceau octogonal, le faisant trembler violemment. Chacun de ses chocs faisait naître un nouveau sceau octogonal dans le vide devant lui, et chaque impact produisait une violente force de rebond.
 
 Alors que le grondement résonnait, la fureur du Serpent aux yeux de lune redoubla. Soudain, deux fissures apparurent sur sa tête: c'étaient ses yeux!
 
@@ -78,11 +78,11 @@ L'homme en robe rouge nommé Xiang ajouta lentement: « Cette bête est effectiv
 
 Une lueur de folie brilla dans les yeux de Maître Yan Leizi alors qu'il disait calmement: « Puisqu'il en est ainsi, nous devons rassembler plus de monde et commencer à planifier la capture de cette bête! »
 
-Dans le Domaine Oriental, au sein du hall ancestral de la famille Yao, plus de dix jetons derrière Dieu Sang se brisèrent. Il rassembla d'un revers de manche le gaz blanc qui en émanait.
+Dans le Domaine Oriental, sur une planète rouge sang, au sein du hall ancestral de la famille Yao, plus de dix jetons derrière Dieu du Sang se brisèrent. Il rassembla d'un revers de manche le gaz blanc qui en émanait.
 
 Son expression était sombre alors qu'il levait les yeux vers le ciel et murmurait: « Il est digne de son appartenance au Système Stellaire de l'Alliance. Comparé à la troisième génération de ma famille Yao, il est très décisif dans ses meurtres et extrêmement tenace! »
 
-Après une longue méditation silencieuse, la main droite de Dieu Sang agrippa l'air. Une lumière rouge se condensa instantanément en un jade de couleur sang.
+Après une longue méditation silencieuse, la main droite de Dieu du Sang agrippa l'air. Une lumière rouge se condensa instantanément en un jade de couleur sang.
 
 « Envoyez Yao Yun de la deuxième génération dans le Domaine Nord et prenez la vie de Xu Mu! » Tandis que le message divin était envoyé, le jade de sang devant lui émit un éclat pourpre et disparut.
 

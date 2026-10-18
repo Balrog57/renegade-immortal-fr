@@ -79,4 +79,4 @@ Un à un, les disciples de la Secte Xuan Dao laissèrent éclater leur joie en d
 
 « En effet. Les disciples de la Secte Heng Yue s'affaiblissent d'année en année. Ces derniers jours, j'ai observé les disciples de la secte interne et aucun n'est une menace pour nous. »
 
-« Ce n'est pas tout à fait vrai. Aucun des disciples vêtus de violet de la Secte Heng Yue ne s'est encore manifesté. J'ai entendu dire par l'Ancien que ce sont les disciples de cœur de la secte. »
+« Ce n'est pas tout à fait vrai. Aucun des disciples vêtus de pourpre de la Secte Heng Yue ne s'est encore manifesté. J'ai entendu dire par l'Ancien que ce sont les disciples de cœur de la secte. »

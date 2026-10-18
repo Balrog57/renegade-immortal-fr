@@ -26,13 +26,13 @@ C'est pourquoi, en rencontrant Qiu Siping, Wang Lin avait décidé de l'empêche
 
 L'expression de Wang Lin resta impassible alors qu'il disait calmement: « Oh, vraiment? Dans ce cas, frère Qiu devrait m'accompagner en ville. Il ne sera pas trop tard pour que vous les recherchiez une fois que j'aurai obtenu cette carte. »
 
-Qiu Siping réfléchit un instant et soupira. Le stratagème de Wang Lin était d'une profondeur redoutable. Tout avait commencé au moment où ce dernier était apparu fortuitement pour signaler le niveau de culture de Qiu Siping, permettant ainsi aux deux juniors de s'échapper.
+Qiu Siping réfléchit un instant et soupira. Le stratagème de Wang Lin était d'une profondeur redoutable. Tout avait commencé au moment où ce dernier, en apparence par hasard mais avec de sombres desseins, avait signalé le niveau de culture de Qiu Siping, permettant ainsi aux deux juniors de s'échapper.
 
 Tout cela faisait partie des calculs de Wang Lin, et Qiu Siping, sans le savoir, était tombé dans son piège. Il semblait que Wang Lin avait délibérément poussé Qiu Siping à une situation où il devait tuer les deux juniors, pour ensuite les sauver et le forcer ainsi à dire la vérité. De plus, l'aura que Wang Lin dégageait suggérait que s'il persistait dans son entêtement, Wang Lin n'hésiterait pas à l'éliminer.
 
 Par cette approche, il était bien plus facile de faire céder quelqu'un que par une simple menace de mort. Qiu Siping lança un regard complexe à Wang Lin. Sans un mot, il sortit un jade vierge, le plaça contre son front et commença à y imprimer une carte en se fondant sur ses souvenirs.
 
-Après un court instant, il remit le jade à Wang Lin et dit: « Ceci contient tout ce que je sais de la cartographie de la Mer des Démons, accumulé au fil de mes années de voyage dans ce pays. Il peut y avoir quelques erreurs, mais pas trop nombreuses. Si vous n'avez rien d'autre à demander, frère Wang, je m'en vais. »
+Après un court instant, il remit le jade à Wang Lin et dit: « Ceci contient tout ce que je sais de la cartographie de la Mer des Démons, accumulé au fil de mes années de voyage dans ce pays. Il peut y avoir quelques erreurs, mais pas trop graves. Si vous n'avez rien d'autre à demander, frère Wang, je m'en vais. »
 
 Wang Lin prit le jade. Sans même l'examiner, il joignit les mains et sourit: « Merci infiniment! » s'exclama-t-il.
 
@@ -80,17 +80,17 @@ Une flamme bleue jaillit de son Âme Naissante. Cette flamme était née lorsqu'
 
 Dès que la flamme apparut, la température locale chuta brutalement. La flamme de glace se projeta rapidement vers l'avant. Au contact de la falaise, celle-ci se mit à bouger étrangement, prenant la forme d'un visage humain pour tenter d'engloutir la flamme.
 
-Mais dès qu'elle toucha la flamme de glace, une fine couche de givre commença à se propager sur la paroi. En quelques respirations, toute la falaise fut recouverte de glace et l'expression du visage fut figée dans un bloc solide.
+Mais dès qu'elle toucha la flamme de glace, une fine couche de givre commença à se propager sur la paroi. En quelques respirations, toute la face de la falaise fut recouverte de glace et l'expression du visage fut figée dans un bloc solide.
 
 Wang Lin l'observa un instant, très surpris. Il s'agissait manifestement d'une bête capable de vivre dans la roche et de prendre une forme humaine.
 
 Après réflexion, Wang Lin descendit soudainement dans la vallée. Il y avait bel et bien un ancien réseau de transfert à l'intérieur, mais il était trop endommagé pour être utilisé. Il sortit un morceau de jade pour en enregistrer les vestiges.
 
-Une fois sa tâche accomplie, son corps disparut pour réapparaître devant la falaise. D'un geste de la main droite, il fit que la glace se condensât à nouveau en flamme de glace pour qu'elle revienne dans sa paume.
+Une fois sa tâche accomplie, son corps disparut pour réapparaître au-dessus de la vallée. D'un geste de la main droite, il fit que la glace se condensât à nouveau en flamme de glace pour qu'elle revienne dans sa paume.
 
 Peu après, le visage sur la paroi recommença à bouger. Ses yeux étaient fixés sur Wang Lin tandis qu'il émettait des grognements hostiles.
 
-Plus Wang Lin l'observait, plus il se sentait intrigué. La bête n'était pas très forte — une simple bête spirituelle de faible qualité, environ au niveau d'un cultivateur de la Formation du Noyau au stade avancé — mais sa capacité à se dissimuler était remarquable. Wang Lin pratiquait souvent la culture en isolation; s'il pouvait disposer d'une bête pareille pour le garder, ce serait idéal. Hélas, le niveau de culture de cette créature était limité.
+Plus Wang Lin l'observait, plus il se sentait intrigué. La bête n'était pas très forte — une simple bête spirituelle de faible qualité, environ au niveau d'un cultivateur de la Formation du Noyau au stade avancé — mais sa capacité à se dissimuler était remarquable. Wang Lin pratiquait souvent la culture en isolation; s'il pouvait disposer d'une bête pareille pour le garder, cela lui épargnerait bien des ennuis. Hélas, le niveau de culture de cette créature était limité.
 
 Cependant, Wang Lin possédait de nombreux noyaux dans son sac de rangement. Grâce à eux, il pourrait faire progresser la culture de cette bête de manière significative. Il forma alors un sceau et commença ses incantations.
 

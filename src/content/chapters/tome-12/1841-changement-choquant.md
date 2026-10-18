@@ -8,7 +8,7 @@ slug: changement-choquant
 ---
 Alors que ces mots résonnaient, la terre trembla et un poing géant de terre apparut, fonçant vers Wang Lin.
 
-L'expression de Wang Lin resta imperturbable, mais une lueur de froideur traversa son regard. Tandis que le poing de terre se rapprochait, il lança un coup de poing en retour.
+L'expression de Wang Lin resta imperturbable, mais une lueur de froideur traversa son regard. Tandis que le poing de terre se rapprochait, il lança en retour un coup de poing de sa main desséchée.
 
 Un fracas tonitruant retentit. Wang Lin ne bougea pas d'un pouce, mais le poing de terre trembla avant de s'effondrer. Un cri terrifié s'éleva des profondeurs du sol.
 
@@ -16,11 +16,11 @@ Une silhouette jaune terre émergea de la terre. Sans hésiter, l'individu fit u
 
 Au loin, l'herbe ondula, dissimulant l'individu sous son couvert.
 
-Au même instant, la troisième personne qui luttait contre les flammes sous une lumière verte poussa un cri misérable et s'arrêta brusquement. La gueule du feu le dévora en un instant. Les flammes monstrueuses formèrent une tempête de feu, de laquelle sortit le véritable corps d'essence de Wang Lin.
+Au même instant, la troisième personne qui luttait contre les flammes sous une lumière verte poussa un cri déchirant et s'arrêta brusquement. La gueule du feu le dévora en un instant. Les flammes monstrueuses formèrent une tempête de feu, de laquelle sortit le véritable corps d'essence de Wang Lin.
 
 « Tu veux t'enfuir? » Une lueur glaciale brilla dans les yeux de Wang Lin. Il fixa la silhouette qui tentait de s'échapper sous terre, fit un pas en avant et se posa au sol.
 
-« Je ne voulais pas vous tuer, mais vous cherchez tous la mort! » Wang Lin laissa échapper un froid renâclement et leva sa main desséchée. Sans poursuivre sa proie, il pressa simplement sa main contre le sol.
+« Je ne voulais pas vous tuer, mais vous cherchez tous la mort! » Wang Lin laissa échapper un froid renâclement et leva ses mains desséchées. Sans poursuivre sa proie, il pressa simplement ses mains contre le sol.
 
 Une aura jaillit soudainement de la terre sous ses pieds, et ses cheveux étiolés dérivèrent vers le haut. L'herbe commença à se faner rapidement et la vapeur d'eau fut avidement absorbée par les mains desséchées de Wang Lin.
 
@@ -44,13 +44,13 @@ Des grondements de tonnerre retentirent et une onde de choc balaya la terre, att
 
 Le cultivateur cracha du sang et fut expulsé de la terre. À l'instant où il fut repoussé, la prairie desséchée se referma sur lui telle une gueule géante.
 
-À cet instant, le cultivateur poussa un cri déchirant tandis que son corps se flétrissait à vue d'œil. Il perdit toute trace d'eau et de sang; alors que son corps rendait l'âme, son âme originelle s'en échappa. Cependant, des gaz noirs enveloppèrent son âme et, alors qu'il tentait de fuir, la Poupée Yi Si le rattrapa. Son âme originelle fut plongée dans un brouillard noir, et après des cris de douleur qui s'étouffèrent peu à peu, tout disparut.
+À cet instant, le cultivateur poussa un cri déchirant tandis que son corps se flétrissait à vue d'œil. Il perdit toute trace d'eau et de sang; alors que son corps rendait l'âme, son âme originelle s'en échappa. Cependant, des gaz noirs enveloppèrent son âme et, alors qu'il tentait de fuir, la Poupée Yi Si le rattrapa dans un rictus féroce. Son âme originelle fut plongée dans un brouillard noir, et après des cris de douleur qui s'étouffèrent peu à peu, tout disparut.
 
 « Cher cultivateur, ce vieil homme est Zuo Zou. La personne qui vous a provoqué est morte, veuillez donc dissiper cet art dao. C'est le point le plus bas de tout le continent du Taureau Céleste, nous ne pouvons pas nous permettre une telle perte. Je vous en prie, ne détruisez pas les fondations de tous les cultivateurs marginaux de la Prairie de l'Extrême Ciel! » Le vieil homme aux cheveux blancs apparut dans le ciel. Il regarda Wang Lin au loin et joignit les mains en signe de respect.
 
 Après ces paroles, l'herbe cessa de se faner et la vapeur d'eau retourna vers le corps de Wang Lin. Cependant, cette quantité d'eau, ajoutée à l'essence du cultivateur décédé, ne suffisait pas pour que Wang Lin complète son neuvième cycle.
 
-À ce moment, il leva la main qui était restée au sol et observa le vieil homme au loin. Puis, il contempla la prairie en réfléchissant.
+À ce moment, il leva les mains qui étaient restées au sol et observa le vieil homme au loin. Puis, il contempla la prairie en réfléchissant.
 
 « La plupart des cultivateurs marginaux ici vivent sous terre... Étrange! La partie inférieure du continent... ou plutôt, c'est l'endroit le plus proche du cœur de la terre... »
 
@@ -68,17 +68,17 @@ Ce n'est qu'une fois Wang Lin parti que le vieil homme se détendit. Des ombres 
 
 « Les quatre du Dao de la Montagne Noire ne peuvent s'en prendre qu'à eux-mêmes. Ils l'ont suivi pendant trop de jours. Ils sont morts, alors que cette affaire se termine ici. Cultivateurs, dispersez-vous! » dit le vieil homme avant de faire demi-tour.
 
-Quant à Wang Lin, après avoir utilisé une seconde fois la Déviation Spatiale, il apparut dans une chaîne de montagnes. Selon la carte de Yan Lu, il se trouvait à trois mois de la mer intérieure.
+Quant à Wang Lin, après avoir utilisé une seconde fois la Déviation Spatiale, il apparut dans une chaîne de montagnes. Selon la carte de Yan Luan, il lui restait trois mois de route vers l'est pour atteindre la mer intérieure.
 
 « Le continent du Taureau Céleste est trop vaste... » murmura Wang Lin en invoquant la bête moustique pour s'installer sur son dos alors qu'elle s'envolait vers l'est. La bête était très rapide. Cet endroit se situait près du Continent du Démon Vert, il n'y avait donc guère de cultivateurs aux alentours; seules quelques cités mortelles apparaissaient occasionnellement.
 
 Wang Lin ne savait pas grand-chose sur le Continent du Démon Vert, mais Kang Ren en avait une peur viscérale, comme si quiconque en était issu était terrifiant.
 
-Dix jours passèrent en un éclair. Wang Lin croisa quelques cultivateurs, mais aucun n'interagit avec lui; ils se contentaient de passer son chemin. Même lorsque leurs Sens Divins s'étendaient, ils hésitaient après avoir perçu la présence de Wang Lin avant de s'écarter.
+Dix jours passèrent en un éclair. Wang Lin croisa quelques cultivateurs, mais aucun n'interagit avec lui; ils se contentaient de passer son chemin. Même lorsque leurs Sens Divins s'étendaient, ils hésitaient après avoir distingué l'apparence de Wang Lin avant de s'écarter.
 
 Après dix jours, Wang Lin utilisa sa troisième Déviation Spatiale et disparut de cette chaîne de montagnes.
 
-Le Continent Oriental était immense, et la mer séparant le Continent du Taureau Céleste du Continent du Démon Vert s'appelait la Mer des Pilules. La rumeur prétendait que cette mer avait été créée par une pilule tombée du ciel.
+Le Continent de l'Est était immense, et entre le Continent du Taureau Céleste et le Continent du Démon Vert s'étendait une mer intérieure appelée la Mer des Pilules. La rumeur prétendait que cette mer avait été créée par une pilule tombée du ciel.
 
 Cependant, cette légende était si ridicule qu'il paraissait impossible d'imaginer quelle sorte de pilule aurait pu engendrer un tel océan. Personne n'y croyait vraiment, mais le récit se transmettait de génération en génération.
 
@@ -86,13 +86,13 @@ La Mer des Pilules était infinie et ses vagues étaient déchaînées. Bien qu'
 
 Comme cet endroit appartenait à la fois au Continent du Taureau Céleste et au Continent du Démon Vert, les cultivateurs qui s'y trouvaient vivaient dans un chaos constant. Des nuages sombres couvraient le ciel tandis que le tonnerre grondait et que la pluie se mêlait aux flots.
 
-Sous la couche nuageuse, des ondulations apparurent à la surface de l'eau sous l'effet de la pluie. La silhouette de Wang Lin émergea des remous et se tint debout sur l'océan.
+Sous la couche nuageuse, à travers la pluie battante, des ondulations apparurent dans le ciel. La silhouette de Wang Lin émergea de ces remous et se tint entre la mer et le ciel.
 
 Observant la mer en contrebas, les yeux desséchés de Wang Lin brillèrent d'un éclat vif. Il n'était plus qu'à un demi-cycle de compléter son essence aquatique. Il n'avait besoin que d'une infime quantité!
 
 Cependant, le seul moyen qu'il ait trouvé pour l'obtenir rapidement était de la condenser à partir de cet océan sans fin. Le succès de cette tentative restait incertain.
 
-Tout en réfléchissant, le corps de Wang Lin s'enfonça lentement vers les profondeurs. Après un temps indéterminé, une terre apparut sous lui.
+Tout en réfléchissant, le corps de Wang Lin s'enfonça vers les profondeurs, de plus en plus vite. Après un temps indéterminé, une terre apparut sous lui.
 
 De nombreux coraux colorés et des algues recouvraient le fond marin, tandis qu'innombrables poissons et crevettes nageaient à proximité. Wang Lin s'assit parmi les algues, ferma les yeux, posa ses mains sur ses genoux et exécuta un sceau manuel.
 
@@ -110,6 +110,6 @@ L'ensemble de la mer était entouré d'une couche de restrictions. Cette barriè
 
 Cette couche de restrictions permettait d'entrer, mais empêchait de sortir, scellant ainsi totalement la Mer des Pilules!
 
-Tandis que Wang Lin absorbait l'essence aquatique, de nombreux cris misérables s'élevaient des profondeurs. De nombreux cultivateurs marginaux du Continent du Taureau Céleste étaient massacrés sauvagement par des groupes de cultivateurs vêtus de robes daoïstes vertes et entourés d'un feu fantomatique vert.
+Tandis que Wang Lin absorbait l'essence aquatique, de nombreux cris déchirants s'élevaient des profondeurs. De nombreux cultivateurs marginaux du Continent du Taureau Céleste étaient massacrés sauvagement par des groupes de cultivateurs vêtus de robes daoïstes vertes et entourés d'un feu fantomatique vert.
 
 Il y avait une quantité immense de ces cultivateurs dans la Mer des Pilules!

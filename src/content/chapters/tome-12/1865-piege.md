@@ -42,7 +42,7 @@ Alors qu'ils volaient, leurs expressions changèrent et ils se figèrent en plei
 
 « Ce doit être Wang Lin. Il a utilisé la boussole pour attirer notre attention, alors qu'en réalité, il se cachait dans la prairie pour tendre une embuscade à Xu Decai! » L'intention meurtrière brilla dans les yeux de l'homme nommé Zhao.
 
-À l'instant même où ils s'en aperçurent, les nuages au-dessus de la prairie se dissipèrent, laissant place à la lumière du soleil. Cependant, la pluie ne cessa pas; elle devint même plus intense.
+À l'instant même où ils s'en aperçurent, l'aube se dissipa, laissant place à la lumière du soleil. Cependant, la pluie ne cessa pas; elle devint même plus intense.
 
 Sous cette averse dense, une brume noire et épaisse s'éleva du sol, recouvrant l'intégralité de la prairie.
 

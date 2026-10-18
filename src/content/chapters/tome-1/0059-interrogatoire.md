@@ -6,7 +6,7 @@ bookTitle: The Mediocre Youth
 en: Chapter 59 - Questioning
 slug: interrogatoire
 ---
-Lu Yunjie frissonna. Il força un sourire et dit: « Wang... frère Wang, avez-vous besoin de quelque chose? Si vous avez besoin de pilules de concentration d'énergie spirituelle, j'en ai encore beaucoup en réserve et je peux vous en donner. »
+Lu Yunjie frissonna. Il força un sourire et dit: « Wang... frère Wang, avez-vous besoin de quelque chose? Si vous avez besoin de pilules de rassemblement d'énergie spirituelle, j'en ai encore beaucoup en réserve et je peux vous en donner. »
 
 « Troisième frère, il y a une chose que je veux de votre part: votre assistant, Wang Hao. » Wang Lin fixa Lu Yunjie. Auparavant, il n'avait pas eu assez d'assurance pour s'opposer à lui, alors il n'était pas intervenu pour Wang Hao. Mais après cette bataille, il avait une bien meilleure compréhension de sa propre puissance.
 
@@ -26,7 +26,7 @@ Dans la grande salle se trouvait un gigantesque fourneau d'alchimie, à l'intér
 
 Wang Lin ne cilla même pas. D'un geste de la main, il déploya sa technique d'attraction pour saisir Wang Hao. Alors que la main formée par la technique approchait du fourneau, une lumière aux couleurs de l'arc-en-ciel jaillit de celui-ci et percuta la main.
 
-Wang Lin laissa échapper un reniflement glacial. Immédiatement, la puissance de la technique d'attraction atteignit son apogée et brisa la lumière arc-en-ciel. Wang Lin saisit délicatement Wang Hao et le déposa au sol.
+Wang Lin laissa échapper un reniflement glacial. Immédiatement, la puissance de la technique d'attraction atteignit son apogée et brisa la lumière arc-en-ciel dans un bruit de miroir qui se fracasse. Wang Lin saisit délicatement Wang Hao et le déposa au sol.
 
 Il plaça sa main droite sur le front de Wang Hao et resta silencieux.
 

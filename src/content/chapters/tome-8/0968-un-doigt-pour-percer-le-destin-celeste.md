@@ -6,7 +6,7 @@ bookTitle: "Alliance's Secret"
 en: Chapter 968 - One Finger to Pierce the Heavenly Fate
 slug: un-doigt-pour-percer-le-destin-celeste
 ---
-Les yeux de Bai Wei se rétrécirent, puis il regarda Wang Lin en hochant la tête. Il resta silencieux. Alors que l'heure du Lapin touchait à sa fin, Bai Wei prit une profonde inspiration et jeta un regard empreint de sens sur le monde qui l'entourait. Finalement, son regard se tourna vers l'est, comme s'il contemplait sa terre natale...
+Les yeux de Bai Wei se rétrécirent, puis il regarda Wang Lin en hochant la tête. Il resta silencieux. Alors que l'heure du Lapin touchait à sa fin, Bai Wei prit une profonde inspiration et jeta un regard chargé de nostalgie sur le monde qui l'entourait. Finalement, son regard se tourna vers l'est, comme s'il contemplait sa terre natale...
 
 Une tristesse infinie perçait dans ses yeux alors qu'il les fermait lentement. À l'instant même où ses paupières se refermèrent, l'énergie Yin extrêmement dense augmenta de façon fulgurante.
 
@@ -48,7 +48,7 @@ Assis face à lui, les cheveux de Bai Wei s'agitaient sans qu'aucun vent ne souf
 
 En un clin d'œil, la glace l'enveloppa complètement. Puis, elle se concentra entre ses sourcils, se mua en épines et pointa vers le centre de son front.
 
-Une marque étrange apparut entre les sourcils de Bai Wei. C'était la même que celle que Wang Lin avait vue, formée par le mouvement de l'énergie Yin au sein de l'homme!
+Une marque étrange apparut entre les sourcils de Bai Wei. C'était la même que celle que Wang Lin avait vue, formée par le mouvement de l'énergie Yin dans ses méridiens!
 
 À cet instant, cette marque émit une lueur spectrale. À chaque éclat lumineux, Bai Wei affichait une expression de douleur atroce tandis qu'une partie de son énergie Yin était aspirée par la marque.
 
@@ -60,7 +60,7 @@ Son corps trembla et tout ce qui se trouvait sous son cou se changea en glace. L
 
 Une douleur indescriptible poussa Bai Wei à pousser le dernier rugissement de sa vie. Ce cri était chargé de son mécontentement, de sa haine envers l'Omniscient, de sa tristesse, de son impuissance et de toutes ses luttes contre la fatalité!
 
-Il y avait aussi, par-dessus tout, une lueur de soulagement...
+Il y avait aussi une lueur de soulagement...
 
 Wang Lin sembla être frappé par ce rugissement. Son expression devint complexe et il recula encore de quelques pas. Il pouvait comprendre les pensées de Bai Wei: c'était un acte de défi pur, une rébellion contre l'Omniscient!
 
@@ -112,7 +112,7 @@ Sans bouger, il leva simplement sa main droite. Son index pointa négligemment v
 
 À cet instant, une tempête se déchaîna aux abords de la planète Tian Yun. Un grondement sourd retentit et l'énergie originelle du monde commença à s'assembler en masse.
 
-Toute l'énergie originelle située dans un rayon de dizaines de milliers de kilomètres sembla répondre à un appel et convergea frénétiquement.
+Toute l'énergie originelle située dans un rayon de dizaines de milliers de kilomètres sembla répondre à un appel et à une emprise, puis convergea frénétiquement.
 
 En un instant, un doigt gigantesque apparut au-dessus de la planète Tian Yun. Ce doigt mesurait 3,3 kilomètres de long pour 330 mètres de large. Il était transparent, comme une existence éthérée.
 

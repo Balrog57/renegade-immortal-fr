@@ -38,7 +38,7 @@ Lorsque les bêtes moustiques rugissaient, cela ressemblait au hurlement du vent
 
 Après une journée, les fragments du Royaume Céleste apparurent sous ses yeux. De tailles variées, ils révélaient une désolation infinie. Presque aucun cultivateur n'était jamais venu jusqu'ici.
 
-À mesure qu'il avançait, le vent devint plus violent et Wang Lin vit passer des essaims de bêtes moustiques. La plupart étaient rouges, mais il aperçut également un groupe d'environ mille bêtes bleues mêlées à des blanches. Wang Lin renonça à tenter de les appeler avec le roi des moustiques; après tout, face aux bêtes blanches, la tâche serait trop ardue.
+À mesure qu'il avançait, le vent devint plus violent et Wang Lin vit passer des essaims de bêtes moustiques. La plupart étaient rouges, mais il aperçut également des groupes de plusieurs milliers de bêtes, dont près de mille bleues, mêlées à des blanches. Wang Lin renonça à tenter de les appeler avec le roi des moustiques; après tout, face aux bêtes blanches, la tâche serait trop ardue.
 
 De plus, les bêtes moustiques étaient si denses qu'il était probable qu'avant même d'avoir réussi à en asservir un groupe, un autre arriverait.
 
@@ -46,7 +46,7 @@ En se concentrant, Wang Lin sentit vaguement le tremblement et le regard glacial
 
 Wang Lin vit de plus en plus de bêtes moustiques. Ces groupes ne comptaient plus des milliers, mais approchaient les dix mille individus. Il y avait davantage de spécimens bleus, et même des centaines de bêtes blanches.
 
-Devant ce spectacle, Wang Lin prit une profonde inspiration et sentit son cuir chevelu se hérisser. Heureusement, ces bêtes ne s'arrêtaient pas; elles glissaient avec le vent comme dans un jeu. Pourtant, leurs rugissements auraient pu terrasser l'esprit de n'importe qui.
+Devant ce spectacle, Wang Lin prit une profonde inspiration et sentit son cuir chevelu se hérisser. Heureusement, ces bêtes ne s'arrêtaient pas; elles glissaient avec le vent comme dans un jeu. Pourtant, leurs rugissements auraient pu ébranler l'esprit de n'importe qui.
 
 Ce n'était pas encore la partie la plus profonde du Royaume Céleste du Vent, mais seulement la lisière de la région intérieure. Et pourtant, on dénombrait déjà plus de 100 000 bêtes moustiques ici.
 
@@ -104,4 +104,4 @@ Même le roi des moustiques de Wang Lin luttait contre son instinct de fuite, ma
 
 Sous cette pression et ce rugissement qui ébranlait l'univers, la créature de Wang Lin brilla intensément. Elle se tourna soudainement vers le monstre colossal dans la faille et poussa un cri!
 
-Ce rugissement portait en lui une pointe de folie, une trace de réticence, mais aussi toute la dignité d'un roi des moustiques! Bien que le cri du roi des moustiques de Wang Lin fût ténu, il n'en demeurait pas moins capable de faire trembler les cieux!
+Ce rugissement portait en lui une pointe de folie, une trace de réticence, mais aussi toute la dignité d'un roi des moustiques! Dans ce Royaume Céleste du Vent où nulle autre bête moustique n'avait encore poussé de cri, le cri du roi des moustiques de Wang Lin, bien que ténu, n'en demeurait pas moins capable de faire trembler les cieux!

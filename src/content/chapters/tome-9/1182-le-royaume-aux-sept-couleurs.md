@@ -6,13 +6,13 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1182 - Seven-Colored Realm
 slug: le-royaume-aux-sept-couleurs
 ---
-L'affaire de Maître Nuage-Âme fut mise de côté et ne fut plus mentionnée. Le vieil homme nommé Pang se lamentait intérieurement; il restait sur ses gardes, car il venait d'offenser Wang Lin. En repensant au regard glacial de ce dernier, il ne put s'empêcher de frissonner.
+L'affaire de Maître Nuage-Âme fut mise de côté et ne fut plus mentionnée. Le vieil homme nommé Pang se lamentait intérieurement; il restait sur ses gardes, car il venait d'offenser Wang Lin. En repensant aux paroles glaciales de Wang Lin, il ne put s'empêcher de frissonner.
 
 Maître Pin Cendré déclara d'un ton grave: « Ne déployez pas votre sens divin trop loin, sinon vous attirerez les bêtes féroces des environs. Bien que nous ne soyons que dans la région extérieure, on y trouve des bêtes de brume de rang 12. De plus, ne volez pas à plus de mille pieds de hauteur! »
 
 Wang Lin observa la lumière aux sept couleurs qui baignait le ciel et réfléchit. Cette lueur était très étrange et lui procurait une sensation singulière; elle semblait contenir une modification incompréhensible des lois de l'univers.
 
-« Qu'est-ce que cet endroit, par tous les diables? » demanda Chen Tianjun, de la Secte de la Bête de Bataille.
+« Qu'est-ce que cet endroit, au juste? » demanda Chen Tianjun, de la Secte de la Bête de Bataille.
 
 Maître Pin Cendré leva la tête et répondit lentement: « Le Royaume aux Sept Couleurs. C'est ainsi que je l'appelle. La région extérieure de ce lieu est saturée de bêtes de brume. C'est là que je puise tous mes cristaux d'origine. Je suis venu ici à plusieurs reprises, mais il m'est impossible de pénétrer dans la région centrale. Il y subsiste des vestiges d'êtres anciens. D'après mes observations, on y trouve des célestes et des individus très étranges. » Il pointa l'horizon tout en poursuivant son récit. « Compagnons cultivateurs, suivez-moi et ne vous écartez pas. Ce lieu est extrêmement dangereux; le moindre manque de vigilance pourrait vous coûter la vie. » Sur ces mots, il descendit de l'autel et s'avança en tête.
 
@@ -38,7 +38,7 @@ Maître Pin Cendré ralentit progressivement jusqu'à s'arrêter net. Il se frot
 
 Devant lui se trouvait un passage étroit, bordé par des parois montagneuses lugubres. Par intermittence, quelques pierres roulaient dans le vide, brisant le silence pesant qui régnait partout ailleurs.
 
-Une légère brume obstruait le sentier et, à sa lisière, on pouvait apercevoir un squelette. Ses vêtements avaient presque totalement disparu, n'en laissant que quelques lambeaux autour des ossements. La chair s'était entièrement décomposée, laissant apparaître l'os iliaque. À l'intérieur se trouvait une pilule aux sept couleurs. Elle était incomplète et présentait de subtiles fissures; une partie avait même fondu, lui donnant une forme de croissant plutôt que celle d'une sphère. C'était une pilule qu'un être avait avalée, mais qui n'avait pu échapper à la mort avant de l'avoir totalement dissoute et absorbée! Bien que des éons se soient écoulés, la pilule exhalait encore un parfum ténu, bien qu'extrêmement léger.
+Une brume obstruait le sentier et, à sa lisière, on pouvait apercevoir un squelette. Ses vêtements avaient presque totalement disparu, n'en laissant que quelques lambeaux autour des ossements. La chair s'était entièrement décomposée, laissant apparaître l'os iliaque. À l'intérieur se trouvait une pilule aux sept couleurs. Elle était incomplète et présentait de subtiles fissures; une partie avait même fondu, lui donnant une forme de croissant plutôt que celle d'une sphère. C'était une pilule qu'un être avait avalée, mais qui n'avait pu échapper à la mort avant de l'avoir totalement dissoute et absorbée! Bien que des éons se soient écoulés, la pilule exhalait encore un parfum ténu, bien qu'extrêmement léger.
 
 En humant cette fragrance, les yeux de Wang Lin se plissèrent. Ce parfum était singulier; dès qu'il atteignit ses narines, il fit trembler son âme originelle. Son esprit commença à dériver, et des scènes du passé apparurent de manière incontrôlée devant ses yeux.
 
@@ -47,7 +47,7 @@ Heureusement, la vigilance de Wang Lin fut sans faille. Il se mordit la langue p
 « Quelle pilule puissante! » s'exclama l'un d'eux.
 « C'est bel et bien la pilule de réincarnation! » Le jeune homme nommé Duanmu prit une profonde inspiration, s'abandonnant à la fragrance.
 
-« Le compagnon cultivateur Duanmu pratique le cycle de réincarnation du soleil et de la lune. Ce qu'il doit accomplir, c'est sa propre réincarnation. Il doit traverser neuf cycles pour parfaire son Dao. Cependant, les cieux sont impitoyables et la réussite est ardue. La rumeur veut qu'autrefois, dans le monde ancien de la culture, il existait une pilule de réincarnation permettant d'entrer dans ce cycle pour comprendre le Dao. Mais cette recette a disparu depuis longtemps, et seule la moitié de la recette subsiste. Il est impossible de raffiner une véritable pilule; nous ne pouvons que condenser une certaine énergie de réincarnation! » expliqua lentement Maître Pin Cendré.
+« Le compagnon cultivateur Duanmu pratique le cycle de réincarnation du soleil et de la lune. Ce qu'il doit accomplir, c'est sa propre réincarnation. Il doit traverser neuf cycles pour parfaire son Dao. Cependant, la voie du Ciel ne laisse aucune trace, et la réussite est ardue. La rumeur veut qu'autrefois, dans le monde ancien de la culture, il existait une pilule de réincarnation dotée de la puissance du ciel et de la terre, permettant d'entrer dans ce cycle pour comprendre le Dao. Mais cette recette a disparu depuis longtemps, et seule la moitié de la recette subsiste. Il est impossible de raffiner une véritable pilule; nous ne pouvons que condenser une certaine énergie de réincarnation! » expliqua lentement Maître Pin Cendré.
 
 Les yeux de Duanmu s'illuminèrent et il fixa Maître Pin Cendré d'un regard tranchant: « Le compagnon Pin Cendré est très érudit. Je présume que vous avez fait les préparatifs nécessaires avant de venir me chercher. »
 
@@ -74,7 +74,7 @@ Dès que les marques apparurent, elles commencèrent à graviter l'une autour de
 
 Simultanément, une tête de dragon titanesque surgit, projetant un vent aux effluves fétides vers le groupe. Si la menace n'avait été que celle du monstre, cela aurait suffi, mais l'apparition de la tête s'accompagna de la pression écrasante d'un cultivateur Briseur du Nirvana au sommet, faisant vaciller les esprits de chacun pendant un instant.
 
-Le jeune homme Duanmu poussa un cri de guerre tandis que le soleil et la lune apparaissaient devant la tête du dragon en charge. Les astres tournaient frénétiquement, créant un vortex qui agrippait la tête du monstre.
+Le jeune homme Duanmu poussa un cri de guerre tandis que le soleil et la lune apparaissaient autour de la tête du dragon qui chargeait. Les astres tournaient frénétiquement, créant un vortex qui agrippait la tête du monstre.
 
 « Mon sort de réincarnation ne durera que dix respirations! Dépêchez-vous! » cria le garçon, le front sillonné de veines saillantes sous l'effort. Il s'assit brusquement et, d'un geste de la main droite, fit apparaître une épée volante de sept pieds. Celle-ci se transforma en un rayon d'énergie tranchante qui fonça sur le dragon.
 

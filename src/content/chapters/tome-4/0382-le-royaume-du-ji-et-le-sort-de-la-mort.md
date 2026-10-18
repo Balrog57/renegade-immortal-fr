@@ -18,7 +18,7 @@ C'était comme si le ciel était voilé par un immense nuage noir; à moins d'av
 
 Le pays Suzaku était le souverain suprême de la planète Suzaku.
 
-Cependant, du point de vue de Wang Lin, bien que le pays Suzaku soit le dirigeant, il y émanait une pointe de mort. Ce n'était pas une véritable aura mortifère, mais un sentiment: le pays manquait de changement, et sans changement, il était condamné à mourir.
+Cependant, du point de vue de Wang Lin, bien que le pays Suzaku soit le dirigeant, il y régnait un voile de mort. Ce n'était pas une véritable aura mortifère, mais un sentiment: le pays manquait de changement, et sans changement, il était condamné à mourir.
 
 « Je crains que Suzaku n'ait atteint sa fin... » Wang Lin leva la tête et regarda au loin, vers la direction où se trouvait le pays Suzaku.
 
@@ -30,15 +30,15 @@ Une rumeur circulait même selon laquelle plus l'on tuait, plus les chances d'in
 
 Cette rumeur resurgissait à chaque début de compétition. Il y a longtemps, un démon s'était frayé un chemin à travers le tournoi en tuant tout sur son passage. Bien qu'il n'ait pas remporté la victoire finale, il finit par être accepté dans la secte intérieure. Cet événement extraordinaire avait fait se répandre la rumeur comme une traînée de poudre.
 
-À chaque compétition, moins de la moitié des disciples de la secte extérieure survivaient à la fin des épreuves. Les survivants devaient verser encore plus de pierres spirituelles pour s'assurer de pouvoir participer à la prochaine édition.
+À chaque compétition, moins de la moitié des disciples de la secte extérieure survivaient à la fin des épreuves, sans une seule exception. Les survivants devaient verser encore plus de pierres spirituelles pour s'assurer de pouvoir participer à la prochaine édition, qui leur ouvrirait la voie vers la secte intérieure.
 
 Nul ne savait combien de disciples de la secte extérieure étaient morts au fil des ans. Après chaque compétition, le drapeau principal de l'âme de la secte recueillait d'innombrables âmes. La Secte de l'Affinement de l'Âme ne cessait de croître en puissance grâce à cette méthode cruelle.
 
 Chaque jour, un grand nombre de disciples mouraient. Les cent arènes de combat étaient inondées de sang. Wang Lin observa attentivement ces derniers jours: chaque fois que quelqu'un mourait, son âme était absorbée par l'arène avant de disparaître.
 
-Le jour du combat de Wang Lin, il plana doucement vers l'arène. Un disciple intérieur au stade de la Formation du Noyau, vêtu d'une robe noire, gérait l'arène. Il lança un regard froid à Wang Lin et fut stupéfait de constater que son niveau de culture était proche du sien. Peu de disciples de la secte extérieure atteignaient un tel niveau. Il s'écria: « Numéro 8972, combat! »
+Le jour du combat de Wang Lin, il plana doucement vers l'arène et se posa sur son côté gauche. Un disciple intérieur au stade de la Formation du Noyau, vêtu d'une robe noire, gérait l'arène. Il lança un regard froid à Wang Lin et fut stupéfait de constater que son niveau de culture était proche du sien. Peu de disciples de la secte extérieure atteignaient un tel niveau. Il s'écria: « Numéro 8972, combat! »
 
-Un cri monta des disciples environnants, puis un disciple court et gras bondit de la foule telle une boule de viande pour atterrir sur l'arène. Sans dire un mot, il forma un sceau de la main; des boules de feu apparurent et s'abattirent sur Wang Lin comme une pluie incandescente.
+Un cri monta des disciples environnants, puis un disciple court et gras bondit de la foule telle une boule de viande pour atterrir sur l'arène. Sans dire un mot, il forma un sceau de la main; des boules de feu apparurent et, d'un geste du doigt, s'abattirent sur Wang Lin comme une pluie incandescente.
 
 « Stade avancé de l'Établissement des Fondations... » Wang Lin secoua la tête. Pour cette compétition, il avait verrouillé son niveau de culture au stade intermédiaire de la Formation du Noyau. Il fit un geste de la main et sauta hors de l'arène.
 
@@ -58,13 +58,13 @@ La deuxième personne était un jeune homme chétif et mince. Bien qu'il ne fût
 
 La troisième personne était familière à Wang Lin: c'était le cultivateur au visage de boucher de la grotte 743. Il possédait un trésor talisman qui avait tué d'innombrables personnes; tous ses adversaires succombaient sous l'effet du talisman.
 
-Quant à la dernière personne, c'était Wang Lin lui-même. Il traversait la compétition avec aisance, neutralisant chaque disciple d'un simple revers de manche. Cela ne pouvait que susciter l'attention générale. Toutefois, Wang Lin agissait ainsi délibérément pour que son entrée dans la secte intérieure ne paraisse pas suspecte.
+Quant à la dernière personne, c'était Wang Lin lui-même. Il traversait la compétition avec aisance, neutralisant chaque disciple d'un simple revers de manche. Cela ne pouvait que susciter l'attention générale. Toutefois, Wang Lin agissait ainsi délibérément pour que son entrée dans la secte intérieure ne surprenne personne.
 
 Quant à Liu Mei, il supposait qu'elle avait ses propres desseins. Même sans participer à la compétition, elle trouverait un moyen d'intégrer la secte intérieure.
 
 Le temps s'écoula rapidement et sept jours supplémentaires passèrent. Sur les cent disciples environ, seuls quatre restaient. Par coïncidence, ces quatre survivants étaient précisément ceux qui avaient attiré l'attention de la Secte de l'Affinement de l'Âme.
 
-Vint le jour du combat de Wang Lin. Il se tenait sur l'arène et regarda son adversaire monter sur scène avec un sourire étrange. L'homme qui s'avançait n'était pas un inconnu, mais le cultivateur au visage de boucher de la grotte 743.
+Vint le jour du combat de Wang Lin. Il se tenait sur l'arène, un sourire étrange aux lèvres, et regarda son adversaire monter sur scène. L'homme qui s'avançait n'était pas un inconnu, mais le cultivateur au visage de boucher de la grotte 743.
 
 Le responsable de ce combat était un cultivateur de la secte intérieure au stade initial de l'Âme Naissante. C'était un homme d'âge mûr aux tempes grisonnantes. Il balaya la foule du regard et déclara froidement: « Que le combat commence! »
 
@@ -76,16 +76,16 @@ Le cultivateur au visage de boucher hocha vivement la tête: « Je capitule! » 
 
 Une fois descendu de scène, il afficha un sourire pour tenter de plaire à Wang Lin. Ce dernier lui rendit un sourire et secoua discrètement la tête avant de quitter l'arène à son tour. Le cultivateur de l'Âme Naissante observa Wang Lin d'un air pensif, puis passa à la gestion du second combat.
 
-L'affrontement entre le vieil homme maîtrisant le sort de la mort et le jeune homme aux instincts prodigieux fut bref. Le jeune homme ne put en rien résister au sortilège; alors qu'il sombrait, il fut sauvé par un rayon d'énergie spirituelle provenant de la secte intérieure.
+L'affrontement entre le vieil homme maîtrisant le sort de la mort et le jeune homme aux instincts prodigieux fut bref. Le jeune homme ne put en rien résister au sortilège; alors qu'il sombrait, il fut sauvé par un rayon d'énergie spirituelle qui jaillit de l'intérieur de la Secte de l'Affinement de l'Âme et l'enveloppa.
 
 À ce stade, il ne restait plus que deux prétendants pour cette compétition de la secte extérieure: Wang Lin et le vieil homme nommé Sima. Le combat entre les deux débuta le lendemain.
 
-Sima se tenait sur l'arène, le regard sombre. Il avait cultivé ce sort de la mort pendant si longtemps pour ce jour précis. Une fois admis dans la secte intérieure, il aurait une chance de former son Âme Naissante. De plus, le drapeau de l'âme de la Secte de l'Affinement de l'Âme s'accorderait parfaitement avec son sortilège. Selon son maître, s'il cultivait les deux simultanément, sa puissance serait proche de celle du légendaire et disparu Royaume Ji.
+Sima se tenait sur l'arène, le regard sombre. Il avait cultivé ce sort de la mort pendant si longtemps pour ce jour précis. Une fois admis dans la secte intérieure, il était certain de pouvoir un jour former son Âme Naissante. De plus, le drapeau de l'âme de la Secte de l'Affinement de l'Âme s'accorderait parfaitement avec son sortilège. Selon son maître, s'il cultivait les deux simultanément, sa puissance serait proche de celle du légendaire et disparu Royaume Ji.
 
 En pensant à son maître, ses yeux se remplirent d'un fanatisme dévorant. Son maître était capable de tuer n'importe quel cultivateur de l'Âme Naissante d'un seul mot: « meurs », et seuls quelques rares cultivateurs de la Formation de l'Âme pourraient espérer s'en échapper. Dans son esprit, son maître possédait la capacité de défier les vieux monstres de la Transformation de l'Âme.
 
-« Le sort de la mort... À moins d'avoir un niveau de culture bien supérieur au vôtre, nul ne peut y résister. On raconte que ce sort provient du monde antique de la culture, lorsque les anciens tentaient d'imiter le Royaume Ji. La rumeur prétend que porter ce sort à son apogée permet d'acquérir un fragment de la puissance du Royaume Ji. »
+« Le sort de la mort... À moins d'avoir un niveau de culture bien supérieur au vôtre, nul ne peut y résister. On raconte que ce sort provient du monde antique de la culture, lorsque les anciens, n'ayant pas réussi à percer le secret du Royaume Ji, tentaient de l'imiter. Porté à son apogée, ce sort permettrait peut-être d'acquérir un fragment de la puissance du Royaume Ji. »
 
-Les paroles de son maître résonnaient encore dans sa tête alors que Sima fixait son ultime adversaire. Il ne considérait pas le jeune homme nommé Qing Mu comme une menace. Une intention meurtrière traversa son regard et il tonna: « Meurs! »
+Les paroles de son maître résonnaient encore dans sa tête alors que Sima fixait son ultime adversaire. Il ne considérait pas le jeune homme nommé Qing Mu comme une menace. Une intention meurtrière traversa son regard; il pointa le doigt et lança d'une voix sourde : « Meurs! »
 
 Le sort de la mort jaillit vers Wang Lin au moment même où il prononçait ce mot.

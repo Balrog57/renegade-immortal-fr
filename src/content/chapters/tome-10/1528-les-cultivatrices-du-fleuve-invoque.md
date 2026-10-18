@@ -28,7 +28,7 @@ Quant aux cultivateurs du Royaume Extérieur, bien qu'ils fussent plus nombreux,
 
 En conséquence, ce fut une véritable déroute! Le rugissement de Wang Lin fut comme un coup de tonnerre qui brisa les derniers restes de résistance dans le cœur des cultivateurs du Royaume Extérieur!
 
-« L'ancêtre du Clan des Moineaux de Feu est mort! Le cultivateur de la troisième étape Nan Zhao est mort! Le Grand Maître Yun Luo du Conseil Souverain est mort! Le prochain, c'est toi! » Les yeux de Wang Lin étaient injectés de sang alors qu'il avançait en brandissant sa hache. Des grondements tonitruants faisaient vibrer l'air et les cadavres jonchaient le sol!
+« L'ancêtre du Clan des Moineaux de Feu est mort! Le cultivateur de la troisième étape Nan Zhao est mort! Le Grand Maître Yun Luo du Conseil Souverain est mort! Le prochain, c'est toi! » Les yeux de Wang Lin étaient injectés de sang alors qu'il avançait en brandissant sa hache. Des grondements tonitruants faisaient vibrer l'air et les cadavres jonchaient le vide!
 
 Le Maître Nan Yunzi combattait la concubine impériale céleste quand, à cet instant, la jeune femme de la Rivière Invoquée, vêtue comme un homme, s'approcha, entourée d'éclairs crépitants.
 
@@ -66,7 +66,7 @@ C'était la contre-attaque!
 
 Tout comme les cultivateurs de la Mer des Nuages avaient été massacrés, les forces du Royaume Intérieur lançaient leur ultime offensive dans cette bataille tragique! Sous le choc des troupes de Luotian et de la Rivière Invoquée, le Royaume Extérieur subissait des pertes toujours plus lourdes. Les bêtes moustiques et l'océan de poison agissaient comme une tempête dévorant tout ce qu'elle touchait. Sur les quelque 100 000 cultivateurs du Royaume Extérieur venus, moins de 80 000 subsistaient encore!
 
-C'est alors que la troisième armée du Système d'Étoiles Anciennes arriva. Elle apparut aux abords de la Formation de Scellement du Royaume et s'apprêtait à forcer le passage! Deux cultivateurs de la troisième étape, au stade intermédiaire du Nirvana Vide, menaient la marche. Ils s'apprêtaient à faire entrer près de 50 000 hommes. Si ces renforts arrivaient, les troupes en déroute retrouveraient la volonté de lutter!
+C'est alors que la troisième armée du Système Stellaire Antique arriva. Elle apparut aux abords de la Formation de Scellement du Royaume et s'apprêtait à forcer le passage! Deux cultivateurs de la troisième étape, au stade intermédiaire du Nirvana Vide, menaient la marche. Ils s'apprêtaient à faire entrer près de 50 000 hommes. Si ces renforts arrivaient, les troupes en déroute retrouveraient la volonté de lutter!
 
 Bien que cette troisième armée n'ait pas encore franchi la formation, ses seuls rugissements suffirent à faire hésiter la troupe du Royaume Extérieur qui s'enfuiait.
 

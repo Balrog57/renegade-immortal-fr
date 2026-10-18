@@ -8,7 +8,7 @@ slug: arrivee
 ---
 Le mirage du palais suspendu dans le ciel au-dessus de la Terre des Esprits Démoniaques se mua progressivement en une forme solide. C'était comme s'il avait été téléporté depuis la grotte de Qing Lin.
 
-Au moment où l'Impératrice Fleur sortit du palais, l'édifice entier ainsi que les milliers de fleurs violettes qui l'entouraient se rétractèrent pour ne devenir qu'une miniature de la taille d'une paume.
+Au moment où l'Impératrice Fleur sortit du palais, l'édifice entier ainsi que les milliers de fleurs multicolores qui l'entouraient se rétractèrent pour ne devenir qu'une miniature de la taille d'une paume.
 
 Elle referma ses mains de jade et la miniature disparut, fusionnant avec son corps.
 
@@ -22,7 +22,7 @@ Les yeux de l'Ancien Démon Ta Jia brillèrent d'un rouge sinistre tandis qu'il 
 
 Malgré son rire, l'Ancien Démon Ta Jia était empreint de prudence. Il ne craignait pas l'Impératrice Fleur, mais sa peur de Qing Lin était trop profonde. Selon elle, Qing Lin s'était déjà préparé à l'échec et avait prévu d'autres plans. L'apparition de l'Impératrice Fleur était manifestement l'un des desseins de Qing Lin.
 
-« Qing Lin était l'Empereur Céleste le plus puissant; il était si illustre que même les gens du royaume extérieur connaissaient son nom. En plus de sa culture prodigieuse, il était capable de calculer l'avenir comme s'il était lui-même les cieux, et il ne manquait jamais sa cible! »
+« Qing Lin était l'Empereur Céleste le plus puissant; il était si illustre que même les gens du royaume extérieur connaissaient son nom. En plus de sa culture prodigieuse, il était capable de calculer l'avenir comme s'il était lui-même les cieux, et il ne manquait jamais sa cible; un simple pouce carré renfermait les affaires du monde! »
 
 Alors que l'Ancien Démon Ta Jia s'élançait, la Terre des Esprits Démoniaques trembla soudainement. Un brouillard noir apparut dans le ciel et se répandit. Tandis que la main droite de Ta Jia s'étendait, le brouillard noir se condensa en un bras gigantesque qui se projeta vers l'Impératrice Fleur.
 
@@ -54,7 +54,7 @@ Une fois expulsé, ce sang sembla doué d'une volonté propre, formant un filet 
 
 La montagne de glace apparut soudainement et bloqua immédiatement le sang noir. Cependant, ce dernier semblait dégager une chaleur extrême; dès qu'il toucha la glace, la montagne commença à fondre, se teintant de noir dans le même temps.
 
-« Wang Lin, c'est la première des cinq Afflictions Célestes auxquelles les cultivateurs du Briseur du Nirvana font face: l'Affliction Corporelle. Son corps continuera de se détériorer jusqu'à ce que son âme s'éteigne! » Wang Wei voulut continuer à bloquer, mais en raison de ses blessures passées, Hu Juan était constamment repoussée par l'entité humanoïde.
+« Wang Lin, c'est la première des cinq Afflictions Célestes auxquelles les cultivateurs du Briseur du Nirvana font face: l'Affliction Corporelle. Son corps continuera de se détériorer jusqu'à se décomposer entièrement, et corps comme âme seront anéantis! » Wang Wei voulut continuer à bloquer, mais en raison de ses blessures passées, Hu Juan était constamment repoussée par l'entité humanoïde.
 
 En ce moment de crise, Wang Wei agita la main et une multitude d'icebergs apparurent devant Wang Lin. Puis il chargea vers Hu Juan pour l'aider à contenir l'entité.
 

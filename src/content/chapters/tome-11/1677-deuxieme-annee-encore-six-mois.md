@@ -122,7 +122,7 @@ Deux ans et six mois s'étaient écoulés! Il restait encore un semestre avant q
 
 « Wang Lin, ce vieil homme sait que tu te méfies de moi, et même ma fille ne m'a pas fait confiance en tant que père pendant ta culture... Aujourd'hui, je ferai ce qu'un père se doit de faire! » Bien que le Maître Dao Bleu Rêve s'adressât à Wang Lin, ses yeux étaient empreints d'une affection paternelle envers Li Qianmei.
 
-D'un revers de manche, il fit un pas vers le Royaume Extérieur. Son corps se changea en un rayon de lumière et il s'élança instantanément hors de la formation.
+D'un revers de manche, il fit un pas vers le Royaume Extérieur. Son corps se changea en un rayon de lumière et il s'élança instantanément hors de la formation, pour apparaître dans le ciel lointain.
 
 « Miao Yin, Neuf Cieux, Grande Désolation, les trois vous, dégagez de là!! » Le Maître Dao Bleu Rêve poussa soudain un rugissement. Ce cri propagea une onde puissante à travers le système stellaire, créant une véritable tempête. Cela força Miao Yin et ses compagnons à s'arrêter!
 

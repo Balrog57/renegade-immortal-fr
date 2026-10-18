@@ -10,7 +10,7 @@ Zhao Xinmeng regarda Wang Lin. Après avoir réfléchi un instant, elle sourit s
 
 Cependant, à cet instant précis, un rayon de lumière violette jaillit soudainement de l'horizon.
 
-Les disciples des six autres divisions scrutèrent la lueur au loin. Plus de la moitié d'entre eux affichèrent une expression étrange en la voyant.
+Les disciples des six autres divisions scrutèrent la lueur au loin. Un bon nombre d'entre eux affichèrent une expression étrange en la voyant.
 
 L'expression de l'Omniscient resta immuable. Il ne daigna même pas regarder la lumière violette; les mains derrière le dos, son visage demeurait serein.
 
@@ -110,7 +110,7 @@ L'impact ralentit légèrement le vortex, mais celui-ci continuait sa course eff
 
 Sentant le danger imminent, Wang Lin ne paniqua pas. Il leva la main vers le ciel et l'abattit dans un geste tranchant. Une lumière argentée apparut soudainement au-dessus du vortex doré tandis que Wang Lin activait sa technique de téléportation. Cependant, sa cible n'était pas lui-même, mais le vortex doré enveloppé par cette lueur.
 
-Wang Lin enchaîna les sorts de téléportation avec une rapidité fulgurante et murmura: « Téléportation Supérieure! »
+Wang Lin enchaîna les sorts de téléportation avec une rapidité fulgurante et murmura: « Grand Déplacement! »
 
 Au moment où il prononça ces mots, le vortex doré ne se trouvait plus qu'à 10 mètres de lui; il pouvait presque ressentir son aura destructrice, mais aucune trace de panique ne marquait ses traits.
 

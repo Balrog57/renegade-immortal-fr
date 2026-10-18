@@ -38,7 +38,7 @@ Wu Qing écouta un long moment avant de laisser paraître une pointe d'impatienc
 
 « Si vous acceptez, ma Secte de la Collection Démoniaque vous accueillera avec de grands présents! Même si vous refusez, après aujourd'hui, nous trois pourrons être considérés comme des connaissances. Pour nous, les cultivateurs, ceux que nous appelons "chers cultivateurs" peuvent être considérés comme des amis! »
 
-En entendant les paroles de Wu Qing, Tang Lihai afficha un sourire amer en regardant Wang Lin: « J'allais vous aborder à ce sujet après avoir discuté davantage, mais j'ai oublié l'impatience de ce Wu Qing. Ma Secte de la Collection Démoniaque est très sincère; si vous devenez un ancien extérieur, nous vous fournirons tous les matériaux d'alchimie dont vous aurez besoin. Nous ne vous demandons qu'à agir au moment opportun pour maintenir la dignité de ma Secte! »
+En entendant les paroles de Wu Qing, Tang Lihai afficha un sourire amer en regardant Wang Lin: « J'allais vous aborder à ce sujet après trois coupes de vin, mais j'ai oublié l'impatience de ce Wu Qing. Ma Secte de la Collection Démoniaque est très sincère; si vous devenez un ancien extérieur, nous vous fournirons tous les matériaux d'alchimie dont vous aurez besoin. Nous ne vous demandons qu'à agir au moment opportun pour maintenir la dignité de ma Secte! »
 
 Wang Lin réfléchit un instant et dit lentement: « Je dois y réfléchir. Que diriez-vous de ceci: je vous donnerai une réponse avant de quitter Peng Lai. »
 
@@ -90,7 +90,7 @@ Ce dernier ne pénétra pas dans la pièce, mais joignit les mains: « Senior, m
 
 Wang Lin se leva et marcha vers la porte. L'homme le guida respectueusement. Après avoir quitté l'auberge, ils s'envolèrent hors de la ville. Bien que ce fût la nuit, la cité était plus animée que jamais; le brouhaha des conversations résonnait à leurs oreilles.
 
-Peu après, ils arrivèrent au centre de toutes les cités flottantes. C'était la cité principale, des dizaines de fois plus vaste que les cités extérieures. La nuit, elle ressemblait à une immense bête féroce dégageant une puissante sensation d'oppression.
+Peu après, ils arrivèrent au milieu des nombreux blocs de pierre coniques de la cité flottante. Sur ce rocher immense se dressait la cité principale, des dizaines de fois plus vaste que les cités extérieures. La nuit, elle ressemblait à une immense bête féroce dégageant une puissante sensation d'oppression.
 
 Sous la direction de l'homme, ils se dirigèrent vers la porte est. De nombreux cultivateurs y montaient la garde et, pour entrer, il fallait présenter un jeton de jade.
 

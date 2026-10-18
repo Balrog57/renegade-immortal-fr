@@ -10,7 +10,7 @@ Les yeux de la femme s'illuminèrent tandis qu'elle disait: « L'arrière-grand-
 
 « Je crains que l'arrière-grand-père n'ait pas le temps de se soucier de nous. Sa secte a probablement été attaquée par ces envahisseurs elle aussi. Désormais, notre seul espoir réside dans la demeure ancestrale... » L'homme soupira en jetant un regard vers l'enfant.
 
-Dans la capitale, trois enfants avaient déjà été emportés par les envahisseurs. On ignorait s'ils étaient encore en vie ou morts. Yu Er était le quatrième, et cet homme avait tout fait pour sauver son enfant.
+Dans la capitale, trois enfants avaient déjà été emportés par les envahisseurs. On ignorait s'ils étaient encore en vie ou morts. Yu Er était le quatrième ; heureusement, cet homme, dont le pouvoir était immense, pouvait s'enfuir avec son enfant.
 
 La femme regarda l'enfant endormi et murmura: « Mon seigneur, qu'y a-t-il de si spécial dans la demeure ancestrale? »
 
@@ -62,7 +62,7 @@ Sans dire un mot, l'homme s'enfonça dans le manoir. Tout au fond se trouvait un
 
 Yu Er demanda curieusement: « Papa, est-ce notre demeure ancestrale? »
 
-L'homme hocha la tête. Il allait répondre lorsqu'un rugissement tonitruant retentit au loin. Soudain, deux hommes dont le corps était partiellement couvert de runes apparurent au-dessus du manoir. L'un d'eux regarda sombrement les gens en contrebas et dit: « Vous avez couru vite, vous deux. »
+L'homme hocha la tête. Il allait répondre lorsqu'un rugissement tonitruant retentit au loin. Soudain, deux hommes dont le corps était partiellement couvert de runes apparurent au-dessus du manoir. L'un d'eux regarda sombrement les gens en contrebas et dit: « Vous avez couru vite. »
 
 L'expression de l'homme changea brusquement. Il se précipita devant sa femme et dit amèrement: « Honorables immortels, vos combats sont ceux des autres immortels; pourquoi nous accabler, nous les mortels? »
 
@@ -76,7 +76,7 @@ Cependant, leurs corps ne purent résister; ils crachèrent du sang avant d'êtr
 
 Le visage de l'homme se décomposa. Il saisit précipitamment sa femme et son enfant pour les entraîner de force dans la demeure ancestrale.
 
-Une fois à l'intérieur, la sueur froide inondait le front de l'homme. Les yeux injectés de sang, il pressa rapidement une série de plaques qui firent s'ouvrir un compartiment secret. Il se mordit aussitôt le bout de la langue et utilisa son sang pour tracer un symbole dans la cavité.
+Une fois à l'intérieur, la sueur froide inondait le front de l'homme. Les yeux injectés de sang, il pressa rapidement une série de tablettes ancestrales qui firent s'ouvrir un compartiment secret. Il se mordit aussitôt le bout de la langue et utilisa son sang pour tracer un symbole dans la cavité.
 
 Ce symbole était un héritage que chaque chef de famille devait graver dans son esprit lors de sa prise de fonction.
 
@@ -122,7 +122,7 @@ L'homme laissa échapper un rire tandis que ses yeux brillaient, libérant sa v�
 
 « Intéressant. Je n'ai pas été envoyé ici pour m'occuper de vous, misérables cultivateurs, je ne faisais que passer. Cependant, puisque vous le demandez, je veux voir quel genre de trésor vous donne une telle assurance. » Ses yeux exprimaient un profond mépris. En tant que shaman à six feuilles, à moins de croiser un cultivateur de la Formation de l'Âme au stade avancé, nul ne représentait une menace pour lui.
 
-Il ne croyait pas qu'un tel expert puisse exister dans un simple pays de culture de rang 3.
+Il ne croyait pas qu'un cultivateur de la Formation de l'Âme au stade avancé puisse exister dans un simple pays de culture de rang 3.
 
 D'un seul pas, il s'approcha de la Secte Tian Dao. Les dragons qui l'entouraient poussèrent des rugissements et chargèrent vers la secte.
 

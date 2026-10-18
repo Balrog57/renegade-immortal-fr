@@ -24,21 +24,21 @@ Un instant plus tard, les ondulations s'intensifièrent soudainement et, dans un
 
 Tout cela se produisit en un clin d'œil. C'était si rapide que ni l'œil ni le sens divin ne pouvaient saisir la vitesse inimaginable de Ji Xiantian.
 
-En raison du pouvoir de scellement du vide, l'énergie originelle dans leurs corps était supprimée. Sous la pression des assauts de Ji Xiantian, leur culture diminua immédiatement.
+En raison du pouvoir de scellement du vide, l'énergie originelle dans leurs corps s'écoulait sans fin. Sous la pression des assauts de Ji Xiantian, leur culture diminua immédiatement.
 
 Wang Lin ne parvint pas à apercevoir l'ombre de Ji Xiantian; il sentit seulement une bourrasque le frapper, puis une force extrêmement puissante chargea droit sur lui.
 
 Cependant, Wang Lin ne fut nullement alarmé. Au moment où la puissance approchait, son corps pivota et il lança un coup de poing dans le vide de sa main gauche, guidé par le sentiment mystérieux émanant de son corps d'Ancien Dieu.
 
-Boum! Boum! Boum! Boum! Boum!
+Boum!
 
 Après un fracas assourdissant qui sembla déchirer le ciel, Wang Lin fut repoussé. Son visage pâlit et du sang jaillit du coin de sa bouche. Cependant, devant lui, Ji Xiantian fut contraint de sortir du vide pour la première fois. Ce dernier recula de deux pas et regarda Wang Lin avec une lueur mystérieuse dans les yeux.
 
-Tout en reculant, Wang Lin cria rapidement: « Il n'a aucune énergie originelle dans son corps, il n'est donc pas limité par le sceau ici! Il excelle dans les attaques physiques. L'énergie originelle des aînés s'écoule sans cesse; si vous ne travaillez pas ensemble pour le tuer, la situation deviendra périlleuse! »
+Tout en reculant, Wang Lin cria rapidement: « Il n'a aucune énergie originelle dans son corps, il n'est donc pas limité par le sceau ici! Il excelle dans les attaques physiques. L'énergie originelle des Seniors s'écoule sans cesse; si vous ne travaillez pas ensemble pour le tuer, la situation deviendra périlleuse! »
 
 « Junior, tais-toi! » Le corps du dragon doré s'anima et les cinq talismans fondus dans son corps émirent une étrange lueur. L'aura des cinq éléments emplit son corps et, au lieu de charger vers Ji Xiantian, il se précipita sur Wang Lin.
 
-L'aura des cinq éléments tournoyait et, dans un rugissement du dragon doré, elle se transforma en cinq rayons qui frappèrent Wang Lin.
+L'aura des cinq éléments tournoyait et, dans un rugissement du dragon doré, elle se transforma en cinq rayons qui foncèrent sur Wang Lin de toutes parts.
 
 Une lueur froide passa dans les yeux de Wang Lin. Sachant qu'il ne pourrait échapper au sort du dragon doré, il s'arrêta simplement devant l'aura des cinq éléments et sortit sans hésitation l'âme originelle de Xuan Bao. Il était sur le point de l'écraser!
 
@@ -106,7 +106,7 @@ Cette épée de bois fendit l'air comme l'éclair et perça le crâne de Ji Xian
 
 Soudain, l'épée de bois explosa en d'innombrables fragments chargés de puissance, s'effondrant à l'intérieur de son corps.
 
-Au même moment, Wu Dongchan agita la main et cracha une bouchée d'essence de son âme originelle qui se mua en une multitude de bulles. Cela fut fait précisément au moment où Wang Lin figea Ji Xiantian. Il s'approcha et les bulles entourèrent Ji Xiantian avant d'exploser.
+Au même moment, Wu Dongchan agita la main et cracha une bouchée d'essence de son âme originelle qui se mua en une multitude de bulles aux cinq couleurs. Cela fut fait précisément au moment où Wang Lin figea Ji Xiantian. Il s'approcha et les bulles entourèrent Ji Xiantian avant d'exploser.
 
 Il y avait aussi ce dragon doré. À présent, sa haine envers Ji Xiantian était immense. Dans un rugissement, les cinq éléments fusionnèrent pour former, contre toute attente, une couronne illusoire!
 
@@ -116,7 +116,7 @@ Les trois vieux monstres attaquèrent tous de concert. Ji Xiantian rugit, tentan
 
 Une quantité massive de chair et de sang se dispersa. Les yeux de Wang Lin révélèrent une trace d'avidité qui n'était apparue que rarement au cours de ses mille ans de culture. Le fourneau de l'Ancien Dieu apparut autour de lui et il s'approcha instantanément du corps déchiqueté de Ji Xiantian.
 
-En un éclair, il se mordit la langue et cracha une bouchée de sang d'Ancien Dieu. Puis il ouvrit la bouche et aspira frénétiquement!
+En un éclair, il se mordit la langue et cracha une bouchée de sang d'Ancien Dieu. Des sons étranges résonnèrent dans sa bouche, puis, en un instant, il l'ouvrit et aspira frénétiquement!
 
 « Héritage de puissance! »
 

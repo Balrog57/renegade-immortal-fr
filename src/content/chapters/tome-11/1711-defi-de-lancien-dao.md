@@ -6,7 +6,7 @@ bookTitle: Mysteries of the Ancient Era
 en: Chapter 1711 - Ancient Dao Defying
 slug: defi-de-lancien-dao
 ---
-La cinquième goutte, la sixième... jusqu’à ce que la neuvième goutte de sang jaillisse du vortex et fonce vers Wang Lin.
+La cinquième goutte, la sixième... jusqu’à ce que la neuvième goutte de sang, toutes alignées en file, jaillisse du vortex et fonce vers Wang Lin.
 
 Les yeux de Wang Lin brillèrent d'un éclat vif alors qu'il fixait les gouttes de sang qui volaient vers lui. Il ne chercha pas à l'esquiver et permit aux cinq gouttes de s'implanter entre ses sourcils. Elles semblèrent pénétrer à travers son corps.
 

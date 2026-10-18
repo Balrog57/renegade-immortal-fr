@@ -12,7 +12,7 @@ Ce ressentiment s'accumulait dans l'air au-dessus de la cité telle une flamme d
 
 Alors qu'il approchait de la ville, le sens divin de Wang Lin balaya les lieux centimètre par centimètre. Ses yeux s'illuminèrent et il laissa échapper un froid renâclement.
 
-À mesure que ce ricanement froid se propageait, des explosions retentirent en trois endroits différents. Dans le manoir du seigneur de la cité, le conseiller nommé Sun fut soudain pris de tremblements avant d'éclater en un amas de chair.
+À mesure que ce ricanement froid se propageait, des explosions retentirent en trois endroits différents. Dans le manoir du seigneur de la cité, le conseiller nommé Sun, qui méditait en tailleur, fut soudain pris de tremblements avant d'éclater en un amas de chair sanglant.
 
 Le même sort s'abattit sur les deux autres lieux.
 
@@ -66,7 +66,7 @@ L'expression de Ta Shan était austère tandis qu'il faisait quelques pas en ava
 
 Le marécage fut projeté dans les airs et l'eau boueuse jaillit vers le ciel, comme si quelqu'un avait soulevé le socle même du monde.
 
-D'innombrables éclats de restrictions apparurent; bien que ces barrières fussent efficaces contre des cultivateurs Ascendants, elles étaient dérisoires face à Ta Shan.
+D'innombrables éclats de restrictions apparurent; bien que ces barrières fussent mortelles pour des cultivateurs Ascendants, elles étaient dérisoires face à Ta Shan.
 
 D'un seul coup de poing, ces lueurs de restriction s'effondrèrent et disparurent instantanément. Une large fissure fendit la terre, révélant au fond un passage secret.
 
@@ -74,7 +74,7 @@ Wang Lin pénétra dans le conduit avec calme, suivi par Ta Shan. Quant au garç
 
 En descendant ce passage secret, Wang Lin ressentit une pointe de mélancolie. Il était venu ici deux fois, il y a des siècles, et à chaque fois, il avait dû faire preuve d'une prudence extrême. Désormais, il pouvait agir à sa guise.
 
-Alors qu'il progressait, il déploya son sens divin sur tout la Secte des Cadavres afin de bloquer toutes les issues. Il était ici pour traquer le chef de la secte. Qu'il s'agisse d'aujourd'hui ou d'autrefois, Wang Lin n'avait jamais éprouvé la moindre bienveillance envers eux. Sans parler du fait qu'ils avaient osé utiliser la famille Wang pour nourrir des esprits vengeurs.
+Alors qu'il progressait, il déploya son sens divin sur tout la Secte des Cadavres afin de bloquer toutes les issues. Il était venu ici pour s'en prendre à la secte. Qu'il s'agisse d'aujourd'hui ou d'autrefois, Wang Lin n'avait jamais éprouvé la moindre bienveillance envers eux. Sans parler du fait qu'ils avaient osé utiliser la famille Wang pour nourrir des esprits vengeurs.
 
 Wang Lin n'éprouvait aucun sentiment particulier envers ces descendants dont le lien remontait à plus de dix générations. Cependant, ils étaient les descendants de la lignée Wang, et les voir ainsi maltraités l'enrageait profondément.
 
@@ -86,23 +86,23 @@ Cette attaque possédait une aura puissante. L'assaillant devait être au stade 
 
 Le visage de Wang Lin resta impassible; il pointa simplement la main, libérant une fraction de son énergie originelle. Des ondulations se formèrent dans le vide et l'énergie d'épée s'effondra aussitôt.
 
-Un gémissement étouffé retentit sous l'effet de l'onde produite par le bout des doigts de Wang Lin. Pourtant, loin de reculer, l'assaillant se précipita encore plus vite vers lui.
+Un gémissement étouffé retentit sous l'effet de l'onde produite par le bout des doigts de Wang Lin. Pourtant, loin de reculer, l'assaillant, les mains formant des sceaux, se précipita encore plus vite vers lui.
 
 Wang Lin avait déjà pu identifier l'embusqueur: un corps décharné, semblable à une momie. D'innombrables runes couvraient sa peau et une odeur fétide s'en dégageait. Ses yeux étaient ternes, comme si son esprit s'était éteint.
 
 En l'observant, Wang Lin lui trouva un air familier. En un éclair, la momie atteignit sa position.
 
-Wang Lin soupira et décocha un coup de pied droit. Un bang sonore retentit lorsque son pied percuta la momie. Celle-ci commença à se désintégrer dès les pieds, et cette décomposition fut si rapide qu'en un instant, elle ne fut plus que poussière.
+Wang Lin soupira et décocha un coup de pied droit. Un boum sonore retentit lorsque son pied percuta la momie. Celle-ci commença à se désintégrer dès les pieds, et cette décomposition fut si rapide qu'en un instant, elle ne fut plus que poussière.
 
-Au moment où la momie disparut, ses yeux retrouvèrent une clarté éphémère. Il regarda Wang Lin avec confusion, avant de s'évanouir à son tour.
+Au moment où la momie disparut, ses yeux retrouvèrent une clarté éphémère. Il regarda Wang Lin avec confusion, avant de se dissiper à son tour.
 
 « Je n'aurais pas cru que Ye Zizai deviendrait la marionnette de cadavre d'un autre... » soupira Wang Lin en avançant. Il ne se pressait pas, bien que de nombreuses embuscades se profilassent devant lui. Pourtant, tous les assaillants s'effondraient instantanément.
 
 Tous ces embusqueurs n'étaient que des marionnettes de cadavres.
 
-Wang Lin poursuivit sa marche vers le quartier général de la Secte des Cadavres. Arrivé à un certain point, son regard devint glacial et il scruta l'horizon. Son regard semblait capable de percer les parois pour sonder l'intérieur de la grotte. Il y vit huit immenses formations de transfert, au sein desquelles de nombreux membres de la secte se tenaient debout. Les formations s'activèrent et commencèrent à disparaître lentement.
+Wang Lin poursuivit sa marche vers le quartier général de la Secte des Cadavres. Arrivé à un certain point, son regard devint glacial et il scruta l'horizon. Son regard semblait capable de percer les parois pour sonder l'intérieur de la grotte. Il y vit huit immenses formations de transfert, au sein desquelles de nombreux membres de la secte se tenaient debout. Les formations s'activaient, et leurs silhouettes commençaient lentement à disparaître.
 
-« Vous ne pourrez pas tous vous échapper! » se dit calmement Wang Lin. Son sens divin balaya les huit formations, provoquant leur effondrement immédiat. En un instant, trois d'entre elles furent détruites, projetant les disciples de la Secte des Cadavres dans une fissure spatiale.
+« Vous ne pourrez pas vous enfuir! » se dit calmement Wang Lin. Son sens divin balaya les huit formations, provoquant leur effondrement immédiat. En un instant, trois d'entre elles furent détruites, projetant les disciples de la Secte des Cadavres dans une fissure spatiale.
 
 Simultanément, les cinq autres formations s'effondrèrent également. Pas un seul disciple ne put s'en sortir.
 

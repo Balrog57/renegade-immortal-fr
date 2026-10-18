@@ -6,9 +6,9 @@ bookTitle: Light of the coming end
 en: Chapter 2039 - Decision
 slug: decision
 ---
-La voix de l'Ancien Maître Impérial du Dao était féroce lorsqu'il rugit: « Si cette formation est détruite, à moins que vous ne commettiez de nouveau d'infinis massacres, vous ne connaîtrez jamais la vérité sur le monde des cavernes, sur le Continent Astral Immortel, sur tout ce qui concerne le ciel et la terre! »
+La voix de l'Ancien Maître Impérial du Dao était féroce lorsqu'il rugit: « Si cette formation est détruite, à moins que vous ne commettiez de nouveau d'infinis massacres, vous ne connaîtrez jamais la vérité sur le monde des grottes, sur le Continent Astral Immortel, sur tout ce qui concerne le ciel et la terre! »
 
-« Vous devrez toujours regarder l'âme de Li Muwan mourir et retourner dans le cycle de la réincarnation. Vous ne pourrez toujours pas l'accompagner pour l'éternité! »
+« Vous devrez toujours regarder l'âme de Li Muwan mourir et retourner dans le cycle de la réincarnation. Vous ne pourrez toujours pas l'accompagner toute votre vie! »
 
 Les yeux de l'avatar de massacre aux cheveux noirs s'illuminèrent et sa main droite s'immobilisa. Le gaz noir continuait de circuler le long de sa main, offrant un spectacle terrifiant.
 
@@ -66,7 +66,7 @@ L'expression de l'Ancien Maître Impérial du Dao changea et il sembla hésiter,
 
 « Parce que le Royaume Divin Immémorial a... » Le vieil homme serra les dents, mais au moment même où il allait parler, son corps trembla. Il poussa un cri misérable tandis que son être commençait à se dissiper.
 
-« C'est... c'est la loi du royaume! Je ne peux pas le dire! Si je prononçais ces mots, je mourrais! » Le visage de l'Ancien Maître Impérial du Dao devint instantanément livide.
+« C'est... c'est la loi du royaume! Je ne peux pas le dire! Si je prononçais ces mots, je serais anéanti corps et âme! » Le visage de l'Ancien Maître Impérial du Dao devint instantanément livide.
 
 Le Massacre s'avança et dit froidement: « Oh? Tu n'as pas besoin de me dire cela, mais tu dois me dire qui tu es! »
 

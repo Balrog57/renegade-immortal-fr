@@ -10,7 +10,7 @@ Un rayon de flammes pourpres jaillit de son doigt. La flamme vacillait et ne sem
 
 Pourtant, cette traînée de feu était une technique que Wang Lin avait peinement réussi à apprendre de Situ Nan après un mois de travail acharné. C’était une flamme démoniaque!
 
-En utilisant l'énergie spirituelle céleste de son corps comme combustible, il avait créé un feu pour le transformer en flamme démoniaque. Selon Situ Nan, n'importe quel cultivateur ordinaire au stade intermédiaire de la Transformation de l'Âme mourrait instantanément face à ce sortilège.
+En utilisant l'énergie spirituelle céleste de son corps comme combustible, il avait créé un feu pour le transformer en flamme démoniaque. Selon Situ Nan, n'importe quel cultivateur ordinaire au stade intermédiaire de la Transformation de l'Âme mourrait à coup sûr face à ce sortilège.
 
 Son expression était glaciale tandis que la flamme dansait entre ses doigts. Grâce au vacillement de ces flammes, Wang Lin affichait une apparence profondément démoniaque lorsqu'il pointa l'homme d'âge moyen du doigt.
 
@@ -52,7 +52,7 @@ Les disciples environnants reculèrent tous en fixant Wang Lin avec stupeur, mai
 
 Les forts suscitent le respect des faibles, peu importe où ils se trouvent. C'était une loi immuable du monde de la culture!
 
-Le regard de Wang Lin restait froid alors qu'il fixait Zhao Xingsha en fuite. Il lança froidement: « Tue-le! Je t'autorise à dévorer son âme en guise de récompense! »
+Le regard de Wang Lin restait froid alors qu'il fixait Zhao Xingsha en fuite. Il lança froidement: « Tue-le! Je t'autorise à dévorer son âme, pour qu'elle devienne ton offrande! »
 
 La bête spirituelle tourna brusquement sa tête gigantesque vers Wang Lin et poussa un autre rugissement. Cette fois, elle s'élança soudainement, faisant apparaître les chaînes qui la reliaient au char. Cependant, les chaînes furent tendues à l'extrême et produisirent des cliquetis métalliques comme si elles allaient rompre.
 

@@ -62,7 +62,7 @@ Un jeune homme, incapable de se faufiler dans la cour, cria: « Je demande à Mo
 
 « Bonne question! » Wang Lin se leva et monta les marches, un pichet de vin à la main, jusqu'au point le plus élevé. En contemplant la foule en contrebas, une aura inhabituelle émanait de lui. Le monde semblait s'agiter autour de lui; il voyait au loin une marée humaine qui continuait d'affluer.
 
-Toute la ville paraissait être en mouvement. Tous les érudits venus jusque-là étaient présents, à l'exception de ceux qui l'avaient déjà interrogé les mois précédents. Le regard de Wang Lin se posa sur un restaurant au loin. Il y vit un homme d'âge mûr assis à une table.
+Toute la ville paraissait être en mouvement. Presque tous les érudits venus jusque-là étaient présents, à l'exception de ceux qui l'avaient déjà interrogé les mois précédents. Le regard de Wang Lin se posa sur un restaurant au loin. Il y vit un homme d'âge mûr assis à une table.
 
 Cet homme portait des robes coûteuses et dégageait une autorité naturelle sans même paraître en colère. Entouré de nombreux gardes du corps, il fixait froidement le manoir des Su. Son regard croisa celui de Wang Lin, debout sur les hautes marches.
 
@@ -78,7 +78,7 @@ Wang Lin but une gorgée de vin et afficha un sourire désinvolte. Il regarda le
 
 « J'ai entendu quelque chose dans un rêve. Je vais vous l'offrir. La pluie naît dans le ciel et meurt sur la terre. Le processus entre les deux, c'est la vie! »
 
-À ces mots, une onde de choc parcourut l'assemblée. Le murmure se propagea si fort que même ceux à l'extérieur purent l'entendre. Dans leurs calèches, plusieurs vieillards furent profondément émus. Certains se levèrent en silence et saluèrent respectueusement Wang Lin avant de faire signe à leurs serviteurs de partir.
+À ces mots, une onde de choc parcourut l'assemblée. Le murmure se propagea si fort que même ceux à l'extérieur purent l'entendre. Dans leurs calèches, plus de la moitié des vieillards furent profondément émus. Certains se levèrent en silence et saluèrent respectueusement Wang Lin avant de faire signe à leurs serviteurs de partir.
 
 Cette seule phrase leur suffit pour comprendre que le titre de Grand Érudit n'était pas usurpé!
 
@@ -86,7 +86,7 @@ Cette seule phrase leur suffit pour comprendre que le titre de Grand Érudit n'�
 
 Cet homme jouissait manifestement d'une grande réputation. Wang Lin ne le connaissait pas, mais beaucoup l'identifièrent et lui firent une révérence respectueuse.
 
-« Les Immortels possèdent le pouvoir, et ce pouvoir fusionne avec leur cœur, agrandissant ainsi leur esprit à l'infini, au point de ne voir les mortels que comme des fourmis. Cependant, si vous portez un idéal et que vous l'étendez pour embrasser le monde et saisir la vérité, vous pouvez voir les Immortels tels qu'ils sont, sans crainte. Alors, qu'importe si vous les considérez comme des fourmis? » Wang Lin but une gorgée de vin et éclata de rire.
+« Les Immortels possèdent le pouvoir, et ce pouvoir fusionne avec leur cœur, agrandissant ainsi leur esprit à l'infini, au point de ne voir les mortels que comme des fourmis. Cependant, si votre pensée s'étend pour embrasser le monde et saisir la vérité, vous pouvez voir les Immortels tels qu'ils sont, sans crainte. Alors, qu'importe si vous les considérez comme des fourmis? » Wang Lin but une gorgée de vin et éclata de rire.
 
 Le vieil homme trembla. Après avoir murmuré quelques mots, il s'inclina devant Wang Lin avant de repartir avec l'aide de son serviteur.
 

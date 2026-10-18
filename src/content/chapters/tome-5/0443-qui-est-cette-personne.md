@@ -26,7 +26,7 @@ La silhouette de Wang Lin approchait au loin. Il portait une robe blanche qui lu
 
 Tout au long du trajet, Situ Nan lui avait exposé en détail les enjeux de la Tombe de Suzaku. Cependant, Wang Lin n'était pas très confiant pour ce voyage. La Tombe de Suzaku semblait bien plus dangereuse qu'il ne l'avait initialement prévu.
 
-« Situ Nan m'a offert un jade qui me permettra de quitter la Tombe de Suzaku; je ne devrais donc avoir de problème que si je ne parviens pas à atteindre le Cristal de Culture Planétaire pour récupérer mon fragment d'âme. Bien que Situ Nan m'ait laissé un moyen de ne pas mourir, l'épreuve est non seulement extrêmement difficile, mais mon âme en sera mutilée. Cela affectera ma future culture. »
+« Situ Nan m'a offert un jade qui me permettra de quitter la Tombe de Suzaku; je ne devrais donc avoir de problème que si je ne parviens pas à atteindre le Cristal de la Planète de Culture pour récupérer mon fragment d'âme. Bien que Situ Nan m'ait laissé un moyen de ne pas mourir, l'opération est non seulement très fastidieuse, mais mon âme en sera mutilée. Cela affectera ma future culture. »
 
 La silhouette de Wang Lin se rapprochait lentement. Autour du mont Suzaku, les cultivateurs discutaient entre eux, cultivaient en silence ou étaient plongés dans leurs pensées. Dès l'arrivée de Wang Lin, certains levèrent la tête pour le regarder. Leurs yeux s'illuminèrent un instant avant qu'ils ne baissent précipitamment le regard pour lui laisser le passage.
 

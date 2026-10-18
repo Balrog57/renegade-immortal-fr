@@ -10,7 +10,7 @@ slug: la-haine-de-yao-xixue-2
 
 Ce sentiment ne dura qu'un instant avant de s'évanouir, comme s'il n'avait jamais existé. Derrière lui, Situ Nan et les autres apparurent, flottant dans les airs pour contempler les lieux en contrebas.
 
-Hormis le Maître Fu Fengzi, c’était la première fois que le groupe venait ici. Bien que les trois frères Chen appartenaient à un pays de rang 7, ils ne s'étaient pas intéressés à la Terre des Esprits Démoniaques auparavant. Désormais arrivés, ils ne purent s'empêcher d'observer les environs avec curiosité.
+Hormis le Maître Fu Fengzi, c’était la première fois que le groupe venait ici. Bien que les trois frères Chen, eux aussi originaires de Tian Yun, appartinssent à un pays de rang 7, ils ne s'étaient pas intéressés à la Terre des Esprits Démoniaques auparavant. Désormais arrivés, ils ne purent s'empêcher d'observer les environs avec curiosité.
 
 En revenant dans ce lieu familier, Wang Lin ressentit un pincement de regret. Sa première pensée n'avait pas été de se rendre à la grotte céleste, mais d'aller vérifier l'état de la Tribu du Raffinement des Âmes. À l'époque, il avait dû fuir dans l'urgence. Avec le recul, ce sentiment de culpabilité l'habitait.
 
@@ -68,7 +68,7 @@ Les yeux de Wang Lin brillèrent d'une lumière étrange. Grâce à son sens div
 
 Il ne parvenait pas à définir cette sensation, mais au moment de l'union, d'innombrables images défilèrent dans son esprit. Sans exception, toutes montraient la Tribu du Raffinement des Âmes vénérant la statue avec un fanatisme inimaginable. C'était comme si, dès que la statue donnait un ordre, ils l'exécuteraient quel qu'en soit le prix; même au péril de leur vie, sans le moindre regret.
 
-Cette ferveur terrifiante ébranla Wang Lin lui-même. C’était le culte millénaire des millions de membres de la tribu envers cette statue de pierre qui avait engendré cette force mystérieuse que même lui ne pouvait pleinement saisir.
+Cette ferveur terrifiante ébranla Wang Lin lui-même. C’était le culte de plusieurs siècles des millions de membres de la tribu envers cette statue de pierre qui avait engendré cette force mystérieuse que même lui ne pouvait pleinement saisir.
 
 Tout en réfléchissant, Wang Lin fit un pas et disparut. Lorsqu'il réapparut, il surplombait la capitale du Pays des Démons du Feu. De là, il pouvait contempler la scène de millions de personnes agenouillées!
 

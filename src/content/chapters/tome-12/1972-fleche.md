@@ -12,9 +12,9 @@ Le dragon marin était couvert de cicatrices au cours de sa fuite. Une flèche n
 
 Sur son dos, Liu Jinbiao bouillonnait de rage, bien qu'il fût dans un état lamentable. La flèche précédente avait jailli avec une soudaineté absolue. S'il n'avait pas été protégé par le dragon marin, il serait déjà mort.
 
-« Cette flèche a pulvérisé tous les sorts du dragon et s'est enfoncée dans son ventre. Elle est bien trop puissante! Qui veut ma peau? Je n'ai trompé que sept personnes, est-ce vraiment nécessaire d'en arriver là?! » La colère de Liu Jinbiao ne laissait place à aucune peur.
+« Cette flèche a pulvérisé tous les sorts du dragon et s'est enfoncée dans son ventre. Elle est bien trop puissante! Qui veut ma peau? Je n'ai trompé que sept personnes il y a un instant, est-ce vraiment nécessaire d'en arriver là?! » La colère de Liu Jinbiao ne laissait place à aucune peur.
 
-Il se retourna et rugit: « Maudit soit-tu, tu oses provoquer ce humble serviteur? Mon maître ne te laissera jamais impuni! »
+Il se retourna et rugit: « Maudit sois-tu, tu oses me provoquer? Mon maître ne te laissera jamais impuni! »
 
 Derrière le dragon marin, une silhouette noire semblait fusionner avec la nuit. Il était impossible de dire s'il s'agissait d'un homme ou d'une femme, d'un jeune ou d'un vieillard. Cette personne se déplaçait avec une vélocité fulgurante, dépassant même celle du dragon. À cet instant, elle fit un mouvement des mains et un arc apparut; elle décocha alors une flèche.
 
@@ -42,7 +42,7 @@ Avant de sombrer dans l'inconscience, son corps fut pétrifié par l'effroi. Le 
 
 « Maître! Vous êtes enfin venu! Il voulait me tuer! Le dragon est blessé! » Liu Jinbiao fut transporté par l'excitation en voyant Wang Lin. Le dragon marin, lui, se retourna et fixa la silhouette immobile avec fureur.
 
-Wang Lin leva la main droite et effleura le dragon. La créature trembla et tout le gaz noir qui l'entourait se dissipa. La flèche dans son abdomen fut expulsée et sa blessure se referma rapidement.
+Wang Lin leva la main droite et effleura la tête du dragon. La créature trembla et tout le gaz noir qui l'entourait se dissipa. La flèche dans son abdomen fut expulsée et sa blessure se referma rapidement.
 
 Wang Lin saisit la flèche noire qui venait de sortir. Après l'avoir examinée, il la broya en poussière, laquelle se fondit dans le vent et la neige.
 
@@ -56,17 +56,17 @@ Le Sens Divin de Wang Lin se concentra sur la tête de l'homme. Après avoir rec
 
 « Va frapper à la porte et dis à leur maître de venir me voir. » Wang Lin fixa les deux mots: « Manoir Li ».
 
-« Bien! » Liu Jinbiao retrouva toute sa vigueur. Il adorait ce genre d'imprudence. Il retroussa ses manches et se dirigea vers la porte close.
+« Bien! » Liu Jinbiao retrouva toute sa vigueur. Il adorait ce genre de chose. Il retroussa ses manches et se dirigea vers la porte close.
 
 En passant entre les deux lions de pierre, ceux-ci restèrent immobiles, tels de simples ornements mortels. Ils laissèrent Liu Jinbiao s'avancer avec arrogance jusqu'au portail.
 
-À cet instant, il ressemblait trait pour trait au jeune homme qui était venu ici un an auparavant; même leurs expressions étaient similaires.
+À cet instant, il ressemblait trait pour trait au jeune homme qui était venu ici il y a plus d'un an; même leurs expressions étaient similaires.
 
-Devant la porte, Liu Jinbiao leva le pied et lui asséna un coup impitoyable. Laissant une empreinte dans la neige, il poussa un rugissement:
+Devant la porte, Liu Jinbiao leva le pied et lui asséna un coup impitoyable. Laissant sur le battant l'empreinte de son pied, couverte de neige, il poussa un rugissement:
 
 « Mon maître est là! Sortez vite pour l'accueillir! »
 
-Ces paroles n'étaient pas sans rappeler celles de celui qui s'était présenté ici l'an passé. Si le jeune homme en rouge avait su cela, il en aurait été stupéfait.
+Ces paroles ne différaient de celles de celui qui s'était présenté ici il y a plus d'un an que par quelques mots. Si le jeune homme en rouge avait su cela, il en aurait été stupéfait.
 
 La différence résidait dans le fait que si Xu Liguo avait frappé une fois sans que la porte ne bouge, le coup de Liu Jinbiao fit trembler le portail. Ce coup ouvrit carrément la porte.
 
@@ -76,7 +76,7 @@ Wang Lin observa la porte ouverte d'un air neutre. Après un instant de silence,
 
 « Puisque le maître ne sort pas, j'entrerai sans y être invité. » Sur ces mots, Wang Lin agita la main droite et l'homme inconscient fut projeté à l'intérieur. Puis, Wang Lin avança calmement.
 
-Dès qu'il dépassa les deux lions de pierre, ceux-ci ouvrirent soudainement les yeux et poussèrent des rugissements furieux contre lui. Ces hurlements se propagèrent dans toute la ville orientale, plongeant les conversations et la musique dans un silence de mort!
+Dès qu'il dépassa les deux lions de pierre, ceux-ci ouvrirent soudainement les yeux et poussèrent des rugissements furieux contre lui. Ces hurlements se propagèrent dans plus de la moitié de la ville orientale, plongeant les conversations et la musique dans un silence de mort!
 
 Sous ces rugissements, deux ombres gigantesques jaillirent des statues. Deux lions de plusieurs milliers de pieds de haut s'élancèrent vers Wang Lin.
 
@@ -106,11 +106,11 @@ Les centaines de silhouettes, hommes et femmes, étaient pétrifiées par l'horr
 
 Alors que la peur montait dans le cœur des habitants du Manoir Li, neuf flèches jaillirent de neuf endroits différents de la demeure. Chaque flèche explosa en des centaines de projectiles, n'étant pas moins puissante que l'attaque combinée précédente.
 
-La puissance de ces neuf explosions était comparable à neuf fois l'attaque initiale. Elles tombaient comme une pluie de flèches!
+La puissance de ces neuf explosions était comparable à neuf fois l'attaque initiale. Elles déferlaient en une tempête de flèches balayant tout!
 
-C'était comme une main géante s'abattant impitoyablement sur Wang Lin; s'il était touché, il mourrait sur le coup!
+C'était comme une main géante s'abattant impitoyablement sur Wang Lin; s'il était saisi, corps et âme seraient anéantis!
 
-Wang Lin ne s'arrêta pas, mais leva la tête. Sa main droite se tendit et il pointa l'avant du doigt.
+Wang Lin ne s'arrêta pas, mais leva la tête. Sa main droite se tendit et il pointa un doigt devant lui.
 
 D'un seul geste, tout dans le monde sembla se figer. La pluie de flèches s'immobilisa devant Wang Lin, et même après qu'il eut lentement passé à travers elles, les projectiles restèrent suspendus, immobiles dans le ciel.
 

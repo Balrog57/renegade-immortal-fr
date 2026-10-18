@@ -12,15 +12,15 @@ Une brume s'échappa du corps déchu du vieil homme, révélant la silhouette de
 
 Dès son apparition, il ne marqua aucun temps de pause; il chargea à travers la planète de culture. Sur son passage, une brume noire s'engouffrait dans chaque cultivateur qu'il croisait. Tous poussèrent des cris déchirants tandis que leurs corps se flétrissaient, leur chair et leur sang étant ainsi absorbés par Wang Lin.
 
-Un instant plus tard, tous les cultivateurs de la planète avaient péri. Le corps de Wang Lin était enveloppé d'un nuage de brume noire monstrueuse, semblable à des flammes démoniaques. Alors qu'il flottait dans les airs, il tendit impitoyablement la main vers le sol.
+Un instant plus tard, presque tous les cultivateurs de la planète avaient péri. Le corps de Wang Lin était enveloppé d'un nuage de brume noire monstrueuse, semblable à des flammes démoniaques. Alors qu'il flottait dans les airs, il tendit impitoyablement la main vers le sol.
 
 « Extraction de l'Âme Planétaire! »
 
 L'intégralité de la planète de culture se mit à trembler, laissant échapper une aura antique. C'était comme si elle était forcée de s'éveiller de son long sommeil.
 
-Des volutes de gaz blanc s'élevèrent de la planète et se rassemblèrent dans la main gauche de Wang Lin, formant une sphère gazeuse. Cette sphère semblait contenir son propre monde.
+Des volutes de gaz blanc s'élevèrent de la planète et se rassemblèrent dans la main gauche de Wang Lin, formant une sphère gazeuse de la taille d'un poing. Elle semblait contenir un ciel étoilé.
 
-Tenant l'âme planétaire, la brume noire monstrueuse qui entourait Wang Lin s'enroula autour de lui, et il disparut de cette planète de culture.
+Tenant l'âme planétaire, la brume noire monstrueuse qui entourait Wang Lin s'enroula autour de lui, et d'un pas il disparut de cette planète de culture.
 
 Parmi les étoiles, Wang Lin fusionna avec le monde et fonça en avant. Chaque fois qu'il croisait une planète, il s'y précipitait pour dévorer tous ses cultivateurs, extrayait ensuite l'âme de la planète et repartait. Il portait désormais sept âmes planétaires autour de lui.
 
@@ -28,33 +28,33 @@ Des grondements tonitruants résonnaient tandis qu'il progressait, et une aura a
 
 Au fil du temps, son âme originelle guérit. Hormis la blessure sur sa poitrine infligée par la Hache Brise-Ciel, qui saignait encore, il n'y avait pas de problème majeur. Même cette plaie montrait des signes de cicatrisation après avoir absorbé tant de choses. Cependant, l'aura de la Hache Brise-Ciel ralentissait le processus de récupération.
 
-« Si je ne parviens pas à expulser cette aura, la guérison de cette blessure prendra une éternité! » Les yeux de Wang Lin devinrent glacials alors qu'il contemplait le système stellaire étincelant devant lui.
+« Si je ne parviens pas à expulser cette aura, la guérison de cette blessure prendra une éternité! » Les yeux de Wang Lin devinrent glacials alors qu'il contemplait la région stellaire étincelante au loin.
 
 « Absorber la chair et le sang de ces cultivateurs ordinaires ne suffira pas à l'expulser. Je dois absorber la puissance d'un Dieu Ancien... Dans ce Système Stellaire Antique, je ne connais qu'un seul endroit où trouver une telle puissance! »
 
 « C’est le Clan des Esclaves de la Lune! » Les yeux de Wang Lin brillèrent et il laissa échapper un froid reniflement. D'un pas, il fusionna avec le monde et se précipita vers l'emplacement du Clan de la Lune gravé dans sa mémoire.
 
-Le Clan de la Lune comptait de nombreux cultivateurs puissants, dont une multitude de vieux monstres ayant vécu durant des éons. C’était un véritable repaire de dragons et de tigres, où le danger guettait à chaque instant! Cependant, Wang Lin avait d'autres projets. Il savait que durant toutes ces années, le Clan de la Lune n'avait pas été anéanti par Tuo Sen.
+Le Clan de la Lune comptait de nombreux cultivateurs puissants, dont une multitude de vieux monstres ayant vécu durant des éons. C’était un véritable repaire de dragons et de tigres, où le danger guettait à chaque instant! Cependant, Wang Lin avait d'autres projets. Il savait que durant ces dernières années, le Clan de la Lune n'avait pas été anéanti par Tuo Sen.
 
 « Puisque Tuo Sen ne cessera de me pourchasser, je vais simplement l'attirer vers le Clan de la Lune. Je veux voir comment ils comptent résister! » Le regard de Wang Lin devint d'une froideur extrême alors qu'il fusionnait avec le monde et disparaissait.
 
 Le Clan de la Lune était très éloigné de sa position actuelle. Il n'y était jamais allé auparavant et ne connaissait la direction que grâce au membre du Clan de la Lune dont il avait extrait les souvenirs dans le Royaume aux Sept Couleurs. Il savait qu'une seule Distorsion Spatiale ne suffirait pas; il devait répéter l'opération plusieurs fois.
 
-Dans sa course effrénée, il n'avait pas le temps d'observer le Système Stellaire Antique. Le Royaume Extérieur différait du Royaume Intérieur. Peu importe la luminosité du Royaume Intérieur, on y ressentait toujours une sorte de brume, comme si quelque chose s'y trouvait. C'était comme être enfermé dans une cage.
+Dans sa course effrénée, il n'avait pas le temps d'observer le Système Stellaire Antique. Ce lieu différait du ciel étoilé du Royaume Intérieur. Même au plus brillant, celui-ci gardait une sorte de voile de brume, comme si une force avait tout transformé en membrane. C'était comme être enfermé dans une cage.
 
 Si l'on n'avait pas visité le Royaume Extérieur, on ne s'en serait jamais rendu compte, pensant simplement que le monde avait toujours été ainsi.
 
 Pour les cultivateurs du Royaume Extérieur, le Royaume Intérieur était une cage contenant ce qu'ils convoitaient avec avidité. C’était grâce à la Formation du Royaume Scellé que les cultivateurs du Royaume Extérieur pouvaient lancer plan après plan contre le Royaume Intérieur.
 
-Qu'il s'agisse du fruit du Dao aux sept couleurs, de l'effondrement des Royaumes Célestes ou de l'infiltration de traîtres, tout cela affaiblissait considérablement le Royaume Intérieur.
+Qu'il s'agisse de la culture du fruit du Dao aux sept couleurs, de l'effondrement des Royaumes Célestes ou de l'infiltration de traîtres, tout cela affaiblissait considérablement le Royaume Intérieur.
 
 S'il était extrêmement difficile de sortir du Royaume Intérieur, il n'était pas difficile pour les gens du Royaume Extérieur d'y pénétrer. Que ce soit le Souverain ou l'ancien démon et l'ancien diable qui avaient attaqué Qing Lin, ils pouvaient entrer dans la Formation du Royaume Scellé sans aucun problème, un privilège accordé par l'Ancien Royaume Céleste du Royaume Extérieur.
 
-Wang Lin avait appris tout cela du Seigneur du Royaume Scellé. Il avait également découvert qu'en plus d'absorber l'intention du Dao des êtres vivants du Royaume Intérieur, la Formation du Royaume Scellé absorbait aussi l'énergie originelle!
+Wang Lin avait appris tout cela du Seigneur du Royaume Scellé. Il savait aussi que la Formation du Royaume Scellé retenait, en plus des êtres vivants du Royaume Intérieur, l'énergie originelle du ciel et de la terre!
 
 L'énergie originelle dans le Royaume Intérieur semblait infinie, mais elle était en réalité affaiblie au fil des âges. En revanche, elle était illimitée dans le Royaume Extérieur!
 
-Ce qui choqua le plus Wang Lin fut de découvrir que non seulement la formation absorbait l'énergie originelle, mais qu'elle était aussi la raison pour laquelle il y avait si peu de cultivateurs du troisième pas dans le Royaume Intérieur. Au fil des éons, certains génies avaient formé leurs propres essences et n'avaient besoin que de les parfaire pour atteindre le troisième pas. Cependant, à cause de la formation, leurs essences ne pouvaient jamais être achevées, et ils n'avaient d'autre choix que de mourir avec le temps.
+Ce qui choqua le plus Wang Lin fut de découvrir que non seulement la formation retenait l'énergie originelle, mais qu'elle était aussi la raison pour laquelle il y avait si peu de cultivateurs du troisième pas dans le Royaume Intérieur. Au fil des éons, certains génies avaient formé leurs propres essences et n'avaient besoin que de les parfaire pour atteindre le troisième pas. Cependant, à cause de la formation, leurs essences ne pouvaient jamais être achevées, et ils n'avaient d'autre choix que de mourir avec le temps.
 
 Tout cela était dû au manque de Flammes Joss, l'élément le plus crucial pour devenir un cultivateur du troisième pas! Même ceux qui avaient atteint ce stade devaient entrer en hibernation à cause de la Formation du Royaume Scellé, afin d'empêcher leurs essences de se dissiper!
 
@@ -62,9 +62,9 @@ Tout cela était dû au manque de Flammes Joss, l'élément le plus crucial pour
 
 La seule façon d'obtenir des Flammes Joss pour permettre à son essence de croître était de se rendre dans le Royaume Extérieur ou de devenir un espion du Royaume Extérieur, tel que... le Shui Daozi!
 
-Vide du Nirvana, Vide Spirituel, Tribulant du Vide et Vide Arcanique constituaient les quatre grandes étapes du troisième pas. Le Vide du Nirvana n'était pas si terrible, mais atteindre le Vide Spirituel était pratiquement impossible.
+Vide du Nirvana, Vide Spirituel, Tribulation du Vide et Vide Arcanique constituaient les quatre grandes étapes du troisième pas. Le Vide du Nirvana n'était pas si terrible, mais atteindre le Vide Spirituel était pratiquement impossible.
 
-Lorsque le Seigneur du Royaume Scellé descendit, le premier problème qu'il dut résoudre fut celui des Flammes Joss. Il unifia les quatre Royaumes Célestes pour en faire un trésor puissant afin de contrer l'absorption de la Formation du Royaume Scellé.
+Lorsque le Seigneur du Royaume Scellé descendit, le premier problème qu'il dut résoudre fut celui des Flammes Joss. Il organisa les quatre Royaumes Célestes en un pacte, afin de contrer l'absorption de la Formation du Royaume Scellé.
 
 Le Seigneur du Royaume Scellé possédait des sorts et une sagesse immenses. Grâce à son aide, tout progressait dans la bonne direction. En utilisant les quatre Royaumes Célestes, il empêcha la Formation du Royaume Scellé d'absorber les Flammes Joss.
 
@@ -90,7 +90,7 @@ Le Seigneur du Royaume Scellé avait naturellement perçu les cinq essences dans
 
 Il avait choisi de s'intégrer dans la Formation du Royaume Scellé en utilisant ses dernières forces, afin que celle-ci appartienne au Royaume Intérieur. Lorsque le Royaume Intérieur aurait besoin de se reposer et de se rétablir, elle empêcherait l'invasion du Royaume Extérieur, et lorsqu'il serait prêt à riposter, elle s'ouvrirait!
 
-Qu'il réussisse ou non, Wang Lin l'admirait!
+Qu'il réussisse ou non, Wang Lin admirait toute son existence!
 
 « Cet endroit ne m'appartient pas... Je viens du Royaume Intérieur... » Détournant son regard du Système Stellaire Antique, la détermination de Wang Lin se renforça encore.
 
@@ -100,10 +100,10 @@ Il fit un pas en avant, sur le point de fusionner avec le monde, quand soudain i
 
 Trois rayons de lumière le poursuivaient. C'étaient les trois cultivateurs du troisième pas du Système Stellaire Antique qui le traquaient de près!
 
-Le rugissement de Tuo Sen résonna parmi les étoiles. Être pourchassé par ces trois cultivateurs du troisième pas l'avait rendu féroce. Sans le cultivateur du Vide Spirituel, il ne se serait pas enfui. Chaque fois qu'il pensait à ce dernier, la rage de Tuo Sen montait.
+Le rugissement de Tuo Sen résonna parmi les étoiles. Être pourchassé depuis dix ans par ces trois cultivateurs du troisième pas l'avait rendu féroce. Sans le cultivateur du Vide Spirituel, il ne se serait pas enfui. Chaque fois qu'il pensait à ce dernier, la rage de Tuo Sen montait.
 
 Bien qu'impulsif, il n'en demeurait pas moins rusé. Ces trois individus devaient avoir un dessein bien précis en le traquant ainsi! Cependant, alors qu'il était sur le point de rattraper et de dévorer Wang Lin, les trois l'entravèrent davantage. Cela fit atteindre à la colère de Tuo Sen son paroxysme.
 
-« Si je ne chasse pas ces trois-là, je n'aurai aucune chance de dévorer Wang Lin, même si je le rattrape! » Après avoir surgi de la fissure, ses yeux projetèrent une lueur monstrueuse et glaciale. Il fixa l'endroit où Wang Lin avait disparu, puis se retourna brusquement. Son corps s'étendit d'innombrables fois pour reprendre sa forme de Dieu Ancien!
+« Si je ne repousse pas ces trois-là, je n'aurai aucune chance de dévorer Wang Lin, même si je le rattrape! » Après avoir surgi de la fissure, ses yeux projetèrent une lueur monstrueuse et glaciale. Il fixa l'endroit où Wang Lin avait disparu, puis se retourna brusquement. Son corps s'étendit d'innombrables fois pour reprendre sa forme de Dieu Ancien!
 
 « Cela fait dix ans que vous me poursuivez. Serait-ce pour attendre que ce Dieu s'épuise? Alors, ce Dieu va vous donner une chance! » Le rugissement de Tuo Sen fut apocalyptique, faisant trembler l'espace lui-même. Il se retourna et fit un pas direct vers les trois individus qui le poursuivaient à travers la fissure spatiale!

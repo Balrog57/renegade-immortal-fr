@@ -40,7 +40,7 @@ Au sommet de la montagne, les yeux de Wang Lin brillaient intensément.
 
 « C'est effectivement efficace! Les mondes détruits sont fascinants! Malheureusement, après avoir testé de nombreuses lois, seule celle qui empêche le vol a fonctionné. Elle ne peut affecter les trésors et, selon le niveau de culture de la cible, le délai d'application varie. » Wang Lin agita sa main droite et un éclat de lumière sanglante jaillit. L'épée de sang s'élança et disparut vers le vieil homme.
 
-Grâce à la vélocité de l'épée et à la puissance du sort de Wang Lin, elle atteignit une vitesse de Déformation Spatiale. En un éclair, elle apparut sous le vieil homme.
+Grâce à la vélocité de l'épée et à la puissance du sort de Wang Lin, elle atteignit une vitesse de Déformation Spatiale. Après quelques instants, elle apparut sous le vieil homme.
 
 Le vieil homme paniqua. Tandis qu'il tombait, sa vitesse de chute engendra dans le ciel étoilé une sorte de vent violent qui se rua sur son corps, et des craquements retentirent en lui.
 
@@ -76,7 +76,7 @@ Après cinq jours, il était midi le sixième jour. Wang Lin leva soudain les ye
 
 Bien qu'une loi interdisait le vol, elle comportait une limite temporelle. Wang Lin ayant largement dépassé ce délai, il n'en était pas affecté.
 
-Wang Lin émergea du vortex tandis que l'épée de sang vibrait devant lui. Elle bramait pour du sang, mais elle était intelligente et resta silencieuse. Les yeux de Wang Lin brillèrent alors qu'il fixait le vortex et agita sa main droite. Lui et l'épée disparurent.
+Wang Lin se tenait à l'extérieur du vortex, l'épée de sang vibrant devant lui. Elle bramait pour du sang, mais elle était intelligente et resta silencieuse. Les yeux de Wang Lin brillèrent alors qu'il fixait le vortex et agita sa main droite. Lui et l'épée disparurent.
 
 Wang Lin était prêt. S'il s'agissait du Daoïste aux Sept Couleurs ou du Vieux Fantôme Zhan, il s'éclipserait sans hésiter.
 

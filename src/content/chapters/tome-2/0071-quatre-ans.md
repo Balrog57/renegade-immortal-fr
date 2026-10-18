@@ -12,7 +12,7 @@ Wang Lin marmonna pour lui-même: « La quantité d'énergie spirituelle nécess
 
 Situ Nan demanda: « C'est exact. Hé, gamin, quand comptes-tu partir chercher un élément bois pour aider à compléter la perle défiant le ciel? »
 
-Wang Lin réfléchit un instant avant de répondre: « D'abord, je vais trouver un endroit à proximité pour m'isoler et cultiver, afin de tenter d'atteindre l'Établissement des Fondations. Il sera bien temps de chercher à ce moment-là. »
+Wang Lin réfléchit un instant avant de répondre: « D'abord, je vais trouver un endroit à proximité pour m'isoler et cultiver, afin de tenter d'atteindre l'Établissement des Fondations. Tout en surveillant ce qui se passe chez Zhou Peng, si tout reste normal, je quitterai ces lieux. »
 
 La nuit passa dans le silence. Durant les jours qui suivirent, Wang Lin passa du temps avec ses parents. Au bout d'une demi-lunaison, il prit congé. Après les adieux déchirants de ses parents, il s'élança, enveloppé dans une traînée de lumière arc-en-ciel.
 
@@ -25,6 +25,14 @@ Après avoir exploré les environs, Wang Lin trouva une grotte au pied d'un pic 
 Ainsi, la grotte fut totalement hermétiquement close et Wang Lin entama sa deuxième période de culture en isolement.
 
 Une fois son entraînement commencé, le temps s'écoula à une vitesse folle. Un an, deux ans, trois ans, quatre ans... Sans qu'il ne s'en rende compte, quatre années s'étaient écoulées.
+
+Les membres de la Secte Heng Yue du mont Serpent-Éléphant finirent peu à peu par oublier Wang Lin, la plupart pensant qu'il était mort au loin. Liu Wenju et la vieille femme Wang le regrettèrent beaucoup.
+
+Le plus content fut Lu Song, qui devint le grand frère aîné des disciples internes de cette petite secte aux effectifs réduits.
+
+Quant à Huang Long et aux autres, ils n'avaient guère eu de contacts approfondis avec Wang Lin. Ils ne l'avaient remarqué qu'après son apparition soudaine; après quatre ans sans nouvelles, ils l'avaient peu à peu oublié.
+
+Durant la première année de la réclusion de Wang Lin, il garda des contacts réguliers avec Zhou Peng. Il apprit ainsi que tous les cultivateurs de la Secte Xuan Dao au stade de l'Établissement des Fondations et au-delà s'étaient retirés dans la montagne arrière, si bien que nul n'avait remarqué l'anomalie de Zhou Peng. Grâce au statut de disciple principal de Zhou Peng, personne n'osait s'en prendre à lui au sein de la secte, ce qui facilita ses recherches. Zhou Peng élimina en secret plusieurs anciens disciples de la Secte Heng Yue qui avaient leurs propres idées, et le souvenir de Wang Lin disparut peu à peu de toutes les mémoires.
 
 L'entrée de la grotte où Wang Lin cultivait était désormais recouverte de végétation, rendant l'endroit indétectable.
 

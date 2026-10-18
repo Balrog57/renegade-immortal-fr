@@ -12,7 +12,7 @@ L'effort final par l'énergie spirituelle nécessiterait l'aide de la Pilule du 
 
 À chaque mouvement de son corps, les fissures s'élargissaient davantage. Wang Lin se redressa lentement et secoua violemment son buste. Les fragments de glace tombèrent rapidement, emportés comme par un vent puissant.
 
-Ses vêtements se transformèrent également en poussière et disparurent. Seule l'armure intérieure en peau de dragon subsistait, en lambeaux sur son corps.
+Ses vêtements se transformèrent également en poussière et disparurent. Seule l'armure intérieure en peau de dragon subsistait, légèrement abîmée, sur son corps.
 
 Wang Lin resta immobile et silencieux, les yeux clos. Après un long moment, il les rouvrit, une lueur bleue émanant de ses pupilles, et ses poings se serrèrent lentement. Bien qu'il n'en fût qu'à la moitié du chemin vers le stade de la Formation du Noyau en termes de culture, sa Méthode de Culture de l'Ascension des Enfers avait atteint son achèvement.
 
@@ -22,9 +22,9 @@ Au lieu de dégager de la chaleur, cette flamme émettait un froid glacial. Elle
 
 Dès l'apparition de la Flamme des Enfers, la glace bleue qui l'entourait commença immédiatement à dégager une vapeur blanche, comme si elle était sur le point de fondre. Wang Lin agita la main et la flamme disparut. La vapeur se dissipa lentement, révélant un creux dans la glace.
 
-Wang Lin s'étonna intérieurement de la puissance de la flamme avant de regarder autour de lui et d'enfiler un nouvel ensemble de vêtements. Les yeux fixés sur les ossements, il se mit à réfléchir. Après un moment, il s'assit en position de lotus et sortit le crâne du dragon.
+Wang Lin s'étonna intérieurement de la puissance de la flamme avant de regarder autour de lui et d'enfiler un nouvel ensemble de vêtements. Les yeux fixés sur les ossements, il se mit à réfléchir. Une demi-heure plus tard, il s'assit en position de lotus et sortit le crâne du dragon.
 
-En contemplant le crâne, les yeux de Wang Lin s'illuminèrent. Il décida de se rendre à la ville de Nan Dou pour échanger un fourneau à pilules afin que Li Muwan puisse achever la Pilule du Ciel Lointain. Bien que trois ans se soient écoulés en un clin d'œil, il savait, grâce au lien ténu qui l'unissait à son sang d'essence spirituelle, que Li Muwan n'avait couru aucun danger.
+En contemplant le crâne, les yeux de Wang Lin s'illuminèrent. Il décida de se rendre à la ville de Nan Dou pour échanger un fourneau à pilules afin que Li Muwan puisse achever la Pilule du Ciel Lointain. Bien que trois ans se soient écoulés en un clin d'œil, il savait, grâce au lien ténu qui l'unissait à son sang d'essence de l'âme, que Li Muwan n'avait couru aucun danger.
 
 Cependant, face à l'innombrable quantité d'ossements de bêtes gelées, il hésita. La technique de raffinage du Sanctuaire du Dieu de la Guerre exigeait un fourneau de réaction.
 
@@ -54,7 +54,7 @@ Sans hésiter, Wang Lin pressa les fils d'énergie spirituelle. Cette fois, ils 
 
 Cependant, après un quart d'heure, le crâne changea de couleur trois fois avant de se briser en cendres. Il restait désormais beaucoup moins de fils; ils semblaient avoir perdu une grande partie de leur énergie spirituelle.
 
-Wang Lin fronça les sourcils. La difficulté de fabriquer ce fourneau était bien plus élevée qu'il ne l'avait imaginé. Il comprit que si si peu de personnes maîtrisaient la technique de raffinage, c'était précisément à cause de ce fourneau de réaction.
+Wang Lin fronça les sourcils. La difficulté de fabriquer ce fourneau était bien plus élevée qu'il ne l'avait imaginé. Il comprit que si peu de personnes maîtrisaient la technique de raffinage, c'était précisément à cause de ce fourneau de réaction.
 
 Il fallait déjà une chance inouïe pour obtenir le crâne d'une bête spirituelle, et pour un fourneau de réaction, l'idéal était le crâne d'une bête venant de mourir — et plus la qualité de la bête était haute, mieux c'était. Utiliser le crâne d'une bête morte depuis longtemps réduisait drastiquement les chances de succès.
 
@@ -72,7 +72,7 @@ Il continua ainsi, sans relâche. Wang Lin ne savait plus combien de crânes il 
 
 Ses sourcils se froncèrent encore plus profondément. Finalement, il s'élança dans les airs et scruta froidement les environs. Il projeta les fils d'énergie spirituelle qui commencèrent à graviter autour de lui.
 
-Ses mains s'ouvraient et se fermaient sans cesse. À chaque mouvement, de nouveaux fils apparaissaient. Ses gestes devinrent de plus en plus rapides, et les fils tombèrent comme une pluie incandescente. Progressivement, la masse d'énergie spirituelle augmenta.
+Ses mains s'ouvraient et se fermaient sans cesse. À chaque mouvement, de nouveaux fils apparaissaient. Ses gestes devinrent de plus en plus rapides, et les fils se fondirent dans la masse comme une pluie. Progressivement, la masse d'énergie spirituelle augmenta.
 
 Le nombre de fils croissait de manière prodigieuse; il ne s'arrêta pas, utilisant jusqu'à l'épuisement toute l'énergie spirituelle de son corps. Il prit rapidement quelques gorgées de liquide spirituel pour continuer à tisser ses filaments.
 
@@ -166,7 +166,7 @@ Le démon fut stupéfait. Il força un sourire, se frotta les mains et demanda: 
 
 Wang Lin leva la tête vers lui. D'un geste de la main, il fit sortir le tendon de dragon de son sac de rangement. Il plongea la main dans le fourneau pour récupérer la moitié de la sphère qui y était retournée. Ses yeux brillèrent et le tendon de dragon s'envola instantanément vers la boule.
 
-Après un certain temps de raffinage, la sphère rétrécit continuellement. Finalement, elle redevint le tendon de dragon, mais d'une couleur dorée. Wang Lin regarda le démon qui y pénétra docilement.
+Après un certain temps de raffinage, la sphère rétrécit continuellement. Finalement, elle redevint le tendon de dragon, mais d'une couleur dorée. Wang Lin regarda le démon qui y pénétra d'un air étrange.
 
 D'un mouvement du bras droit, il fit redescendre le tendon de dragon. Après l'avoir observé un moment, il le rangea. Il leva les yeux vers la paroi de glace bleue qui le surplombait. La Flamme des Enfers bleue apparut dans sa main et il s'élança vers le haut.
 
@@ -188,13 +188,13 @@ En règle générale, celui qui possédait une cité jouissait d'un statut prest
 
 Heureusement, le seigneur de Nan Dou avait disparu il y a 500 ans, laissant la région sans direction, tel un dragon sans tête. C'est ce vide qui permit à de grandes organisations, comme la Secte de la Lutte contre le Mal, de s'y implanter.
 
-Devenue une cité sans maître dans la Mer des Démons, Nan Dou était désormais gérée par quelques grandes sectes. Cependant, étant située à la lisière de la Mer des Démons, les ressources y étaient rares et l'absence de veines spirituelles faisait que les cultivateurs de l'Âme Naissante s'y rendaient rarement. En conséquence, dans un rayon d'un million de kilomètres autour de Nan Dou, on ne trouvait aucun expert de l'Âme Naissante, mais une multitude de cultivateurs de la Formation du Noyau.
+Devenue une cité sans maître dans la Mer des Démons, Nan Dou était désormais gérée par quelques grandes sectes. Cependant, étant située à la lisière de la Mer des Démons, les ressources y étaient rares et l'absence de veines spirituelles faisait que les cultivateurs de l'Âme Naissante s'y rendaient rarement. En conséquence, dans un rayon de cinq cent mille kilomètres autour de Nan Dou, on ne trouvait aucun expert de l'Âme Naissante, mais une multitude de cultivateurs de la Formation du Noyau.
 
 On disait que si un cultivateur de l'Âme Naissante apparaissait ici, il deviendrait instantanément le nouveau seigneur de la ville.
 
 Certes, certains avaient tenté de prendre le contrôle, mais aucun n'avait pu supporter la pénurie d'énergie spirituelle et l'aridité des terres; tous avaient fini par renoncer.
 
-À un certain point, les cultivateurs de l'Âme Naissante cessèrent tout simplement de venir. Après tout, avec près de 1000 cités dans la Mer des Démons, personne n'avait de raison de s'attarder dans une ville aussi médiocre que Nan Dou.
+À un certain point, les cultivateurs de l'Âme Naissante cessèrent tout simplement de venir. Après tout, avec près de 1000 cités dans la Mer des Démons, personne n'avait de raison de s'attarder dans ce trou perdu de Nan Dou.
 
 Actuellement, la gestion de la ville était partagée entre la Secte de la Punition Céleste, la Secte de l'Extinction de l'Âme et la Secte du Chemin Unique. Bien que la Secte de la Lutte contre le Mal possédât une puissance suffisante pour prétendre au pouvoir, l'alliance des trois autres sectes l'empêchait de s'implanter durablement.
 
@@ -202,4 +202,4 @@ Après tout, diviser le contrôle d'une cité en trois était bien plus simple q
 
 Après avoir payé dix pierres spirituelles de basse qualité pour obtenir son jeton d'entrée, Wang Lin traversa rapidement les rues en direction du Pavillon de Raffinage des Trésors, situé à l'est.
 
-Le pavillon comptait trois étages, les articles de chaque niveau étant plusieurs fois plus onéreux que ceux du précédent. À cet instant, sept ou huit cultivateurs marchandaient avec les employés à l'intérieur.
+Le pavillon comptait trois étages, les articles de chaque niveau étant plusieurs fois plus onéreux que ceux du précédent. À cet instant, sept ou huit cultivateurs marchandaient avec les employés au premier niveau.

@@ -48,7 +48,7 @@ Il n'y avait toujours pas de Formation de Scellement du Domaine séparant les Ro
 
 Wang Lin vit de ses propres yeux la troisième âme foncer dans la carte stellaire. Bien qu'elle ne se dirigeât pas vers le centre, elle s'en approchait. En divisant soigneusement la carte, il était évident qu'il s'agissait du Domaine Intérieur!
 
-« Le Domaine Intérieur! La troisième âme est allée dans le Domaine Intérieur! » Les yeux de Wang Lin brillèrent d'une lueur étrange et il disparut en un éclair. Le Daoïste aux Sept Couleurs laissa échapper un rugissement et ses mains formèrent un sceau. La carte stellaire commença à s'étendre rapidement, et la troisième âme qui avait disparu fut de nouveau repérée!
+« Le Domaine Intérieur! La troisième âme est allée dans le Domaine Intérieur! » Les yeux de Wang Lin brillèrent d'une lueur étrange. La troisième âme disparut en un éclair après être entrée dans le Domaine Intérieur. Le Daoïste aux Sept Couleurs laissa échapper un rugissement et ses mains formèrent un sceau. La carte stellaire commença à s'étendre rapidement, et la troisième âme qui avait disparu fut de nouveau repérée!
 
 La troisième âme perça la Mer des Nuages actuelle et vola vers la Rivière Invoquée.
 

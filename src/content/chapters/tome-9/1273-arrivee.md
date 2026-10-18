@@ -10,7 +10,7 @@ Une silhouette solitaire se mouvait parmi les étoiles, vêtue de blanc et coiff
 
 Des traces de larmes marquaient encore son visage alors qu'elle mordillait sa lèvre inférieure, accélérant sans cesse sa course.
 
-« Il y a des choses dans ce monde qui n'ont aucune logique, et l'on ne peut que se fier à ses sentiments. Peu importe que cela en vaille la peine ou non, il fallait le faire... » Elle poussa un soupir, endurant la tristesse et l'amertume qui lui serraient le cœur, puis vola plus vite encore.
+« Il y a des choses dans ce monde qui n'ont aucune logique, et il faut s'y accrocher. Peu importe que cela en vaille la peine ou non, il fallait le faire... » Elle poussa un soupir, endurant la tristesse et l'amertume qui lui serraient le cœur, puis vola plus vite encore.
 
 Dans la région de rang 9, là où se trouvait la Secte Divine, une planète de culture était dissimulée au plus profond du brouillard. Une immense formation s'y déployait, et en son centre trônait un palais magnifique.
 
@@ -96,7 +96,7 @@ La paume géante et désolée marqua un arrêt soudain, tandis qu'un incessant c
 
 Un grondement assourdissant retentit, comme si le monde allait s'effondrer. La peau de la main éclata, mais, étrangement, aucun sang ne coula et aucune trace d'énergie originelle n'en sortit!
 
-La main se redressa après cette pause, et une exclamation étouffée parvint du brouillard infini derrière elle.
+La main se redressa après cette pause, et une petite exclamation de surprise parvint du brouillard infini derrière elle.
 
 Une voix ancienne émergea de la brume alors qu'une pression colossale descendait soudainement du ciel: « Tu as du talent! Cependant, comment une luciole peut-elle se comparer à la lune? Comment oses-tu t'élever devant moi? Redescends! »
 
@@ -116,7 +116,7 @@ Ce sort était suffisant pour tuer n'importe quel Briseur du Nirvana, et même l
 
 Il ne restait qu'un point rouge au centre de la paume, et une goutte de sang tomba.
 
-Les sorts de Wang Lin avaient pu détruire quatre doigts du Maître du Dao Rêve Bleu. Désormais, sa puissance avait considérablement augmenté, et la force des épées déverrouillées n'avait rien d'ordinaire!
+Les sorts de Wang Lin avaient pu détruire les quatre doigts illusoires du Maître du Dao Rêve Bleu. Désormais, sa puissance avait considérablement augmenté, et la force des épées déverrouillées n'avait rien d'ordinaire!
 
 Lors de son premier échange avec le Shui Daozi, Wang Lin avait craché du sang. Une douleur intense lui avait déchiré les os et le corps, et il avait été projeté au sol depuis le ciel.
 

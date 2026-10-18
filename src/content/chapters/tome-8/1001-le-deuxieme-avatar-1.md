@@ -28,7 +28,7 @@ En un instant, plus de la moitié de la Terre des Esprits Démoniaques fut plong
 
 Même les généraux démons et les commandants en chef étaient saisis de crainte en levant les yeux vers le ciel. Ils pouvaient vaguement distinguer que ce tonnerre n'était pas naturel, mais qu'il résultait d'un sortilège!
 
-Bien que tout cela puisse paraître long, l'événement ne dura que quelques secondes. Sous le rugissement de l'âme originelle du dragon de tonnerre ancestral de Wang Lin, tous les éclairs qui couvraient plus de la moitié de la Terre des Esprits Démoniaques se précipitèrent vers la vallée située derrière la capitale du Pays des Démons de Feu.
+Bien que tout cela puisse paraître long, l'événement ne dura que quelques secondes. Sous le rugissement de l'âme originelle du dragon de tonnerre ancestral de Wang Lin, tous les éclairs qui couvraient plus de la moitié de la Terre des Esprits Démoniaques se précipitèrent, tels des serpents d'argent, vers la vallée de la capitale du Pays des Démons de Feu.
 
 L'éclat des foudres provoqua un fracas assourdissant, comme si la colère des cieux descendait pour rendre son verdict. Si l'on avait regardé d'en haut, on aurait vu d'innombrables éclairs converger vers le corps de Wang Lin dans la vallée!
 
@@ -74,15 +74,15 @@ L'expression de Wang Lin devint étrange. Hormis la paire de cornes, le démon a
 
 Wang Lin s'approcha lentement et remarqua quelques points cruciaux.
 
-Les dieux ancestraux pouvaient absorber la puissance du Ciel et de la Terre par l'intermédiaire de leurs esclaves divins pour accroître leur niveau de culture. Les démons ancestraux appartenant au même ordre ancestral, ils devaient disposer de méthodes similaires.
+Les dieux ancestraux pouvaient absorber la puissance du Ciel et de la Terre par l'intermédiaire de leurs esclaves divins pour accroître leur niveau de culture. Les démons ancestraux, issus d'une même lignée ancienne, devaient disposer de méthodes similaires.
 
-Il était évident que toute la Terre des Esprits Démoniaques avait été conçu pour permettre à un démon ancestral d'absorber la puissance du Ciel et de la Terre. L'ancien démon Bei Luo avait autrefois affirmé qu'il avait été scindé en neuf parties, et c'est ainsi que ces neuf pays étaient nés!
+Il était évident que toute la Terre des Esprits Démoniaques avait été conçue pour permettre à un démon ancestral d'absorber la puissance du Ciel et de la Terre. L'ancien démon Bei Luo avait autrefois affirmé qu'il avait été scindé en neuf parties, et c'est ainsi que ces neuf pays étaient nés!
 
-Les peuples de ces neuf pays avaient progressivement évolué sous les enseignements du démon ancestral en apprenant des sorts. C'est ainsi que les neuf pays démoniaques s'étaient lentement formés.
+Les peuples de ces neuf pays avaient progressivement évolué, pendant des dizaines de milliers d'années, sous les enseignements du démon ancestral, en apprenant des sorts. C'est ainsi que les neuf pays démoniaques s'étaient lentement formés.
 
 Chaque esprit de démon ancien représentait l'existence suprême de chacun de ces pays. Ils absorbaient l'énergie démoniaque des habitants pour se guérir lentement, espérant briser leurs restrictions, avant de dévorer les autres esprits de démon pour redevenir un véritable démon ancestral!
 
-L'arrivée de Wang Lin et sa coopération avec l'ancien démon Bei Luo avaient provoqué un changement retentissant dans cette impasse qui aurait dû durer encore d'innombrables années!
+L'arrivée de Wang Lin et sa coopération avec l'ancien démon Bei Luo avaient provoqué un bouleversement retentissant dans un processus qui aurait encore pris d'innombrables années!
 
 Grâce à l'aide de Wang Lin, l'ancien démon Bei Luo avait quitté son pays démoniaque et réussi à dévorer l'esprit de démon ancien du Pays des Démons de Feu. Bei Luo était ainsi devenu le plus puissant des huit esprits restants et avait obtenu le pouvoir de quitter son territoire!
 
@@ -100,7 +100,7 @@ Pour être plus précis, ce démon ancestral n'était qu'un vestige!
 
 Tout en réfléchissant, Wang Lin s'approcha du démon ancestral qui lui ressemblait trait pour trait. Les yeux de celui-ci restaient clos, sans aucun signe de réveil.
 
-Wang Lin pressa directement l'espace entre les sourcils du démon ancestral et injecta son sens divin pour fouiller ses souvenirs.
+Wang Lin pressa directement la main sur la tête du démon ancestral et injecta son sens divin pour fouiller ses souvenirs.
 
 Il vit le ciel autrefois radieux au-dessus du Pays des Démons des Nuages s'obscurcir soudainement. Une tempête se forma et, alors que les nuages s'accumulaient, une silhouette de couleur sang fendit le ciel en direction de la tour royale à neuf étages du Pays des Démons des Nuages.
 
@@ -114,6 +114,6 @@ Dans l'effondrement, une ombre démoniaque floue s'envola, entourée d'une lumi�
 
 « Cela fait si longtemps, et pourtant le niveau de culture de ce Démon des Nuages n'a pas progressé du tout. Quel gaspillage! C'est une honte pour moi, en tant que démon ancestral! » Bei Luo laissa échapper un reniflement froid avant de disparaître.
 
-Le Pays des Démons des Nuages s'effondra, car il n'y avait plus d'esprit de démon ancien pour le soutenir!
+Le Pays des Démons des Nuages s'effondra, et il ne restait plus aucun esprit démoniaque!
 
-Cependant, trois jours après le départ de Bei Luo, une ombre extrêmement faible s'échappa des ruines de la tour du Pays des Démons des Nuages. Elle était habitée par la haine et la confusion tandis qu'elle avançait prudemment.
+Cependant, trois jours après le départ de Bei Luo, une ombre extrêmement faible s'échappa des ruines de la tour du Pays des Démons des Nuages. Elle portait une trace de haine et de confusion tandis qu'elle avançait prudemment.

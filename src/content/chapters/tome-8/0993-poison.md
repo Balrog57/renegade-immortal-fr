@@ -14,7 +14,7 @@ Boum, boum, boum! Ce son tellurique remplaça tous les autres bruits sur la plan
 
 Le Doigt du Tremblement de Montagne de Situ Nan, qui avait rassemblé toutes les âmes des montagnes de la planète, entra en collision avec le poing de Wang Lin. Une onde de choc dévastatrice se propagea, provoquant d'énormes vagues sur l'océan!
 
-Situ Nan rit et recula. Une lueur d'admiration dans ses yeux tandis qu'il souriait: « Cela fait bien longtemps que nous ne nous sommes pas vus. Wang Lin, je ne t'ai pas vu depuis des centaines d'années, et tu m'as vraiment surpris aujourd'hui! »
+Situ Nan rit et recula. Une lueur d'admiration dans ses yeux tandis qu'il souriait: « On dit que, séparés trois jours, on se regarde d'un œil neuf. Wang Lin, je ne t'ai pas vu depuis des centaines d'années, et tu m'as vraiment surpris aujourd'hui! »
 
 Wang Lin recula également d'environ 330 mètres, en riant: « On dirait que tu as dû te lancer dans une culture intensive en porte fermée durant ces centaines d'années! »
 
@@ -34,7 +34,7 @@ Une table en jade blanc trônait entre eux, avec un pichet de vin et divers obje
 
 Wang Lin prit sa coupe, en but une gorgée, puis secoua la tête: « Si ce n'était pour certains imprévus sur le chemin de la planète Tian Yun, je n'en serais pas à mon niveau de culture actuel. »
 
-Situ Nan afficha une expression entre le sourire et la moue, puis posa sa coupe en riant: « J'ai entendu parler de la guerre entre Luotian et l'Alliance sur la planète Feng Luan, ainsi que de la renommée du Céleste du Tonnerre de Luotian. Je ne m'attendais pas à ce que ce soit toi! »
+Situ Nan afficha une expression entre le sourire et la moue, puis posa sa coupe en riant: « J'ai entendu parler de la guerre entre Luotian et l'Alliance sur la planète Feng Luan, ainsi que de la renommée de Xu Mu, le Céleste du Tonnerre de Luotian. Je ne m'attendais pas à ce que ce soit toi! »
 
 Le visage de Wang Lin resta impassible et il sourit simplement: « J'ai juste eu de la chance. »
 
@@ -56,7 +56,7 @@ En un éclair, des centaines d'années s'étaient écoulées, et aujourd'hui, il
 
 La vie d'un homme n'est que cela!
 
-Alors que Wang Lin contemplait Situ Nan, les souvenirs du passé traversèrent également son esprit. Ces souvenirs étaient très anciens, mais Wang Lin s'en souvenait avec une clarté absolue. Il ne pouvait oublier ses paroles prononcées jadis sous le ciel nocturne:
+Alors que Wang Lin contemplait Situ Nan, les souvenirs du passé traversèrent également son esprit. Ces souvenirs étaient très anciens, mais Wang Lin s'en souvenait avec une clarté absolue. Il ne pouvait oublier ses paroles prononcées jadis sous le ciel:
 
 « Moi, Wang Lin, ne m'inclinerai jamais devant les cieux, ni ne rendrai hommage à aucun fantôme ou dieu. Je ne m'incline que devant mes parents et je rends hommage à Situ! »
 
@@ -68,7 +68,7 @@ Sans les Doigts de la Mort, les Doigts Démoniaques et les Doigts de l'Inframond
 
 Sans Situ, lorsque Wang Lin fut attaqué par le Démon Éparpillé dans la Terre des Esprits Démoniaques, il serait mort sans le Doigt de la Mort...
 
-Et il y avait aussi la perle défiant les cieux! Si Situ Nan avait eu la moindre trace de cupidité, il n'aurait jamais laissé Wang Lin conserver un trésor aussi mystérieux. Si Situ l'avait pris, Wang Lin serait mort. C'est pour cela que Situ s'était contenté de sourire et de dire:
+Et il y avait aussi la perle défiant les cieux! Si Situ Nan avait eu la moindre trace de cupidité, il n'aurait jamais laissé Wang Lin conserver un trésor aussi mystérieux. Si Situ l'avait pris, Wang Lin serait mort, car la perle s'était fondue dans son esprit primordial. C'est pour cela que Situ s'était contenté de sourire et de dire:
 
 « Je te le donne! »
 
@@ -84,7 +84,7 @@ Situ Nan ne posa aucune question supplémentaire sur l'étrangeté de la culture
 
 Wang Lin sourit et acquiesça sans chercher à en savoir plus. Il discuta avec Situ Nan au fil des coupes de vin jusqu'au cœur de la nuit. La lune brillait intensément dans le ciel. Malgré la fraîcheur, un calme profond régnait. Parler de la vie avec un ami apportait une paix infinie à l'esprit de Wang Lin.
 
-Il n'avait pas ressenti cette chaleur depuis très longtemps. Ce genre de chaleur surgit naturellement auprès des vieux amis. C'était comme s'il était revenu sur la planète Suzaku, là où ses destins et ceux de Situ Nan étaient liés.
+Il n'avait pas ressenti cette chaleur depuis très longtemps. Ce genre de chaleur surgit naturellement auprès des vieux amis. C'était comme s'il était revenu sur la planète Suzaku, où, dans la perle défiant les cieux, il survivait aux côtés de Situ Nan.
 
 « Tu étais aussi célèbre dans le Système Stellaire du Tout-Ciel, et on peut dire que tu t'y es bien amusé. Mais pauvre de moi, je m'amusais pourtant très bien sur la planète Feng Luan, jusqu'à ce que je surprenne par hasard ces maudites femmes de la planète Feng Luan dans leurs amours entre femmes. Ce n'était pas grand-chose dans le monde de la culture... Je ne m'en suis pas soucié; je me suis contenté de les regarder et d'enregistrer leurs images sur un jade », dit Situ Nan, l'air déprimé, en prenant une grande gorgée de vin.
 
@@ -102,7 +102,7 @@ Situ Nan posa sa coupe et eut un sourire désabusé: « Je ne sais pas d'où ces
 
 « Ce poison est un vestige du Royaume Céleste; avant son effondrement, il était fabriqué en raffinant d'innombrables êtres célestes pendant plusieurs centaines d'années. Ce poison n'a aucun effet sur les mortels, mais il cible les êtres célestes! Une fois qu'il pénètre dans le corps, il est impossible de l'extirper, car il fusionne totalement avec l'âme originelle.
 
-« L'effet principal de ce poison réside dans ses trois jours de paradis et ses trois jours d'enfer. Pendant les trois premiers jours, tu es plongé dans un état d'illusion qui épuise toute ta puissance mentale. Puis viennent les trois jours suivants où tu vis l'agonie. Le septième jour, ton âme originelle est totalement détruite!
+« L'effet principal de ce poison réside dans ses trois jours de paradis et ses trois jours d'enfer. Pendant les trois premiers jours, tu es plongé dans un état d'illusion qui épuise toute ta puissance mentale. Puis viennent les trois jours suivants où tu vis l'agonie. Le septième jour, ton corps et ton âme originelle sont totalement détruits!
 
 « Bien qu'il faille sept jours pour mourir, dès l'instant de l'empoisonnement, on perd toute sa culture... »
 

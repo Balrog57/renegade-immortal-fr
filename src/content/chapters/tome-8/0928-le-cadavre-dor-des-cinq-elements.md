@@ -26,7 +26,7 @@ Une fine couche de brume d'eau apparut devant le corps de Wang Lin. Lorsqu'il te
 
 Les gouttes de pluie continuaient de se former tandis que l'énergie originelle du monde s'accumulait au sein du gaz noir. Un fragment d'énergie originelle céleste émana du corps de Wang Lin pour entrer en communion avec le monde.
 
-En un clin d'œil, des dizaines de milliers de gouttes de pluie se formèrent dans le vortex noir entourant Wang Lin. Chaque goutte contenait une puissance phénoménale!
+En un clin d'œil, dix mille gouttes de pluie se formèrent dans le vortex noir entourant Wang Lin. Chaque goutte contenait une puissance phénoménale!
 
 Une trace d'énergie spirituelle céleste imprégnait ce vortex, donnant à Wang Lin l'apparence d'un être céleste! Les bras tendus, il semblait flotter parmi les étoiles. Le vent noir autour de lui tournait avec acharnement tandis que les gouttes de pluie se formaient et gravitaient autour de lui. Ces perles d'eau ressemblaient à des cristaux; elles étaient d'une beauté sublime vue de loin.
 
@@ -120,4 +120,4 @@ Le regard de Wang Lin était glacial. Restant très calme, il recula rapidement 
 
 La colère du Serpent aux yeux de lune était semblable au doigt de l'ancien dieu. Plus sa fureur était grande, plus ce sortilège devenait puissant. Un grondement tonitruant émana de la coque et d'innombrables fissures apparurent, comme si une force inimaginable surgissait de l'intérieur. En un instant, la coque noire vola en éclats!
 
-Au moment de son effondrement, un doigt d'ancien dieu, rugueux et massif, jaillit!
+Au moment de son effondrement, un doigt d'ancien dieu, rugueux, jaillit!

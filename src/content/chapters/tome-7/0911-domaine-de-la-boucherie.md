@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 911 - Slaughter Domain
 slug: domaine-de-la-boucherie
 ---
-La terreur se lut dans les yeux de Yu Fei. Il pouvait voir que la culture de ce Xu Mu était extrêmement singulière. Bien que le niveau de culture de Xu Mu ne fût qu'au début du stade Scruteur du Nirvana, son corps physique était assez puissant pour surclasser les trésors qu'il avait affinés avec ses avatars!
+La terreur se lut dans les yeux de Yu Fei. Il pouvait voir que la culture de ce Xu Mu était extrêmement singulière. Bien que le niveau de culture de Xu Mu ne fût qu'au début du stade Scruteur du Nirvana, son corps physique était assez puissant pour résister aux trésors qu'il avait affinés avec ses avatars!
 
 Cette réalisation fit trembler son esprit.
 
@@ -38,7 +38,7 @@ L'expression de Wang Lin demeura indifférente. Face à la lame colossale formé
 
 Cette stature imposante dégageait une aura ancienne et puissante. Il ne chercha pas à esquiver, laissant la grande épée s'écraser contre lui. Wang Lin ne cilla même pas; c'est l'épée qui se brisa!
 
-Si Wang Lin n'avait pas fusionné, il n'aurait jamais osé affronter les trésors d'un cultivateur Scruteur du Nirvana au stade intermédiaire. Cependant, ayant fusionné avec son corps original, il était capable de résister totalement à de tels artefacts. En particulier, la puissante énergie d'origine émanant de son corps repoussa tous les trésors approchant.
+Si Wang Lin n'avait pas fusionné, il n'aurait jamais osé affronter les trésors d'un cultivateur Scruteur du Nirvana au stade intermédiaire. Cependant, ayant fusionné avec son corps original, il était capable de résister totalement à de tels artefacts. En particulier, la puissante énergie d'origine qui circulait en lui dissipa entièrement l'énergie des trésors ayant pénétré son corps.
 
 Quant au python qui suivait de près l'épée et tentait toujours d'engloutir Wang Lin, celui-ci resta impassible, saisit la tête du reptile et la broya directement.
 
@@ -56,7 +56,7 @@ Voyant Yu Fei sur le point de s'échapper, les yeux de Wang Lin se remplirent d'
 
 À cet instant, le corps de Yu Fei avait déjà pénétré le vortex. Celui-ci tournait rapidement et se contractait sans cesse, sur le point de disparaître totalement.
 
-Le regard de Wang Lin devint glacial et l'hymne d'un fourneau résonna autour de lui. L'illusion d'un fourneau de plusieurs centaines de pieds apparut devant lui!
+Le regard de Wang Lin devint glacial et le tintement d'un fourneau résonna autour de lui. L'illusion d'un fourneau de plusieurs centaines de pieds apparut devant lui!
 
 Le Fourneau du Dieu Ancien. Lorsque l'avatar de Wang Lin l'utilisait, il devait recourir au sceau laissé par la Cupidité. Mais après avoir fusionné avec son corps original, sa maîtrise était bien plus absolue!
 
@@ -66,7 +66,7 @@ Au moment où les deux se croisèrent, les deux doigts de Wang Lin formèrent un
 
 ***
 
-Dans le Domaine de la Boucherie du Système Stellaire de l'Alliance, composé de deux temples, quatre Saints et huit domaines!
+Dans le Domaine de la Boucherie du Système Stellaire de l'Alliance, composé de deux temples, quatre saints et huit domaines!
 
 Un vortex elliptique apparut soudainement près d'un édifice ressemblant à une épée plantée dans le sol. Une force d'attraction mystérieuse émana du vortex, attirant l'attention des cultivateurs du Domaine de la Boucherie.
 
@@ -94,9 +94,9 @@ Un rugissement de rage monta du rayon rouge et, en un éclair, un bras droit des
 
 « Xu Mu!!! » Le rayon rouge s'éclaircit et révéla une silhouette. C'était un homme extrêmement vieux aux cheveux rouges. À cet instant, il poussa un cri de rage pure.
 
-Au fil des millénaires, leur Domaine de la Boucherie n'avait jamais vu l'un des leurs être assassiné au sein même de ses propres murs devant leurs yeux impuissants. Une telle honte équivalait à voir l'ennemi massacrer tout le monde jusqu'au cœur de leur sanctuaire!
+Au fil des millénaires, leur Domaine de la Boucherie n'avait jamais vu l'un des leurs être assassiné au sein même de ses propres murs devant leurs yeux impuissants. Une telle honte équivalait à voir l'ennemi frapper jusqu'au cœur de leur sanctuaire!
 
-Des rugissements s'élevèrent des autres tours et des cultivateurs, animés par une intention meurtrière, apparurent. Chacun d'eux fixait l'endroit où Yu Fei avait péri, plongé dans une réflexion silencieuse.
+Des rugissements s'élevèrent des autres tours et des cultivateurs, animés par une intention meurtrière, apparurent. Chacun d'eux fixait l'endroit où Yu Fei avait péri, avant de sombrer peu à peu dans le silence.
 
 Ce silence générait une intention meurtrière inimaginable, contenue de force, prête à exploser.
 
@@ -110,7 +110,7 @@ Après réflexion, Wang Lin observa la branche dans sa main et la rangea. L'obte
 
 « Cet objet me garantira la paix dans la région occidentale de l'Alliance! » Le corps de Wang Lin vacilla et disparut.
 
-Lorsqu'il réapparut, il se trouvait sur le dos de Lei Ji. Le garçon à la grosse tête fut surpris, mais en voyant Wang Lin revenir, il se détendit et afficha un regard respectueux.
+Lorsqu'il réapparut, il se trouvait sur le dos de Lei Ji. Le garçon à la grosse tête, encore inquiet, se détendit en voyant Wang Lin revenir et afficha un regard respectueux.
 
 Ta Shan, légèrement blessé lors du combat contre l'avatar de Yu Fei, était assis là pour récupérer. Wang Lin s'installa sur le dos de Lei Ji et dit calmement: « Lei Ji, trouve-moi une planète cachée et déserte. Je veux me consacrer à la culture en méditation fermée! »
 

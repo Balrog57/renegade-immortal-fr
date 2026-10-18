@@ -22,7 +22,7 @@ La zone environnante devint aussi lisse qu'un miroir. Toutes les roches saillant
 
 Wang Lin redescendit et s'assit au centre. Il frappa sa sacoche de stockage, et tout le jade céleste qu'il avait obtenu des trois familles s'en échappa pour retomber autour de lui en amas denses.
 
-Il frappa à nouveau sa sacoche, et l'étendard de l'âme d'un milliard d'âmes vola hors du sac. Tous les fragments fusionnèrent pour former les trois âmes primaires ultimes qui commencèrent à patrouiller la zone. Le garde céleste s'éleva également dans les airs pour observer attentivement les environs. Quiconque tenterait de s'approcher serait instantanément tué.
+Il frappa à nouveau sa sacoche, et l'étendard de l'âme d'un milliard d'âmes vola hors du sac. Tous les fragments fusionnèrent pour former les trois grandes âmes primaires qui commencèrent à patrouiller la zone. Le garde céleste s'éleva également dans les airs pour observer attentivement les environs. Quiconque tenterait de s'approcher serait instantanément tué.
 
 Une fois ces préparatifs achevés, Wang Lin prit une profonde inspiration, forma un sceau de la main et ferma les yeux.
 
@@ -36,7 +36,7 @@ De plus en plus d'énergie spirituelle céleste imprégna le corps de Wang Lin, 
 
 À cet instant, dans le lointain Système Stellaire de l'Alliance, se trouvait une planète abandonnée. Cette planète n'était pas vaste, bien plus petite que la planète Suzaku, et elle était dépourvue de toute vie.
 
-Ce jour-là, trois rayons d'énergie d'épée traversèrent rapidement les étoiles. Celle qui menait le groupe était une femme vêtue d'une robe de coton violet clair. Sa tenue était simple mais pleine de goût, dégageant une élégance naturelle. Un léger rouge à lèvres couleur prune ornait ses lèvres délicates. Son visage unique et raffiné possédait un charme capable de séduire n'importe qui.
+Ce jour-là, trois rayons d'énergie d'épée traversèrent rapidement les étoiles. Celle qui menait le groupe était une femme vêtue d'une robe de gaze violet clair. Sa tenue était simple mais pleine de goût, dégageant une élégance naturelle. Un léger maquillage aux fleurs de prunier ornait son visage. Son visage unique et raffiné possédait un charme capable de séduire n'importe qui.
 
 Le plus frappant restait ses yeux, qui brillaient comme des étoiles. Son corps exhalait un parfum subtil qui se répandait partout sur son passage. Plusieurs disques papillons scintillants ornaient le côté droit de son front, et leurs reflets colorés la rendaient encore plus belle.
 
@@ -98,7 +98,7 @@ L'expression de ce corps était aussi glaciale qu'une glace millénaire. Il dég
 
 ***
 
-Quelques mois plus tard, le corps de Wang Lin choisit une nouvelle planète abandonnée. Il s'enfonça dans son noyau et ferma les yeux pour cultiver. Il avait choisi ce monde car il possédait une couche naturelle de tonnerre.
+Quelques mois plus tard, le corps de Wang Lin choisit une nouvelle planète abandonnée et cachée. Il s'enfonça dans son noyau et ferma les yeux pour cultiver. Il avait choisi ce monde car il possédait une couche naturelle de tonnerre.
 
 ***
 
@@ -136,7 +136,7 @@ Il n'y avait rien à l'intérieur... Seul un rayon de lumière blanche jaillit e
 
 La lumière blanche disparut dans l'esprit de Zhou Ru, libérant un sceau... Les souvenirs enfouis apparurent alors lentement devant elle.
 
-« Pendant ces dix-neuf années, j'ai vu cet enfant grandir comme si elle était la mienne. Grand frère Wang... Je ne peux pas le supporter... Wan Er est si insensée; je vous ai déçu... »
+« Pendant ces dix-neuf années, j'ai vu cet enfant grandir comme si elle était la mienne. Grand frère Wang... Je n'ai pas eu le cœur... Wan Er est si insensée; je vous ai déçu... »
 
 Des larmes coulèrent sur les joues de Zhou Ru. Après un long moment, elle baissa la tête et s'assit en serrant ses genoux contre sa poitrine, incapable d'arrêter ses sanglots.
 
@@ -144,11 +144,11 @@ Des larmes coulèrent sur les joues de Zhou Ru. Après un long moment, elle bais
 
 ***
 
-Wang Lin absorbait actuellement l'énergie spirituelle céleste avec une frénésie totale. Autour de lui, les fragments de jade brisés s'accumulaient sans cesse. La quantité de jade nécessaire pour franchir le stade intermédiaire de l'Ascendant était terrifiante, bien supérieure à celle requise pour passer du stade initial au milieu. Cependant, Wang Lin en possédait suffisamment.
+Wang Lin absorbait actuellement l'énergie spirituelle céleste avec une frénésie totale. Autour de lui, les fragments de jade brisés s'accumulaient sans cesse. La quantité de jade nécessaire pour passer du stade intermédiaire au stade avancé de l'Ascendant était terrifiante, bien supérieure à celle requise pour passer du stade initial au milieu. Cependant, Wang Lin en possédait suffisamment.
 
 Il remarqua qu'après que son âme originelle eut dévoré l'ancien dragon tonnerre, tout avait changé. Son âme était devenue un gouffre sans fond face à l'absorption du jade céleste. Six mois s'étaient écoulés, et malgré une consommation quotidienne phénoménale, son âme originelle n'était toujours pas rassasiée.
 
-Le temps passa, la consommation de jade s'intensifia. Six mois supplémentaires s'écoulèrent, puis, un jour, Wang Lin ouvrit soudainement les yeux. Des éclairs traversèrent son regard et une aura capable de faire trembler le ciel jaillit de son corps.
+Le temps passa, la consommation de jade s'intensifia. Six mois supplémentaires s'écoulèrent, puis, un jour, Wang Lin ouvrit soudainement les yeux. Des éclairs traversèrent son regard et une aura capable de faire trembler la terre jaillit de son corps.
 
 Wang Lin se leva. L'expression calme, il fit un pas vers les cieux.
 

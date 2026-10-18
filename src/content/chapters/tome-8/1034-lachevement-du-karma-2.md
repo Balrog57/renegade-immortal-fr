@@ -92,9 +92,9 @@ En se retournant, elle perdit la raison. Wang Lin approchait à une vitesse inim
 
 « Quel karma? Ce démon ne comprend pas un mot de tes idioties! Puisque tu refuses de me laisser partir, ce démon va tout risquer pour te tuer! » Le Démon du Vent cessa de fuir. Sa vitesse, dont elle était si fière, n'était qu'une plaisanterie face à Wang Lin; comment aurait-elle pu espérer s'échapper?
 
-Elle avait dévoré la haine infinie de Yao Xixue, une haine impossible à effacer, et tout cela explosa sous la poursuite de Wang Lin. Cette rage fit instantanément ressortir les cicatrices sur le visage du Démon du Vent, les rendant plus féroces encore. Ces cicatrices, reliées entre elles, formèrent une rune et libérèrent un éclat de lumière verte.
+Elle avait dévoré les souvenirs de Yao Xixue, et la haine infinie qu'ils contenaient, une haine impossible à effacer, explosa sous la poursuite de Wang Lin. Cette rage fit instantanément ressortir les cicatrices sur le visage du Démon du Vent, les rendant plus féroces encore. Ces cicatrices, reliées entre elles, formèrent une rune et libérèrent un éclat de lumière verte.
 
-« Trésor de démon antique, le Drapeau de Scellement d'Âme! » cria le Démon du Vent en ouvrant les bras. Une quantité phénoménale d'énergie démoniaque se rassembla entre ses mains.
+« Trésor de démon antique, le Drapeau de Scellement des Âmes! » cria le Démon du Vent en ouvrant les bras. Une quantité phénoménale d'énergie démoniaque se rassembla entre ses mains.
 
 Une énergie démoniaque sans fin apparut et le monde entier fut enveloppé par une aura glaciale. Tout l'environnement montra des signes de gel et un vent hurlant commença à souffler.
 

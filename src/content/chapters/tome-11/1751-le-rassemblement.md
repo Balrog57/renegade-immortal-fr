@@ -36,7 +36,7 @@ Le brouillard lointain se distordit et l'atmosphère devint brusquement plus té
 
 Son visage était sombre; dès son arrivée, il aperçut la porte ainsi que Wang Lin!
 
-« Alors c'est toi! » Une intention meurtrière brilla dans les yeux du Daoïste aux Sept Couleurs, mêlée à un sentiment de soulagement. Comparé à une troisième âme qui aurait été trouvée par le Vieux Fantôme Zhan, il préférait mille fois que ce soit Wang Lin.
+« Alors c'est toi! » Une intention meurtrière brilla dans les yeux du Daoïste aux Sept Couleurs, mêlée à un sentiment de soulagement. Comparé à une troisième âme qui aurait été trouvée par le Vieux Fantôme Zhan, il préférait que ce soit Wang Lin.
 
 « Tant qu'il ne s'agit pas du Vieux Fantôme Zhan, il y a encore une chance de renverser la situation! » Le Daoïste aux Sept Couleurs agita sa manche et se dirigea vers la planète située devant la porte.
 
@@ -98,11 +98,11 @@ Peu après l'arrivée du Souverain, plusieurs rayons de lumière percèrent le b
 
 L'une d'elles observa Wang Lin avec une expression complexe. C'était la troisième concubine, celle qui avait interagi avec lui dans la Tombe Antique!
 
-Les disciples de la Secte des Sept Dao, échappés de l'Ancien Royaume Céleste dans le Royaume Extérieur, arrivèrent avec les concubines. Ils encerclèrent la zone, les yeux rivés sur Wang Lin.
+Les disciples de la Secte des Sept Dao, venus de l'Ancien Royaume Céleste dans le Royaume Extérieur, arrivèrent avec les concubines. Ils encerclèrent la zone, les yeux rivés sur Wang Lin.
 
 Bientôt, Zi Xia arriva de la Rivière Invoquée. Après avoir inspecté les lieux, son regard tomba sur Wang Lin, encerclé, et une lueur meurtrière traversa ses yeux.
 
-Elle le haïssait depuis l'instant où il avait refusé de s'allier à elle; l'intention de tuer avait déjà germé dans son cœur à cette époque. Si elle n'avait pas su qu'elle ne pouvait rivaliser avec lui, elle l'aurait attaqué depuis longtemps. En voyant Wang Lin ainsi acculé, elle laissa échapper un ricanement méprisant.
+Elle lui en voulait depuis l'instant où il avait refusé de s'allier à elle; l'intention de tuer avait déjà germé dans son cœur à cette époque. Si elle n'avait pas su qu'elle ne pouvait rivaliser avec lui, elle l'aurait attaqué depuis longtemps. En voyant Wang Lin ainsi acculé, elle laissa échapper un ricanement méprisant.
 
 Un instant plus tard, une lueur bleue jaillit et le Maître du Dao Rêve Bleu apparut. Quelque chose avait changé en lui. Le Daoïste aux Sept Couleurs et le Vieux Fantôme Zhan tournèrent immédiatement leur attention vers lui.
 
@@ -110,7 +110,7 @@ Le Maître du Dao Rêve Bleu restait impassible, ignorant superbement les regard
 
 Les derniers à apparaître furent les membres de la planète des Cinq Éléments, menés par le vieil homme nommé Ma. Leur arrivée stupéfia l'assistance. Au moment même où ils se manifestèrent, Wang Lin ouvrit les yeux.
 
-Son regard était serein. Dès qu'il les ouvrit, toute l'attention se détourna des gens de la planète des Cinq Éléments pour se concentrer à nouveau sur lui. Chaque personne présente possédait un niveau de culture élevé; un mortel ordinaire aurait été terrassé par une telle concentration de puissance.
+Son regard était serein. Dès qu'il les ouvrit, toute l'attention se détourna des gens de la planète des Cinq Éléments pour se concentrer à nouveau sur lui. Chaque personne présente possédait un niveau de culture élevé; un mortel ordinaire aurait pu être ébranlé par une telle concentration de puissance.
 
 Toutefois, le visage de Wang Lin resta neutre tandis que son regard balayait l'assemblée.
 

@@ -34,7 +34,7 @@ Wang Lin le regarda froidement et fit un geste de la main droite. Il projeta l'i
 
 Une fois cela fait, Wang Lin examina brièvement la formation avant de se rasseoir pour se plonger dans une profonde réflexion.
 
-Le rugissement tonitruant avait réduit tout le monde au silence à l'intérieur de la vallée. Ce silence perdura trois jours.
+Cette démonstration de puissance tonitruante avait réduit tout le monde au silence à l'intérieur de la vallée. Ce silence perdura trois jours.
 
 Pendant trois jours, Wang Lin resta immobile, et aucun son ne provint de l'intérieur de la vallée.
 

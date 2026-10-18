@@ -24,7 +24,7 @@ De plus, chaque année, la famille Teng leur offrait des cadeaux tels que des ma
 
 On pouvait dire que la Vallée de Wu Feng était devenue une secte privée appartenant à la famille Teng.
 
-À ses débuts, certains s'y opposaient. Les membres de la Vallée de Wu Feng s'étaient révoltés et avaient fait part de leurs inquiétudes, mais après des centaines d'années, plus personne ne manifestait d'opposition, et même les disciples de la vallée croyaient désormais faire partie de la famille Teng.
+À ses débuts, certains s'y opposaient. Les membres de la Vallée de Wu Feng s'étaient opposés et avaient fait part de leurs inquiétudes, mais après des centaines d'années, plus personne ne manifestait d'opposition, et même les disciples de la vallée croyaient désormais faire partie de la famille Teng.
 
 Après tout, des siècles peuvent tout changer, et la plupart des disciples actuels de la Vallée de Wu Feng appartenaient à une nouvelle génération acceptée au cours de la dernière centaine d'années.
 
@@ -242,11 +242,11 @@ C'était là sa véritable préoccupation. Après réflexion, il se demanda quel
 
 Après avoir mûri sa pensée, il repartit, le visage sombre. À son retour, il activa toutes les formations de protection de la Ville de la Famille Teng, sans se soucier du coût. Il se mit ensuite en culture fermée pour maintenir son corps à son apogée et être prêt au combat à tout instant.
 
-Pour Wang Lin, ces quatre jours de carnage et ce millier de morts n'étaient que le début. Comparé aux plus de dix mille membres de la lignée de la famille Teng, ce n'était qu'une petite partie.
+Pour Wang Lin, ces quatre jours de carnage et ce millier de morts n'étaient qu'un premier pas. Comparé aux plus de dix mille membres de la lignée de la famille Teng, ce n'était qu'une petite partie.
 
 Wang Lin se tenait sur sa bête moustique, et derrière lui traînaient près de mille corps. Ces cadavres couvraient une zone de plusieurs centaines de mètres et, lorsqu'il survolait une région, ils projetaient une ombre immense sur la terre en dessous.
 
-Ses yeux restaient glacials, comme une glace qui ne fondrait jamais, même après des dizaines de milliers d'années. Sa prochaine destination était la Secte He Huan.
+Ses yeux restaient glacials, comme une glace qui ne fondrait jamais, même après dix mille ans. Sa prochaine destination était la Secte He Huan.
 
 La Secte He Huan était devenue la première secte démoniaque de Zhao. Elle possédait de vastes ressources et des milliers de disciples. On comptait au total 481 membres de la famille Teng au sein de cette secte. Ces individus n'étaient pas tous des disciples de la secte, mais ils s'y trouvaient actuellement.
 
