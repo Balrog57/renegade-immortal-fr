@@ -18,7 +18,7 @@ import sys
 sys.stdout.reconfigure(encoding="utf-8")
 
 REPO_ROOT = pathlib.Path(__file__).resolve().parents[1]
-ZH_SRC_DIR = pathlib.Path(r"C:\Users\Marc\Downloads\renegade\chapitres_zh")
+ZH_SRC_DIR = REPO_ROOT / "tmp" / "zh_aligned"
 NAS_ROOT = pathlib.Path(r"\\192.168.1.150\Media\Livres\EBOOK\Renegade Immortal")
 NAS_ZH_DIR = NAS_ROOT / "chinois"
 NAS_WW_DIR = NAS_ROOT / "wuxiaworld"
@@ -90,7 +90,12 @@ def copy_and_organize_chinese_chapters():
         dest_file = dest_dir / f.name
 
         try:
-            shutil.copy2(f, dest_file)
+            # même numéro, autre titre : fichier obsolète à retirer
+            for old in dest_dir.glob(f"{num:04d}_*.txt"):
+                if old.name != f.name:
+                    old.unlink()
+            text = f.read_text(encoding="utf-8-sig").replace("\r\n", "\n")
+            dest_file.write_bytes(b"\xef\xbb\xbf" + text.encode("utf-8"))  # UTF-8 BOM + LF comme l'existant
             copied_count += 1
         except Exception as e:
             errors.append(f"Erreur copie {f.name} vers {book_name} : {e}")

@@ -111,3 +111,5 @@ Plus loin, les deux barrières formées par les cultivateurs en robes noire et r
 Une fois l'étoile détruite, une grande quantité de puissance fut absorbée par les tentacules, mais les yeux de l'ancien dieu brillèrent d'une lueur étrange et il commença un chant complexe. Une partie de cette puissance fut détournée pour former, devant le Serpent aux yeux de lune, un réseau de transfert très rudimentaire!
 
 « Membre de mon clan... Dépêchez-vous... Amenez mon véritable membre de clan ici... »
+
+Wang Lin resta silencieux, jeta un long regard à l'ancien dieu affaibli, puis fit un pas dans le réseau de transfert et disparut!
